@@ -1,0 +1,1 @@
+Mme Ramin (Louise), secrétaire-dactylographe auxiliaire en service au Ministère de la Fonction Publique, est mise à la disposition du Vice-Président du Conseil de Gouvernement, Ministre des Travaux Publics et du Port, pour compter du 11 juillet 1960.
