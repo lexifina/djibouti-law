@@ -1,0 +1,1 @@
+une permission de trente jours à passer à Diré-Daoua est accordée au caporal infirmier Lombard, de la section des Infirmiers militaires des Troupes coloniales, dans les conditions prévues par l’article 12 du décret du 23 décembre 1903, position 21.
