@@ -1,0 +1,1 @@
+Mme Kadidja Abdoullahi est engagée en qualité d’infirmière au salaire mensuel de cinq mille six cent vingt francs (5.620 fr.), exclusif de toutes indemnités, y compris celles allouées pour char ges de famille. L’intéressée est mise à la disposiiton du Directeur du Service de Santé à compter du 1er juillet 1952
