@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 156/8e L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas, fixant la date d’ouverture et la durée de la 2e Session Ordinaire de 1975 de la Chambre des Députés.
