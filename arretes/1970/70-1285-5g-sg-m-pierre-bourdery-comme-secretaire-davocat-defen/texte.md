@@ -1,0 +1,2 @@
+M. Pierre Bourdery est admis à exercer la profession de secrétaire d’avocat-défenseur (attaché à l’étude de Maître Vimar) dans le Territoire Français des Afars et des Issas, pour compter de la date de la signature du présent arrêté,
+Avant d’entrer en fonctions, M. Pierre Bourdery prêtera serment devant le Tribunal supérieur d’appel de Djibouti, conformément à l’article 8 de l’arrêté n° 963 du 926 sentemhrae 1950.
