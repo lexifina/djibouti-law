@@ -1,0 +1,2 @@
+La décision n° 1124 du 19 octobre 1960 est annulée En application de l’article 32 de l’arrêté local n° 173 du 11 février 1937, portant règlementation de la circulation en Côte Française des Somalis, pour compter du 24 févrièr 1961, M. Tho-
+lomier, ingénieur des Travaux Publics, est chargé des examens du permis de conduire dans le Territoire, et percevra l’indemnité spéciale à cette charge qui est fixée à cent francs (100 FD.) par examen.
