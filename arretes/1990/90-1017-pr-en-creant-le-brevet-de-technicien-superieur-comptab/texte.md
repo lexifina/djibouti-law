@@ -1,0 +1,4 @@
+Les contenus de la formation préparant à ce brevet de technicien supérieur sont précisées à l’annexe II.
+En formation initiale, les enseignements permettant d’atteindre les compétences requises du technicien supérieur sont dispensées conformément à l’horaire figurant à l’annexe III du présent arrêté.
+La formation sanctionnée par le brevet de technicien supérieur Comptabilité et gestion comporte un stage professionnel en entreprise dont l’organisation et les finalités sont fixées à l’annexe IV du présent arrêté.
+Les dispositions du présent arrêté relatives à l’organisation de la formation entreront en application à la rentrée de l’année scolaire 1990-1991 en ce qui concerne les programmes de première année, et à la rentrée scolaire 1991-1992 en ce qui concerne les programmes de seconde année.
