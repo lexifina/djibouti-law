@@ -1,0 +1,2 @@
+# Article unique
+– Sont abrogées, en ce qui concerne les charbons pour l’électricité, les dispositions de l’arrèté du 24 févrirer 1915 susvisé qui avaient permis l’exportation ou la réexportation sans autorisation préalable des envois avant pour destination l’Angléterre, les dominions, les pays de protectorat et colonies britanniques , la Belgique, le Japon. la Russie ou les États de l’Amériaqaue.
