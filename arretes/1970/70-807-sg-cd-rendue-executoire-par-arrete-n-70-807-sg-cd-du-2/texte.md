@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 116/7eL du 20 juin 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas complétant l’organisation du Port de Commerce de Djibouti en ce qui concerne le fonctionnement des fonds spéciaux du Port.
