@@ -1,0 +1,1 @@
+la Commission permanente de l’Assemblée Territoriale a accordé à M. Hassan Gouled la concession provisoire d’une parcelle de terrain d’une superficie de 829 mètres carrés, sise à Djibouti, Avenue XIII prolongée, au prix de 500 francs le mètre carré.
