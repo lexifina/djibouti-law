@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 68/6e L du 29 mai 1964 de l’Assemblée Territoriale portant application, en Côte Française des Somalis, de la nomenclature des actes professionnels des médecins, chirurgiens dentistes, sages-femmes et auxiliaires médicaux.
