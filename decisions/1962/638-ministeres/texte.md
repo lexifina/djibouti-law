@@ -1,0 +1,1 @@
+M. Mercier Roger est autorisé à exploiter dans la Station Service « Shell», boulevard de la République, une licence de 5e classe pour la vente au détail ou à consommer sur place de boissons hygiéniques non fermentées.
