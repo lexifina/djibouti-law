@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Osman Moussa Goumane, agent d’hospitalisation de 1re classe, 2° échelon, du Corps territorial de la Santé publique, en service à l’hôpital Peltier, pour attitude incorrecte à l’égard d’un niédecin chef de service, dans l’exercice da sac fnnrtions.
