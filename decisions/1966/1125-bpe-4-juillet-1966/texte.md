@@ -1,0 +1,1 @@
+M. Morla (Louis), officier de police principal, est cumulativement avec ses fonctions actuelles nommé, à titre intérimaire, chef du Service de la Sûreté générale pour compter du 30 juin 1966, et pendant la durée de l’absence de M. Gouillaud, titulaire d’un congé administratif.
