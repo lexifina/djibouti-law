@@ -1,0 +1,24 @@
+# Décret n° 74-77 Nomenclature du matériel médical et pharmaceutique à embarquer sur les navires de commerce, de pêche et de plaisance.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-77-nomenclature-du-materiel-medical-et-pharmaceutique-a-embarquer-sur-les-navires-de-commerce-de-peche-et-de-plaisance/>
+
+En vigueur : 1974-03-10 (date du Journal officiel qui le publie).
+
+## Visas
+
+Vu la loi du 20 mai 1967 sur la sauvegarde de la vie humaine en mer et l’habitabilité à bord des navires ;
+Vu le décret n° 68-206 du 17 février 1968 relatif à la sauvegarde de la vie humaine en mer et à l’habitabilité à bord des navires, notamment l’article 7 ;
+Vu le décret n° 69-1141 du 11 décembre 1969 fixant les règles générales de sécurité auxquelles doivent satisfaire les navires français autres que les navires de plaisance d’une longueur inférieure à 25 mètres, notamment les articles 2 et 10,
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
+| [art-006.md](art-006.md) | Art. 6 |
+| [art-007.md](art-007.md) | Art. 7 |
+| [art-008.md](art-008.md) | Art. 8 |
+| [art-009.md](art-009.md) | Art. 9 |
+| [art-010.md](art-010.md) | Art. 10 |
