@@ -1,0 +1,1 @@
+M. Mahmoud Mohamed Dabiro, commercant, demeurant à Djibouti, rue G–Clémenceau, est autorisé à acquérir une parcelle de terrain bâti, d’une superficie de 95,50 mètres carrés, sur laquelle est édifiée une maison en dur à usage d’habitation, sise à Djibouti, quartier 3, et immatriculée au Livre foncier du Territoire sous le n° 1609 au nom de M. Saleh Aouad Salem.
