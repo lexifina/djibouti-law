@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 145/8e L du 5 août 1975 de la Commission Permanente de la Chambre des Députés du Territore français des Afars et des Issas portant fixation du temps minimum de travail pour l’ouverture du droit aux prestations familiales servies par la Caïsse des Prestations Sociales et aux soins dispensés par le Service Médical Interentreprises.
