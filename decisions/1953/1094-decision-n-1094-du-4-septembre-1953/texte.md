@@ -1,0 +1,1 @@
+M. Ibrahim Aptidon Guedi est engagé en qualité de domestique au salaire mensuel de 5.200 francs, exclusif de toutes autres indemnités autres que celles pour charges de famille, et mis à la disposition de M. l’Inspecteur général de la France d’Outre-Mer Monguillot.
