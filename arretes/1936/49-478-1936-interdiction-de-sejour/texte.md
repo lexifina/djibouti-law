@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti, est interdit pendant cinq ans au nommé Abdillahi Nour, condamné à dix-huit mois de prison et cinq ans d’interdiction de séjour pour vol, et à compter du 4 septembre 1936 date de sa libération.
