@@ -1,0 +1,1 @@
+Est accordée à la Mission des Pères et Sœurs de Boulaos une remise gracieuse de la somme de vingt cinq mille francs (25.000 fr.), montant des ordres de recette n° 1062 et 1063 du 10 avril 1961 et représentant des taxes de vidange effectuée par le Service de la Voirie pendant les mois de mars et novembre 1960.
