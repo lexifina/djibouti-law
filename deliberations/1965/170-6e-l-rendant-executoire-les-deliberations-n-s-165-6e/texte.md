@@ -1,0 +1,1 @@
+rendue exécucutoire par arrêté n° 404 du 16 mars 1965, la Commission Pernente de l’Assemblée Territoriale a accordé à l’Administration «Biens du Diocèse de Djibouti» la concession provisoire d’une parcelle de terrain d’une superficie de 2.800 mètres carrés environ, à Arta ( T.F.556), à titre gratuit.
