@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 5-72 du 15 décembre 1972 du Conseil d’administration de l’Office des postes et télécommunications portant revalorisation de l’indemnité de responsabilité de caisse à compter du 1er janvier 1973.
