@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 185/6e L du 21 avril 1965 de l’Assemblée Territoriale autorisant le Chef du Territoire à acquérir, pour le compte du Territoire (budget annexe du Port) une parcelle de terrain.
