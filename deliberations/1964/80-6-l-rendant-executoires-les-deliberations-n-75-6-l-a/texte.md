@@ -1,0 +1,1 @@
+rendue exécutoire par arrête n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé à Mme veuve Gleyze, la concession provisoire d’une parcelle de terrain d’une Superficie de trois mille cinq cents mètres carrés, sise à Diibouti. auartier 7. au prix de deux cents francs le mètre carré.
