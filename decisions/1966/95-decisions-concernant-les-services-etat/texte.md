@@ -1,0 +1,1 @@
+M. Abdillahi Abdi Ahmed, aide-peintre à salaire journalier (catégorie 4) en service à la Voirie de Djibouti est licencié de son emploi pour compter du 13 novembre 1965, date de sa mise sous mandaf de dépôt (poste budgétaire n° 71).
