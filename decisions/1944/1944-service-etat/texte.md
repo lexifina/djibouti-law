@@ -1,0 +1,1 @@
+M. Ali Moussa Ildid, somali issa fourlaba, titulaire de la C.I.F. n° 52116/AS délivrée à Ali-Sabieh le 24 octobre 1952, est engagé à la Voirie de Djibouti en qualité d’éboueur 2e catégorie de la Convention collective territoriale du 16 mars 1956 (poste budgétaire n° 137).
