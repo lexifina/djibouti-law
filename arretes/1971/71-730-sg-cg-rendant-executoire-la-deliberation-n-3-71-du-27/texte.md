@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 3-71 du 27 avril 1971 du conseil d’administration de l’Office des Postes et Télécommunications, portant réaménagement des tarifs postaux et financiers du régime intérieur.
