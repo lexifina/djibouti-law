@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 90/8e L du 21 janvier 1974 portant délégation d’une partie des pouvoirs de la Chambre des Députés a la Commission permanente jusqu’a ouverture de la premiére session ordinaire de 1975.
