@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 241/7°L du 21 mars 1972 de la Commission permanente de 14 Chambre des Députés du Territoire Français des Afars et des Issas portant agrément d’un agent spécial de compagnie d’assurances.
