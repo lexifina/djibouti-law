@@ -1,0 +1,2 @@
+Art, 1″ La session ordinaire pour France 1939 de la Commission municipale de la commune mixte à Djibouti, qui devait se tenir au début de novembre en application des dispositions de article 15 de l’arréte du 16 mai susvisé, se tiendra exceptionnellement dans le courant du mois de décembre 1939,
+Art, 2. — Le présent arrété sera enregistré et publié au Journal officiel de la colonie après avoir donné lieu à des mesures de publicité extraordinaires
