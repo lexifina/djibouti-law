@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti a été interdit pendant cinq ans aux nommés: Mohamed Neuman, Saleh Mohamed, Mohamed Elmi, Mohamed Yousouf, Mohamed Mahmoud, Abdi Saad, Saïd Erey, Nassen Elmi, Fatma Djama,Abdi Yousouf, Kasley Askir, Ahmed Nour et Hidjo Ali.
