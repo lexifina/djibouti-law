@@ -1,0 +1,2 @@
+est pro mulgué à la Côte Française des Somalis et Dépendances :
+—le décret n* 45-1578 du 13 juillet 1945 portant application à Madagascar et Dépendances, à la Guyane, à la Côte Française des Somalis et à Saint-Pierre et Miquelon de l’ordonnance du 14 novembre 1944 portant application de l’ordonnance du 12 novembre 1943 sur la nullité des actes de spoliation accomplis par l’ennemi ou sous son contrôle.
