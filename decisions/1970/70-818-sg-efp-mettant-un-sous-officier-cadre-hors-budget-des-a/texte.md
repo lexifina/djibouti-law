@@ -1,0 +1,1 @@
+M. Jean-Marc Guelfucci, adjudant des Troupes de Marine, en position «cadre hors budget des armées », est, pour compter du 15 juin 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir au dispensaire Farah-Had, en remplacement numérique de l’adjudant-chef Holer, rapatriable.
