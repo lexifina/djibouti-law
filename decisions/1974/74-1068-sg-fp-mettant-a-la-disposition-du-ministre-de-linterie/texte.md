@@ -1,0 +1,1 @@
+M. Quies Bertrand, volontaire de l’Aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Intérieur et des Affaires musulmanes pour servir au cercle de Tadjourah en qualité d’assistant des Travaux publics de l’Etat, service comptant au ler avril 1974.
