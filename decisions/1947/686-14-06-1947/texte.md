@@ -1,0 +1,1 @@
+Le nommé Taher Houssein est reclassé agent technique, 2e classe, 10 échelon, pour compter du 1er janvier 1947. L’intéressé conserve dans son nouvel échelon une ancienneté de 22 mois au 1er janvier 1947.
