@@ -1,0 +1,1 @@
+Mme Françoise Lavezac, institutrice de 1er échelon (indice nouveau 222) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
