@@ -1,0 +1,1 @@
+Article ler. – L’immeuble sis à Djibouti, à l’angle de la ue Pierre-Curie et de l’avenue de Brazzaville, titre foncier n°169, appartenant à M. Mohamed Hassan Egueh, quartier 7, rue 56, maison 16 à l’usage de Bar (Le Soleil) dont l’état de délabrement et de vétusté risque par effondrement de compromettre la sécurité publique, devra être démoli complétement.
