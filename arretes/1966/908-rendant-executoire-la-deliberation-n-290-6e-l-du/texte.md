@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 290/6e L du 1er juin 1966 de l’Assemblée Territoriale de la Côte Française des Somalis exonérant de la F.I.C. les marchandises et matériaux destinés à lexécution des travaux financés sur le Fonds d’Investissement et de Développement économique et social (F.I.D.E.S.).
