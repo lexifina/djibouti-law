@@ -1,0 +1,1 @@
+M. G. Gulian, président du Secours catholique de Djibouti, est autorisé à organiser une tombola composée de 10.000 billets à 200 francs l’un, dont le produit sera exclusivement affecté aux ä besoins du Secours catholique pour ses œuvres.
