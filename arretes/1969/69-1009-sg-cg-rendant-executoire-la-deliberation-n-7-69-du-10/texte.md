@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 7-69 du 10 juin 1969, du Conseil d’administration de l’Office des Postes et Télécommunications, autorisant la restitution au port de commerce de Djibouti d’un local sis dans le hangar n° 4 du port, avec les aménagements qui y ont été apportés par l’Officé des Postes et Télécommunications.
