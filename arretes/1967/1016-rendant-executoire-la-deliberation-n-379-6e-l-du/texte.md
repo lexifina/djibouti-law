@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 379/6L du 30 mai 1967 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant modification des statuts de la Garde ‘territoriale.
