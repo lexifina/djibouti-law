@@ -1,0 +1,1 @@
+Est constatée, à partir du 20 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures à la Direction des Travaux publics (Ministère des Travaux publics et du Port) par M. Gaston Coupois, ingénieur des Travaux publics de l’Etat, 5e échelon.
