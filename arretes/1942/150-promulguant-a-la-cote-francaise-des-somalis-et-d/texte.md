@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 28 février 1942 étendant aux territoires relevant du se crétariat d’Etat aux colonies les dispositions de la loi du 21 janvier 1942 réprimant la lacération des affiches apposées au nom du Gouvernement ou sous son contrôle, ainsi que les manifestations antinationales ou antigouvernementales.
