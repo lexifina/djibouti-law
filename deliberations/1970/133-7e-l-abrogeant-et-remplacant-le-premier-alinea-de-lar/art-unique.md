@@ -1,0 +1,5 @@
+# Article unique
+— Le premier alinéa de l’article 54 de la délibération n° 103/7° L du 5 mai 1970 portant statut général des fonctionnaires des cadres territoriaux est abrogé et remplacé par les dispositions suivantes :
+«Art. 54 — En cas de maladie dûment constatée et mettant le stagiaire dans l’impossibilité d’exercer ses fonctions, il est de droit mis en congé. La durée totale du congé de maladie, période d’hospitalisation comprise, ne peut dépasser un an. L’intéressé bénéficiera pendant les trois premiers mois de la rémunération entière et pendant les trois autres mois, de la demi-rémunération.
+Pendant cette période d’un an, il conservera la totalité de ses prestations familiales. Le stagiaire, n’ayant pas la qualité de titulaire dans un autre cadre qui ne pourrait, à l’expiration de son dernier congé de maladie, reprendre son service, peut être mis, sur sa demande, en congé sans traitement pour une durée d’un an maximum, renouvelable par périodes ne pouvant excéder six mois, à concurrence d’une durée totale de trois ans, >
+Le reste sans changement.
