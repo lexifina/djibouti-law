@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 261/7° L du 12 mai 1972 de la Chambre des Députés relative à la protection des, richesses naturelles et gisements préhistoriques du Territoire Francais des Affars et des Issas,
