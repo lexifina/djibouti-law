@@ -1,0 +1,1 @@
+M. Martinez (Francois), conducteur de travaux contractuel, est mis à la disposition du Ministre des Travaux Publics et du Port, pour compter du 22 juillet 1960, date de son arrivée dans le Territoire.
