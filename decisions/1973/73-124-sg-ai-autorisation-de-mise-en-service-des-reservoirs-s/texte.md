@@ -1,0 +1,1 @@
+M. Kassim Hamadou Houssein est autorisé à mettre en service les réservoirs souterrains devant contenir des liquides inflammables et les installations de délivrance implantés à la station-service à enseigne « Total», boulevard périphérique d’Ambouli (face poste de gendarmerie).
