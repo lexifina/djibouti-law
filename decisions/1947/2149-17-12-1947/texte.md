@@ -1,0 +1,1 @@
+Le sergent Keravel (Lucien), désigné pour servir, hors cad res à la Côte française des Somalis, est affecté à la 2e compagnie de milice, pour compter du 12 décembre 1947, en qualité d’adjoint au lieutenant commandant le peloton méhariste de l’Alta.
