@@ -1,0 +1,3 @@
+M. Robin (Gurlauie), ingénieur de 1 classe du Cadre locäi des Travaux publics de la Côte rancaise des Somalis, de retour de congé, débarqué sur ie Territoire le G noversbre 1951, est mis à ie dispositions du. Directeur cu Service des Tra-
+vaux publics et affecté & Subdivision des Bâtiments en qualité ce Chef de Subdivision er rernplacernent de M. Udrissra, ingénieur-adjoint econtrsctue!, qui recoit une autre affectations.
+M. Udrisara. (Serge}, migénieur-adjoint contractuel. des ‘Eravaux publics, reste à la disposition du. Directeur des Services des. Travaux pubbcs pour servir à la Section. Urbanisme ».
