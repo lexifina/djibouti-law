@@ -1,0 +1,1 @@
+Le maréchal des logis chef Grellier (Marcel) a été nommé, à titre provisoire. commissaire de police de la ville de Djibouti, eu remplacement de l’adjudant de zendarmeri Blin, rapatrié sur la France pour fin de séjour colonial, à compter du 1er juin 1946.
