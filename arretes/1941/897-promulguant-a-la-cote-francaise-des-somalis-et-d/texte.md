@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 19 novembre 1941 modifiant l’article 6 du décret du 22 juillet 1939 supprimant la publicité d’exécution capitale dans les territoires relevant du Ministère des colonies, autres que les Antilles, la Réunion et Saint-Pierre-et-Miquelon.
