@@ -1,0 +1,1 @@
+MM. Ali Aref Bourhan, Président du Conseil de Gouvernement, Ministre des Travaux publies et du Port, Abdi Dembil Egual, Ministre du Travail, Djibril Hassan Rialeh, Ministre de l’Information et du Tourisme, sont autorisés à se rendre en mission en France.
