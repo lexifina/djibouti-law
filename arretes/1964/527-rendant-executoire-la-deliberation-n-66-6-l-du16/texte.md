@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la. délibération n° 66/6°L. du 16 avril 1964 de la Commission permanente de l’Assemblée Territoriale portant virement de crédit du Fonds spécial de renouvellement aux dépenses d’équipement (Travaux neufs, chapitre 5-2-I1) du Budget annexe du-Port.
