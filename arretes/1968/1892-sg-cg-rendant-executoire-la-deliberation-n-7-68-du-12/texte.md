@@ -1,0 +1,1 @@
+du conseil d’administration de l’Office des Postes et Télécommunications, autorisant l’annulation de l’immobilisation. du poste radio d’Ali-Sabieh pour une somme de cent soixante-deux mille cinq cents francs Djibouti (162.500 FD.).
