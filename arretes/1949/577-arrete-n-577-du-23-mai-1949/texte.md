@@ -1,0 +1,1 @@
+M. Giuatiniani (Jean), surveillant contractuel des travaux publics, est intégré dans le cadre local des travaux publics en qualité de surveillant principal de 3e Classe stagiaire pour compter du 1er mai 1949.
