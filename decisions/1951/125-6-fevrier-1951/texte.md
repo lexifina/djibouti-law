@@ -1,0 +1,1 @@
+Une permission d’absence à solde entière de trois semaines est accordée à Saleb Abdallah, ouvrier de la maîtrise du cadre local autochtone, en service à la Subdivision des travaux et bâtiments du Service des Travaux publics.
