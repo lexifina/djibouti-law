@@ -1,0 +1,2 @@
+Le Commandant d’Administration Carlin Antoine est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 11 mars 1962, date de son arrivée sur le territoire.
+Cet officier supérieur est désigné pour occuper les fonctions de Gestionnaire de l’Hôpital Peltier et d’Adjoint administratif du Directeur de la Santé Publique pour compter du 1er avril 1962 en remplacement du-Capitaine d’Administration Ferre rapatrié pour fin de séjour.
