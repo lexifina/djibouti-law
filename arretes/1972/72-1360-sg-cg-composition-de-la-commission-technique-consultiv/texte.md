@@ -1,0 +1,1 @@
+La Commission technique prévue à l’article 271 de la délibération n° 102/7e L du 5 mai 1970 portant code de la route du Territoire français des Afars et des Issas est complétée par un représentant du syndicat des propriétaires et chauffeurs de minibus et bus, membre.
