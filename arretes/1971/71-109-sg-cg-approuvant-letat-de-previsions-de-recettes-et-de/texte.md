@@ -1,0 +1,1 @@
+est approuve la delibration n°239 du 17 decembre 1971 du conseil d’administration d’electricite de djibouti arrete l’etat de prevision de recette et depense pour l’anne 1971 à la somme de neuf cent vinght deux millions soixante quinze mille francs djibouti (922.075.00 fd).
