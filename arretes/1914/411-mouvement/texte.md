@@ -1,0 +1,1 @@
+M.Cabasso (Isaac)a été nommé Commis-Greffier de 5me classe près les Tribunaux Français de la Côte Française des Somalis, par application de l’arrêté du 14 Novembre 1914; il a été en outre designé pour remplir les fonctions de Secrétaire du Parquet et du Chef du Service Judiciaire.
