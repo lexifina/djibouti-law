@@ -1,0 +1,1 @@
+Rectificatif au Journal officiel du 13 no vembre 1946 : Page 9581. 3e colonne. 20e ligne, ajouter : « 220 et 221 » : titre III. 5e ligne, au lieu de : « de menaces verbales et écrites ». lire : « menaces verbales ou écrites »: article 7. 12e ligne, ajouter : « de la justice »
