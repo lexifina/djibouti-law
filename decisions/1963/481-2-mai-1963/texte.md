@@ -1,0 +1,2 @@
+Le Capitaine d’Infanterie de Marine Potier Maurice, délégué administratif du Commandant de Cercle de Tadjourah, dans le Poste d’Obock, Président du Tribunal de ler degré et Officier de l’Etat civil du Centre d’Obock, depuis le 22 novembre 1961, est remis à la disposition du Général Commandant Supérieur des Forces Armées de la Côte Française des Somalis pour compter du 1er mai 1963.
+Le Commandant de Cercle de Tadjourah, est chargé de l’exécution de dla présente décision.
