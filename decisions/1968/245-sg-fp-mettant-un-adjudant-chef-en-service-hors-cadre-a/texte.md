@@ -1,0 +1,1 @@
+M. Guy. Danancher, adjudant-chef en service hors cadre, indice net 304 est, pour compter du 24 janvier 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales.
