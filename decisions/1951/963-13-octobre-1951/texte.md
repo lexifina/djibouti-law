@@ -1,0 +1,1 @@
+M. Fromentin (Robert), ouvrier d’art contractuel du Service des Eaux, est habilité à constater les infractions à la réglementation sur la distribution de l’eau à Djibouti. M. Fromentin (Robert) prêtera serment, conformément à la loi.
