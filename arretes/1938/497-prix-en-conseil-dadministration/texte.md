@@ -1,0 +1,1 @@
+M. Roger Donald est autorisé à occuper, à titre précaire et révocable, pour une durée maxima de dix ans, une parcelle du Domaine public d’une superficie de 675 mètres carrés environ sise au nord des abattoirs de Djibouti, entre les limites de l’emprise du chemin de fer franco-éthiopien et le rivage de la mer, en vue d’y édifier une maison meublée
