@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 375/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant ouverture de crédits au budget annexe du port de commerce de Djibouti — budget ordinaire — exercice 1973.
