@@ -1,0 +1,1 @@
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par. voie ferrée Marseille-Paris seront délivrées à M. Tidone, instituteur de 5e classe, admis à participer au stage des élèves-inspecteurs de l’E.N. de StlCloud et de Fontenay (groupe 3). La dépense est imputab
