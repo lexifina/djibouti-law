@@ -1,0 +1,1 @@
+L’Adudant-Chef d’Infanterie de Marine Cuer Pierre, adjoint au Commandement du Détachement Auütonome de la Milice à Al Sabieh est désigné:à partir du ir février 1961 comme billeteur du Détachement’Autonome de la Milice à Ali-Sabieh, en remplacement de l’Adjudant Guitton, agent spécial du Cercle.
