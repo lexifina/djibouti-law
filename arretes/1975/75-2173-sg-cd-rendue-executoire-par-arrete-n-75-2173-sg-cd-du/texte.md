@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 154/8e L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas, régularisant la mission en métropole de deux membres de la Chambre des Députés.
