@@ -1,0 +1,1 @@
+Le Est annulée l’autorisation avant entraîné l’octroi d’une licence de 1’° classe à M. Berthelot pour 1 bar Mme Fracasso est autorisée à exploiter une licence de 1 classe (débitants vendant toutes boissons à consommer sur place ou à emporter) au bar «Les Tritons», sis plage du Soleil à Djibouti.
