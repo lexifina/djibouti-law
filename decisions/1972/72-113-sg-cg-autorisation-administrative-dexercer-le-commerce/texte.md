@@ -1,0 +1,1 @@
+Dérogation est accordée à Mne Fatima Mohamed Ali, de nationalité éthiopienne, pour exercer la profession de gérante salariée, licence de 3° classe, au bar-restaurant « Chez Thérèse », sis 8, Avenue de Brazzaville à Djibouti, dont la propriétaire est Mme Askale Gochou.
