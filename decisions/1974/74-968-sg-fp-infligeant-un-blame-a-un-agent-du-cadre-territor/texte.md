@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier. est infligé à M. Abdi Megad Guessod, agent technique et ouvrier du cadre territorial, en service à la Présidence du conseil de Gouvernement, pour faute professionnelle.
