@@ -1,0 +1,3 @@
+La décision de Commission mixte, signée le 20 mars 1963, portant modification de certaines dispositions de la Convention collective des entreprises de manutention, d’acconage, de transport et de transit du Port de Djibouti, est rendue obligatoire pour tous les employeurs et travailleurs de la Côte Française des Somalis compris dans le champ d’application de ladite Convention, tel qu’il est déterminé en son article 1er.
+Les dispositions de la décision ainsi rendue obligatoire sont celles publiées au «Journal officiel» de la Côte Française des Somalis (partie non officielle) du 31 mars 1963.
+Le présent arrêté est applicable pour la durée et aux conditions prévues par la décision.
