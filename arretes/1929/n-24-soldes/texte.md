@@ -1,0 +1,1 @@
+il est concédé sur la Caisse locale des retraites, à Mme Marcangelli, veuve de M. Marcangeli (Juge-Antoine), ex-garde principal de la garde indigène, une pension de onze cents francs par an, pour compter du 1 er novembre 1928.
