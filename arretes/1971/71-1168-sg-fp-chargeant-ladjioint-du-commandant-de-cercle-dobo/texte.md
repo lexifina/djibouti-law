@@ -1,0 +1,1 @@
+M.Saleh Hassan Ahmed,redacteur de 2°classe,2°echelons du corps territoirale de l’administration generale adjoint au commandant du cercle d’obock,est charge des affaires courantes territorale de ce cercle en cas d’absence ou d’empechement de M.Françis delmotte commandant du cercle par interim.
