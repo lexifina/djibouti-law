@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 174/7° L, du 23 avril 1971, de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas, accordant à M. Abdou Awad Mohamed Robah la concession provisoire d’une parcelle de terrain sise à Ambouli.
