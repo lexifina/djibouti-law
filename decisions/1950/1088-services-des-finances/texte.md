@@ -1,0 +1,1 @@
+La solde mensuelle de M. Raymond Saurin est fixée à trente-trois mille huit cent trente francs pour compter du 1er avril 3950, et à trente-cinq mille six cent soixante-dix francs pour compter du juillet 1950.
