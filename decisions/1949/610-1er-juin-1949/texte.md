@@ -1,0 +1,1 @@
+M. Cecbak (Vladimir); chef surveillant rie 2e classe du cadre local des travaux publics, est nommé dans le même cadre adjoint technique principal de 3e classe à compter, tant pour l’nncienneté que pour la solde, du 17 février 1949.
