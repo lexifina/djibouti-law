@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 155/7°L du 24 décembre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en Métropole le Président de la Chambre des Députés.
