@@ -1,0 +1,1 @@
+M. Nizan André, agent contractuel est pour compter du 19 juillet 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir en qualité de chef de garage au cercle d’Obock.
