@@ -1,0 +1,2 @@
+Mme Maryvonne Delattre, agent de contrôle. contractuel (catégorie C) au Service des Affaires économiques, est habilitée à constater par procès-verbaux les infractions à la réglementation du commerce dans le Territoire Français des. Afars et des Issas.
+Avant d’entrée en fonction, Mme Maryvonne Delattre prêtera le serment prescrit par la loi devant le président du tribunal de première instance de Djibouti.
