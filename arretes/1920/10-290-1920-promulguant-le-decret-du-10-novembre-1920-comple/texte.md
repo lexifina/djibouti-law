@@ -1,0 +1,2 @@
+Art, 1er,— Est promulgué dans la Colonie pour y être exécuté selon sa forme et teneur, le décret du 23 novembre 1920, complétant le décret du 5 mai 1920, qui modilie les décrets des 27 janvier 1855 et 14 mars 1890 sur l’administration des successions vacantesaux colonies.
+Art, 2.— Le Secrétaire général du Gouvernement est chagé de l’exécution du présent arrèté qui sera enregistré, publié et communiqué partout où besoin sera et inséré au Journal officiel de la Colonie.
