@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1-72 du 15 janvier 1972 du Conseil d’administration du Centre d’études géologiques et de dévelopement, arrêtant le budget du centre pour l’exercice 1972 (section ordinaire) à sept millions trois cént cinquante mille francs. Djibouti (7.350.000 F.D).
