@@ -1,0 +1,1 @@
+Est constatée, pour compter du 9 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions au Service de l’Enseignement du premier degré (Ministère de l’Enseignement, des Sports et de la Jeunesse) par Mme Anna Luiggi, institutrice, 1° échelon.
