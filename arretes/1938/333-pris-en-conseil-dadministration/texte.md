@@ -1,0 +1,3 @@
+M. Besse est autorisé à titre précaire et révocable à occuper, sur le terre-plein du port, une bande supplémentaire de terrain de quatre cent cinquante-cinq mètres carrés, en vue d’y construire des magasins.
+Ce terrain est situé dans ln région nord du terre-plein, ln la forme d’un rectangle de 13m X 35m ef s’étend en bordure de celni antorisé par arrêté n° 867 du 21 noût 1937.
+Ces installations de magasins sont sonmises aux conditions fixées par le enhier des charges annexé à l’arrêté en date dn 22 avril 1937, les délais prévus dudit cahier des charges partant de la date de la parution du présent arrêté.
