@@ -1,0 +1,1 @@
+Mlle Haïd Hélène, titulaire du B.E. P.C. est engagée pour compter du 1er février 1964, en qualité d’élève-institutrice de 2e classe du Corps Territorial de l’Enseignement Public et mise à la disposition du Ministre de l’Enseignement des Sports et de la Jeunesse.
