@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n® 84/8e L du 21 Janvier 1975 de la Chambre des Députés du Territoire francais Afars et des Issas portant octroi de l’aval du Territoire emprunt de 8 400000 FF contracté par l’Office des Poste Télécommunications auprés de la Caisse centrale de Coopération economique.
