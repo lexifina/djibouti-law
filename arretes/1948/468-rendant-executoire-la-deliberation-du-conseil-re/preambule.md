@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er — Est rendue exécutoire la délibératon du Conseil représentatif de la Côte francaise des Somalis en date du 1 mars 108 relative à la concess!on provisoire à titre onéreux faite à la Societe à à rexnonsah’l’té limités Union commercial et industrielle de Djibouti », d’une pareelle de teéerrain d’une superficie de 674 m² 50 formant le lot n° 8 du plan de lotissement du quart’er de l’Ancien “Abattoir, telle qu’au plus elle est figurée sur le plan joint.
