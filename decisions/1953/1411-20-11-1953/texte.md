@@ -1,0 +1,2 @@
+Mme Garon k (Madeleine), Thomas ( Geneviève) et Tissot (Juliette), dames-employées auxiliaires 2e catégorie, sont nommées dames-employées auxiliaires 1er catégorie, pour compter du 1er décembre 1953.
+Mme Capo (Andrée), Durand (J eanne), Durbize (Andrée), Peyssard (Claudine) et Rolland Lydia), dames-employées auxiliaires de 3e catégorie, sont nommées dames-employées auxiliaires de 2e catégorie, pour compter du 1er décembre 1953.
