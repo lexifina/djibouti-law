@@ -1,0 +1,1 @@
+l’aspirant Delaporte a pris le commandement du peloton méhariste du Henlé et celui du poste administratif de Dawano, pour compter du 1er décembre 1945. en remplacement du lieutenant Morère, affecté à la mission de délimitation des frontières.
