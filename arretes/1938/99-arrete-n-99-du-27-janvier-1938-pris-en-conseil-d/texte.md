@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle supplémentaire du 4e trimestre des patent es « B » (exercice 1937), du Cercle militaire de Dikkil-Gobad, comprenant vingt-sept articles et s’élevant à la somme de sept cent soixante-cinq francs.
