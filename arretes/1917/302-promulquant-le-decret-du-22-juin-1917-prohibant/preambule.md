@@ -1,0 +1,2 @@
+# Préambule
+Art 1er.- Sont promulgués dans la Colonie pour v être exécutés selon ses forme et teneur; 1° le décret du 22 juin 1917 probhibant la sortie des fibres vulcanisées, des machines à moudre, des machines à broyer et des mandrins de toute espèce, 2° l’arrêté ministériel du 7 juillet 1917 portant dérogation aux prohibilions de sortie indiquées ci-dessus, sauf en ce qui concerne les mandrins,
