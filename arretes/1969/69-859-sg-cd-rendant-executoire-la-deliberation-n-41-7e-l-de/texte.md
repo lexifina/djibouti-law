@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 41/7e L du 27 mai 1969 de la Chanbre des Députés du Territoire Français des Afars et des Issas envoyant en mission en métropole un membre de la Chambre des Députés.
