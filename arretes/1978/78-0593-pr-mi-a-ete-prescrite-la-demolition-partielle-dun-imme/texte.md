@@ -1,0 +1,1 @@
+Art. ler. – L’immeuble sis à Djibouti, boulevard DeGaulle, près du Palace Hotel, titre foncier n° 1019, appartenant à M. Omar Kamil Warsama, dont l’état de délabrement et de vétusté risque par effondrement de compromettre la sécurité publique, devra être démoli pour la partie premier étage de l’immeuble, côté sud, y compris la dall des escaliers, servant de palier.
