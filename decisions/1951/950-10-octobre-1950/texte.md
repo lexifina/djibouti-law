@@ -1,0 +1,1 @@
+M. Guilbot (Jean), Administrateur 2e échelon de la France d’Outre-Mer, remplira cumulativement avec ses fonctions actuelles les fonctions de Chef de cabinet par intérim du Gouverneur de la Côte Française des Somalis, en remplacement de M. Grandperrin, qui a reçu une autre affectation.
