@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 289/7° L du 13 octobre 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas modifiant l’article 6 de l’arrêté n° 58 du 19 janvier 1939 relatif à l’organisatlon des prisons du Territoire.
