@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibérétion n° 48/7°L du 7 juillet 1969 de la Commission permänente de la Chambre des Députés portant ouverture de crédits supplémentaires au budget du Service local pour l’exercice 1969.
