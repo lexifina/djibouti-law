@@ -1,0 +1,1 @@
+M. Henri Michaud, gardien de la paix de la Direction générale de la Police municipale, 9 échelon, est, pour compter du 21 novembre 1970, date de son retour au Territoire, mis à la disposition du Directeur de Cabinet du Président du Conseil de Gouvernement, pour servir à la garde présidentielle.
