@@ -1,0 +1,1 @@
+est donné main-levée à M. Nocéto, adjudicataire des travaux de construction d’une annexe à l’hôtel du Gouvernement au plateau du Serpent, du cautionnement de garantie de 1.500 f., a consitué le 9 mai 1912.
