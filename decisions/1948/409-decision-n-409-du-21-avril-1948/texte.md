@@ -1,0 +1,1 @@
+M. Vogelbach (Pierre), pilote du port de Djibouti, est désigné comme représen tant de l’Union autonome des syndicats de la Côte francaise des Somalis au sein de la commission des prix, en remplacement de M. Gabourdes (Louis), en situation de congé.
