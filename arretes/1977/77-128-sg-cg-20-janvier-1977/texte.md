@@ -1,0 +1,1 @@
+M. Ahmed Ibrahim Abdi, inspecteur de 2e classe, 2e échelon du cadre territorial des Contributions est nommé délégué administratif permanent du Territoire français des Afars et des Issas à Paris, pour compter du 1er janvier 1977.
