@@ -1,0 +1,1 @@
+Est rendu exécutoire le 2e rôle supplémentaire du rachat des prestations (exercice 1937) comprenant mille neuf cent quatre -vingt-cing articles et s’élevant à la somme de trente-neuf mille sept cents francs.
