@@ -1,0 +1,1 @@
+La décision n° 859/BPE du 19 mai 1967 est annulée en ce qui concerne la nomination de M. Honoré Barrin, attaché de la France d’outre-mer, en qualité de président du Tribunal du deuxième desré dans le ressort du Cercle d’Ali-Sabieh.
