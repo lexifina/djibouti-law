@@ -1,0 +1,1 @@
+Est rendue exécutoire la déibération du Conseil représentatif de la Côte française des Somalis en date du 19 octobre 1950 relative à la concession définitive à la SociétéL. Savon et C, à Djibouti, d’une parcelle de terrain de 1.200 mètres carrés, sise à Djibouti,immariculée au Livre foncier sous le n° 425, accordée en concession provisoire par arrêté n° 1194Ms du2 décembre 1948.
