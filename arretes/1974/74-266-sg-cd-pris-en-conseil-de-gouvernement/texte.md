@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 15/8° IL, du 2 février 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas, fixant le prix du mètre carré de terrain dans les divers lotissements de la ville de Djibouti.
