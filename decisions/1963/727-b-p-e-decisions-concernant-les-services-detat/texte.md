@@ -1,0 +1,1 @@
+M. Bourdery Pierre, Inspecteur Central des Impôts, 2° échelon (indice net ancien 465) est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan pour compter du 26 mai 1963, date de son arrivée dans le Territoire.
