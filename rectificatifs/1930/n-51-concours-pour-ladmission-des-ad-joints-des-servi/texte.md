@@ -1,0 +1,1 @@
+Rectificatif au Journal officiel du 10 août 1930, page 9266, 1″° colonne, 37° ligne en remontant, au lieu de : Huit jours à l’avance au Journal officiel », lire : méme colonne, 4° ligne on remontant, au leu de : « L’article 5 », lire : & L’article 6
