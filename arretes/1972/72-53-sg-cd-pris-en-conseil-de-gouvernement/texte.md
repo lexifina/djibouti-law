@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 234/7° L du 31 décembre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant des parcelles de terrains domaniaux en concession provisoire.
