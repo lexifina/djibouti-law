@@ -1,0 +1,1 @@
+M. Douteau (Pierre), Secrétaire administratif du corps latéral de préfecture, est nommé, pour compter du 5 avril 1966, billeteur pour le paiement de la solde et des allocations ‘accessoires des personnels mensuels et journaliers des subdivisions du Port, entretenues sur les fonds du budget annexe du Port, en remplacement de M. Landru (Gaston).
