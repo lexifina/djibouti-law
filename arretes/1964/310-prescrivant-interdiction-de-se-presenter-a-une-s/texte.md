@@ -1,0 +1,11 @@
+Il est interdit de se présenter à une session de permis de conduire avant une durée de :
+né vers 1940 à Djibouti, de Galeb Gouleh et de Eblah Aleh, soldat de 2e classe au B.C.S. n° 6 de Djibouti, en vue de l’obtention des permis de catégories « À 1 et A» ;
+Un an, au sieur Mohamed Bodleh Adaweh, somali issa oroné, né vers 194 à Djibouti, de Bodleh Adaweh et de Abiba Arreh.
+sans profession, demeurant à Djibouti, quartier n° 6, en vue de l’obtention des permis de catégories « B-C-D-E » ;
+Six mois, au sieur Mohamed Gueldon Boulaleh, somali issa fourlaba, né vers 1940 à Djibouti, de Gueldon Boulaleh et de Mariam Gueleh, surveillant-chef au C.F.E., demeurant à Djibout, quartier n° 6, en vue de l’obtention des permis de catégories €A 1 et A»;
+Six mois, au sieur Randrianasolo (Edison), né le 9 octobre 1939 à Antsirabe (République Malgache), de Daniel et de Razanatahiry (Joséphine), caporal-chef au B.C.S. n° 6 à Djibouti, en vue de l’obtention des permis de catégories « A 1 et A5;
+Un an, au sieur Houssein Mohamed Houmed, afar adarassoul, ne vers 1932 à Dikhil (C.F.S.), de Mohamed Houmed et de Moumina Houssein, aide-mécanicien aux T.P. de Djibouti, y demeurant; quartier n° 7, en vue de l’obtention des permis de catégories «B-C-D-E » :
+Un an, au sieur Ahmed Farah Mouhoumed, somali issack idagaleh, né vers 1934 à Arguéissa (R. S.), de Farah Mouhoumed et de Ardo Farah, objet d’un arrêté d’expulsion, en vue de l’obtention des permis de catégories «Un an, au sieur Houssein Ahmed Mohamed, somali aouyeh, né vers 1928 à Arguéissa (R.S.), de Ahmed Mohamed et de Ambaro Mohamed, mécanicien, demeurant à Djibouti, quartier n° 3, en vue de l’obtention des permis de catégories « B-C-D-E » :
+Six mois. au sieur Aroul (Hector), né le 15 janvier 1935 à Karikal (Indes), de Luis et de Daas (Joséphine), aide-comptable, demeurant à Djibouti, avenue de la République, en vue de lobtention des permis de catégories « A 1 et A » :
+Un an au sieur Reffo (Renzio). né le ler mars 1919 à Gênes (Italie), de Virgilio et de Giovaka (Rosa), commerçant, demeurant à Djibouti, en vue de l’obtention des permis de catégories « B-C-D-E » :
+Dix-huit mois au sieur Diama Mohamed Soultan. somali issa mamassan, né vers 1938 à Djibouti, de Mohamed Soultan et de Habiba Saïd, sans profession, demeurant à Djibouti; quartier n° 6. en vue de l’obtention des permis de catésories
