@@ -1,0 +1,1 @@
+Mr. Marthe Vezier, professeur d’enseignement technique et théorique, 10° échelon (Commerce – Comptabilité) est, pour compter du 24 septembre 1968, date de son arrivée à Djibouti, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir au Collège d’enséignement technique de Djibouti.
