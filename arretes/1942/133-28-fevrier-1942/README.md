@@ -1,0 +1,9 @@
+# Arrêté n° 133 du 28 février 1942
+
+Arrêté · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-133-du-28-fevrier-1942/>
+
+En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | nt promulgués à la Côte française des Somalis et dépendances : |
