@@ -1,0 +1,1 @@
+M. Arlanda (Louis), Greffier en Chef près le Tribunal Supérieur d’Appel de Djibouti, dont le séjour administratif arrive à expiration le 3 janvier 1961, est autorisé à prolonger son séjour de six mois pour compter de la date précitée.
