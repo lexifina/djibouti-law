@@ -1,0 +1,1 @@
+M. Lamour (Eugène), ajusteur-fraiseur, est engagé à titre temporaire et pour la période du 1er au 30 juin 1950, à salaire journalier comme ouvrier d’art de 3e classe pour servir à l’école professionnelle le Djibouti, en remplacement de M. Razafitslarovana (Gabriel), en instance de rapatriement sanitaire.
