@@ -1,0 +1,1 @@
+Est rendu exécutoire le 1er rôle supplémentaire du 2e trimestre des patentes « B » (exercice 1938), comprenant sept cent soixante-deux articles et s’élevant à la somme de trente neuf mille cinq cent soixante-dix-neuf francs.
