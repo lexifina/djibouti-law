@@ -1,0 +1,1 @@
+M. Hassan Abas, manœuvre journalier, 1re catégorie au Cercle de Dikhil, reconnu inapte à un travail régulier, est admis, pour compter du 15 février 1965, au bénéfice des dispositions de l’arrêté n° 64/116/SPCG du 15 septembre 1964 susvisé.
