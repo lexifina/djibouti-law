@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 189/6e L du 28 avril 1965 portant approbation de la résolution en date du 5 mars 1965 du Comité directeur du FIDES relative à la tranche 1965 de la loi-programme.
