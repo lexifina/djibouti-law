@@ -1,0 +1,2 @@
+Les biens mobiliers et immobiliers du « Parti Mouvement Populaire de la Côte Française des Somalis » sont placés sous séquestre et leur liquidation sera effectuée par le Service des Domaines.
+Les personnes qui auraient des droits à exercer sont invitées à en justifier au Receveur des Domaines. Les créanciers et débiteurs sont également invités à produire leurs titres et à se libérer au Service des Domaines.
