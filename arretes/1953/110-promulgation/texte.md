@@ -1,0 +1,2 @@
+Art 1er — Est promulgué. dans le Territoire de la Côte Française des Somalis, le décret n° 50-297 du 1° mars modifiant et complétant le décret n° 48-163 du 28 janvier 1946 déterminant les conditions d’application dans les Territoires d’Outre-Mer et les Territoires sous tutelle relevant du Ministère de la France d’Outre-Mer des dispositions du décret du 10 mai 1947 concernant l’Office.national des anciens combattants et victimes de la guerre.
+Art, 2— Le présent arrêté sera enregistré, publié et communique partout où besoin sera.
