@@ -1,0 +1,1 @@
+M. Chimanlal Kaniee Parek est autorisé à exploiter à la Station Service Caltex, Place Lagarde à Djibouti, une licence de 5° classe pour la vente au détail ou à consommer sur place de boissons hygiéniques non fermentées.
