@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Ahmed Hassan Egal, la concession provisoire d’une-parcellede terrain d’une superficie de six cent cinquante-huit mètres carrés environ, sise à Ambouli, au prix de cent francs le mètre carré.
