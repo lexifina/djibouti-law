@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 404 du 16 mars 1965, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Omar Kamil Warsama la concession provisoire d’une parcelle de terrain d’une superficie de 698 mètres carrés environ à Djibouti, boùlevard de Gaulle (T. F. 686 et. 812), au prix de mille francs le mètre.
