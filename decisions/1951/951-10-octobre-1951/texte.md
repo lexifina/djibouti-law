@@ -1,0 +1,1 @@
+M. Durand (Pierre), inspecteur principal de 5e classe du cadre local de police de la Côte Française des Somalis, précédemment détaché au Service des Travaux. Publics, est nommé Commissaire spécial de police de l’Aéroport, pour compter du 9 août 1951.
