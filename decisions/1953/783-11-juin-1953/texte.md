@@ -1,0 +1,2 @@
+Une subvention de vingt mille francs métropolitains (20.000 F.M.) est accordée à la Société Géographique Commerciale de Paris au titre de contribution du Territoire aux frais de diffusion de son bulletin trimestriel « La Revue Economique Française ».
+La dépense visée à l’article 1er sera imputée à la section XVII, chapitre XXXV, article 1er, paragraphe 2 du budget de fonctionnement du Service local, pour l’exercice 1953.
