@@ -1,0 +1,2 @@
+l’arrêté du 22 avril 1932, chargeant M. Kresser, chef de bureau hors classe des seciétariats généraux, de l’ordonnancement des finances et matières des divers budgets est rapporté.
+M. Kresser, chef de bureau hors classe des secrétariats généraux, est chargé, par délégation, de l’ordonnancement des finances et matières des divers budgets, sauf en ce qui à trait aux fonctions d’ordonnateur en matières, confiées au chef du service des travaux publics.
