@@ -1,0 +1,1 @@
+l’adjudant-infirmier Dietrich Peter, en position cadre hors budget des armées, est, pour compter du 28 mai 1973, mis à la disposition du ministre de la Santé publique et des Affafires sociales pour servir à l’hôpital Peltier, en remplacement numérique de l’adjudant Milleliri Dominique, rapatriable.
