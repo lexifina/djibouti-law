@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Ismael Bileh Hubert, agent technique de 2° classe, 1° échelon, du corps territorial des Travaux publics et du port, en service à la Direction de l’enseignement (Ministère de l’Enseignement, des Sports et de la Jeunesse), pour s’être absenté de son service sans aucune justification le 11 janvier 1973.
