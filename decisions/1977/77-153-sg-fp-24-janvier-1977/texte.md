@@ -1,0 +1,1 @@
+M. Ahmed Ali Nour, contrôleur stagiaire du cadre territorial des Contributions en service aux Contributions Indirectes est radié pour compter du 3 septembre 1976, du contrôle du cadre territorial pour abandon de poste.
