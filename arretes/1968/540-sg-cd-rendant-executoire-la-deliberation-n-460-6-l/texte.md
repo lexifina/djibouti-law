@@ -1,0 +1,1 @@
+est rendue exécutoire la délibération n° 460/6° L du 26 mars 1968 de la Commission permanente de la Chambre des Députés portant organisation de la lutte Contre la tuberculose dans le Territoire Français des Afars et des Issas.
