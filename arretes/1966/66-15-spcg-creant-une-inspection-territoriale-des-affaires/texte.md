@@ -1,0 +1,2 @@
+Il est créé une Inspection territoriale des Affaires administrative à la disposition du Président du Conseil de Gouvernement L’Inspecteur des Affaires administratives pourra être chargé de toutes missions d’inspection des Services territoriaux tant au chef-lieu que dans les cercles, ainsi que de toutes études qu’il pourra être jugé utile de lui confier.
+L’Inspecteur des Affaires administratives figure parmi les chefs de service mentionnés aux articles 17 et 20 de l’arrêté n° 65/93/SPCG du 10 juin 1965.
