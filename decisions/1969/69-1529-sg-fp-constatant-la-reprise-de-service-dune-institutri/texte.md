@@ -1,0 +1,1 @@
+Est constatée, pour compter du 24 septembre 1969, la reprise de ses fonctions antérieures au Service de l’Enseignement (Ministère de l’Enseignement, des Sports et de la Jeunesse), par Mme Simone Agosti, institutrice de 3° échelon.
