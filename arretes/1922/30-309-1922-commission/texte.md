@@ -1,0 +1,1 @@
+une commission composée de MM. Lhermitte, Chef du service judiciare, Président, Marillet Crémazy, du Conseil d’administration, membres, se réunira pour procéder au rapprochement des écritures de l’ordonnateur de celle du trésorier-paveur en ce qui concerne les opérations effectuées an titre du service local pendant l’excercice 1921,
