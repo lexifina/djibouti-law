@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n °10-71 du 9 décembre 1971 du Conseil d’administration de l’Office des Postes et Télécommunications, portant approbation de la deuxième décision modificative du budget de l’Office pour l’exercice 1971.
