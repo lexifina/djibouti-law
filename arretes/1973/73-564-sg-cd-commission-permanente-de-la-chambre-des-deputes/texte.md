@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 322/7e L du 20 mars 1973 de la Commission permanente de la Chambre des députés du Territoire Français des Afars et des Issas portant agrément d’un agent spécial de compagnie d’assurances.
