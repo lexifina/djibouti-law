@@ -1,0 +1,2 @@
+Art, 1er. — Les Lravaux d’assainissement exécutés en régie, conforménniut à l’’arrêté du 11 août 1905 ct les dépenses résultant de l’enlèvement ae paillettes par mesure de salubrilé prévues par l’arrêté du 20 février 1905, conttmueront, jusqu’au 28 février 1906, à être imputés à lexercice 1905, conformèment à larticle 39 du décret du 20 novembre 1882.
+Art .2. — Le présent arrêté sera publié. enregistré et communiqué partout ou besoin sera.
