@@ -1,0 +1,1 @@
+Les valeurs des indices de prix et de salaires a prendre pour l’application des clauses de variation de prix marchés de construction et de travaux publics passés compte du Territoire, sont ainsi fixées .
