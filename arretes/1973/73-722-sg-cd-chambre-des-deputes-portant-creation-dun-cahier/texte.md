@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 340/7e L du 26 avril 1973 de la Chambre des députés du Territoire français des Afars et des Issas portant création d’un cahier des charges dressé pour pärvenir à la vente de gré à gré des lots de terrain compris dans le plan de lotissement dit « du Progrès ».
