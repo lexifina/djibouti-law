@@ -1,0 +1,1 @@
+une somme de douze mille francs, dont il devra justitier l’emploi dans les formes et délais réglementaires, est mise à la disposition du lieutenant d’infanterie colonial Mayer, commandant du peloton méhariste, pour achat de chameaux et de bâts destinés à , cette formation militaire.
