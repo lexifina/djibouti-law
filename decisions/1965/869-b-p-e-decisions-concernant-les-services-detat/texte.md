@@ -1,0 +1,1 @@
+M Hétier Gilbert. Ingénieur de classe excepüonnel du corps autonome des Ingénieurs des Travaux météorologiques, est nommé Chef du Service de la Météorologie de la Côte Francaise des Somalis pour compter du 29 mai 1965, date du départ en congé de M. Bourhis Eugène, Ingénieur de classe exceptionnelle 3 du corps autonome des Ingénieurs des Travaux météorologioues.
