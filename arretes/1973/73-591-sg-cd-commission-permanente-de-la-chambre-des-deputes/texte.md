@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 331/7e L, du 30 mars 1973 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas complétant la délibération n° 192/7e L du 19 juin 1971 portant règlement général du Port de commerce de Djibouti.
