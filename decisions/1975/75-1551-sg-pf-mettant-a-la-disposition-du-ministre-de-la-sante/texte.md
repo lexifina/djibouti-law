@@ -1,0 +1,1 @@
+M. De Cecco Raymond, adjudant-chef infirmier des Troupes äe Marine en position cadre «hors budget des Armées » est pour compter du 9 juillet 1975, date de son arrivée dans le Territoire mis à la disposition du ministre de la Santé Publique pour servir à la direction de la Santé Publique en remplacement numérique de l’adjudant-chef Lemariey Serge, rapatriable.
