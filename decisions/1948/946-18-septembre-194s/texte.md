@@ -1,0 +1,1 @@
+Une permission d’absence de vingt jours et un à solde entière, pour en jouir à Aden, est accordée à Ali Mouckbel, agent technique auxiliaire (10% échelon), en service à l’hôpital colonial, pour compter du 20 octobre 1948.
