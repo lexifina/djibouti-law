@@ -1,0 +1,6 @@
+Art 1er, — L’accès du débarcadère est interdit à loule embarcalion autres que elles du service loca: el des compagnies et navigation le débarquement des pas agers devant se faire, soil à Lancien débarcadère, soit au quai de la douane lorsque létal de la mer le permet.
+Art .2— Le stalionnement des voitures automonhiles, huippomobiles, bédanis, cle.… est rigoureusement interdit dans la zone comprise au delà du poleau placé à 19 melres à L’Esl du débarcacdère.
+Les imnuiles des emplacements réservés aux Voilures aulomobiles el aux voitures luippomobiles particulières ainsi que celles destinées aux voilures publiques sevront marquées par des poteaux 1indicateurs.
+Les Voitures, après avoir déposé leurs poccupants au débarcadères devront prenre ia file dans le stationnement, l’avant lourné vers la ville, et serrer le plus posssible le trottoir sud de la jetée.
+Art, 3, — Toute infraction au présent arrèté sera punié des peines de simple policé prêvues aux arlicles 471 et 474 du code pénal.
+Art, 4 — Le chef du service judiciaire, ie chef du service des travaux publies et le commissaire de police sont chargés ce l’exécution du présent arrêèlé. qui sera afliché, publié. enrecistré el communique parloul où besoim sera et insévé au Journal officiel de la colonie
