@@ -1,0 +1,1 @@
+Le médecin capitaine des troupes coloniales Guibert-Germain «Alex», est désigné pour servir hors cadres en Côte française des Somalis et nommé médecin-chef du service d’hygiène et médecin arraisonneur pour compter du 8 juin 1948.
