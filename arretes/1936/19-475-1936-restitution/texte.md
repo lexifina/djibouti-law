@@ -1,0 +1,1 @@
+IL est fait restitution au sieur Sef Saïd Mohamed de la somme de deux cent quarante-huit francs, quarante centimes (248 francs 40 centimes), représentant le trop-percu des droits d’enregistrement sur un marché de denrées alimentalres passé avec l’ordinaire du régime en octobre 1955,
