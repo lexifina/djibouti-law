@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 10 juin 1942 relatif aux créances impayées ou bloquées résultant d’exportations vers la Bolivie, Colombie, Costa-Rica, Equateur, Guatemala. Haïti. Honduras, Mexique, Nicaragua, Panama, Paraguay, Pérou, République Dominicai ne, Salvador, Uruguay et Venezuela.
