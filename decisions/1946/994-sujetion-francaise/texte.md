@@ -1,0 +1,1 @@
+Le nommé Abdi Mhamoud est déclaré su jet français pour jouir de tous les droits et prérogatives attachés à cette qualité.
