@@ -1,0 +1,3 @@
+Le Milicien de 2° Classe Houssein Kako Bililis, mle 2725, du Dépôt de la Milice à Djibouti arrivant en fin de contrat le 6 avril 1964 est licencié pour raison de santé « non imputable au service » pour compter du 21 octobre 1962. L’intéressé qui totalise 6 mois et 15 jours de services effectifs dans la Milice de la C.F.S. ne peut prétendre à aucuné indemnité.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins du Gérant du Dépôt de la Milice à Djibouti.
+Le Milicien de 2° Classe Houssein Kako Bililis, mle 2725, sera rayé des contrôles de la Milice de la C.F.S. à compter du 21 octobre 1962, il recevra le certificat de libération.
