@@ -1,0 +1,1 @@
+Est approuvé la proposition du comité de gestion du Fonds d’investissement routier du 4 novembre 1973, autorisant l’octroi de crédits supplémentaires de 8 510 000 FD (huit millions cinq cent dix mille francs Djibouti) au chantier routier de Tadjourah/Le-Day à titre de l’exercice 1973.
