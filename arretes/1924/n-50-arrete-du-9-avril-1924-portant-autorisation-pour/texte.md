@@ -1,0 +1,5 @@
+Art, 1er — La Société des Salines de Djibouti est autorisée à entretenir deux agents de 6 classe de la brigade indigène des douanes et contributions;
+Art, 2— Aucun agent ne sera spécialement aflecté à la Société Les agents chargés de la surveillance seront désignés par le chef de brigade parmi tous les agents de la brigade indistinctement et mis à la disposition de la Société des Salines sur sa demande, chaque fois qu’elle aura des opérations à eflectuer sur son quai privé,
+Art, 3.— La surveillance des opérations au quai des Salines ne donnera plus lieu à la perception de la taxe de surveillance pour les agents des douanes qui en seront
+Art, 4— La solde de deux agents de 6 classe de la brigade indigène des douanes et contributions, sera remboursée par trimestre à la Colonie et versée au trésor par les soins de la Société des Salines de djibouti
+Art, 5—, Le présent arrêté qui aura son effet à compter du 7 avril 1924 sera enregistré, communiqué partout où besoin sera et inséré au Journal officiel de la Colonie
