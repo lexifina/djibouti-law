@@ -1,0 +1,1 @@
+La valeur unitaire des outils courants dits « petit outillage de consommation courante », qui ne doivent pas être pris en charge par les dépositaires comptables, est fixée, à compter du 1er janvier 1973, à cinq mille (5.000) francs Djibouti.
