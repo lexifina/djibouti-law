@@ -1,0 +1,1 @@
+Madame Bouquet, en religion Sœur Hélène, est engagée, pour compter du 1‘ janvier 1961, en qualité d’infirmière religieuse à salaire forfaitaire mensuel de trente mille francs Djibouti (30.000 francs Dj.) et mise à la disposition du Ministre de la Santé Publique et des Affaires sociales pour servir au Dispensaire rural de Tadjourah.
