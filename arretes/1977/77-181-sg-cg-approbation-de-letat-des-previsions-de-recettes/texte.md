@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n°363 du 27 décembre 1976 du conseil d’administration d’Electricité de Djibouti arrêtant l’état de prévisions de recettes et de dépenses d’Electricité de Djibouti pour l’année 1977, en recettes et en dépenses à la somme de 2 047 400 000 FD (deux milliards quarante-sept millions quatre cent mille francs Djibouti).
