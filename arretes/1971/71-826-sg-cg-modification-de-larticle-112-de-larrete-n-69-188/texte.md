@@ -1,0 +1,4 @@
+L’article 112 de l’arrêté n° 69-1883/SG/CG@’ du 31 décembre 1969 portant organisation et fixant le régime de fonctionnement ainsi que le régime financier de la Caisse des prestations socialas est modifié Comme suit, en ses second et troisième alinéas :
+Second alinéa Aix Il est soumis avant l’expiration du sixième mois suivant la clôture du dernier exercice auquel il se rapporte, au conseil d’administration de la Caisse qui l’arrête après avoir pris Connaissance du rapport de la commission de
+contrôle prévue à l’article 117 ci-après, et avoir entendu l’agent comptable. >
+Troisième alinéa: «Le comvbte financier. arrêté par le conseille d’administration, est transmis au Président du Conseil de Gouvernement, dans les conditions prévues à l’article 15 ci-dessus, pour être soumis, pour approbation, à la Chambre des Députés en application de l’article 31, II, b, de la loi n° 67-521 du 3 juillet 1967.»
