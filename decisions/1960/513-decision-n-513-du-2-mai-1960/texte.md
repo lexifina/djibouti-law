@@ -1,0 +1,1 @@
+M. Mohamed Abdillahi Guelle, électricien-auto à Salaire journalier en service au Ministère des Travaux Publics et du Port, est admis à salaire mensuel et rangé dans la iérarchie du personnel auxiliaire, pour compter du 1er mai 1960 et classé à la 2° catégorie,échelle X, 1er échelon, indice local : 805.
