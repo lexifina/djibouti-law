@@ -1,0 +1,1 @@
+L’adjudant Vosgien, en service à Obock, est, pendant les absences de M. Jean Allard, Commandant du Cercle d’Obock, chargé de l’expédition des affaires courantes et urgentes dans le ressort dudit Cercle.
