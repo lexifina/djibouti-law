@@ -1,0 +1,1 @@
+est rendu exécutoire le rôle primitif de l’impôt foncier sur les paillotes pour l’affilée 1932, comprenant 1.108 articles et s’élevant à la soiritiie de vingt mille cent soixante-quinze francs (20.175 francs).
