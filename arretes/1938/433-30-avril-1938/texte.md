@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de la vérification des poids à et mesures (exercice 1938), comprenant deux cent quatre-vingt-treize articles et s’élevant à la somme de deux mille trois cent vingt-six francs.
