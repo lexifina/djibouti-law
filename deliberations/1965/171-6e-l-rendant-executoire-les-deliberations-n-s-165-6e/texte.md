@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 404 du 16 mars 1965, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Roger Laupie la concession provisoire d’une parcelle de terrain d’une superficie de 4.918,90 mètres carrés environ, à Arta (T. F. 483), au prix de cinq francs le mètre carré.
