@@ -1,0 +1,1 @@
+Le traitement mensuel du chauffeur auxiliaire Abdi Houssein, en service à la Direction du port de Djibouti, est fixé a 7560 francs pour compter du 1er janvier 1950, et à 8.120 francs pour compter du 1er juillet 1050,
