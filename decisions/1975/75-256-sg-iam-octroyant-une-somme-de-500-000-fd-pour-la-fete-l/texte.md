@@ -1,0 +1,1 @@
+Une somme de cinq cent mille francs est mise a la disponible à M. Jacques Josquin, Chef du District de Djibouti, president de la commission chargée d’organiser les manifestationsréccrétive à l’occation de la fete de l’Aid el Adha du 24 décenbreb1974.
