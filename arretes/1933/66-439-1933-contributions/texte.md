@@ -1,0 +1,1 @@
+a été rendu exécutoire le rôle primitif de la contribution foncière pour l’année 1953, comprenant cent six articles et s’élevant à la somme de deux cent quatre-vingt-treize mille trois cent vingt-quatre francs sept centimes.
