@@ -1,0 +1,1 @@
+Le brigadier-chef des Compagnies Républicaines de Sécurité, Majean Théo, matricule n° 521.449, nouvellement affecté, est mis à la disposition du Ministre des Affaires intérieures pour servir à l’encadrement du peloton de la Garde territoriale de Tadjoura.
