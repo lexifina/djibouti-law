@@ -1,0 +1,2 @@
+à Messieurs les Gouverneurs Généraux, Gouverneurs des Colonies, Administrateur de St-Pierre et Miquelon.
+Un décret du 22 mai 1912 que vous trouverez inséré au Journal Officiel du 5 juin, a réglementé l’importation en France des viandes fraiches ou frigorifiées, provenant des Colonies françaises Vous voudrez bien comprendre les mesures nécessaires en vue de l’exécution de cet acte et notamment donner des instructions en vue de la délivrance du certificat prévu au dit décret.
