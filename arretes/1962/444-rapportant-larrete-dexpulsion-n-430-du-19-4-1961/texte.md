@@ -1,0 +1,1 @@
+est rapporté l’arrêté d’expulsion n° 430 du 19 avril 1961 en ce qui concerne le nommé Nour Abdi Kamil, Somali Gadabourey Mahadassé Bahabar Eli Rer Aden, né vers 1930 à Zeila (République Somalie), de Abdi Kamil et de Aouah Dirieh, chauffeur, demeurant à Djibouti, quartier 4.
