@@ -1,0 +1,1 @@
+Le milicien de 1er classe Mohamed Arbahim, mle 1018, de la 2e compagnie de milice à Tadjoura, décédé à l’hôpital colonial de Djibouti le 7 février 1949, est rayé des contrôles de la milice indigène à compter du 8 février 1949.
