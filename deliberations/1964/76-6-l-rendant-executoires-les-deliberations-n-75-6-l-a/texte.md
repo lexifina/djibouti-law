@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé à la Société Edile-Entreprise la concession provisoire d’un terrain d’une superficie de deux mille deux cent quinze mètres carrés, sis à Djibouti, plateau du Marabout (lots n°° 551 et 556). au prix de un franc le mètre carré.
