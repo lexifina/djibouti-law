@@ -1,0 +1,2 @@
+Mme Delvannis. née Tiliacos, est autorisée à gérer les licences de 1’° et de 4° classe dans l’établissement sis 19, rue de Madrid, et dont M. Delvannis est propriétaire.
+Le Commandant de Cercle de Diibouti et le Chef du Service des Contributions directes sont chargés, chacun en ce qui le concerne. de l’exécution de la présente décision qui sera enregistrée, publiée et communiquée partout où besoin sera.
