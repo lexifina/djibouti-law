@@ -1,0 +1,1 @@
+M. Lucciardi (Gabriel) est réintégré dans les cadres des services civils de la Côte francaise des Somalis, en qualité d’adjoint avant dix-huit mois, à compter de la veille de son embarquement à Marseille pour rejoindre la colonie.
