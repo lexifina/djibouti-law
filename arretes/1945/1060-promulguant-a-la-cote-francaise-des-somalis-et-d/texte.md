@@ -1,0 +1,3 @@
+— le décret n° 45-1867 du 18 août 1945 portant majoration de l’indemnité spéciale temporaire allouée aux bénéficiaires des pension de la Caisse intercoloniale de retraites ;
+— l’ordonnance n° 45-1917 du 23 août 1945 modifiant l’article 33 de la loi du 31 mars 1919 (droits des ascendants du 1er degré) :
+— le décret n° 45-1930 du 23 août 1945 portant modification du décret du 2 mars 1945 rendant applicables les dispositions de l’ordonnance du 26 décembre 1944 portant modification et codification des textes relatifs à l’indignité nationale dans les colonies de l’A.O.F. et du Togo, de Madagascar et Dépendances, de la Côte Française des Somalis, de la Guyane et de Saint-Pierre et Miquelon ;
