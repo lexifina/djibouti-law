@@ -1,0 +1,1 @@
+M. Ali Ismaël, chef de village d’As-Eyla, adjoint à l’Akel général des Debnés dans le Cercle de Dikhil, percevra une indemnité mensuelle de quatorze mille francs Djibouti (14.000 FD.) à compter du 1e avril 1968.
