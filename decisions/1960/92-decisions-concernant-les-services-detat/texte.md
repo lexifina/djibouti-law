@@ -1,0 +1,3 @@
+Le contrat de rengagement du Milicien de 1’° Classe Allale du 3 février 1943.
+Le Miülicien de 1’° Classe Allale Hassan, Mle 1358, bénéficiera pour compter du 24 février 1960, d’une allocation viagère annuelle de trente-six mille francs Djibouti (36.000 F.D.), payable trimestriellement à terme échu et sur le vu d’un certificat de vie délivré par les autorités compétentes.
+Les droits à solde, vivres, et permission de l’intéressé seront liquidés par les soins dela 2° Compagnie ; le Mülicien de 1 Classe Allale Hassan, Mile 1358, sera libéré de la Milice le 24 février 1960 et rayé des contrôles, pour compter dudit jour.
