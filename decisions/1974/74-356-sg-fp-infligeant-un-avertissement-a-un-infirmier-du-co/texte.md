@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Sanalasse Oudoum Hamadou, infirmier de 2e classe, 2e échelon du corps territorial de la Santé publique, en service au dispensaire de Dikhil (Ministère de la Santé publique) pour avoir accordé une autorisation d’absence non justifiée à un de ses subordonnés.
