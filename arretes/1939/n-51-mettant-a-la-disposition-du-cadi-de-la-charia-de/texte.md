@@ -1,0 +1,1 @@
+Art, 1er– Il est mis à la disposition du «Cadi de la charia de Djibouti pris à raison de ses fonctions», sous reserve des droits des tiers, un terra du Domaine privé de l’Etat français d’une supercifie de 6.140 mètres carres environ, sis à l’ouest de la route de l’Ancien cimetière, tel au surplus qu’il fioure au nlan annexé au présent arrêté.
