@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 440/6° L du 30 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création d’un Code général des Impôts directs et indirects et taxes assimilées établis par le Service des Contributions.
