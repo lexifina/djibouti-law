@@ -1,0 +1,1 @@
+chef du gouvernement, en date du 26 février 1994, Mme Loutfi Mahamoud Houssein, attaché d’administration de 2e classe — 3e échelon du corps de l’Administration générale, en service à l’Education nationale, est placée sur sa demande, en position de mise en disponibilité sans traitement pour une durée d’un an à compter du 1er novembre 1993 pour convenances personnelles.
