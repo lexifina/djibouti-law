@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 204/7° L du 27 juillet 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant l’aval du Territoire à un emprunt de 13.000.000 de francs français de la Société Immobilière de D’ibouti auprès de la Caisse centrale de coopération économique.
