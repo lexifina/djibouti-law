@@ -1,0 +1,1 @@
+Le Président du Conseil de Gouvernement est autorisé à passer au nom et pour le compte du Territoire Français des Afars et des Issas, avec M. Abdoulkader Houmed Mohamed Sultan, Vizir de Tadjoura, un acte d’acquisition amiable d’un immeuble sis à Randa (Cercle de Tadjoura), pour le prix de un million huit cent cinquante mille (1.850.000) francs Djibouti.
