@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 905 du 29 juin 1962 en ce ‘qui concerne le nommé : Ismaël Gasaleh Guelleh, somali issack abar djalo nouh, né vers 1925 à Bourao (République Somalie), de Gasaleh Guelleh et de Barni Mohamed.
