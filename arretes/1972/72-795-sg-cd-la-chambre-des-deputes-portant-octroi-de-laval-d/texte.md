@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 253/7° L du 12 mai 1972 de la Chambre des Députés du Territoire Français de Afars et des Issas portant octroi de l’aval du Territoire à un emprunt de 60 millions de francs Djibouti contracté auprès de la Caisse centrale de Coopération économique par « Electricité desDjibouti.
