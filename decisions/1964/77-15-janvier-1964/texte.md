@@ -1,0 +1,1 @@
+M. J.C. Rigolet est autorisé provisoirement à exploiter dans l’établissement dit <Bar de la Marine» la licence de débit de boissons de l’e classe accordée à M. Idot par la décision n° 322 du 14 mars 1963 susvisée.
