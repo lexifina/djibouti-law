@@ -1,0 +1,1 @@
+Mme Peyssard (Claudine) est engagée, à titre essentiellement précaire et révocable, en qualité de dame-employée auxiliaire 3e catégorie à salaire journalier, et mise à la disposition du Directeur du Service de Santé, pour compter du 1er juin 1953, en remplacement numérique de Mme Mauchausse, démissionnaire.
