@@ -1,0 +1,1 @@
+M. Jules PRESTEL, adjudant des Troupes de Marine, en position «Cadre hors budget des Armées», est, pour compter du 17 juin 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’hôpital Peltier, en remplacement de l’adjudant Riccio, rapatriable.
