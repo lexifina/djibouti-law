@@ -1,0 +1,2 @@
+M. Joriot (Pierre-Louis), Administrateur en Chef. 1er échelon de la France d’Outre-Mer, est mis dans la position d’instance affectation, pour compter du 18 octobre 1960. date de son arrivée dans le Territoire.
+M. Joriot (Pierre-Louis), Administrateur en Chef. 1er échelon de la France d’Outre-Mer, est nommé Commandant de Cercle de Dikhil et Président du Tribunal du 2° degré dans le ressort dudit Cercle, en remplacement de M. Devigne (Georges), Administrateur en Chef, en instance de départ en congé administratif, pour compter du 3 novembre 1960. date de sa prise de service:
