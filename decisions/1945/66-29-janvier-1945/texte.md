@@ -1,0 +1,1 @@
+M. VAILLANTIN. ingénieur-adjoint des Travaux publics des Colonies. est mis a la disposition du Chef du Service des Travaux urgents à compter du 1 février 1945, pour l’étude, la direction et le contrôle de l’exécution des travaux à effectuer au boulevard des Messageries maritimes.
