@@ -1,0 +1,1 @@
+exécutoire par arrêté n° 2068 du 31 décembre 1965, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Ibrahim Abdi Kahen, commerçant à Djibouti, la concession provisoire d’une parcelle de terrain d’une superficie de 135 mètres carrés. sis à Diibouti, quartier 1. avenue 11. au prix de 200 francs le mètre carré.
