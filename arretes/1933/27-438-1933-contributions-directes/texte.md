@@ -1,0 +1,1 @@
+a été rendu exécutoire le 2e rôle supplément aire de a la contribution foncière pour l’année 1982, comprenant 5 articles et s’élevant à la somme de trente-neuf mille quatre cent quatre-vingt-douze francs quatre vingt-dix centimes (39.492 fr. 90 ).
