@@ -1,0 +1,1 @@
+Sont admises à salaire mensuel pour compter du 1er juillet 1952, les dames-employées auxiliaires 2e catégorie à salaire jour nalier ci-après désignées : Mme. Reynard (Madeleine) et Devaud (Marcelle), en service à la Direction du Service de Santé
