@@ -1,0 +1,1 @@
+Est déclarée close, le mercredi 28 avril 1965 à minuit, la première – session ordinaire de l’Assemblée lerritoriale de la Côte Française des Somalis ouverte le samedi 10 avril 1965 par arrêté n° 65/58/SPCG.
