@@ -1,0 +1,19 @@
+Il est interdit de se présenter à une session de permis de conduire avant uné durée de :
+TROIS MOIS, au sieur Ahmed Abdallah Rochan, Indien Pakistanais, né en 1918 à Aden, fils de Abdallah Rochan et de Nouri Houssein, demeurant Quartier Ambouli à Djibouti, en vue de l’obtention du permis «D».
+TROIS MOIS, au sieur Abdillahi Guelleh Fayeh, Somali Issa, né en 1940 à La Doudah, fils de Guelleh Fayeh et de Aicha Aden, demeurant à Ambouli, en vue de l’obtention du permis «D ».
+TROIS MOIS, au sieur Loita Kaireh Adowa, Somali Issa, né en 1944 à Ballembaley (Dikhil), fils des feus Kaïreh Adowa et de Coutin Waberi, demeurant à Dikhil, en vue de l’obtention des permis toutes catégories.
+TROIS MOIS, au sieu Ali Omar Bendgir, Somali Issa, né en 1947 à Djibouti, fils de Omar Bendgir et de Mariam Gouled, demeurant Quartier 6, place des Chameaux, maison 3, à Djibouti, en vue de l’obtention des permis toutes catégories.
+TROIS MOIS, au sieur Walao Ali Moussa, Afar, né en 1927 à As-eyla, demeurant au bourg de Dikhil, en vue de l’obtention des permis toutes catégories.
+TROIS MOIS, au sieur Mohamed Ahmed Simo, Afar, né en 1916 à Obok, fils de Ahmed Simo et de Momina Houmed, demeurant Quartier 2, boulevard 20, maison 21, à Djibouti, en vue de l’obtention du permis «C».
+TROIS MOIS, au sieur Guedi Bahdon Guelleh, Somali Issa, né en 1948 à Goubetto, fils de Bahdon Guelleh et de Willo Aouleh, demeurant Quartier 6, rue des Issas, n° 100, à Djibouti, en vue de l’obtention du permis «D ».
+TROIS MOIS, au sieur Mohamed Bogoreh Abdi, Somali Issa, né en 1944 à Djibouti, fils de Bogoreh Abdi et de Aouah Bourache, demeurant à Ambouli, en vue de l’obtention du permis «D».
+TROIS MOIS, au sieur Abdallah Ali Houssein, Arabe, né en 1944 à Djibouti, fils de Ali Houssein et de Mariam Hassa, demeurant Quartier 4, rue 10, maison 5, à Djibouti, en vue de l’obtention du permis «D».
+SIX MOIS, au sieur Kamil Ibrahim Ahmed, Afar, né en 1932 à Tadjourah, fils de Ibrahim Ahmed et de Hasna Kamil, demeurant à Randa (Tadjourah), en vue de l’obtention des permis toutes catégories.
+SIX MOIS, au sieur Abdillahi Ahmed Djama, Somali Issack, né en 1949 à Djibouti, fils de Ahmed Djama et de Waris Mohamed, demeurant Quartier 3, boulevard 25, maison 86 à Djibouti, en vue de l’obtention des permis toutes catégories.
+SIX MOIS, au sieur Mohamed Elmi Kani, Somali Issa, né en 1950 à Djibouti, fils de Elmi Kani et de Douho Fayeh, demeurant Quartier 6, rue 50, n° 36 à Diibouti, en vue de l’obtention du permis «C».
+SIX MOIS, au sieur Ahmed Abdillahi Omar, Somali Issack, né en 1939 à Hargueissa (R.S.), demeurant Quartier 5, boulevard 18, maison 103: à Djibouti, fils de Abdillahi Omar et de Ibado Samatar, en vue de l’obtention du permis «C».
+UN AN, au sieur, Elmi Gani Farah, Somali Issa, né en 1923 à Djibouti, fils de Gani Farah et de Wilo Kahin, demeurant Quartier 6, rue des Ecoles à Djibouti, en vue de l’obtention du permis «CC».
+UN AN, au sieur Abdi Mohamed Warsama, dit Abdi Nadji, Somali Issack, né en 1918 à Djibouti, fils de Mohamed Warsama et de Fatouma Boni, demeurant place Ménélik à Djibouti, en vue de l’obtention des permis toutes catégories.
+UN AN, au sieur Ibrahim Chirdon Abass, Somali Issa, né en 1934 à Djibouti, fils de Chirdon Abass et de Gorane Bileh, demeurant Quartier 6, à Djibouti, en vue de l’obtention des permis toutes catégories.
+UN AN, au sieur Habid Mohamed Alimagan, Afar, né en 1944, à Tadjourah, fils de Mohamed Alimagan et de Kadidja Alimagan, demeurant au lotisement du Stade, n° 611-2 à Djibouti, en vue de l’obtention des permis toutes catégories.
+CINQ ANS, au sieur Moussa Abdi Mahamoud, Somali Toumal, né en 1948 à Djibouti, fils de Abdi Mahamoud et de Fatma Abdillahi, sans domicile fixe, actuellement incarcéré à la Prison centrale à Djibouti, en vue de l’obtention des permis toutes catégories.
