@@ -1,0 +1,1 @@
+M. Jean-Pierre Gelot, médecin de 2° classe, en service «hors cadres», est, pour compter du 23 août 1970, date de son arrivée au Teritoire, mis à la disposition du Ministre des Travaux publics et du Port pour servir en qualité de médecin-chef du Dispensaire du Port, en remplacement du médecin de 1er classe Pascal, rapatrié.
