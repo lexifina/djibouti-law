@@ -1,0 +1,3 @@
+Le Sergent-Chef d’Infanterie de Marine Varache Emile( désigné pour servir en Côte Française des Somalis, et placé en position » pour compter du 22 août 1962, date de son embarquement à Marseille, est affecté à la Milice de la Côte Française des Somalis pour compter de la date de son débarquement à Diibouti le 1er septembre 1962.
+Ce sous-officier assurera les fonctions de chef de poste administratif de Dorra et du peloton méhariste de l’Alta, en remplacement de l’Adjudant Capulli, rapatriable pour fin de séjour par avion du 16 novembre 1962.
+L’entretien complet de ce sous-officier est à la charge du Ministère d’Etat chargé des Départements et Territoires d’Outre-Mer
