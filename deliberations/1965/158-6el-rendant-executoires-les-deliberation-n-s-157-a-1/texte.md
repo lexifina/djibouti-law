@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 234 du 19 février 1965, la Commission permanente de l’Assemblée Territoriale a accordé à M. Mohamed Othman Youssouf la concession provisoire d’une parcelle de terrain, d’une supefficie de 1.680 mètres carrés environ, à Ambouli, au prix de 100 francs le mètre carré.
