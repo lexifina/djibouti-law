@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 449/6e L du 30 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas portant délégation d’une partie des pouvoirs de la Chambre des Députés à la Commission permanente pour l’année 1968.
