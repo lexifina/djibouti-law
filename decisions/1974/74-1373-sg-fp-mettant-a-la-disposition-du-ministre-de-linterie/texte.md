@@ -1,0 +1,1 @@
+M. Lucien Bonnin est, pour compter du 17 juillet 1974, date e son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir en qualité d’adjoint au chef de District de Djibouti.
