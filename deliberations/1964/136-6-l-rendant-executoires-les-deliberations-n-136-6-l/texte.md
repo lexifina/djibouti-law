@@ -1,0 +1,1 @@
+exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Houssein Doualé la concession provisoire d’une parcelle de terraï d’une superficie de mille trois cent dix-huit mètres carrés environ, sise à Djibouti, « Brise de Mer», au prix de un franc le mètre carré.
