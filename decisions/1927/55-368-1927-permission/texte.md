@@ -1,0 +1,1 @@
+10 juillet 1927. une permission d’un mois,dont quinze jours à solde entière et mdemnilés, et quinze jours à demi-solde, est accordée au garde de 29 classe Abdallah Kassim, matricule 423, pour compler du 1 juillet 1927
