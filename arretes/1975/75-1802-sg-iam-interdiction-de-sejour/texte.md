@@ -1,0 +1,1 @@
+Le séjour dans le district de Djibouti-et dans les cercles de Tadjoura et d’Obock est interdit à M. Anouar Abdou Ibrahim, né en 1949 à-Djibouti (TFAI), condamné le 21 février 1974 par le Tribunal correctionnel de Djibouti à 2 ans de prison et à 3 ans d’interdiction de séjour, pour vols, écroué le 28 décembre 1973, libéré le 28 septembre 1975.
