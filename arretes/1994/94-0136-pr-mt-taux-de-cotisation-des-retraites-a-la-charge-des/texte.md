@@ -1,0 +1,2 @@
+à compter du 1er janvier 1994 article 1er alinéa 2 de l’arrêté n° 87-0766PRCPSSMI concernant cotisation de retraite, versée à la CPS et à la charqde du travaill »heureest porté de 3% à 4%.
+Le montant total des cotisations dûes à la CPS et au SMI s’élève désormais à 19,70%. Sont et demeurent abrogées toutes les dispositions antérieures contraires au présent arrêté portant fixation du taux de la cotisation retraite à la charge du travailleur.
