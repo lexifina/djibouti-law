@@ -1,0 +1,2 @@
+Est constatée, pour compter du 2 février 1970, la reprise de ses fonctions antérieures de M. Maurice Fouga, agent contractuel, assurant les fonctions d’agent comptable de l’Electricité de Djibouti.
+M. Maurice Fouga est placé en position de congé de maladie et expectative d’embarquement pour la période du 17 octobre 1969, date d’expiration de son congé annuel, au 1° février 1970, date de son embarquement de la métropole à destination de Djibouti.
