@@ -1,0 +1,1 @@
+est rapportée, pour compter du 1 mars 1930, la décision du 13 décembre 1928, allouant une rétribution mensuelle de 30 francs au nommé Omar Ali, domestique au du 1 mars 1930, la décision du 13 décembre 1928, allouant une rétribution mensuelle de 30 francs au nommé Omar Ali, domestique au gouvernement
