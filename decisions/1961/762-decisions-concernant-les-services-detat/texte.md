@@ -1,0 +1,3 @@
+Est constaté qu’à la date du 1er juillet 1961, M. Mérot Joseph, administrateur en chef de classe exceptionnelle des Affaires d’Outre-Mer (indice 630, groupe I), commandant de Cercle de Djibouti, aura accompli 24 mois et 17 jours de services effectifs en Côte Française des Somalis, compte tenu du congé annuel de 2 mois 6 jours pris du 8 juillet 1960 au 14 septembre 1960.
+Un congé administratif proportionnel de trois mois vingt-huit jours, à passer en France, 15, avenue Marconi à Nice (Alpes-Maritimes), est accordé à M. Mérot Joseph, qui quitte définitivement le Territoire.
+La dépense est imputable sur le Budget de l’Etat.
