@@ -1,0 +1,1 @@
+une subvention de 2,500 fr. est attribuée au Comité des fûtes du Djibouti, pour l’organisation de réjouissances publiques, à l’occasion du 11 novembre, jour anniversaire du cinquantenaire de la République.
