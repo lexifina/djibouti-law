@@ -1,0 +1,2 @@
+Mme Mekhoukhe Jacqueline, secrétaire dactylographe auxiliaire (échelle X, 1 échelon), précédemment en service à l’Inscription Maritime, est mise à la disposition du Chef du Service Judiciaire, en remplacement numérique de Mme Counan, pour compter du 1er août 1961.
+Mme Mekhoukhe sera prise en compte par le budget de l’Etat (Ministère de la Justice) pour compter de la date de sa prise de fonction au Service Judiciaire.
