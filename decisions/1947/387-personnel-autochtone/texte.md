@@ -1,0 +1,1 @@
+Le nommé Ali Farah Iltire est engagé au service du ravitaillement général en qualité de planton auxiliaire au salaire mensuel de mille cinq cents francs majoré de l’indemnité pour cherté de vie et charges de famille allouée aux agents de sa catégorie.
