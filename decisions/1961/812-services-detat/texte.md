@@ -1,0 +1,1 @@
+L’allocation forfaitaire mensuelle attribuée à M. Ahmed Saleh Farah, traducteur assermenté du Tribunal du Charia, est portée à 43.200 F.D. pour compter du 1er février 1961 ; cette allocation est exclusive de toutes indemnités ou prestations à quelque titre que ce soit.
