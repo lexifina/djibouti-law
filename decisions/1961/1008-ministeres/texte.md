@@ -1,0 +1,1 @@
+M. Zouain Félix est autorisé à exploiter au « Café de la Gare », sis à Djibouti, au Plateau du Serpent, une licence de premièré classe pour la vente de boissons alcooliques où hygiéniques, à consommer sur place où à emporter.
