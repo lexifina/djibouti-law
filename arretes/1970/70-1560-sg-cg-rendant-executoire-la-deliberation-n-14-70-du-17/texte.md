@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 14-70 du 17 décembre 1970, du conseil d’administration de l’Office des Postes et Télécommunications, fixant les tarifs annuels de location des boîtes postales à compter du 1° janvier 1971
