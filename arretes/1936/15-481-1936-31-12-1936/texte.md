@@ -1,0 +1,1 @@
+M. Folacci (Jules), commis principal de 1re classe à la trésorerie de la Côte française des Somalis et dependances, premier fondé de pouvoirs de M. Lévy-Aphandéry, est nommé trésorier-payeur intérimaire de la Côte française des Somalis et dépendances à compter du 1er janvier 1937.
