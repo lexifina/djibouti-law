@@ -1,0 +1,2 @@
+M. Lavergne est désigné en qualité d’expert dans le différend collectif opposant lé syndicat F.O. des Travailleurs des Industries Chimiques et Alimentaires de la C.F.S. et l’Union Territoriale des Syndicais E.O. de la C.F.S, aux Compagnies Pétrolières Société Anonyme des Pétroles de Djibouti, Société Française des Pétroles de Somalie, Standard-Vacuum Oïil Cie et Shell Red Sea (Maison Besse).
+L’Inspecteur du Travail et des Lois Sociales est chargé de exécution de la présente décision.
