@@ -1,0 +1,1 @@
+Le sergent Moumin Ibrahim, matricule 1860, de la 3e Compa gnie de Milice à Ali-Sabieh, est licencié par mesure disciplinaire pour compter du 1er avril 1965 et remis milicien de 2e classe pour compter de. cette date.
