@@ -1,0 +1,1 @@
+Est rendue exécutoire, à compter du le janvier 1967, la délibération n° 339/6-L. du 16 décembre 1966 de l’Assemblée Territoriale de la Côte Française des Somalis fixant le montant du droit de francisation des navires.
