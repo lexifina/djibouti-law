@@ -1,0 +1,1 @@
+remise graciense d’une somme de deux cents soixante-douxe francs, teprésentant la moitié de l’amende encourue pour non-présentation dans les délais légaux, à la formalité de l’enregistrement, d’un bail sous signature privée, est fuite à M, Grégoire, gérant du Comptoir européen.
