@@ -1,0 +1,2 @@
+# Préambule
+Art 1er — Une taxe d’atterrissage ou d’amérissage se ra due pur tous les aéronels francais et ( étrangers atterrissant sur un aérodrome de la Côte francaise des Somalis où amérissant sur une de ses bases, l’outefois lorsque, pour des ruisons de force majeure, l acronef sers forcé de reprendre terre où mer dans le délai d’un quart l’heure, qui suivra le départ effectué ou pour un vol d’essni au-dessus de la buse il ne sera dû aneune nouvelle taxe d’attervissage où d’amérinsage, Seront exembpiés de cette taxe tons les aéronefs appartenant à l’Etat.
