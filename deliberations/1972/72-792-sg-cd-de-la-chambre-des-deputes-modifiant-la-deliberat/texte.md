@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 250/7° L du 12 mai 1972 de la Chambre des Députés modifiant la délibération n° 37/7°L du 20 mai 1969 portant organisation de la Garde territoriale du Territoire Français des Afars et des Issas.
