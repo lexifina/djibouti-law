@@ -1,0 +1,1 @@
+L’immeuble sis à Djibouti, angle avenue de Brazzaville et rue de Verdon titre foncier n° 189 appartenant à M. Houssein Moumine dont l’état de délabrement et de vétusté risque par effondrement de compromettre la sécurité publique, devra être démoli complétement.
