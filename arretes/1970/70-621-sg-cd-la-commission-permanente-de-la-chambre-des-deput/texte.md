@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 115/7°L du 15 mai 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des ISsas envoyant en mission en métropole le Président de la Chambre des Députés.
