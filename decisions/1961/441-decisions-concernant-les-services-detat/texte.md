@@ -1,0 +1,4 @@
+La décision n° 250 du 25 février 1950 et l’arrêté n° 1284 du 23 décembre 1952 sont abrogés.
+Le Commandant de la Brigade de Gendarmerie de l’Arta est chargé des fonctions de chef de poste administratif à l’Arta dans les limites territoriales fixées par décision n° 250 du 25 février 1950.
+Le Commandant de la Brigade de Gendarmerie de Loyada est chargé des fonctions de chef de poste administratif à Loyada dans les limites territoriales fixées par le Commandant de Cercle de Djibouti.
+Les militaires de la Gendarmerie, visés aux articles 2 et 3 ci-dessus bénéficieront, à la charge du budget territorial, de l’indemnité de frais de représentation au taux annuel de 36.000 fr.,prévue par l’arrêté n° 1175 du 3 septembre 1955. Cette indemnité sera payable sur certificat de service fait, établi par le Commandant de Cercle de Djibouti.
