@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 252/7° L du 12 mai 1972 de la Chambre des Députés portant organisation de l’inspection des affaires administratives dans le Territoire Français des Affars et des Issas,
