@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Houmed Daoud, infirmier de 2e classe — 2e échelon — du corps territorial de la Sante publique, en service au centre de pneumo-phtisiologie Paul-Faure, pour absences non motivées des après-midi des 10, 13, 16 mai 1974.
