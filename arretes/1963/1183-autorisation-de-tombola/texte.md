@@ -1,0 +1,1 @@
+Le Lieutenant-Colonel Morens est autorisé en tant que Président du Comité des Fêtes de Bazeïlles, à organiser une tombola composée de 10.000 billets à deux cents franes l’un, dont le produit Sera exclusivement destiné à la Caisse de secours des Troupes de Marine.
