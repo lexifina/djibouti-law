@@ -1,0 +1,1 @@
+5 février 1026, le service de l’artillerie est de signé, à ln colonie, comme établissement avant à prêter son concours aux forces de l’air dédié à Col se de la résidant à lu Côte francaise des Somalis en ce qui concerne Farmement, le stockage, l’entretien et le contrôle des munitions, bombes et artifices.
