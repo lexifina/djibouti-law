@@ -1,0 +1,1 @@
+M. Neyssenas Jean-Luc, VAT est pour compter du 20 avril 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministère de l’Enseignement, de la Jeunesse et des Sports,pour le Centre de Sismologie Arta, en qualité de technicien supérieur en électronique, service comptant du 1er avril 1975.
