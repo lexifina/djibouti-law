@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 80/8° L du 23 décembre 1974 de la Chambre des Députés du Territoire frangais des Afars et des Issas portant approbation du budget annexe de la Régie des Eaux de Djibouti pour l’exercice 1975.
