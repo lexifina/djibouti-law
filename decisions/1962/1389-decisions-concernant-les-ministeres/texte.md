@@ -1,0 +1,2 @@
+Le Sergent Pasqui René, dû Cadre des Infirmiers Militaires des Troupes de Marine, embarqué le 6 octobre 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 7 octobre 1962, date de son arrivée dans le Territoire.
+Ce sous-officier est désigné pour occuper les fonctions de monteur-dépanneur et de manipulateur au Service d’Electro-Radiologie à l’Hôpital Peltier pour compter de la même date en remplacement du Sergent-Chef Collin, rapatrié.
