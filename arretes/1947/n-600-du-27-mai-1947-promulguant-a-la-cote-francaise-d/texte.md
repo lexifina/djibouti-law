@@ -1,0 +1,3 @@
+Sont promulgues à la Côte francaise des Somalis et dépendances le décret n° 47-701 du 19 avril 1947 modifiant et complétant les décrets des 15 juillet 1944 et IX juillet 1945 réglant l’organisation et le statut du personnel
+des services des travaux publics, des mines et des techniques industrielles relevant du ministère de la France d’outre-mer (7. 0. KR, F,. du 20 avril 1947, page 3754) :
+le decret du 19 avril 19497 fixant les conditions d’intégration dans le cadre des secrétaires d’administration de l’adminisration centrale du ministère de la France d’outre-mer, ( j, R. FF. du 20 avril 1947,pages 3754)
