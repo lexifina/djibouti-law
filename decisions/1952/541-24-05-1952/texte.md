@@ -1,0 +1,1 @@
+Le sergent-chef Gomes (Jean), de l’infanterie coloniale, désigné pour servir « hors cadres » en Côte Française des Somalis, et arrivé à Djibouti le 19 mai 1952, est affecté à la Milice de la C.F.S. (1er Cie) pour compter du jour de son débarquement. Il prendra, à compter de cette même date, les fonctions de chef de poste d’As-Ela en remplacement du sergent-chef Seyve rapatriable.
