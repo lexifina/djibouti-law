@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 220/7° L du 10 décembre 1971 de la Chambre des Députés du Territoire Français des Afars et des ISsas portant modification de. certains articles du Code.du Travail dans les territoires d’outre-mer et créant un établissement public territorial.
