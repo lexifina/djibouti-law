@@ -1,0 +1,1 @@
+M. Mohamed Abdoul Wahab est autorisé à acquérir un immeuble sis à Djibouti, boulevard Maréchal-Franchet-d’Espérey, Plateau du Serpent, et immatriculé au Livre foncier du Territoire sous le n° 59 au nom de M. et Mme di Bona.
