@@ -1,0 +1,2 @@
+Est transférée de la 2° classe à la 1° classe B, la licence de boissons exploitée par Madame Silas Alemayehou dans son bar Le Mondial » sis quartier 2, boulevard 22, maison n° 3 à Djibouti, en application de la décision n° 74-1452/SG/IAM du 11 septembre 1974.
+Madame Silas Alemayehou est autorisée à transférer son bar « Le Mondial » du quartier 2, boulevard 22; maison n° 3 à la rue de Londres, porte sans numéro, à Djibouti.
