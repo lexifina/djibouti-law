@@ -1,0 +1,1 @@
+le Receveur Comptable des Postes a été autorisé a faire état dans ses écritures du montant des affranchissements des plis officiels (lettres diverses, Journaux officiels). Ce comptable produira à cet effet un relevé trimestriel qui sera soumis à la signature du Chef du Cabinet du Gouverneur.
