@@ -1,0 +1,1 @@
+Est rendu exécutoire la délibération n° 430/6L du 27 novembre 1967 de la Commission * permanente de Si Chambre des Dépütés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget du Service local 1967.
