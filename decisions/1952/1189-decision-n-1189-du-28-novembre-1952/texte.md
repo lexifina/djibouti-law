@@ -1,0 +1,1 @@
+Meme Kadidja Kahin Harbi est engagée, pour compter du 1er décembre 1952, en qualité d’infirmière auxiliaire au 6° échelon, en remplacement numérique de M. Aoua Aboubaker, licenciée, et mise à la disposition du Directeur du Service de Sante.
