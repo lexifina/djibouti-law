@@ -1,0 +1,1 @@
+Une subvention de quatre-vingt six mille neuf cent cinquante-six francs Djibouti (86.956 FD) est accordée à l’Association pour le développement des œuvres sociales d’Outre-Mer (A.D.OS. O.M.), 27, rue Oudinot, Paris (7e), à titre de contribution à l’aide qu’elle apporte aux ressortissants du Territoire résidant en Métropole.
