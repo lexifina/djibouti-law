@@ -1,0 +1,1 @@
+M. Jouve Jean-Marie administrateur en chef de classe exceptionnelle des Affaires d’outre-mer, est chargé, en l’absence du Chef du Territoire, titulaire d’un congé annuel, de l’expédition des affaires courantes et urgentes du Territoire pour compter du 1er août 1964.
