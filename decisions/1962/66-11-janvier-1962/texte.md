@@ -1,0 +1,1 @@
+Mme Nicoletto Gérmaine est autorisée à exploiter dans un immeuble sis rue Ras-Mäkonnem à Djibouti, une licence de 1re classe pour la vente de boissons alcooliques et hygiéniques à consommer sur place ou à emporter.
