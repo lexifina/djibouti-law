@@ -1,0 +1,1 @@
+un complément de solde de 8.400 francs par an est accordé à M. Roussan (Jacques-Paul-Henri), ingénieur principal de classe, 2e échelon du cadre général des travaux publics, pour compter du 28 décembre 1931, jour de son débarquement à la colonie.
