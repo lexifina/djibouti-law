@@ -1,0 +1,2 @@
+M. Naguib Abdallah Ahmed est engagé à l’essai pour deux mois, en qualité de secrétaire comptable auxiliaire, pour compter du 1er mars 1960, et mis à la disposition du Ministre des Finances, des Affaires économiues et du Plan (Service dés Finances), en remplacement de M. Moussa (Louis), appelé sous les drapeaux.
+M. Naguib Abdallah est rangé à la 2e catégorie, échelle IX, 1er échelon, indice local 725.
