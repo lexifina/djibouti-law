@@ -1,0 +1,2 @@
+Est accordée, au Directeur de l’école Charles de Foucauld autorisation préalable de construire trois logements d’üne piéce chacun, plus les installations sanitaires, au quartier n° 7, boulevard d’’Amboulti, dans l’enceinte de l’école dite «Ecole de la saile)», annexe de l’école Charles de Foucauld.
+La présente autorisation ne vaut pas permis de construire qui sera délivré par le Commandant de Cercle de Djibouti suivant la procédure réglementaire.
