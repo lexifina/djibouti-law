@@ -1,0 +1,1 @@
+M. Mandadidis Stavros, de nationalité hellénique, est autorisé à transférer aux n° 8 et 10 rue de Bruxelles à Djibouti, la licence de 2 classe pour la vente en-gros et en détail de boissons alcooliqdues et hysiéniques à emporter, qu’il exploitait précédemment avenue G.-Clemenceau.
