@@ -1,0 +1,1 @@
+la somme de huit cent quarante-et-un francs trente-six centimes, représentant le montant de la taxe contributive et des droits accessoires relatifs au transit de marchandises destinées au gouvernement éthiopen, sera remboursée à M. Marill, transitaire de cette marchandise.
