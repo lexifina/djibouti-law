@@ -1,0 +1,1 @@
+Le milicien de 2° classe Hassan Mohamed, matricule 2283, de la 4 Compagnie de Milice à Damerdijog, arrivant en fin de contrat le 31 décembre 1965, est mis à la retraite pour compter du 1 janvier 1966.
