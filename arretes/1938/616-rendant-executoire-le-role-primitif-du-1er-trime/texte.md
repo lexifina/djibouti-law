@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif du 1er trimestre des patentes « A ». exercice 1938, du cercle militaire de Dikkil-Gobad, comprenant un article et s’élevant à la somme de huit cent quarante francs.
