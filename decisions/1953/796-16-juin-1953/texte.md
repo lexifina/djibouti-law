@@ -1,0 +1,1 @@
+M. Kassim Ahmed est engagé en qualité d’infirmier stagiaire 10e échelon du cadre local de la Côte Française des Somalis et mis à la disposition du Directeur du Service de Santé pour compter du 1er juin 1953.
