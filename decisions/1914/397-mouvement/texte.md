@@ -1,0 +1,1 @@
+une punition de 10 jours de suspension de solde a été infligée au caporal indigène des Douanes Hadji Haden et une autre de 15 jours de la même peine à l’agent Saïd Husson, pour faits d’indiscipline et scandale sur la voie publique,
