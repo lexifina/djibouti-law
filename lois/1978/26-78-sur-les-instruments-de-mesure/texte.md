@@ -1,0 +1,3 @@
+L’article 6 de la délibération n° 353/7e L du 18 mai 1973 est abrogé et remplacé par les dispositions suivantes : » Ceux qui auront utilisé des instrumente de mesures qui ne sont pas conformes aux types autorisés seront passibles des peines de deuxième catégorie.
+Seront également passibles de mêmes peines ceux qui n’auront pas présenté leurs instruments de mesure à la vérification annuelle ou ceux qui utilisant des balances automatiques ne signalent pas au bureau des poids et mesures le fonctionnement défectueux de celles-ci.
+En cas de récidive, seront applicables les peines de troisième catégorie.
