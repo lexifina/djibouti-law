@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 240/7e L du 2 mars 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en Métropole le Président de la Chambre des Députés ( régularisation).
