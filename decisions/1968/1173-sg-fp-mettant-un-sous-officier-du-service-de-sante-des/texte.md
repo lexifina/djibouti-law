@@ -1,0 +1,1 @@
+L’adjudant Michel Jourdain, du Service de Santé des Armées, arivé à Djibouti le 4 juillet 1968 est, pour compter de la même date, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir à l’hôpital Peltier en remplacement de l’adjudant-chef Dubreuil, rapatriable.
