@@ -1,0 +1,1 @@
+le nommé Saïd About, condamné le 15 septembre 1927 à trois ans de prison, pour vol, et le 28 novembre 1929 à trois ans de prison, pour vol, par le tribunal correctionnel de Djibouti, « été libéré conditionnellement.
