@@ -1,0 +1,1 @@
+M. Ravaillen, procureur de la République près le tribunal supériegr d’appel de 2e classe de la Côte française des Somalis, bénéficie de a première majoration de traitement de 1.000 francs prévue par l’article 2 du décret du 27 juillet 1930, à partir du 1er mai 1934.
