@@ -1,0 +1,1 @@
+Le milicien de 2e classe Elmi Waiss, matricule 2030, de la 2e compagnie de milice, à Tadjouua, décédé à Djibouti le 3 septembre 1949, est rayé des contrôles de la: milice indigène à compter du 4 septembre 1949.
