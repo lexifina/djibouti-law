@@ -1,0 +1,3 @@
+Les dispositions de l’article 2-de la décision n° 648 du 10 mai 1962 relatives à l’avancement d’échelon de M. Mohamed Abdallah Soubaï, ouvrier du Cadre Territorial de Imprimerie Administrative de Djibouti, sont rapportées.
+M. Mohamed Abdallah Soubaï, ouvrier de l’° classe, 3* échelon du Cadre Territorial de l’Imprimerie Administrative de Djibouti, est inscrit au tableau d’avancement du Personnel des Cadres Territoriaux de l’année 1962 pour le grade d’Ouvrier Principal 1er échelon pour compter du 1° juillet 1962.
+M. Mohamed Abdallah Soubaï, ouvrier de 1° classe, 3° échelon du Cadre Territorial de l’Imprimerie Administrative, est promu pour compter du le juillet 1962 au grade d’Ouvrier Principal, 1° » échelon.
