@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 177/7° L du 23 avril 1971 de la Commission permanente régularisant la mission d’information effectuée en métropole par M. Jean-Paul Castel, Président de la Chambre des Députés.
