@@ -1,0 +1,9 @@
+À la suite d’une entente intervenue, en 1897, entre les Départements des Colonies et de la Guerre, les jeunes gens du vontingent métropolitain résidant, au moment de l’appel de leur classe sous les drapeaux, dans les colonies où pays de protectorat, peuveut titre torisés à accomplir dans un corps troupes stationné dans ces colonies au pays de protectorat, le temps de service auquel ils sont astreints par le conseil de revision.
+A cet jet, les intéressés doivent adresser, avant le 1er septembre de l’année où l’appel de leur classe doit avoir lieu, leur demande au commandant supérieur des troupes de la colonie où ils résident, qui statue et rend compte au ministre de la guerre (direction de l’infanterie, bureau du recrutement,, en indiquant le corps dans lequel ils ont été versés et la date de l’incorporation.
+Avis de cette incorporation est ensuite donné par le ministre de la guerre au commandant du bureau de recrutement de la métropole, qui fait annuler l’ordre d’appel régulier qui aurait vu être transmis.
+Les jeunes gens de cette catévorie Les jeunes gens de cette Catégorie,
+qui ont été déclarés «bons absents» pas le conseil de revision où qui se
+croient atteints de maladies ou d’infirmités les rendant impropres au service actif, doivent en faire la déclaration aux autorités militaires locales, pour être déférés, s’il y a lieu, avant leur mise en route, à la commission spéciale de réforme la plus
+voisine de leur résidence.
+Quant à ceux de ces jeunes gens qui résident régulièrement dans la colonie ou pays de protectorat deruis le 1er janvier de l’année di tirage au sort de leur classe et qui ont l’intention d’y séjourner jusqu’à 30 ans, ils doivent se mettre en instance auprès du gouverneur de la colonie ou du résident général, suivant le cas,
+l’effet d’obtenir le bénéfice de l’article 81 de la loi du 15 juillet 1889 (réduction du service à un an à accomplir dans un corps de troupes stationné dans la colonie où pans de protectorat).
