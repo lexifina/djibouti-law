@@ -1,0 +1,1 @@
+Un congé de maternité de quatorze semaines pour compter du 9 janvier 1961 est accordé à Mme Lagrée Andrée, institutrice de 1er échelon du département des Côtes-du-Nord détachée en Côte Française des Somalis, en service à l’écolé de Tadjoura.
