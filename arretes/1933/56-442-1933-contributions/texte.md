@@ -1,0 +1,1 @@
+12 septembre 1933, a 6t6 rendu exécutoire le rôle. p rimitif de l’exercice 193%35 des embarcations, matériel flottant, boutres à voile où à vapeur comprenant 87 articles et S’élevant à somme de trente mille cinq francs,
