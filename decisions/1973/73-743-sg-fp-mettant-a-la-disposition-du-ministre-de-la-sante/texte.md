@@ -1,0 +1,1 @@
+M. Jean-Paul Bouteloup, médecin, volontaire de l’Aide technique, est, pour compter du 8 avril 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’hôpital Peltier.
