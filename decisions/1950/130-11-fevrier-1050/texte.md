@@ -1,0 +1,1 @@
+Les miliciens dont les noms suivent ont droit; à l’indemnité de charges de faanille : 1425 Houmad Moussa, 2e classe, 3e compagnie, pour compter du 30 janvier 1950. 2102. Otban Soulieman, 2e classe, 3e compagnie, pour compter du 10 janvier 1950. 2140. Ahmed Chireh, 2e classe, 3e compagnie, pour compter du 19 novembre 1949.
