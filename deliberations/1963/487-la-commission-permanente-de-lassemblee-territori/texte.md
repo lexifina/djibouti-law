@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1348 du 4 novembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à la Communauté des Sœurs Franciscaines de Calais la concession provisoire d’un terrain d’une superficie de 536 m°, sis plateau du Serpent à Djibouti.
