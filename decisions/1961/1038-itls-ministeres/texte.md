@@ -1,0 +1,3 @@
+Le montant de la bourse mensuelle d’entretien de 400 NF dont bénéficient, pendant la durée de leur stage, MM. Abdou Nouman Ahmed et François Gidoin sera payé à la Société anonyme des automobiles Peugeot à Sochaux-Montbeliard par l’intermédiaire de l’A.S.A.T.O.M. (66 ter, rue Saint-Didier, à Paris) qui administre financièrement les stagiaires Peugéot.
+M. Abdou Nouman Ahmed ayant été obligé de se rendre à Paris avant de rejoindre Sochaux, il sera remboursé à l’A.S.A.
+T.O.M, qui en a fait l’avance, la somme de 54 NF 40 représentant la différence entre les frais de voyage Marseille – Paris – Sochaux et Marseille – Sochaux perçus par l’intéressé avant son départ de Djibouti.
