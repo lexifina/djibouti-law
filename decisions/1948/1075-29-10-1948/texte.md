@@ -1,0 +1,1 @@
+M. Beyrand ( Raymond), inspecteur de 5 classe du cadre local de la police, commissaire de police de la ville de Djibouti, est mis à la disposition du chef du service de la sûreté pour compter du 25 octobre 1948.
