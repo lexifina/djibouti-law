@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 196/7° L du 29 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à M° Georges Vimar la concession provisoire de deux parcelles de terrain sises à Diibouti (T.F. 739 et TE. 937).
