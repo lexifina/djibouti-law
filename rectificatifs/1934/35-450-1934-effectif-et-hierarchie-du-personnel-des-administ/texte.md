@@ -1,0 +1,1 @@
+Rectificatif au Journal officiel du 13 avril 1934 : page 3798, 3e colonne, 22e ligne, au lieu de : « avant 2 ans », jire : « avant 3 ans » Page 3799, 2e colonne, 15e ligne, au lieu de : « Eskert », lire : « Eckert ».
