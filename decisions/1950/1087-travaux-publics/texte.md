@@ -1,0 +1,1 @@
+Le traitement mensuel de Mohamed Saïd Salem, releveur de compteurs, en service à la régie des eaux, est. fixé a. 33.280 francs pour compter du 3 janvier 3950, et à 34.270 francs pour compter du 1er juillet 1950.
