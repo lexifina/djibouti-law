@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances, la loi du 13 décembre 1941 relative à la création dans les territoires relevant du Secrétariat d’État aux colonies de tout nouveau journal quotidien et périodique.
