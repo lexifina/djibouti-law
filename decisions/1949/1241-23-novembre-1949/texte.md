@@ -1,0 +1,1 @@
+Rasamy (Pierre-Maxime), secrétaire de lro classe du cadre spécial de Madagascar est intégré dans le cadre local des travaux publics, en qualité de comptable stagiaire de 3e classe, pour compter du 1er janvier 1949.
