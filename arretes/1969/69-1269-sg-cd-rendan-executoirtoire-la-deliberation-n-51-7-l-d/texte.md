@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 51/7 L du 12 août 1969 de la Commission permanente de la Chambre des Députés portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1968.
