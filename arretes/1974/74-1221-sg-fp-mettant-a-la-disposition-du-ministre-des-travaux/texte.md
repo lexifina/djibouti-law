@@ -1,0 +1,1 @@
+M. Jean-Paul Thiriet, ingénieur des Travaux publics de l’Etat ,4e échelon est pour compter du 1er juillet 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics, des Transports et du Tourisme, pour servir en qualité de chef de la subdivision d’études de la direction des Travaux publics, en remplacement numérique de M. Rouvier Michel.
