@@ -1,0 +1,1 @@
+M. Giustiniani, conducteur de Travaux principal au Service des Travaux Publics, est provisoirement chargé, cumulativement avéc ses fonctions actuelles de celles de géomètre du Service des Domaines, en remplacement de M. Duverneuil.
