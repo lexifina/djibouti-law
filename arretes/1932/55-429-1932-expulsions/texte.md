@@ -1,0 +1,1 @@
+le nommé Amounié Rata, Abyssin. est expulsé de la Côte francaise des Somalis et devra quitter, daus un délai expirant le 18 janvier 1935, le territoire de la colonie, qui lui reste interdit, ainsi que celui de ses dépendances.
