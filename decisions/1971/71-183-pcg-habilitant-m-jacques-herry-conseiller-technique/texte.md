@@ -1,0 +1,1 @@
+deligation est donne à M.Jacquette Herry, conseiller technique du ministre des affaire interieur pour la signature et la delivrance des recepisee de depot ainsi que des lettre portant refus d’enregistrement des liste de candidature pour portant l’election partielle àla chambre des depute de territoire francais des afar et des issa scrutin du 14 mars 1971.
