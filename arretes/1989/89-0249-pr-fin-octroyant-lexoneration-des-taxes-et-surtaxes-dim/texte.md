@@ -1,0 +1,1 @@
+est exonéré des taxes et surtaxes d’importation, un envoi de produits à usage agricole, d’un poids de 1318 kg et d’une valeur de 3 704 100 FD, don de l’Organisation arabe pour le éveloppement agricole à la République de Djibouti.
