@@ -1,0 +1,1 @@
+Le traitement mensuel du nommé Ahmed Cavalier, employé de bureau en service à la régie des eaux, est fixé à 17320 francs pour compter du 3 janvier 1950, et à 18.390 francs pour compter du 1er juillet 1950.
