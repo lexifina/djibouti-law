@@ -1,0 +1,1 @@
+Par décret en date du 9 septembre 1961, pris en application du décret du 16 janvier 1947 portant, réglementation pour l’érection de monuments commémoratifs, est approuvée l’érection à Cuts (Oise) d’un monument à la gloire des Somalis.
