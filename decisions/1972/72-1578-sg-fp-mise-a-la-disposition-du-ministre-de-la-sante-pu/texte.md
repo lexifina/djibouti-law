@@ -1,0 +1,2 @@
+Mme Janine Toullier, sage-femme diplômée d’Etat, 7° échelon (indice majoré 360) est, pour compter du 22 octobre 1972, date de son arrivée dans le Territoire, mise à la disposition du Ministre de la Santé publique et des, Affaires sociales, pour servir à l’hôpital Peltier, en remplacement numérique de Mme Lixef.
+Les dépenses résultant de la présente décision sont imputables au budget du Territoire.
