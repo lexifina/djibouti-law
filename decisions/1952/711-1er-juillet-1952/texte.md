@@ -1,0 +1,1 @@
+M. Abdi Farah dit «Nour Aouar» est engagé pour compter du 1er juillet 1952 en qualité de chef de quartier (quartier n°3) en remplacement numérique de M. Aden Ismaël, licencié pour inaptitude physique. L’intéressé sera assimilé, au point de vue traitement, à un auxiliaire 8°échelon:
