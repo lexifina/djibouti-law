@@ -1,0 +1,1 @@
+Le séjour dans le district de Djibouti et les cercles de Tadjourah et d’’Obock est interdit pendant cinq ans à Djama Ainan Kamil, né vers 1949 Atar (TFAI) condamné le 1er décembre 1969 par la cour d’appel de Djibouti, à quatre ans de prison et cinq ans d’interdiction de séjour, écroué le 4 août 1969, libéré le 4 aôut 1973.
