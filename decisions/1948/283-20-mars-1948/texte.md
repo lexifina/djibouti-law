@@ -1,0 +1,1 @@
+Est rapportée par mesure de compression de personnel et pour compter du 1er avril 1948, la décision n° 586 du 23 mai 1947 susvisée, engageant Mme Chaumont ( Marguerite) en qualité de dame employée auxiliaire, 2e catégorie, au service des informations.
