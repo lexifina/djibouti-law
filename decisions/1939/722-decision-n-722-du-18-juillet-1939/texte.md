@@ -1,0 +1,1 @@
+Le médecin capitaine Ristorcelli, assistant de bactériologie, place en activité hors cadres, est chargé des fonctions de médecin du Laboratoire de bactériologie de l’hôpital colonial et du service d’hygiène de la ville.
