@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 317/6e L du 3 octobre 1966, de la Commission permanente de la Côte Française des Somalis autorisant le Chef du Territoire à passèr une convention relative à la concession du service public de vidange.
