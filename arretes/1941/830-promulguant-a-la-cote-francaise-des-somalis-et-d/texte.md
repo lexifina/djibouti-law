@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances la loi du 30 octobre 1941 interdisant dans les territoires relevant du Secrétariat d’État aux colonies la réception et l’audition en quelque lieu que ce soit, public ou privé, des émissions radiophoniques des postes britanniques ou d’autres postes étran gers ou non se livrant à une propagande antinationale.
