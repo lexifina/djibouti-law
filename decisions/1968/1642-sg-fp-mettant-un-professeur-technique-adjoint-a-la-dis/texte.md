@@ -1,0 +1,1 @@
+M. Paul Goriux. professeur technique adioint (électronique), 10° échelon (indice nouveau 392) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
