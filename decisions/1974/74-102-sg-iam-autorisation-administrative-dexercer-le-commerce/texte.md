@@ -1,0 +1,1 @@
+Est rapportée, pour compter du ler janvier 1974, l’autorisation administrative d’exercer le commerce des boissons, licence de 6° classe, au quartier 6, rue des Issas, porte n° 134, à Djibouti, accordée par décision n° 71-958/SG/AI du 3 juillet 1971, à M. Mahamoud Ibrahim Sougal.
