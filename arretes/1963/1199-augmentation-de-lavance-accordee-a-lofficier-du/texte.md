@@ -1,0 +1,1 @@
+Le montant maximum de l’avance renouvelable accordée à l’offciér gestionnaire du Magasin administratif du Service de l’intendance par arrêté n° 137 du 20 janvier 1959 est porté de dix huit mille francs métropolitains à Vingt et un mille francs métropolitains.
