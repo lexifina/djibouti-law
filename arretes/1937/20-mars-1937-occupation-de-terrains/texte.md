@@ -1,0 +1,2 @@
+le paragraphe 3 de l’arrêté du 30 décembre 1935. mettant à la disposition de l’autorité militaire le terrain immatriculé sous le n » 207 du Livre foncier de la colonie, est rapporté.
+Est mis à la disposition pleine et entière de l’autorité militaire un terrain de 5.180 mètres carrés, sis au sud du coude de la route de Boulaos et immatriculé au nom de l’Etat fran çais sous le n° 215 du Livre foncier de la colonie
