@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est infligé à M. Mohamed Bouh Houmed, agent du service des Contributions indirectes relevant de la Convention collective, pour mauvaise manière de servir et attitude insolente envers son chef de service.
