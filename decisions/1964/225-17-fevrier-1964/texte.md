@@ -1,0 +1,2 @@
+Le Médecin-Capitaine Fretillère Hugues, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 15 janvier 1964 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 16 janvier 1964, date de son arrivée sure Territoire.
+Cet officier est désigné pour occuper les fonctions de Chef du Service d’Oto-Rhino-Laryngologie-Ophtalmologie à l’Hôpital Peltier én remplacement du Médecin-Capitaine Doiteau, rapatriable.
