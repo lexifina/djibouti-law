@@ -1,0 +1,1 @@
+L’adjudant-chef infirmier Schmitt, désigné pour servir hors cadres en Côte française des Somalis, est affecté au poste de Dikhil en remplacement du sergent-chef infirmier Giraud, rapatriable, pour compter du 7 mars 1948 date de son débarquement à Djibouti.
