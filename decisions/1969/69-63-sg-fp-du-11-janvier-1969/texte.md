@@ -1,0 +1,1 @@
+M. Robert Poirson, conducteur des travaux publics de l’Etat, 3* échelon, arrivé au Territoire le 4 janvier 1969, est, pour compter de la même date, mis à la disposition du Ministre des Travaux publics et du Port pour servir aux Travaux publics.
