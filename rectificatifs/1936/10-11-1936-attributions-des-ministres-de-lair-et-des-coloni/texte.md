@@ -1,0 +1,2 @@
+Page 11716. Rapport au l’résident de la République, 4e alinéa, avant-dernière ligne, au lieu de : « gouverneurs où chef de territoire » ; décret du 1er novembre 1936, article 1er (1er alinéa, 5e ligne), wettre un point et virgule au lieu d’une virgule entre « colonies » et « l’autorité »: article 8 (1er alinéa, 3e ligne), ou lieu de : « postes locaux et interlocaux », lire :
+« postes locaux et intercoloniaux ».
