@@ -1,0 +1,2 @@
+autorisant M. le Chef du Territoire à acheter une parcelle de terrain Article unique. — Est autorisé l’achat, par M. le Chef du
+Territoire de la Côte Française des Somalis, d’une parcelle de terrain de 302 mètres carrés, sise dans le titre foncier n° 323 A, appartenant à la Compagnie Maritime de l’Afrique Orientale. La dépense d’achat de 302.000 francs (trois cent deux mille francs) est imputable au Budget annexe du Port, exercice 1960, où a été prévu, à cet effet, une dotation de 400.000 francs (quatre cent mille francs).
