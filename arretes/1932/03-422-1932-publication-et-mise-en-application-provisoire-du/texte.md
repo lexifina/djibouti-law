@@ -1,0 +1,2 @@
+A rt. 1er. — Est promulgué à la française des Somalis le décret du 26 octobre 1931 susvisé, portant publication et mise en application provisoire d’un échange de lettres du 9 septembre 1931 entre le Ministre des affaires étrangères du Brésil et le chargé d’affaires de France au Brésil.
+A rt. 2. — Le présent arrêté sera enregistre, publié et communiqué partout ou besoin sera et insere au journal officiel de la colonie.
