@@ -1,0 +1,2 @@
+M. Sauphanor (Roger), président du tribunal de première instance par intérim, est nommé président du tribunal supérieur d’appel ad hoc pour juger l’affaire Hassan Couletti contre Zouain et recevoir le serment du commis-greffier Lacoste en conformité de l’article 7. paragraphe 2, du décret du 25 juillet 1914 portant réorganisation du service de la justice.
+Avant d’entrer en fonctions, M. Sauphanor prêtera le serment prescrit par la loi.
