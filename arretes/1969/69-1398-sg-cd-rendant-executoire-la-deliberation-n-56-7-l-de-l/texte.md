@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 56/7°L du 18 septembre. 1969 de la Commission permanente de la Chambre des Deputés accordant à M. Ahmed Dini Ahmed la concession provisoire d’une parcelle de terrain, sis à Djibouti, plateau du Serpent.
