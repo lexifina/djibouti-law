@@ -1,0 +1,1 @@
+Est constatée, pour compter du 22 septembre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service de Santé (Ministère de la Santé publique et des Affaires sociales), par Mme Gabrielle Lardenois, infirmière du cadre de l’Assistance publique, 7e échelon.
