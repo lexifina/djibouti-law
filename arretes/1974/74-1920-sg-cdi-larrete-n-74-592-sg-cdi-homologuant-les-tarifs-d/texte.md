@@ -1,0 +1,2 @@
+Les dispositions de l’article 15 de l’arrêté n° 74-592/SG/CDI du 3 avril 1974 homologuant les tarifs des taxis dans le cercle de Djibouti, sont annulées et remplacées par les suivantes :
+«Les dispositions qui précèdent, qui remplacent toutes dispositions aritérieures contraires, sont applicables, en ce qui concerne les tarifs, jusqu’à la mise en service éventuelle de taxi-mètres ou à la promulgation de nouveaux barèmes de prix que justifieraient des modifications importantes des conditions économiques ».
