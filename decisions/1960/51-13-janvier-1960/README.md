@@ -1,0 +1,9 @@
+# Décision n° 51 du 13 janvier 1960 :
+
+Décision · Journal officiel de la République de Djibouti, n° 1 du 30/01/1960 · <https://www.journalofficiel.dj/texte-juridique/decision-n-51-du-13-janvier-1960/>
+
+En vigueur : 1960-01-30 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | Adjudant-Chef Infirmier des T. O. M. Goutille (André), désigné pour servir « hors cadres » en Côte Française des Somalis par J. O. R. F. n° 248 du 25 octobre 1959, nouvellement arrivé sur le Territoire, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir « hors cadres » à compter du 4 janvier 1960, date de son embarquement. |
