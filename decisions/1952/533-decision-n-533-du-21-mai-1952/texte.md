@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Abdallah Saad, maître-charpentier auxiliaire en service au Cercle de Tadjoura, est porté à 14.250 fr. pour compter du 1er juillet 1951 et à 14.750 fr. pour compter du 1er janvier 1952.
