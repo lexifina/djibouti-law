@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 157/8e L du 20 novembre 1975 de la Chambre des Députés du Territoire français des Afars et des Issas, portant désignation des membres d’une délégation pour Dar-Es-Salaam.
