@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Farah Hassan Zeid, agent technique de classe exceptionnelle du cadre territorial des travaux publics et du port, en service à l’hôpital Peltier (Ministère santé publique), pour absence irrégulière non motivée, le lundi 4 août 1975.
