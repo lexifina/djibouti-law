@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 296/6e L du 1er juin 1966 de l’Assemblée Territoriale donnant délégation à la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis.
