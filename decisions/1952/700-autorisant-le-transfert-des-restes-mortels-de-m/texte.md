@@ -1,0 +1,2 @@
+Les restesmortels de M. Massiani (Jean), décédé à Djibouti le 27 mars 1952, actuellement entreposés au dépositoire du cimetière de Djibouti, seront transférés au cimetière Saint-Pierre à Marseille (Bouches-du-Rhône).
+Les dépenses occasionnées par le transfert des restes mortels du défunt jusqu’au lieu de l’inhumation seront supportées par M. Mattei (Jacques), beau-frère du défunt, employé à la Compagnie du Chemin de Fer Franco-Ethiopien.
