@@ -1,0 +1,1 @@
+La sanction d’exclusion temporaire de fonction pour une durée de trois est infligée à M. Aboubaker Mohamed Doualeh, contrôleur stagiaire du Cadre Territorial. de l’Office des Postes et Télécommunications, pour faute lourde professionnelle.
