@@ -1,0 +1,1 @@
+La S.A. American African Finance Corporation, dont le siège social est à Djibouti est autorisé à acquérir un immeuble sis à Djibouti-Boulaos et immatriculé au Livre foncier du Territoire sous le numéro 753 au nom de M. Nacer Ali Othman.
