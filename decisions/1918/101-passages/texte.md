@@ -1,0 +1,1 @@
+un passage de rapatriement pour la France a été accordé à MLle. DELPORTE, Cécile, Yvonne, Marie, âgée de six ans, fille de M. DELPORTE, Georges, Francois, Léon, adjoint de première classe des affaires indigènes.
