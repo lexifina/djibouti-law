@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 97/7° L du 24 mars 1970 de la Commission permanente dela Chambre des Députés du Territoire Français des Afars et des Issäs modifiant la délibération n° 77/7° L portant ouverture de crédits supplémentaires au budget annexe du port de commerce de Djibouti pour l’exércice 1969.
