@@ -1,0 +1,6 @@
+les conditions de délivrance du brevet de technicien supérieur Bureautique et Secrétariat créé par l’arrêté du 6 octobre 1990, sont fixées conformément aux dispositions du décret n°90-0109/PR/EN du 4 octobre 1990 portant règlement général du brevet de technicien supérieur et des annexes I (règlement d’examen) et II (définition des épreuves) du présent arrêté.
+Pour se présenter à l’examen, les candidats doivent justifier l’une des conditions d’inscription fixées à l’article 6 du décret n° 90-0109/PR/EN du 4 octobre 1990 susvisé.
+Une seule session est organisée chaque année scolaire.
+La date de début des épreuves, les dates d’ouvertures et de clôture des registres d’inscription sont fixées par le Ministre de l’Éducation Nationale. La liste des pièces à fournir lors de l’inscription est fixée par le directeur général de l’Éducation Nationale.
+Le brevet de technicien supérieur Bureautique et Secrétariat est délivré aux candidats ayant subi avec succès l’examen défini par le présent arrêté, conformément aux dispositions de l’article 9 du décret n°90-0109/PR/EN du 4 octobre 1990 susvisé.
+La première session du brevet de technicien supérieur Bureautique et Secrétariat, organisée conformément aux dispositions du présent arrêté aura lieu en 1993.
