@@ -1,0 +1,1 @@
+Mme Comba (Ginette), institutrice du 9e échelon du Cadre métropolitain, précédemment en service en qualité d’adjointe à l’Ecole de filles, est nommée directrice titulaire de l’Ecole de filles (neuf classes) en remplacement de Mme Pottier, réintégrée.
