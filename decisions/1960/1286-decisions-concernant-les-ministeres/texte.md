@@ -1,0 +1,4 @@
+Un congé de convalescence de trois mois à passer à Lavardac, rue des Fossés (Lot-et-Garonne), est accordé à M. Lacampagne André, Paul, Attaché de 1er classe, 1er échelon du corps autonome des Chefs de Division et Attachés de la France d’Outre-Mer.
+M. Lacampagne comptera au 6 décembre 1960 un séiour ininterrompu de 2 ans, 2 mois, 19 jours en service dans le Territoire de la Côte Francaise des Somalis.
+M. Lacampagne André, Paul, classé au Broupe II, indice 410, sera mis en route, en première urgence, par voie aérienne, pour Lacampagne voyagera accompagné de sa famille composée de Mme Lacampagne, de sa fille Brigitte 6 ans, et de Mlle Annie Lebleiz, 14 ans.
+Une réquisition en 1er classe Djibouti-Paris sera établie pour M. Lacampagne et les membres de sa famille sur le compte du Budget du Territoire à charge pour l’intéressé de rembourser le prix du voyage de Mille Annie Lebleiz.
