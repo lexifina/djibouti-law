@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 123/7e L du 3 juillet 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant une parcelle de terrain domanial en concession provisoire, sise au lotissement du boulevard de la République.
