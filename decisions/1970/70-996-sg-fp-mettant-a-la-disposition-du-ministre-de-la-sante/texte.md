@@ -1,0 +1,1 @@
+M. Francis Cœur, adjudant en position «cadre hors budget des armées» est, pour compter du 9 août 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’Hôpital Peltier, en remplacement numérique de l’adjudant Suzzoni rapatriable.
