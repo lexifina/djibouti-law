@@ -1,0 +1,1 @@
+Est approuvé et rendu exécutoire le budget rectificatif 1972 de l’Office de Développement du Tourisme s’élevant en recettes et en dépenses à: douze millions cinq cent vingt-quatre mille cinq cent neuf francs Djibouti (12.524509 FD).
