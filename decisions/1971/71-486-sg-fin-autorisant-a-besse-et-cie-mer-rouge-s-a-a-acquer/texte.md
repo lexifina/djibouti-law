@@ -1,0 +1,1 @@
+La Société À. Besse et Cie (Mer Rouge). S. À. est autorisée à acquérir un immeuble bâti, d’une superficie de 2.125 m2, sis à Djibouti-Boulaos, et immatriculé au livre foncier du Territoire sous le n°, 221, au nom de la Société Franco-Ethiopienne pour le commerce du sel (ex-Société Italo-Francaïise pour le commerce du sel).
