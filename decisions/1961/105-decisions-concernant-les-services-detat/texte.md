@@ -1,0 +1,3 @@
+Un congé administratif de septMmois à passer à Saint-Loubouer (LAndes), est accordé à M. Bella (Jacques) ingénieur de 4° classe du Corps Autonome des Travaux Publics (indice 360 groupe II), chef de la Subdivision Travaux et Ateliers du Port de Djibouti, qui aura accompli le 22 février 1961 un séjour de 2 ans, 6 mois dans le Territoire.
+M. Baella (Jacques) qui voyagera accompagné de son épouse est autorisé à emprunter la voie anormale. Il percevra avant son départ, une avancé représentant les frais de passage Djibouti Saint-Loubnuer (Landes) à charge pour lui de justification desdits frais dans les conditions prévues par la réglementation.
+La dépense est imputable sur le Budget Local.
