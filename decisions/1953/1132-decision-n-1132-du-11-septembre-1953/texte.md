@@ -1,0 +1,1 @@
+La peine du blâme, avec inscription au dossier, est infligée M. Novack (Pierre), mécanicien auxiliaire à solde mensuelle,en service à l’Hôpital Principal, pour fautes graves et répétées dans le service.
