@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 122/S°I, du 27 mai1975 de la Chambre des Députés du Territoire français des Afars et des Issas accordant à la Société Air Djibouti une parcelle de terrain domanial dans les mêmes conditions que celles prévues dans la délibération n° 33/8° L du 19 avril 1974.
