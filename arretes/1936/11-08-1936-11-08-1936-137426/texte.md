@@ -1,0 +1,1 @@
+il est fait concession, à titre définitif, à la Société des salines de Djibouti, de Sfax et de Madagascar, du lot n° 164-4 au plateau de Djibouti, immatriculé au nom de l’Etat français, sons le n° 154 du Livre foncier de la colonie.
