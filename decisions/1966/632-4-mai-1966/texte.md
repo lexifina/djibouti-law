@@ -1,0 +1,1 @@
+M. Nansour Nasser, expéditionnaire d’Administration principal en service au Ministère des Finances (Contributions), est désigné pour assurer les fonctions d’agent intermédiaire au Service des Contributions pendant la durée du congé de M. Pécoul (Albert) en métropole, titulaire d’une décision de congé n° 537 du 22 avril 1966.
