@@ -1,0 +1,1 @@
+T’Adiudänt-chef du Service des Matériels et Bâtiments des Troupes de Marine Thoirey Paul, S.O.C. (B. 2. auto EB), embarqué par avion le 2 octobre, débarqué à Djibouti le 3 octobre 1963, est affecté au Dépôt de la Milice à Djibouti pour remplir les fonctions d’officier auto de la Milice de la Côte Française des Somalis, en remplacement du M. d. L.-Chef Viola Jean, rapatriable.
