@@ -1,0 +1,1 @@
+Le marché passé le 7 janvier 1967 avec M. Casimir (José), pour la fourniture de 3,000 kilos de viande de bœuf de première qualité sans.os et de 15.000 kilos de viande de bœuf de ‘première qualité avec oS est résilié à compter du 13 février 1967.
