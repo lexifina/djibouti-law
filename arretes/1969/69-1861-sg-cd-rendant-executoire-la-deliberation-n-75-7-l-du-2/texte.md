@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 75/7eL du 23 décembre 1969 de la Chambre des Députés portant création, au profit de l’Office de Développement du Tourisme du Territoire Français des Afars et des Issas, d’une majoration de la surtaxe Sur les alcools.
