@@ -1,0 +1,3 @@
+Il ést mis fin, sur sa demande, pour compter du 11 mars 1963 au contrat de travail expatrié susvisé en date du 9 octobre 1962 de Mme Braneyre Marie-Thérèse, sténodactylographe contractuelle (catégorie E – 7° échelon) en service au Secrétariat Permanent du Conseil de Gouvernement.
+Mme Braneyre Marie-Thérèse qui réunit au 11 mars 1963 7 mois 25 jours de services effectifs aura droit à une indemnité compensatrice de congé payé non pris égale à 5 jours par mois de présence, décomptée selon les prescriptions des articles 98 et 124 du Code du Travail Outre-Mer.
+La dépense est imputable sur le Budget du Territoire de la Côte Française des Somalis.
