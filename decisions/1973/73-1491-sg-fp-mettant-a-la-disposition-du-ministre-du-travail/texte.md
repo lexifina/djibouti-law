@@ -1,0 +1,1 @@
+M. Brun Jean-Pierre, volontaire de l’Aide technique, est, pour compter du 13 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministre du Travail, pour servir en qualité de médecin au Service médical interentreprises, services comptant au 1er septembre 1973.
