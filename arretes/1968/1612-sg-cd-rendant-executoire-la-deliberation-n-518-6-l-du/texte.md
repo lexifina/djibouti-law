@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 518/6°L du 5 octobre 1968 de la Commission permanente de la ‘ Chambre des Députés -du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget du Service local (exercice 1968).
