@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 31/7°E du 20 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du Plan directeur d’Urbanisme et suppression de la voie périphérique E du lotissement de l’Abattoir.
