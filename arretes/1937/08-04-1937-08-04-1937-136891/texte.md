@@ -1,0 +1,1 @@
+la Maison F. Liviérato est auto risée à acquérir de M. Henri La Fay les droits de concession provisoire que celui-ci détient sur le lot n° 4 du quartier de l’ancien abattoir, en vertu d’un arrêté du 8 août 1913.
