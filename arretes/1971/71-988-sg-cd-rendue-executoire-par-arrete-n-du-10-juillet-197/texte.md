@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 200/7° L du 29 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à la Société Ratti et Cie, S.A.R.L. un délai supplémentaire d’un an pour réaliser la mise en valeur d’une parcelle de terrain, sise à Djibouti (T.F. n° 1138).
