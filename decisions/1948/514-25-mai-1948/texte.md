@@ -1,0 +1,1 @@
+– Le nommé Feredi Saïd MBasrawi Arabe Hadrami de Mukalla, est engagé à compter du 1er mai 1948 en qualité de chanteur au « Darel Akhhar »s en remplacement du nommé Ahmed Mansour licenci à la mm daté par mesure disciplinaire.
