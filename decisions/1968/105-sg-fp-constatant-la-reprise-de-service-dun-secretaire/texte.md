@@ -1,0 +1,1 @@
+Est constatée, pour compter du 17 janvier 1968, date de son retour au Territoire, la reprise de ses fonctions antérieures à l’Enregistrement (Ministère des Finances et du Plan) par M. Wahab Mohamed Abdou Paul, secrétaire dactylographe contractuel (catégorie D, 2° échelon, indice 195).
