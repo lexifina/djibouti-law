@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Aden Daher Aye, assistant météorologiste — 1re classe — 3e échelon du corps territorial du service météorologique, chef de la station d’observation de l’aérodrome de Djibouti, pour absence illégale.
