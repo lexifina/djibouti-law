@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et les cercles de Tadjourah et d’Obock est interdit pendant cinq ans à Kaireh Farah Mahamoud, né vers 1952 à Assamo (TFAI), le 1 juin 1972 par Tribunal de première instance de Djibouti, à dix huit mois de prison et cinq ans d’interdiction de séjour, pour vol, écroué le 27 mars 1972, libéré le 27 septembre 1973.
