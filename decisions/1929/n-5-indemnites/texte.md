@@ -1,0 +1,1 @@
+M. Beau, ingénieur en chef, adjoint à l’inspecteur général des travaux publics, chargé de mission par le ministère des colonies, recevra, pour la durée de cette mission à la Côte française des Somalis, une indemnité forfaitaire de 15.000 francs.
