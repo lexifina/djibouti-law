@@ -1,0 +1,1 @@
+un passage de relour par anticipalion est accordé à Me Lucciardi, femme du trésorier-payeur à Djibouti, ainsi qu à son fils âgé de 4 ans, Mme Lucciardi est autorisée à se faire accompagner d’un domestique.
