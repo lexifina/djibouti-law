@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 232/7° L du 28 décémbre 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à M. Sayed Abdoul GhafourAl Mansour la concession provisoire d’une parcelle de terrain, sise à Djibouti, Quartier n° 4.
