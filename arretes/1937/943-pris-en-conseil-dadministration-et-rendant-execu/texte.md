@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de l’impôt foncier (pierres et planches). exercice 1937, comprenant mille quat re-vingt-t rois articles et s’élevant à la somme de soixante-sept mille sept cent quarante-huit francs.
