@@ -1,0 +1,1 @@
+Madame SACCO, Lina, employée auxi liaire de l’Administration est nommée dépo sitaire comptable du matériel et du mobilier de l’Hôtel du Gouvernement en remplace ment de l’Ajudant-Chef TISSERAND remis a la disposition du Commandant Supérieur des Troupes.
