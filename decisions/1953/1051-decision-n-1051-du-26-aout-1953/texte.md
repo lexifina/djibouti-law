@@ -1,0 +1,1 @@
+M. Mohamed Dahan, commis administratif auxiliaire 12° échelon au Service des Postes et Télécommunications, est suspendu de ses fonctions pour compter du 17 août 1953, avec le bénéfice de la demi-solde, en attendant qu une décision judiciaire définitive intervienne à son égard.
