@@ -1,0 +1,11 @@
+Il est interdit de se présenter à une session de permis de conduire avant une durée de:
+— trois mois au sieur Waldeme (Michel), éthiopien, né le 21 juin 1948 à Djibouti, fils naturel de Waldeme (Martha), étudiant, demeurant au quartier n° 2, rue Adji Dideh n° 4, en vue de l’obtention du permis de conduire catégorie « A » :
+— trois mois au sieur Taha Ghanem Salem, né vers 1941 à Djibouti, fils de Ghanem Salem et de Kadoug Omar, menuisier, demeurant au quartier 4, route d’Arta, n° 9, en vue de l’obtention du permis de conduire catégorie « A I »;
+— trois mois au sieur Ali Ismaël Mahamoud, issack abar awal, né vers 1909 à Djibouti, demeurant au quartier 4, avenue 13, en vue de l’obtention du permis de conduire catégorie « D » ;
+— six mois au sieur ‘Askar Andouleh Warfa, somali gadabourcy makaël djibril yonis, né vers 1944 à Doudah, fils de
+Andouleh Warfa et de Alwo Obsieh, chauffeur, demeurant à Djibouti, quartier 6, rue des Issas, maison 164, en vue de l’obtention des permis de conduire toutes catégories ;
+— six mois au sieur Abdi Moussa Ismaël, somali issack abar awal saad Moussa, fils de Moussa Ismaël et de Amina Nour, chauffeur demeurant au quartier 1, rue 11, maison n° 14 né vers 1941 à Djibouti, en vue de l’obtention du permis de conduire catégorie « B » ;
+— trois mois au sieur Abdi Guedi Hersi, né en 1931 à Argueissa, demeurant au quartier 1, boulevard 14, maison n° 26, en vue de l’obtention du permis de conduire catégorie « B »;
+— trois mois au sieur Hassan Osman Djama, somali issa mamassan badarahan, né vers 1940 à Djibouti, fils de Osman Djama et de Mariam Arreh, mécanicien demeurant au quartier 6, rue 44, maison A. 7, en vue de l’obtention du permis dé conduire catégorie « A. 1»;
+— trois mois au sieur Yassin Ahmed Fayeh, somali issa odagob rer guedid, né vers 1944 à Ah-Sabieh, fils de Ahmed Fayeh et de Amaun Elmi, mécanicien demeurant au quartier 6, avenue 27, n° 10, en vue de obtention du permis dé conduire catégorie « A. 1»;
+— un an au sieur Mahamoud Aden Hersi, somali issack abar awal rer Abaneh, né en 1933 à Djibouti, fils de Aden Behsi et de Abiba Omar, caporal de la Garde territoriale, Mle 511, démeurant au quartier 5, rue 16, maison n° 29 en vue de l’obtention du permis de conduire catégorie «C ».
