@@ -1,0 +1,1 @@
+Est et demeure rapporté l’article 1er de la décision n° 596 du 1er juillet 1940 susvisé. M. Vié (Joseph), chef de bureau de 1er classe des Secrétariats généraux des colonies, est ti tularisé dans les fonctions de chef du Bureau des finances.
