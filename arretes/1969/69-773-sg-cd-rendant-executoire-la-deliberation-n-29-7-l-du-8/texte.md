@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 29/7°L du 8 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas relative à des concessions définitives de parcelles de terrain dominaux.
