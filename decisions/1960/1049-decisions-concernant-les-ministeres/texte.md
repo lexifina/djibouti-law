@@ -1,0 +1,1 @@
+M. Bouissou (Henri), adjoint technique du cadre autonome des Travaux Publics, dont le séjour administratif est arrivé à expiration le 28 septembre 1960, est autorisé à prolonger son séjour de huit mois pour compter de la date précitée.
