@@ -1,0 +1,2 @@
+Un congé administratif de neuf mois, pour en jouir à Tananarive (Madagascar), est accordé à M. Andrianarifetra (Gabriel),météorologiste contractuel, dont le contrat, arrivé à expiration, a été renouvelé pour une période d’égale durée.
+M. Andrianarifetra, qui appartient au groupe IV, voyagera accompagné de son épouse et de ses trois enfants âgés respectivement de 10 ans, 6 ans 1/2 et 3 ans 1/2, par voie maritime de Djibouti à Tamatave et pa r voie fer rée de Tamatave à Tananarive, aux frais du budget local de la Côte Française des Somalis.
