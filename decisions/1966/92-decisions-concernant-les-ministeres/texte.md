@@ -1,0 +1,2 @@
+M. Oudoum Houmad Gadito, agent techniquemprincipal,3e échelon (indice 520), du Cadre territorial des TraVaux publics,déclaré admis à l’examen professionnel d’accès à Hemploi de surveillant de travaux, est nommé, pour compter du 1er’ janvier 1966, surveillant de travaux stagiaire (indice 450) du Corps territorial des Travaux publics et du Port.
+En application des dispositions de l’arrêté n° 64/124/SPCG du 14 octobre 1964, M. Oudoum Houmad Gadito, surveillant stagiaire, conservera, à titre personnel, durant la période de stage,le traitement afférent à l’indice 520.
