@@ -1,0 +1,2 @@
+La décision susvisée n° 604/FP du 20 mai 1960 est annulée et remplacée par les dispositions suivantes en ce qui concerne l’inscription au tableau d’avancement de l’année 1960 et la promotion de M. Farah Hassan, chauffeur-mécanicien du cadre local en service à l’Hôpital Peltier.
+eM Farah Hassan. chauffeur-mécanicien de 1’° classe, 3° échelon. est promu au srade de chauffeur-mécanicien principal 1er échelon, pour compter du 2 mai 1960.
