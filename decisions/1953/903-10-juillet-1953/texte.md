@@ -1,0 +1,1 @@
+M. Mohamed ben Mohamed, engagé à titre essentiellement préciaire et révocable en qualité de chauffeur auxiliaire 6e échelon pour servir au Commissariat de Police, est mis à la disposition du Chef du Service de la Sûreté, en remplacement numérique de M. Daher Moussa, titulaire d’un congé de trois mois.
