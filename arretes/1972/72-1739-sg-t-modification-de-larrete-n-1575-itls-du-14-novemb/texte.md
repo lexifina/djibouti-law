@@ -1,0 +1,2 @@
+Le premier article de l’arrêté n° 1575/ITLS du 14 novembre 1958 complétant le premier alinéa de l’article 3 de l’arrêté n° 1283 du 23 octobre 1953, déterminant le régime des dérogations prévues à l’articie 112 du Code du travail outre-mer est modifié comme suit :
+«Chemin de fer (agents des gares, stations et haltes) dont la durée effective journalière de travail a sensiblement augmenté depuis 14 ans, est ramenée à 60 heures par semaine au lieu de 72 heures de présence.
