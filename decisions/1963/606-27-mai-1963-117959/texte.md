@@ -1,0 +1,5 @@
+Le Milicien de 1er Classe Daoud Abdi, mle 2203, de la 1er Compagnie de Milice à Dikhil, arrivant en fin de contrat le 16 mai 1964 est déclaré « déserteur » et licencié pour «raison disciplinaire» le 15 avril 1963.
+L’intéressé qui totalise 13 ans 10 mois et 29 jours de services effectifs dans la Milice de la C.F.S. peut prétendre à un pécule.
+Il sera rayé des contrôles de la Milice pour compter du 15 avril 1963, il recevra le certificat de libération.
+Le Milicien de 1e Classe Daoud Abdi. mle 2203, bénéficiera à compter du 15 avril 1963 d’un pécule dont le montant est fixé à : vingt six mille sept cents francs Djibouti (26.700 fr. Dj.) payable par l’Agent- Spécial de la 1° Compagnie de Milice à Dikhil.
+Les droits à solde et pécule seront liquidés par les soins de lAgent Spéciale de la 1er Compagnie de Milice à Dikhil et versés au Trésor.
