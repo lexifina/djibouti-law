@@ -1,0 +1,2 @@
+Un congé administratif de six mois est accordé à M. Castellani (Charles), Inspecteur de 1er classe du Cadre sunérieur de la police, pour en jouir à Antibes, 12, boulevard d’Aisuillon.
+Une requisition de passage par voie maritime Djibouti-Marseille et une réquisition par «voie ferrée Marseille-Antibes seront délivrées à l’intéressé qui voyagera accompagné de sa femme et de ses trois filles, âgées respectivement de 9, 7,4 ans (Groupe III)
