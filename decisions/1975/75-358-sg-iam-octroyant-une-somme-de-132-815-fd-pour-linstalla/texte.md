@@ -1,0 +1,1 @@
+Un cent trente deux mille huit cent quinze francs Djibouti, est mise à la disposition de Jacques Josquin, chef du District de Djibouti, Président de la Commission chargée de la mise en place des Conseils urbains dans le District de Djibouti.
