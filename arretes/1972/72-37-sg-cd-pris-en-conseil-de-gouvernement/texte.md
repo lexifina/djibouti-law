@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 231/7° L du 28 décembre 1971 dela Chambre des Députés du Territoire Français des Afars et des Issas régularisant et autorisant des opérations effectuées et à effectuer sur les fonds spéciaux du Port au cours des robes 1968, 1969, 1970 et 1971.
