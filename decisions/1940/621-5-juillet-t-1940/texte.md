@@ -1,0 +1,1 @@
+M. Vié (Joseph), chef de bureau des Secré tariats généraux des colonies, chef du bureau des finances, est nommé président de la Commission «l‘évaluation des réquisitions militai res, en remplacement de M. Derbès, bénéficiaire d’un congé de convalescence.
