@@ -1,0 +1,1 @@
+M. Nour Abdi Ali, gardien du Centre de l’Arta, est intégré en qualité de planton auxiliaire 8e échelon pour compter du 1er juin 1952. L’intéressé est mis à la disposition du Commandant du Cercle de Djibouti et continuera à servir au Centre d’Estivage de l’Arta.
