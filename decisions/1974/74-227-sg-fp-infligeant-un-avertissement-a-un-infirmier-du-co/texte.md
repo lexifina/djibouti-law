@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Moussa Farah, infirmier de 2e classe, 2e échelon du corps territorial de la Santé publique en service à l’Hôpital Peltier (pavillon Guibert-Germain, rez-de-chaussée), pour absences irrégulières non motivées.
