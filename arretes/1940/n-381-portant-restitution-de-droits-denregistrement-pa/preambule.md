@@ -1,0 +1,2 @@
+# Préambule
+Art, 1°, — La somme de deux mille quatre cent quarante-huit francs (2.488), montant des droits d’enregistrement en trop-percus par suite d’événements posterieurs à la perception, Sur un marché conclu avec la colonie de Ia Cote francaise des Somalis le 30 décembre 1939, enregistré à Djibouti le 19 janvier 1959, fohio 20, n° 1929 sera remboursée à Mahmoud Ahmed Farah. commercant arabe, demeurant à Djibouti.
