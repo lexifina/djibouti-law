@@ -1,0 +1,1 @@
+Est autorisé le versement, au profit du Groupement Français d’Assurances (C.FA.), de la somme de vingt-deux mille francs Djibouti (22.000) ensrèglement des dommages subis à la suite d’un accident de la circulation survenu le 26 novembre 1965 du fait du véhicule de la voirie n° 327 D4.
