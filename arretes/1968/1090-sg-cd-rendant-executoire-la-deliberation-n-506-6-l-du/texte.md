@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 506/6eL du 6 juillet 1968 de la Commission permanente de la Chambre des Députés portant approbation du compte administratif de la Chambre de Commerce et d’Industrie de Djibouti pour l’exercice 1967.
