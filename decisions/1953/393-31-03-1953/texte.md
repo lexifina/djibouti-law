@@ -1,0 +1,1 @@
+Mme Barbin (Claude) est engagée en qualité de dame-employée auxiliaire 1er catégorie, à salaire journalier, et mise à la disposition du Directeur du Service des Travaux publics, pour compter du 1er avril 1953.
