@@ -1,0 +1,2 @@
+M. Abdi Ahmed Ali, planton auxiliaire (échelle II, échelon II, indice local 190), en service au Ministère de la production est affecté au Service de l’Elévage pour compter du 1er avril 1962 en remplacement de M. Ali Adji Roble qui recoit une autre affectation.
+M. Ali Hadji Roble, aide-ouvrier journalier, troisième catégoTie, en service à l’Elevage, est mis à la disposition du Ministre de la Production.en qualité de planton pour compter du 1er avril 1962, en remplacement de M. Abdi Ahmed Ali, muté au Service de l’Elevage.
