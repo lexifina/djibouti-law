@@ -1,0 +1,1 @@
+a été rendu exécutoire le 1er rôle supplémentaire de la contribution foncière pour l’année 1932, comprenant 3e articles et s’élevant à la somme de mille neuf cent soixante-dix-sept francs à auatre-vingt-quatorze centimes (1.977 fr. 94).
