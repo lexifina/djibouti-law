@@ -1,0 +1,1 @@
+le sergent clare (Joseph) de la section des télégraphistes coloniaux, en service hors cadres à la Côte francaise des Somalis, qui compte vingt-quatre mois de séjour imterrompu à Ia colonie, est rapatrié pour fin de campagne.
