@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 10/73/SMI du 18 mai 1973 approuvant le projet de convention à passer entre le Service médical inferentreprises et le Ministère chargé des départements et territoires d’outre-mer ‘pour l’utilisation de personnel VAT par le Service, médical interentreprises.
