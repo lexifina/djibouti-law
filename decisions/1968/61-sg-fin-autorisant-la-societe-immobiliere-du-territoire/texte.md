@@ -1,0 +1,1 @@
+La Société immobilière du Territoire Français des Afars et des Issas (SITFA.I), ayant son siège social à Djibouti, est autorisée à acquérir un terrain non bâti d’une superficie de .2.801,43 mètres carrés, sis à Djibouti et immatriculé au Livre ‘foncier sous le n° 296 au nom de la Société Total Mer Rouge.
