@@ -1,0 +1,2 @@
+Est approuvé le budget de la Chambre de Commerce et d’Industrie de Djibouti, pour l’exercice 1970, arrêté en recettes et en dépenses à la somme de douze millions soixante-dix-huit mille francs Djibouti (12.078.000 F.D.).
+Le Président de la Chambre de Commerce et d’Industrie de Djibouti est autorisé À prélever sur le Fonds de réserve,aux fins d’équilibre du budget, une somme de six cent soixante-dix-huit mille francs Djibouti. (678.000 F.D.).
