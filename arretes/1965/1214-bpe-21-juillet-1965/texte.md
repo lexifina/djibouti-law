@@ -1,0 +1,3 @@
+L’article 2 de la décision 67/BPE du 15 janvier 1965 mettant M. Suzzoni Jean, attaché de la FOM. de 1° classe ler échelon à la disposition du Commandant de Cercle de Djibouti, est complété ainsi qu’il suit :
+Au lieu de: M. Suzzoni Jean, attaché de la F.O.M. de 1re classe 1er échelon, en service aux Finances territoriales, est mis à la disposition du Commandant de Cercle de Djibouti en remplacement de M. Larré Jean.
+Lire : M. Suzzoni Jean, attaché de la F.O.M. de 1re classe 2e échelon, en service aux Finances territoriales, est mis à la disposition du Commandant de Cercle de Djibouti en remplacement de M. Larré Jean, pour servir en qualité d’adjoint.
