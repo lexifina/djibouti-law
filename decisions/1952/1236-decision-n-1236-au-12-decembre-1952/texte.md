@@ -1,0 +1,1 @@
+L’adjudant d’infanterie coloniale H.C. Languillaume (Pierre) est affecté à la Milice de la Côte Française des Somalis pour compter du 9 décembre 1952 et mis à la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions d’adjudant de compagenie en remplacement de l’adjudant Kubiak, rapatriable.
