@@ -1,0 +1,2 @@
+M. Abdi Egueh, ex stagiaire de F.P.A. en métropole, bénéficiera des frais de voyage retour Paris-Djibouti.
+M. Abdi Eguech sera acheminé par première occasion maritime. Il lui sera délivré, au compte du Budget local de la C.F:S., une réquisition de transport par voie maritime (3e classe ou à défaut touriste) de Marseille à Djibouti. Son voyage en chemin de fer Paris-Marseille (2° classe) fera l’objet soit d’une réquisition, soit d’une avance du montant des frais à couvrir.
