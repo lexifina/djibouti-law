@@ -1,0 +1,1 @@
+M. Razafindrainibe (Samuel), mecanicien-électricien contractuel, attendu de Madagascar, est mis à la disposition du Directeur des Travaux publics, pour servir à l’Usine Electrique, en remplacement numérique de M. Ramarokoto (Pierre), titulaire d’un congé administratif.
