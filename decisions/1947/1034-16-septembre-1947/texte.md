@@ -1,0 +1,1 @@
+Est engagé en qualité de planton auxiliaire. 5 échelon, et affecté au cabinet civil, pour compter du 10 septembre 1947 le nommé Hassan Djama. ex-sergent chef. L’intéressé couserve une ancienneté d’un an.
