@@ -1,0 +1,1 @@
+Par délégation spéciale, M. l’administrateur des colonies Landrin, chef du cabinet civil par intérim, est autorisé, pour compter du 25 juillet 1938, à signer les passeports délivrés par l’Administration locale.
