@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 211/6°L du 1er septembre 1965 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant modification de l’article 93 des statuts de la Garde Territoriale.
