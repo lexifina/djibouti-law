@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 246/7° L du 4 avril 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas fixant lés conditions à remplir par les dépôts de pétrole situés dans les agglomérations.
