@@ -1,0 +1,1 @@
+Le sergent Fourche (Jean), désigné pour servir hors cadres à la Côte française des Somalis, est affecté à la 1er compagnie de milice indigène, pour compter du 7 décembre 1947, date de son débarquement.
