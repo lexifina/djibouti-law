@@ -1,0 +1,1 @@
+M. Mohamed Ben Mohamed Bashanfar, sujet britannique, commerçant demeurant à Aden, est autorisé à acquérir une parcelle de terrain bâti, d’une superficie de 861 mètres carrés environ, faisant partie d’un terrain plus vaste, sis à Djibouti, boulevard de la République (lot n° 556), et immätriculé au Livre foncier du Territoire sous le n° 866 au nom de Mme Harsutta Chimanlal.
