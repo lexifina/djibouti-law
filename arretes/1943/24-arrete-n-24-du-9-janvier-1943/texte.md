@@ -1,0 +1,2 @@
+M. PLATTIER, Contrôleur adjoint des P.T.T. est nommé Chef du Service des P.T.T. et Receveur comptable en remplacement de M. BRINGER pour compter de la date de passation de Service.
+M. ROUSSEL, adjoint principal des Services Civils délégué du Bureau des Finances, est désigné pour assister à la coupure de gestion comportant prise en charge de la caisse des valeurs courantes et de la caisse de Réserve des Timbres-Poste.
