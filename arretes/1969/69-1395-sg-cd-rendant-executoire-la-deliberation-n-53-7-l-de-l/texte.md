@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 53/7°L du 13 septembre 1969 de la Commission permanente de la Chambre des Députs portant approbation du compte administratif de la Chambre de Commerce et d’Industrie de Djibouti pour l’exercice 1968.
