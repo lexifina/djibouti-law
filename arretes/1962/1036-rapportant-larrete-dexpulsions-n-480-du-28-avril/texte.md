@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 480 du 28 avril 1961 en ce qui concerne Ali Abdi Waberi, Somali Issa Odagob Rer Robleh Adaweh Bah Bourah, se disant né à Ali-Sabieh (C.F.S.) en 1949, fils de feu Abdi Wabéri et de Abdion Farah.
