@@ -1,0 +1,1 @@
+le mandat de M. Guine-bault (Marcel), agent de. la Compagnie de l’Afrique orientale, membre suppléant du Conseil d’administration, est renouvelé pour une période de deux ans à compter du 20 septembre 1935.
