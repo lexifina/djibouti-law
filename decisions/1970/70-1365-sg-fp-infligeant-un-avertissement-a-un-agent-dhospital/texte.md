@@ -1,0 +1,1 @@
+Un avertissement est infligé à Mme Housseina Youssouf Kadami, agent d’hospitalisation de 1re classe, 2e échelon du cadre territorial de la Santé publique en service au dispensaire d’Obock, pour s’être absentée de son service du 3 octobre au 7 octobre 1970.
