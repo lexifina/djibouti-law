@@ -1,0 +1,2 @@
+L’adjudant d’Intanterie de Marine Gaze (André), débarqué à Djibouti le 7 octobre 1964, servant en position « dans les cadres »,et détaché des Forces armées à la Milice de la C-F-S, est mis à la disposition du Commandant de Cercle de Tadjourah, en qualité d’agent spécial, en remplacement de l’adjudant-chef d’Infanterie de Marine Lusetti (Constantin), prochainement rapatriable.
+Ce sous-officier prendra ses fonctions pour compter du 10 novembre.
