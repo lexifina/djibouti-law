@@ -1,0 +1,1 @@
+M. Boulanger (Ernest), ingénieur adjoint contractuel des Travaux publics, chef de l’exploitation de l’Usine électrique de Djibouti, est habilité-à constater les infractions à la réglementation sur la distribution de l’énergie électrique à Djibouti. M. Boulanger prêtera serment, conformément à la loi.
