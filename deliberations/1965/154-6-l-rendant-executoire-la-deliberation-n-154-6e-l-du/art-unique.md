@@ -1,0 +1,2 @@
+# Article unique
+— L’Assemblée Territoriale de la Côte Française des Somalis autorise le Chef du Territoire, président du Conseil de Gouvernement de la Côte Française des Somalis, à accepter la donation faite au profit du Territoire par la Communauté hindoue dé Djibouti d’un dispensairé qui sera construit à Ambouli, sous l’appellation de « Dispensaire Mahatma Gandhis, ét doût les normes sont indiquées au plan annexé à la présente délibération.
