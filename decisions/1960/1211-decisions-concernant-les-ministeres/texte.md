@@ -1,0 +1,1 @@
+Une indemnité compensatrice pour congé non pris durant les années 1957, 1958 et 1959 par M. Ahmed Kassim Omar, ex-commis auxiliaire du Tribunal de Charia, décédé le 26 avril 1959, égale à trois mois cing jours de salaire, est accordée à sa veuve Mme Fato Mohamed Bourhan, demeurant à Djibouti.
