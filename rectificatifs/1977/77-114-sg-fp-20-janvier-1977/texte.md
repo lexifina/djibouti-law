@@ -1,0 +1,1 @@
+A l’article 1er de la décision n° 76-1711/SG/FP du 16 juillet 1976, Ahmed Mohamed (II) Goicho, LIRE « Agent d’exploitation qualifié principal – 2e échelon » AU LIEU DE « Agent d’exploitation qualifié 1re classe – 3e échelon ».
