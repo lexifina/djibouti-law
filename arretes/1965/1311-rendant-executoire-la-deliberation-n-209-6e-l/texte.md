@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 209/6e L du 28 juillet 1965 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant ouverture, virements et affectations de crédits au budget du service local, exercice 1965.
