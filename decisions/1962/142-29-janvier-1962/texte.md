@@ -1,0 +1,1 @@
+Mme Moubine Kaïssar Georgetterest autorisée.à exploiter pendant l’absence de M. Zouain Félix, dans le bar-restaurant «Chez Dany », sis à Djibouti, plateau du Serpent, une licence de 1re classe pour la vente à consommer sur place ou à emporter de boissons hygiéniques ou alcooliques.
