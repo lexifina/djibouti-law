@@ -1,0 +1,2 @@
+M. Moussa Boeuh, Commis administratif auxiliaire remplissant les fonctions de Chef de Secrétariat, à la Vice-Présidence du Conseil de Gouvernement. est reclassé pour compter du 1er janvier 1960 à la 2° catésorie. échelle IX. 1er échelon. indice local 795.
+En raison de son reclassement lindemnité supplémentaire forfaitaire mensuelle fixée à 38.375 F. D. par la décision n° 230 du 31 janvier 1959, est ramenée au taux mensuel de 24935 F. D.
