@@ -1,0 +1,4 @@
+Un congé administratif de six mois à passer à Vannes (MorBihan), 8, rue des Tribunaux, est accordé à M. Merlet (Alphonse), Administrateur de la France d’Outre-Mer de 7e échelon (indice 500, groupe II), Chef du Service territorial des Finances et Chef du Service des Finances Etat, qui aura accompli le 28 septembre 1960 un séjour de 2 ans, 4 jours (période du 25 septembre 1958 au 31 mars 1959 à Dakar, période du 31 mars 1959 au 15 avril 1959 en position de transit, puis du 15 avril 1959 au 28 septembre 1960 à Djibouti).
+M. Merlet (Alphonse) qui voyvagera seul est autorisé à emprunter la voie anormale. Il percevra avant son départ une
+avance représentant les frais de passage Djibouti – Vannes (Morbihan) à charge pour lui de justification desdits frais dans les conditions prévues par la réglementation en vigueur.
+La dépense est ‘imputable sur le Budget de l’Etat.
