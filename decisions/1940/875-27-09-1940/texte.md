@@ -1,0 +1,1 @@
+L’adjudant-chef Congrutel, en instance de départ pour l’extérieur, et l’adjudant Daclin, en instance de rapatriement, sont replacés dans les cadres et mis à la disposition du général commandant supérieur, pour compter du 1er octobre 1940.
