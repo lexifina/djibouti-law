@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle supplémentaire du 1 er trimestre des patentes « B » (exercice 1938), du cercle des Adaëls, comprenant quarante-deux articles et s’élevant à la somme de mille neuf cent soixante-cinq francs.
