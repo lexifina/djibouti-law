@@ -1,0 +1,3 @@
+Par arrêté n’ 1.125 du 1° » octobre 1945 sont promuleués à la Côte Française des ‘omalis et Dépendances l’ordonnance n’ 45-1988 du 3 septembre 1945 relative aux conditions dans lesouelles il sera procédé, le 21 octobre 1945
+sur élections générales et à la consultation jar voie de référendum prévues par les créonnances n’ 45-1837 du 17 août 1945 . 45-1835 de la même date ;
+le décret. n° 45-2204 du 28 septembre 1945 portant convocation des collèges élecitoraux dans les territoires d’outre-mer relevant du Ministre des Colonies en vue de rocéder aux élections de l’Assemblée Nationale Const’tuante et au referendum.
