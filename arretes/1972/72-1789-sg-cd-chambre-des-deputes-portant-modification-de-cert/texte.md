@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 296/7e L du 19 décembre 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification de certains articles du Code du Travail outre-mer.
