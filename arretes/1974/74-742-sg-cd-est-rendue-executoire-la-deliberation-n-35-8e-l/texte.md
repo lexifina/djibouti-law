@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 35/8e L du 19 avril 1974 de la Chambre des Députés du Territoire français des Afars et des Issas approuvant la délibération n° 74/1/CLR du 14 mars 1974, approuvant le compte administratif 1973 de la CLR.
