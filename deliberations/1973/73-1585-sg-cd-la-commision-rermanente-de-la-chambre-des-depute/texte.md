@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 382/7e L du 23 octobre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas modifiant et complétant la délibération n° 102/7e L du 5 mai 1970 portant code de la route du Territoire français des Afars et des Issas.
