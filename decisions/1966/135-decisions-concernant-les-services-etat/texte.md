@@ -1,0 +1,1 @@
+La Chambre de Commerce de Djibouti est autorisée à acquérir un apartenant dans un des immeubles de la Société Djiboutienne de Constructions, sis à Djibouti, boulevard Bonhoure, et immatriculés au Livre foncier du Territoire sous le n° 921.
