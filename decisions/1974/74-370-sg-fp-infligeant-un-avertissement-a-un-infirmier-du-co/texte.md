@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Adawa Omar, infirmier de 2e classe, 2e échelon du corps territorial de la Santé publique, en service à l’Hôpital Peltier, pour n’avoir pas assuré son service de garde le lundi 14 janvier 1974 et absence non motivée le mardi 25 janvier 1974.
