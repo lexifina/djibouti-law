@@ -1,0 +1,1 @@
+Délégation est donnée à M. René Duchamp, attaché de Préfecture, pour la Signature et la délivrance des récépissés de dépôts ainsi que des lettres portant refus d’enregistrement des candidatures pour l’élection partielle à la Chambre des Députés du Territoire Français des Afars et des Issas, scrutin du 28 Septembre 1975.
