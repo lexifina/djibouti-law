@@ -1,0 +1,2 @@
+J’ai l’honneur de vous faire connaître qu’un décret en date du 1er février 1910, inséré au Journal Officiel de la République française, le 19 du même mois, a modifié le traitement de parité d’office des fonctionnaires du service des contributions indirectes aux Colonies.
+Je vous prie de vouloir bien assurer la promulgation de cet acte dans la possession que vous administrez, et prescrire les mesures nécessaires pour en assurer l’exécution.
