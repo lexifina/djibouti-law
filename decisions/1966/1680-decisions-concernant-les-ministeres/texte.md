@@ -1,0 +1,2 @@
+L’adjudant-chef d’infanterie de marine Robert Dutheil, adjoint au Commandant de Cercle de Dikhil, est nommé cumulativement avec ses fonctions, président du Tribunal du premier degréde Dikhil, en remplacement de l’adjudant-chef Daniel Huart, rapatriable Avant d’entrer en fonction, M. Dutheil prêtera, par écrit, le serment prescrit par la loi.
+La présente décision prendeffet du jour de la prise de service de l’intéressé.
