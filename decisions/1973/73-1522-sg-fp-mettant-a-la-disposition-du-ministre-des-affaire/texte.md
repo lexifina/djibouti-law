@@ -1,0 +1,1 @@
+M. Priou Alain, volontaire de l’aide technique, est pour compter du 13 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Affaires Intérieures, pour servir à l’Office des Postes et Télécommunications, en qualité d’inspecteur des Postes et Télécommunications.
