@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 316/6e L; du 3 octobre 1966 de la Commission permanente de la Côte Française des Somalis relative aux modalités de conversion des permis de conduire militaires en permis civils
