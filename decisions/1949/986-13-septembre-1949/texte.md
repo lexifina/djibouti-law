@@ -1,0 +1,1 @@
+Pendant l’absence dé il Kemieur (René),inspecteur de l’enregistrement et des domaines, 31 Hieard (Lucien), commis principal dé 4° classe de l’enregistrement, assurera l’expédition dies affaires courantes du service de l’enregistrement, des domaines et du timbre.
