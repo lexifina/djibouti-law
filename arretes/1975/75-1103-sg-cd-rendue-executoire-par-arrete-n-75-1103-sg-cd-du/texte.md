@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 119/8 L du 27 mai 1975 de la Chambre des députés-du ;Ferritoire françacis des Afars et des Issas précisant certaines dispositions de la délibération créant une zone franche portuaire à Diibouti.
