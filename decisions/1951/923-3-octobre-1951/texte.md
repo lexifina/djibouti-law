@@ -1,0 +1,1 @@
+M. Huguet (Roger), ingénieur de 1er cl. des Travaux publics de ia F.O.M., est mis à la disposition du Directeur du Service des Travaux publics pour, servir en qualité de chef de la subdivision du port, pour compter du 23 septembre 1951, date de son débarquement à Djibouti.
