@@ -1,0 +1,1 @@
+Le gendarme Perdreau ( Marcel), de l’encadrement de la Compagnie des gardes-cercle, est remis à la disposition du Comandant de détachement de Gendarmerie de la Côte Française des Somalis à compter du 25 décembre 1952.
