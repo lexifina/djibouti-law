@@ -1,0 +1,1 @@
+Un blâme, ù st infligé à M. Ali Mohamed Ali, dit Dig-Dig, agent de contrôle principal de 1er échelon, en service aux Contributions directes, pour indiscipline et manque de ponctualité.
