@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 399/6eL, du 11 juillet 1967 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget du service local, exercice 1967.
