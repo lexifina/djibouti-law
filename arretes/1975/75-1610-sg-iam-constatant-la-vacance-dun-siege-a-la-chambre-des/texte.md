@@ -1,0 +1,1 @@
+Est constatée, la vacarice d’un siège à la Chambre des Députés du Territoire français des Afars et des Issas, au titre de la 1er section de Djibouti, consécutivement au décès de M. Ahmed Mohamed Ahmed survenu le 7 août 1975.
