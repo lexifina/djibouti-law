@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 186/7° L du 8 mai 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant suppression de la formalité de légalisation et de certification matérielle de signature.
