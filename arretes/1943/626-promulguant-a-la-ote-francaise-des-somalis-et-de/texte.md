@@ -1,0 +1,1 @@
+Est promulgue à la Côte Française des Somalis le décret n. 1075 du 26 Mai 1943 modifiant les articles 90 bis et 108 du décret du 2 Mars 1910 portant règlement sur la solde et les allocations accessoires des fonc tionnaires. employés et agents des services coloniaux.
