@@ -1,0 +1,1 @@
+est accordé à M. Abbasbhay Mohamedally dégrèvement des sommes de : 1° 720 francs, montant d’une patente inscrite à l’arti cle 1er du rôle primitif, des patentes, exercice 1937; 2° 85 fr. 80, montant de l’impôt locatif et de la taxe de voirie, inscrite à l’article 2 du rôle primitif, exercice 1937.
