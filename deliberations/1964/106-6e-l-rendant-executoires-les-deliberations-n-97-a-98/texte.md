@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français, à titre gratuit et définitif, deux terrains bâtis sis à Djibouti, l’un boulevard de la République (titre foncier n° 754 ).
