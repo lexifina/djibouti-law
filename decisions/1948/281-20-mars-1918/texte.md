@@ -1,0 +1,1 @@
+La décision n° 197 du 18 février 1948 susvisée est abrogée. M. Hildenbrand (Pierre), contrôleur princi pal de 4e classe des douanes est chargé, pour compter du 7 mars 1948, des fonctions de chef du bureau central des douanes, à Djibouti.
