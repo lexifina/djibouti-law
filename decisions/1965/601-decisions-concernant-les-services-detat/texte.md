@@ -1,0 +1,1 @@
+Le milicien de 2° classe Obakar Omar Ali, Mle 2743, de la 4 compagnie de Miüilice à Damerdijog, dont le contrat arrive à expiration le 16 avril 1965, ne sera pas rengagé pour mauvaise manière de servir.
