@@ -1,0 +1,1 @@
+M. le Lieutenant Roignan, commandant du Peloton de la Milice à Tadjoura, est, pour compter du 17 septembre 1968, pendant les absences du Commandant de Cercle de Tadjoura, chargé de l’expédition des affaires courantes et urgentes dans le ressort dudit Cercle.
