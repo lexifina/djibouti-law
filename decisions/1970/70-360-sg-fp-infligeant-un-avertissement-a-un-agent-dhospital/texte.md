@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Ibrahim Mohamed, Omar, agent d’hospitalisation principal, 8e échelon, du Cadre territorial du Service de Santé, en service au Dispensaire Farah-Had (Ministère de la Santé publique et des Affaires sociales) pour s’être absenté de son service, et sans autorisation, durant l’après-midi du 17 mars 1970.
