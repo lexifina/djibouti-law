@@ -1,0 +1,1 @@
+M. Abdallah Taha est autorisé à céder à la Société Immobilière et Touristique d’Outre-Mer (S.IT.O.) le droit de concession provisoire qui’ lui a été accordé par délibération n° 381 du 7 décembre 1962 sur lé terrain sis au Plateau du Serpent et immatriculé au Livre foncier du Territoire sous le n° 392.
