@@ -1,0 +1,1 @@
+Le salaire unensuel de M Eliazariaii (Yervant), caissier-comptable du service du ravitaillement général, est porté de 45.000 francs (quarante-cinq mille francs) à 47.700 francs (quarante-sept mille sept cents francs), pour compter du 1er janvier 1050, et ‘à 49.S00 francs (quarante-neuf mille huit cents francs) pourcompter dn 1er juillet 1050.
