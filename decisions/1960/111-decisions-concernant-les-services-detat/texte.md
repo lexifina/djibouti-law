@@ -1,0 +1,4 @@
+Le 1’° Classe Hassan Waiss, Mle 1108 de la Compagnie de Milice (Dikhil), arrivant en fin de contrat et totalisant 17 ans de services effectifs dans la Milice, est admis à faire valoir ses droits à l’allocation viagère, en exécution de l’article 6 de Parrêté n° 105 du 8‘février 1948, il sera libéré et rayé des contrôles de la Milice pour compter du 6 février 1960, date d’expiration de son contrat en cours.
+il recevra le Certificat de bonne conduite:
+Le L° Classe Hassan Waiss, Mle 1108, bénéficiera, pour compter du 6 février 1960, d’une allocation viagère annuelle de trente-sept mille deux cents francs Djibouti (37.200 F.D.), payable trimestriellement à terme échu et sur le vu d’un Certificat de vie délivré par les autorités compétentes.
+Les droits à solde; vivres et permission, seront liquidés par les soins de la 1° Compagnie.
