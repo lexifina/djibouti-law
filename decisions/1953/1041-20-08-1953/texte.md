@@ -1,0 +1,2 @@
+Un congé administratif de six mois (6), pour en jouir à Laghoiat (Algérie), est accordé à M. Benammar Madani, inspecteur adjoint de 2e classe qui a accompli le 3 juin dernier, un séjour effectif ininterrompu de deux ans dans le Territoire.
+M. Benammar Madani, qui appartient au groupe III, voyagera par voie maritime de Djibouti à Alger et par voie de terre d’Alger à Laghoiat (Sud algérien), aux frais du budget local.
