@@ -1,0 +1,1 @@
+M. Abdourahman Chamssan Alsouñ est autorisé à acquéræ les trois huitièmes (appartenant à Mme Ouloufa Ahmed Sallam) de l’immeuble, sis à Djibouti, avenue Georges-Clemenceau, et immatriculé au Livre foncier du Territoire sous le n° 364 aux noms de Mmes Kadidja Ali Ahmed et Ouloufa Ahmed Sallam.
