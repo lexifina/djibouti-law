@@ -1,0 +1,1 @@
+Le milicien de 1re classe Ahamed Wahheri, m le 954 de la 1re compagnie de milice à Dikkil. décédé à l’hôpital colonial de Djibouti, le 4 juin 1948, est rayé des contrôles de la milice pour compter du 5 juin 1948.
