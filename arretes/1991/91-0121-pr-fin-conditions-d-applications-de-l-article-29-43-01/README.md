@@ -1,0 +1,30 @@
+# Arrêté n° 91-0121/PR/FIN fixant les conditions d’applications de l’article 29.43.01 du Code Général des Impôts.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0121-pr-fin-fixant-les-conditions-dapplications-de-larticle-29-43-01-du-code-general-des-impots/>
+
+En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DU GOUVERNEMENT
+VU les lois constitutionnelles n°s LR/77-001 et LR/77-002 du 27 juin 1977 ;
+VU l’ordonnance n°LR/77-008 du 30 juin 1977 ;
+VU le décret n°87-098/PRE du 23 novembre 1987 portant nomination des membres du Gouvernement ;
+VU le Code Général des Impôts, notamment en son article 29.43.01 .
+Sur proposition du Ministre des Finances et de l’Économie Nationale.
+
+## Signature
+
+P. Le Président de la République
+P.O le Directeur de Cabinet
+ISMAEL GUEDI HARED
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
+| [art-007.md](art-007.md) | Article 7 |
