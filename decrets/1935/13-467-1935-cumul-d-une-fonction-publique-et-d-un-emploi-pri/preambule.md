@@ -1,0 +1,6 @@
+# PrÃ©ambule
+Art, 1er, — Le décret du 5 août 1916 portant réorganisation du personnel des travaux publics et des mines des colonies autres que l’Indochine, la Martinique, la Guadeloupe et la Htéunion, est complété par les dispositions chapris qui y tigureront dans le titre II : « Organisation du personnel » :
+Art, 3 bis, — Sans préjudice de l’application des dispositions de l’article 6 du décret du 4 avril 1934, portant prohibition du cumul de fonctions, il est interdit au personnel des travaux publics et des mines des colonies régi par le présent décret, soit d’exercer une profession industrielle où commerciale, soit de remplir un emploi privé rétribué, soit d’effectuer, à titre privé, un travail movennant rémunération,
+interdiction formulée au paragraphe précédent ne s’applique pas à la production des Œuvres scientifiques, littéraires où artistiques.
+Lesdits fonctionnaires peuvent, en outre moyennant l’agrément du Ministre, donner les enseignements de meme nature,
+Art, 3 ter. — En dehors des cas visés aux paragraphes 2 et 3 de l’article précédent, il ne pourra être dérogé à l’interdiction prévue au paragraphe 1er de cet article qu’exceptionnellement, et, pour chaque cas, par une décsion du Ministre, laquelle prise à titre précrirs sera toujours révocable dans l’intérêt du service.
