@@ -1,0 +1,1 @@
+M. Dupeyion (Jean-Julien), rédacteur de 1er classe des bureaux d’administration générale des colonies, est mis à la disposition du chef du service des finances et de la comptabilité pour compter du 22 août 1050, date de son arrivée à Djibouti.
