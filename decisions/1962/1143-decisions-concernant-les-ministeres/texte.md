@@ -1,0 +1,2 @@
+Le Sergent Reig Sol, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 30 juin 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 1er juillet 1962, date de son arrivée sur le Territoire.
+Ce sous-officier est désigné pour occuper les fonctions de préparateur en pharmacie à l’Hôpital Peltier pour compter du 1er juillet 1962 en remplacement du Sergent-Major Gervais, rapatrié pour fin de séjour.
