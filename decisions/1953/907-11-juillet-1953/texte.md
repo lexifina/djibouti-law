@@ -1,0 +1,2 @@
+Un congé administratif de 9 mois (neuf), pour en jouir à Paris, est accordé à M. Mallorga, rédacteur de 1er classe de l’Administration générale de la France d’Outre-Mer, qui a accompli, le 3 mai 1953, un séjour ininterrompu de trois ans dans le Territoire.
+M. Mallorga, qui appartient au groupe III, voyagera par voie maritime de Djibouti à Marseille et par voie ferrée de Marseille à Paris, aux frais du budget local.
