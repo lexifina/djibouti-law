@@ -1,0 +1,1 @@
+M. R. Soubielle, Chef de bureau de classe exceptionnelle d’Administration générale de la F.O.M., est nommé Secrétaire de la Commission créée par l’arrêté n° 49 du 17 janvier 1951 susvisé, en remplacement de M. Kleinpeter, parti en congé.
