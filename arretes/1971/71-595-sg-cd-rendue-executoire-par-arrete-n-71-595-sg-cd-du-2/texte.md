@@ -1,0 +1,1 @@
+Est rendu exécutoire la délibération n° 172/7e L du 8 avril 1971, de la Chambre des, Députés du Territoire Français des Afars et. des.Issas envoyant en mission en métropole un membre de la Chambre des Députés.
