@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les Cercles de Tadjourah et d’Obock est interdit à M. Ali Farah Warsama, né vers 1944 4 Djibouti (TFAI), condamné Je 31 janvier 1974 par le Tribunal correctionnel de Djibouti à un an de prison et trois ans d’interdiction de séjour, pour vol et escroquerie, écroué le 7, janvier 1974.
