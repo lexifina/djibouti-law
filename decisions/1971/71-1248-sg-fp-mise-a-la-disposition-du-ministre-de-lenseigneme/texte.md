@@ -1,0 +1,1 @@
+Est constatée, pour compter du 3 septembre 1971 date de son retour dans le Territoire, la reprise de ses fonctions antérieures de conseiller pédagogique, adjoint à l’inspecteur primaire au Service de l’Enseignement du premier degré (Ministère de l’Enseignement, des Sports et de la Jeunesse), par M. Pierre Pariss, instituteur du corps métropolitain, 11e échelon, 2e groupe.
