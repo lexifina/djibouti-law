@@ -1,0 +1,1 @@
+Le sergent-major Falek Jean, du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 19 janvier 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales à compter du 20 janvier 1963, date de son arrivée dans le Territoire, pour servir à l’Hôpital Peltier.
