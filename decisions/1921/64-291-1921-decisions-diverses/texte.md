@@ -1,0 +1,1 @@
+13 janvier 1921, une indemnité fixe de 40 thalers par mois est attribuée L’our les besoin du service au Chef du senire des travaux publics pour frais de voitures jusqu’à ce que dex moyens de transport en nature puisse être mis a sa disposition.
