@@ -1,0 +1,9 @@
+# Décision n° 553 04/06/1951
+
+Décision · Journal officiel de la République de Djibouti, n° 8 du 01/08/1951 · <https://www.journalofficiel.dj/texte-juridique/decision-n-553-04-06-1951/>
+
+En vigueur : 1951-08-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | Un congé administratif de six mois pour en jouir dans la Métropole est accordé à M. Muzotte, instituteur de 3e cl, du Cadre métropolitain, détaché à la Côte Française des Somalis, qui a accompli le 27 mars 1951 un séjour de deux ans dans le Territoire. |

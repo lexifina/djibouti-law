@@ -1,0 +1,2 @@
+1°Un congé administratif de six mois pour en jouir dans la Métropole est accordé à M. Muzotte, instituteur de 3e cl, du Cadre métropolitain, détaché à la Côte Française des Somalis, qui a accompli le 27 mars 1951 un séjour de deux ans dans le Territoire.
+2° Une réquisition de passage par voie aérienne Djibouti-Paris et une réquisition de passage par voie de terre Paris-Yerres (Seine-et-Oise) seront délivrées à l’intéressé qui voyagera accompagné de son épouse et de son fils, âgé de 11 ans. L’intéressé appartient au groupe III.
