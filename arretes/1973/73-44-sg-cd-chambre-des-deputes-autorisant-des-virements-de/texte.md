@@ -1,0 +1,2 @@
+Est rendue exécutoire la délibération n° 313/7° L du 4 janvier 1973 de la Chambre des Députés du Territoire Français
+des Afars et des Issas autorisant des virements de crédit de chapitre à chapitre, portant ouverture de crédits supplémentaires au budget local — budget de fonctionnement et budget d’équipement et d’investissement — de l’exercice 1972 et modifiant l’article 4 de la délibération n° 262/7e L.
