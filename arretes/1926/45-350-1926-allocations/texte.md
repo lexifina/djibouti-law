@@ -1,0 +1,1 @@
+l’indemnité forfaitaire pour frais de bureau allouée par arrêté du 11 mars 1922 aux chefs des districts 1ssa et Dankali est portée de 96 à 240 francs par an pour le chef du district Issa ef de 72 à 240 francs par an pour le chef du district Dankali.
