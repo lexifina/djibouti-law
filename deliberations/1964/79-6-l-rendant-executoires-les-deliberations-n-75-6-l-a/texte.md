@@ -1,0 +1,1 @@
+rendue exécutoirepar arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé, à M. Ismaël Ali, la concession provisoire d’une parcelle de terrain d’une superficie de six cent trente-cinq.mètres carrés cinquante, sise à Ambouli (lot n° 11 À du boulevard d’Ambouli), au, prix de cent francs le mètre carré.
