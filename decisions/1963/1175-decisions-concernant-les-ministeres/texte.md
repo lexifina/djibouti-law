@@ -1,0 +1,1 @@
+L’adjudant d’Infanterie de Marine Capulli Alphonse, arrivé paravion à Djibouti le 8 septembre 1963, est mis à la disposition du Commandant de Cercle d’Ali-Sabieh pour assurer les fonctions de chef de poste de Milice et chef de poste administratif de Hol-Hol.
