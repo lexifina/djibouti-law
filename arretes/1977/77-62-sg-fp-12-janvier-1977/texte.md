@@ -1,0 +1,1 @@
+et à compter du 9 janvier 1977, M. Pierre Frier, chargé de mission auprès de la Présidence du Conseil de Gouvernement, est, cumulativement avec ses fonctions, nommé à titre intérimaire, chef du service des Affaires administratives et de l’Administration pénitentiaire pendant l’absence de M. Idriss Ahmed Doudoub, bénéficier d’un congé annuel.
