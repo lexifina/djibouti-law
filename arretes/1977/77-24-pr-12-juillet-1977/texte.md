@@ -1,0 +1,2 @@
+Délégation de signature est donnée à M. Ismaël Guédi Hared au nom du président de la République, chef du Gouvernement, pour signer toutes décisions ou arrêtés concernant la gestion des moyens de service de la présidence de la République, toutes décisions, arrêtés ou actes à caractère individuel de la compétence
+du président de la République, chef du Gouvernement, transmettre et veiller à l’application des instructions présidentielles.
