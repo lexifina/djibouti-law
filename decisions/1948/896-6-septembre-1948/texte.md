@@ -1,0 +1,1 @@
+Une permission d’absence de quinze jours, pour en jouir à Djibouti, est accordée à M. Cornuat, opérateur radio contractuel en service à la station côtière de T. S. F., pour compter du 6 septembre 1948.
