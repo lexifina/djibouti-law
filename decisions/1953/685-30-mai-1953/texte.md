@@ -1,0 +1,1 @@
+Mme Rossenu Jeanne (en religion sœur Marie Pierre) et Mlle Anaklita Altaye, sont engagées, à titre essentiellement précaire et révocable, en qualité d’infirmières auxiliaires aux salaires mensuels respectifs de 20.000 francs et 10.000 francs exclusif de toute indemnité et mises à la disposition du Directeur du Service de Santé, pour compter du 20 mai 1953.
