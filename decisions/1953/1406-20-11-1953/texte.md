@@ -1,0 +1,1 @@
+M. Bonadona (Jean), comptable contractuel, de retour de congé, est remis à la disposition du Chef du Service des Finances et de la Comptabilité, pour compter du 24 septembre 1953, date de son débarquement sur le Territoire.
