@@ -1,0 +1,1 @@
+M. Perron, administrateur de 1er classe des colonies, inspecteur des affaires administratives p. i. est nommé directeur général des échanges commerciaux, en remplacement de M. l’administrateur en chef Jourdain,
