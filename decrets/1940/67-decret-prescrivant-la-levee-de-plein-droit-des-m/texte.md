@@ -1,0 +1,5 @@
+Promulguez décret suivant, Citation : « Nous, Maréchal France, Chef Etat, sur rapport Ministre Secrétaire Etat colonies, décrétons : Articl 1er.
+A partir publication présent décret sont levées plein droit mesures séquestre prises en application décrets premier et dix huit sep tembre 1939 sur déclaration et mise sous séquestre biens ennemis encontre ressortissants allemands et italiens des personnes morales et établissements ayant siège social territoire allemand ou italien, ou constitué conformément lois applicables sur ces territoires, ainsi qu’encontre personnes morales et établissements qui dépendent.
+— Article 2. Sous contrôle parquets administrateurs séquestre restitueront intéres sés qui feront demanda biens dont Administration leur a été confiée et rendront compte leur gestion.
+— Article 3. Ministre Secrétaire d’État colonies chargé exécution présent décret, Fait à Vichy, trente et un juillet 1940. »
+— Signé : PÉTAIN. — Par Maréchal France. Chef Etat. Ministre Secrétaire Etat colonies. Signé : LÉMERY.
