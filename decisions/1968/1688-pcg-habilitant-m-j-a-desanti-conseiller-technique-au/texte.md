@@ -1,0 +1,1 @@
+Délégation est donnée à M. Jean-Antoine Desanti, conseiller technique au Ministère des Affaires intérieures, pour la signadure et la délivrance des récépissés de dépôt ainsi que des lettres portant refus d’enregistrement des listes de candidatures pour les élections à la Chambre des Députés du Territoire francais des Afars et des Issas.
