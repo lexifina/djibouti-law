@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 14/8° L du 2 février 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant modification du plan directeur d’urbanisme de la ville de Djibouti, intéressant le quartier des Salines Ouest.
