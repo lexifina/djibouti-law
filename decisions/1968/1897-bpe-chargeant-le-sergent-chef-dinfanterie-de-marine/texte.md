@@ -1,0 +1,1 @@
+Le sergent-chef d’infanterie de marine Francis Lalevée, agent spécial du Cercle d’Obock est, pendant les absences de M. Jean Allard, attaché d’administration centrale de l’e classe, 3° échelon, commandant de Cercle d’Obock, chargé de l’expédition des affaires urgentes et courantes de la compétence de l’Etat dans le ressort du dit Cercle.
