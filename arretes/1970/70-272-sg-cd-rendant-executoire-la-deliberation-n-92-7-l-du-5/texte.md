@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 92/7°L du 5 mars 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant création d’un établissement public territorial. dénommé «Centre d’Etudes Géologiques et de Développement ».
