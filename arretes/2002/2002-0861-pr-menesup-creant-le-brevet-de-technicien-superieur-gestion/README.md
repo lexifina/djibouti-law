@@ -1,0 +1,32 @@
+# Arrêté n° 2002-0861/PR/MENESUP créant le Brevet de Technicien Supérieur «Gestion des Affaires en Arabe» et définissant les conditions de délivrances de ce diplôme.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0861-pr-menesup-creant-le-brevet-de-technicien-superieur-gestion-des-affaires-en-arabe-et-definissant-les-conditions-de-delivrances-de-ce-diplome/>
+
+En vigueur : 2002-12-15 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU La constitution 15 septembre 1992 ;
+
+VU La loi n°96/AN/00/4ème L portant orientation du système éducatif djiboutien et notamment ses articles 39 à 42 ;
+
+VU Le décret n°2001-0053/PRE du 04 mars 2001 portant nomination du Premier Ministre ;
+
+VU Le décret n°2001-0137/PRE du 04 juillet 2001 portant nomination des membres du Gouvernement ;
+
+VU Le décret n°2000-0234/PR/EN du 16 août 2000 créant et portant statut du Pôle Universitaire de Djibouti.
+
+## Signature
+
+Le Président de la République,
+chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
