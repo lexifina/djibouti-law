@@ -1,0 +1,1 @@
+A partir du 1er mars 1921, le délai légal des prescriptions et péremplions, qui ont fait l’objet du décret du 9 mars 1919, ne sera plus augmenté du temps de suspension prévu par l’article 9 du décret ci-dessus visé.
