@@ -1,0 +1,1 @@
+rendu exécutoire par arrêté n° 1299 du 7 septembre 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Kamil Ali Mohamed la concession provisoire d’une parcelle de terrain d’une superficie de huit cent-treize mètres carrés environ, sise à Ambouli (lot n° 6), au prix de cent francs le mètre carré.
