@@ -1,0 +1,1 @@
+M. M. Coudreau, conducteur des Travaux publics de l’Etat, 7° échelon (indice majoré 322), est pour compter du 9 mai 1974 date de son arrivée dans le Territoire, mis à la disposition du Ministre du Port et des Régies industrielles pour servir au Port dé commerce de Djibouti.
