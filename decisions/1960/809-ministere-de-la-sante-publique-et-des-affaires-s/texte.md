@@ -1,0 +1,1 @@
+M. Andrianasolo (Romule) est engagé à l’essai pour deux mois, à compter du 1er juillet 1960, en qualité de receveur-comptable à salaire forfaitaire mensuel de 53.000 francs Djibouti, et mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour servir au Bureau d’Hygiène en remplacement numérique de M. Gaumont, démissionnaire.
