@@ -1,0 +1,2 @@
+M. Ahmed Youssouf Houmed administrateur 1er échelon du cadre territorial, chef de service des Affaires Economiques etdes prix est, cumulativement avec ses fonctions, habilité à constater par procès-verbaux les infractions à la réglementation du commerce dans le Territoire français des Afars et des Issas.
+A cet effet, avant d’entrer en fonction, l’intéressé prêtera le serment prescrit par la loi devant lé Président du Tribunal de première Instance de Djibouti.
