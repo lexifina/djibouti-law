@@ -1,0 +1,1 @@
+Sont pris en charge par le budget local les frais d’évacuation, de traitement et de séjour de M. Chehem Daoud Chehem, Ministre de la Santé publique du T.F.A.I, au Sanatorium Martel-de-janville plateau d’Assy (Haute-Sauvoie).
