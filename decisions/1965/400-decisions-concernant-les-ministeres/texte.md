@@ -1,0 +1,1 @@
+Le garde territorial de 2e classe Mohamed Abdallah Mle 595, en service au Commissariat central de police de Djibouti, est licencié par mesure disciplinaire de la Garde territoriale pour compter du 1er mars 1965.
