@@ -1,0 +1,1 @@
+Sont dispensées du timbre. les affiches ayant trait à des œuvres ou à des manifestations de bienfaisance ou d’assistance publique toutes les fois que ces œuvres ou manifestations ont été autorisées par le chef de la colonie.
