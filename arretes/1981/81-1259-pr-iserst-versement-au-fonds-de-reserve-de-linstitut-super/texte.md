@@ -1,0 +1,3 @@
+Art 1er : Est versé au fonds de réserve de l’Institut supérieur d’Etudes et de Recherches scientifiques et techniques l’excédent des recettes de l’exercice 1980 s’élevant à la somme de cinq millions sept cent trente-quatre mille quatre cent quarante-cinq francs Djibouti (5 734 444 FD).
+Art 2 : Est approuvée la délibération n° 80-04/ISERST susvisée en date du 25 mai 1981, arrêtant le budget supplémentaire de l’exercice 1981 de l’Institut supérieur d’Etudes et de Recherches scientifiques et techniques, tant en recettes qu’en dépenses, à la somme de cinq millions six cent soixante-trois mille cinquante-deux francs Djibouti. (5.663.052 FD).
+Art 3 : Le présent arrêté sera enregistré, publié et exécuté partout où besoin sera.
