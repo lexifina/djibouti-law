@@ -1,0 +1,1 @@
+Une autorisation administrative d’exercer le commerce des boissons licence de 6° classe est accordée à M. Ismaël Ahmed Abdi, pour l’exploiter dans son établissement sis 24 bis, boulevard De Gaulle à Djibouti.
