@@ -1,0 +1,2 @@
+La démission de son emploi offerte par M. Hassan Guire, commis administratif auxiliaire 10° écheïoni du Service de la Sûreté, est acceptée à compter du lor novembre 1952.
+M. Mohamed Youssouf, interprète auxiliaire 10e échelon, précédèmment en service au Cercle d’Ali-Sabieh est mis à la disposition du Chef du Service de la Sûreté à titre provisoire, pour compter du 8 novembre 1952, en remplacement de M. Hassan Guire.
