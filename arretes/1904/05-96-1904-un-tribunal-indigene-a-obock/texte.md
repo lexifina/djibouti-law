@@ -1,0 +1,3 @@
+Apr. À. —- II est Mmstüitué à Obok un tribunal inthgène qui cennailra, dans les condilicns prévues par les articles 30,32,33,et 34 du décret du 4 février 1904. des contraventions se simple police telles qu’elles sont prévus par l’article 34 précité d’un commun accord les parties en cause La compétence de ce tribunal s’etendra sur tout le territoire d’obok.
+Art 2 — M Grandjean chef de poste a d’Obok est nommé juge au tribunal indigéne institue ci-dessus Il exercera en meme temps les fonction d’officier de police judiciare.
+Art 3 — Le présent arrété sera enregisiré el comuniqué partout où besoin sera et insere au journal officiel du protectorat
