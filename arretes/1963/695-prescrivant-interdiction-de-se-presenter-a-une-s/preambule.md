@@ -1,0 +1,2 @@
+# Préambule
+Il est interdit à M. Abdallah Mohamed Abdou, né en 1945 à Djibouti, de, Mohamed Abdou et de Aouah Saïd, aide-chauffeur, demeurant à Djibouti, Quartier 4, de se présenter, avant 3 ans, à une sessioñ de permis de conduire en vue de l’obtention des permis des catégories «B – C – D – E», conformément aux dispositions des articles 128 et 129 de la délibération n° 314 du 10 avril 1962 rendue exécutoire par arrêté n° 479 du 14 avril 1962.
