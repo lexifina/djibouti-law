@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les cercles de Tadjourah et Obock est interdit à M. Amara Guebre Maskel, né vers 1952 à Asmara (Ethiopie), condamné le 1 octobre 1973 par le Tribunal supérieur d’appel de Djibouti à 2 ans de prison et 5 ans d’interdiction de séjour, pour vol et IAE. écroué le 30 avril 1973, libéré le 30 avril 1975.
