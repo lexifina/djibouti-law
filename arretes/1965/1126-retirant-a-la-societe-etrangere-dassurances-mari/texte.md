@@ -1,0 +1,2 @@
+Est retiré à la société étrangère d’assurances « Liverpool and London and Globe Insurance Company Limited» l’agrément spécial visé par l’article 2 de la loi du 15 février 1917, en ce qui concerne la catégorie d’opérations visée au paragraphe 16° de l’article 137 du décret du 30 décembre 1938 et accordé par arrêté n° 506 du 14 mai 1952.
+Est retiré à M. Vincent Dell’Aquila l’agrément en qualité d’agent spécial en ce qui concerne la même catégorie d’opérations.
