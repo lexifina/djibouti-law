@@ -1,0 +1,2 @@
+Sont promuleues à la cote francaise des Somalis et dépendances le decret n° 16-226S du 16 octobre 1946 tendant à allouer des versements d’attente mensuels a personnel enseignant (j. o, r. F, du 1S octobre 1946, page 886D) :
+le décret n° 16-2428 du 29 octobre 1946 tendant à modifier le décret n°7 16-2268 du 16 octobre 1946 tendant à allouner des versements d’attente mensuels au personnel enseignant, (J, 0, R, F, du 31 octobre 1946, page 9291.)
