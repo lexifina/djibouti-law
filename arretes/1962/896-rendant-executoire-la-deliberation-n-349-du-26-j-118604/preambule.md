@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, — Est rendu immédiatement exécutoire la délibération n° 349 du 26 juin 1962 de la Commission Permanente de l’Assemblée Territoriale, constatant les emprises du Chemin de Fer Franco -Ethiopien en Côte Française des Somalis.
