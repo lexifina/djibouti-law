@@ -1,0 +1,1 @@
+sont exonérés des taxes et surtaxes d’importation, deux camions de marque «Hino», d’une valeur totale de 17.100.000 FD, acquis auprés des Ets Marill par le Ministère de l’Intérieur au moyen d’un don de l’OUA au profit des victimes de la sécheresse en République de Djibouti.
