@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 508/6L du 6 juillet 1968 de la Commission permanente de la Chambre des Députés, modifiant la délibération n° 452/6°L du 13 janvier 1968 portant abrogation de la délibération n° 307/6°L du 28 juillet 1966 portant modification de l’arrêté n° 719 du 23 juillet 1951 réglementant l’enseignement privé dans le Territoire.
