@@ -1,0 +1,1 @@
+Est constatée, pour compter du 20 août 1971, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service des Contributions directes (Ministère des Finances), par M. Raymond Sandjivy, agent de constatation des services extérieurs de la Direction générale des Impôts. 8° échelon.
