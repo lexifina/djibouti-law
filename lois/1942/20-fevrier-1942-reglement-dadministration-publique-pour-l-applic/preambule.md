@@ -1,0 +1,5 @@
+# PrÃ©ambule
+Art. F r. Les fonctionnaires et agents civils des territoires dépendant du secrétariat d’Etat aux colonies appartenant aux catégories énumérées par l’article 1er du décret du 1er novembre 1928 sur la Caisse intercoloniale qui auront cessé d’exercer leurs fonctions en exécution des lois des 3 octobre 1940 et 2 juin 1941 pourront faire valoir les droits définis ci-après :
+1° Les fonctionnaires justifiant du nombre d’années de service fixé pour l’ouverture du droit à pension d’ancienneté recevront une pension de cette nature à jouissance immédiate :
+2° Si. sans remplir cette condition, ils ont accompli au moins quinze années de Services effectifs, ils bénéficieront, avec jouissance im médiate, d’une pension calculée à raison, soit d’un trentième du minimum de la pension d’ancienneté pour chaque année de services de la catégorie A soit d’un vingt -cinquième pour chaque année de services de la catégorie B ou de services militaires.
+Le montant de cette pension ne pourra excéder le minimum de la pension l’ancienneté augmentée, le cas échéant, de la rémunération des bonifications pour services hors d’Europe et des bénéfices de campagne.
