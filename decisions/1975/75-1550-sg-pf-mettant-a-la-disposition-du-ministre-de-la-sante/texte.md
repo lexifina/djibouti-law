@@ -1,0 +1,1 @@
+M. Joyez Jean-Pierre, adjudant infirmier en position «cadre hors budget des Armées» est pour compter du 9 juillet 1975, date de son‘arrivée dans le Territoire mis à la disposition du ministre de la Santé Publique-pour servir à l’hôpital Peltier en remplacement numérique de l’adjudant-chef Castelli Antoine, rapatriable.
