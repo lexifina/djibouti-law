@@ -1,0 +1,1 @@
+Une permission d’absence d’un mois pour en jouir à Addis-Abeba (Ethiopie), est accordée à Mme Fromentin (Suzanne), secrétaire sténo-dactylographe auxiliaire en service aux travaux publics, pour compter du 15 octobre 1948.
