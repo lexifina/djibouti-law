@@ -1,0 +1,1 @@
+M. Ismail Abdi Samale, secrétaire comptable auxiliaire, 2° catégorie, échelle X, 1e échelon, indice local 805, en service au Ministère de la Production, de l’Agriculture et de l’Elevage, est mis à la disposition du Ministre des Finances, des Affaires Economiques et du Plan pour servir au Service des Finances en remplacement numérique de M. Raoera Célestin, rapatrié.
