@@ -1,0 +1,1 @@
+La Société Civile Immobilière Somalienne, dont le siège est à Djibouti, est autorisée à acquérir un terrain bâti sis à Djibouti, rue d’Ethiopie, et immatriculé au Livre foncier du Territoire sous le n° 120 au nom de la Compagnie Européenne Immobilière et Commerciale (ex Compagnie de l’Afrique Orientale).
