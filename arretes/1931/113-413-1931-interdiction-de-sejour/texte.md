@@ -1,0 +1,2 @@
+le séjour à la Côte française des Somalis et dépendances est interdit :
+Pendant deux ans, pour compter du 10 avril 1931, date de sa libération, au nommé Parond Ali ; Pendant trois ans, pour compter du 28 mai 1931, date de sa libération, au nommé Houssein Tani ; Pendant trois ans, pour compter du 20 septembre 1931, date de sa libération, au nommé Ali Abdillahi ; Pendant trois ans, pour compter du 9 avril 1931, date de sa libération, au nommé Hassen Boulboul.
