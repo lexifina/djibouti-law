@@ -1,0 +1,4 @@
+Sont radiés des contrôles de leurs cadres respectifs d’appartenance au Corps Territorial d’Administration Générale de la Côte Francaise des Somalis.
+M. Amourda Richard, Secrétaire d’Administration de 1er classe, 3e échelon, et M. Annassamy Jean, commis des Services Administratifs et Financiers Principal, 3e échelon, intégrés tous deux dans le Corps des Payeurs d’Outre-Mer et classés au grade de payeurs de 2e classe, 4e échelon, à compter respectivement du 1er juillet 1960 et du 1er juillet 1961 au point de vue de l’ancienneté et à compter du 18 janvier 1963 au point de vue de la solde.
+Les fonctionnaires, objet de la présente décision, sont maintenus à la disposition de leur service actuel.
+La décision n° 290 du 7 mars 1963 portant acceptation de la démission des intéressés des Cadres Territoriaux est rapportée.
