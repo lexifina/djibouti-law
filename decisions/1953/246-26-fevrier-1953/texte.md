@@ -1,0 +1,2 @@
+Une subvention de vingt mille francs métropolitains (20.000 fr. m.) est accordée à l’administration des « Cahiers Charles-de-Foucauld », 41, rue de la Bienfaisance, Paris (8e), au titre de contribution du Territoire aux frais de publication de ces cahiers.
+La dépense visée à l’article 1er est imputable à la Section XVII chapitre XXXV, article 1er, § 2, du Budget de fonctionnement du Service local pour l’exercice 1953.
