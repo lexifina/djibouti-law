@@ -1,0 +1,1 @@
+M. Pierre Fiat, volontaire de l’aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics, des Transports et du Tourisme, pour servir au bureau d’Etudes (laboratoire) des Travaux Publics, en qualité de ‘technicien supérieur Labo-Sols, service comptant pour compter du 1er avril 1974.
