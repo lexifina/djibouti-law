@@ -1,0 +1,1 @@
+est rendu exécutoire le premier rôle supplémentaire des patentes (1er trimestre 1937, tableau B) du cercle de Dikkil-Gobad, comprenant dix-neuf articles et s’élevant à la somme de six cent quinze francs.
