@@ -1,0 +1,1 @@
+M. Huada (Bernard), est engagé en qualité d’employé auxiliaire à salaire journalier, 2e catégorie pour compter du 24 octobre 1949, en remplacement de Mlle Bague, qui recevra une autre affectation ultérieurement, M. Huada (Bernard) est mis à la disposition de M. le chef du service judiciaire.
