@@ -1,0 +1,1 @@
+Par arrété, en date du 20 aout 1912, le bénéfice de l’entrepôt fictif pour le sucre les huiles comestibles, le riz la farine, les dattes et le dourah est accordé au sieur Andajée Manekehand, commerçant à Djibouti.
