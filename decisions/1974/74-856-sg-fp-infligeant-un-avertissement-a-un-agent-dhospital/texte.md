@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Osman Moussa Goumane, agent d’hospitalisation de 1° classe, 2° échelon du corps territorial de la Santé Publique pour n’avoir pas assuré sa garde et s’être absenté sans motif le 9 avril 1974 de 12 h à 15 h 30.
