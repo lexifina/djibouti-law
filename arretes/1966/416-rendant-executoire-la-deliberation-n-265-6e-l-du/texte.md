@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 265/6e L du 18 mars 1966 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis déterminant les conditions de détention d’animaux sauvages.
