@@ -1,0 +1,1 @@
+Le Lieutenant Albospeyre (Max) est chargé, en plus de ses fonctions actuelles, de l’expédition des affaires courantes de la Milice, durant l’absence du Lieutenant Bore se rendant en mission en France et pour compter du 8 mai 1951.
