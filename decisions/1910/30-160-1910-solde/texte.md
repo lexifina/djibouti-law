@@ -1,0 +1,1 @@
+Par décision du Gouverneur en date du 2 février 1910, la solde coloniale annuelle de M. Brinon, Administrateur adjoint de 3eme classe des Colonies est portée de 5.000 francs à 3.500 francs pour compter du 1 février 1910.
