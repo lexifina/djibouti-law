@@ -1,0 +1,1 @@
+M. Chauvin Jacques, inspecteur départemental de l’Education nationale, 7e échelon, est, pour compter du 21 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir à l’Enseignement public du 1e degré.
