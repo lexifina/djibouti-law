@@ -1,0 +1,1 @@
+M. Grivean (André), officier de port et inspecteur de la navigation, service armé, classe de mobilisation 1910, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois à compter de la date de la présente décision.
