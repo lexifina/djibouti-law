@@ -1,0 +1,2 @@
+est indemnités de nomadisation et l’indemnité supplémentaire de dëèplacement, créées par les arrôtés du 28 septembre 1929 et du 1er octobre 1930, sont supprimées pour compter du 1er janvier 1931.
+Les gradés curopéens en service au peloton méhariste percevront, à partir du 1er janvier 1931, une indemnité journalière forfaitaire de nomadisation de 15 franes, Une indemnité de fonctions de 1.200 francs l’an est attribuée, pour compter du 1er janvier 1931, au sous-officier commandant le peloton méhariste,
