@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 310/7eL du 28 décembre 1972 de la Chambre des Députés modifiant la délibération n° 222/7eL du 10 décembre 1971 portant création d’un fonds spécial d’aide et de prévoyance dans le Territoire Français des Afars et des Issas.
