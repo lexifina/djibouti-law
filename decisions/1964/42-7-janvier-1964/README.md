@@ -1,0 +1,9 @@
+# Décision n° 42 du 7 janvier 1964 :
+
+Décision · Journal officiel de la République de Djibouti, n° 1 du 31/01/1964 · <https://www.journalofficiel.dj/texte-juridique/decision-n-42-du-7-janvier-1964/>
+
+En vigueur : 1964-01-31 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  milicien de 2e classe Roble Elabe Djilal, matricule 2605, de la 1re Compagnie de Milice à Dikhil, est mis à la retraite d’office, sur avis du Conseil de Santé, et pour compter du 1 janvier 1964. La maladie contractée étant imputable au service, l’intéressé, qui totalise deux ans et onze jours de services effectifs dans la Milice de la Côte Française des Somalis, peut prétendre à une pension d’invalidité temporaire annuelle de 100 %, à savoir quarante-trois mille deux cents francs Djibouti (43 200 F.D.). |
