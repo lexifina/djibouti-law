@@ -1,0 +1,1 @@
+de Rectificatif au Journal officiel du 7 décembre 1929, page 13170. 3e colonne , 8e ligne, au lieu de : « et 2.000 fr. par enfant pour le contrôleur », lire : « et 2.200 fr par enfant pour le contrôleur ».
