@@ -1,0 +1,2 @@
+Une réquisition de passage en classe unique de Djibouti à Rijeka (Yougoslavie) sera délivrée à Mme Valentina Sulejmanovic sur le bateau s/s « Omis » quittant en principe Djibouti le 20 septembre 1962. La dépense sera à la charge du Budget local.
+Est appréhendé au profit du Budget local le cautionnement versé par Mme Valentina Sulejmanovic à la Caisse des Dépôts et Consignations suivant récépissé n° 210 du 2 mai 1961
