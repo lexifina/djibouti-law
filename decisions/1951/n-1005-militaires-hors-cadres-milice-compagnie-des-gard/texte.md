@@ -1,0 +1,1 @@
+Le gendarme Orset (Roger), arrivé en Côte Française des Somalis le 5 juin 1950, est affecté à la Compagnie de gardes-cercle de Djibouti pour compter du 1 octobre 1951, date à laquelle il a commencé son service à cette unité.
