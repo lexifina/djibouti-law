@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 25/6e L du 28 janvier 1964 de l’Assemblée Territoriale de la Côte Française des Somalis autorisant le Chef du Territoire à se porter acquéreur d’un local sis place Ménélik et portant ouverture des crédits nécessaires.
