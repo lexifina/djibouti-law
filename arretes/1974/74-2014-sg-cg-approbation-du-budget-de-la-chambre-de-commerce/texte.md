@@ -1,0 +1,1 @@
+Est approuvé le budget de la Chambre de commerce et l’industrie de Djibouti pour l’exercice 1974, arrété en recette et en dépenses a Dix huit millions cinq cent neuf mille trois cent soixante quinze francs Djibouti (18.509.375 F.D.).
