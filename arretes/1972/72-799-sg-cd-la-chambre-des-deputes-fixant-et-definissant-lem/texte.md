@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 258/7° L du 12 mai 1972 de la Chambre des Députés du Territoire Français des Afars t des Issas fixant et définissant l’emprise du boulevard 18, juartiers 1 et 2, et déterminant la hauteur maximum des imrieubles- pordant cette voilet
