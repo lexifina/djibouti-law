@@ -1,0 +1,2 @@
+M. Houillère (Abel), inspecteur de 1re classe des contributions directes, reprend les fonctions dont il est titulaire à compter de la date de sa prise de service,
+M. Calydon (Lucien), chef de bureau de 1re classe des Secrétariats généraux, chef p. i. du Service des contributions, est chargé des fonc tions de l’inscription maritime et de l’inspection du travail en remplacement de M. Aleniant, administrateur-maire.
