@@ -1,0 +1,1 @@
+Il est accordé au Bureau de Recherches géologiques et minières un autorisation personnelle minière valable pour trois titres miniers, pour la prospection, la recherche et l’exploitation de gîtes d’eaux chaudes et de vapeurs d’eaux souterraines et pour une durée de cinq ans, renouvelable en la même forme.
