@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de la taxe personnelle du cercle de Dikkil Gobad. exercice 1938, comprenant trente cing articles et s’élevant à la somme de quatre mille trois cent soixante-quinze francs.
