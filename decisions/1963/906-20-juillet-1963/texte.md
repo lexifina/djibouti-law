@@ -1,0 +1,3 @@
+Les miliciens de 2e classe Ali Moussa, n° mle 2839, et Abdo Nourre, n° mle 2841, de la 4 Compagnie de Milice à Damerdjog, arrivant en fin de contrat le 25 mars 1963, sont déclarés « déserteurs » et licenciés pour « raison disciplinaire » le 9 juillet 1963.
+Les intéressés, qui totalisent chacun 3 mois 11 jours de services effectifs dans la Milice de la Côte Française des Somalis, étant licenciés disciplinairement ne peuvent prétendre à aucune indemnité. Ils seront rayés des contrôles de la Milice pour compter du 9 juillet 1963.
+Les droits à solde et vivres des intéressés seront liquidés par les soins de l’Adjoint au Commandant de la 4e Compagnie de Milice, Billeteur et le montant des soldes versé au Trésor.
