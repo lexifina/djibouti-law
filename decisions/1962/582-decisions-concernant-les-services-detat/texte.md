@@ -1,0 +1,3 @@
+L’Adjudant Abdillahi Waberi, Mle 33, de la Garde Territoriale est admis à faire valoir ses droits à la retraite d’ancienneté pour compter du 1er mai 1962, à l’expiration de son contrat.
+Il sera rayé des contrôles le dit jour et recevra le certificat de bonne conduite.
+Ce gradé, comptant à cette date 2 ans, 3 mois et 22 jours de service militaire et 19 ans 2 jours de service dans les Forces Locales, soit un total de 21 ans, 3 mois et 24 jours de service, percevra une allocation viagère annuelle d’ancienneté de quatre-vingt-dix mille francs (90.000), payable trimestriellement par le service des Finances de Djibouti, sauf avis contraire de ce service.
