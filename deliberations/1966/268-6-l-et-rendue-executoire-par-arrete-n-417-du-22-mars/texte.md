@@ -1,0 +1,1 @@
+la Commission permanente de l’Assemblée territoriale a accordé à M. Abdi Ahmed Warsama la concession provisoire d’une parcelle d’un terrain d’une superficie de 1629 mètres carrés, sis à Ambouli, lot n° 4 au prix de 100 francs le mêtre carré.
