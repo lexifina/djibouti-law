@@ -1,0 +1,2 @@
+La Compagnie commerciale des sels marins, au capital de 10,000,000 de franes, est antorisée à souscrire pour toute sa durée un supplément d’abonnement au timbre pour ses 50.000 actions ef parts bénéficiaires nouvellement créées.
+Le montant de cet abonnement, fixé à 2.500 francs par an, sera payable trimestriellement à la caisse du receveur de l’enregistrement et Faute par la Société de s’acquitter de cette obligation ou, en cas de dissolution anticipée, le montant intégral des droits encore dus deviendra immédiatement exigible.
