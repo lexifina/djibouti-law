@@ -1,0 +1,1 @@
+et pour compter du 1er juin 113. Mme de Bergue est chargée de l’entretien de la lingerie de l’hôtel du Gouvernement et de l’annexe du plateau Elle aura droit, en cette qualité, à une solde annuelle de 360 fr. payable par mensualité.
