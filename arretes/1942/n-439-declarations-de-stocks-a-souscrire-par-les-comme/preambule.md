@@ -1,0 +1,6 @@
+# Préambule
+Art, 1, – La déclaration prévue à l’article 12 de larrété susvisé du 30 mar 1942 cit étre faite mensuellement par les commercants de Djibouti et arrétée an dernier jour du mois écoulé elle devra parvenir au Gouvernement au plus tard le 5 du lois suivant.
+La déclaration initiale portera sur la totalité des matieres et denrées ci-apres énumérées : riz, farine, dourah, huiles ou graisses alimentaires, beurre pour Européens et pour indigenes, sucre, thé, café, viande de conserve, légumes et fruits conservés, légumes secs, Tissus de coton, cigarettes, tabac, n“llumettes, essence pour an tomobiles et avions: gas-oil, diez-oil, fuel.
+ci, pétrole, Tubrifiants divers, ciment et fHibro-ciment, bois d’œuvre, charbon de bois, briquettes, savon commun, papier fort et papier pelure,
+Les suivantes indiqueront seulement les modifications survenues dans le mois écoutant aux entrées qu’aux sorties,
+Art, 2, — Exceptionnellement, ne sont vas tenus à cette déclaration, les commercents qui ne possedent où ne détiennent au cune de ces marchandises, La non-déclaration pour épuisement de stocks est assimilée à une fausse déclaration S’il est demontré par toute preuve que de droit que le commercant a cherché, par ce moyen, dissimuler des marchandises sujettes à déclaration.
