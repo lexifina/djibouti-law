@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 17 novembre 1941 modifiant les articles 1er, 10, 14, 15, 17, 22 et 24 de la loi du 22 juillet 1941 relative aux entreprises, biens et valeurs appartenant aux Juifs.
