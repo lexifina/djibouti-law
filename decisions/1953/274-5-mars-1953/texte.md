@@ -1,0 +1,1 @@
+M. Perie (André), Inspecteur de la Sûreté Nationale, Officier de police judiciaire, est nommé Commissaire détaché spécial de L’Aéroport de Djibouti, en remplacement de M. Castellani, autorisé à prendre un congé dans la Métropole.
