@@ -1,0 +1,1 @@
+M. Gackowski Georges, secrétaire d’Administration contracuel, est nommé billeteur pour le paiement de la solde et des allocations accessoires du personnel mensuel et journalier du Service de la Sûreté Générale en remplacement de Mme Fratacci Marcelle.
