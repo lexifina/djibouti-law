@@ -1,0 +1,1 @@
+Mme Colette Cartier, professeur certifié d’histoire-géographie, 5e échelon (indice nouveau 379): est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir au Lycée de Djibouti.
