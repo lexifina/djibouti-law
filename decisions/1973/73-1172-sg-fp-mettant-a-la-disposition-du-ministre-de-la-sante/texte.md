@@ -1,0 +1,1 @@
+L’adjudant-chef Cavarle Alain, infirmier en position «cadre hors budget des armées », est pour compter du 29 juin 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires Sociales pour servir au dispensaire Farah-Had, en remplacement numérique de l’adjudant Guelfucci, rapatriable.
