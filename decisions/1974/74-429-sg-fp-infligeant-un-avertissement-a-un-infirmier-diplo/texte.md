@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Ali Dirié, infirmier diplômé d’Etat de 2° classe, 2° échelon, du corps territorial de la Santé publique, en service à l’hôpital Peltier (pavillon Peltier. étage), pour négligence dans l’examen d’une urgence abstétricale.
