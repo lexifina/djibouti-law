@@ -1,0 +1,1 @@
+Le capitaine Grollemuiid. commandant le cercle de Dikhil, rapatriable, passera jusqu’au 15 janvier 1949, les consignes de son cercle au capitaine Muret, qui prendra le commandement du cercle de Dikhil à compter du 16 janvier 1949.
