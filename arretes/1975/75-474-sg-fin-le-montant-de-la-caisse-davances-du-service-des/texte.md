@@ -1,0 +1,1 @@
+Le montant de l’avance mensuelle mise à la disposition du régisseur de la Caisse de menues dépenses de la direction des Travaux publics (section entretien des bâtiments) est porté à trois cents mille francs Djibouti pour compter de la date de la signature du présent arrête .
