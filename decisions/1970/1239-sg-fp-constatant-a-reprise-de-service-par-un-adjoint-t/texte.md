@@ -1,0 +1,1 @@
+Est constatée, pour compter du 30 septembre 1970, date de son retour au Territoire, la repri de ses fonctions antérieures à la Subdivision Construction des Travaux publics (Ministère des Travaux publics et du Port), par M. Robert Nicollet, adjoint technique principal des Travaux publics, 1″° classe.
