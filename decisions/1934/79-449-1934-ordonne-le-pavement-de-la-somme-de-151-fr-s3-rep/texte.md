@@ -1,0 +1,1 @@
+25 avril 1924. a été ordonné le pavement de la somme de 151 fr. S3, représentant le prix du transport par navire Prinz Régent ayant quitté Marseille le 1° mars 1920 et arrivé à Djibouti le 13 du même mois, de cinq caisses destinées au service local de la Cote francaise des Somalis.
