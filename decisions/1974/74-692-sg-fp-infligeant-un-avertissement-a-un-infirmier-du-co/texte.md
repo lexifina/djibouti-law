@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Othman Ahmed Bint Ahmed, infirmier de 1re classe, 2e échelon, du corps territorial de la Santé publique, en service à l’hôpital Peltier (service Orlo) – (Ministère de la Santé publique), pour ne pas avoir assuré son service de garde le samedi 30 mars 1974 de 14h à 18h.
