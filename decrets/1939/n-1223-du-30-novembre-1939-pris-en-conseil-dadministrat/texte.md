@@ -1,0 +1,2 @@
+Art 1 — Est rendu provisoirement exécutoire le budget du service local pour l’exercice 1940 tel qu’il a été arrêté dans la séance du Conseil d’administration du 30 novembre 1939, en recettes et en dépenses, à la Somme de trente-deux millions quatre cent quatre-vingt-huit mille huit cents francs(32.488.800)
+art, 2, — le present arrete sera enregistre notifiée au trésorier-paveur et publié Journal officiel cles la colonie
