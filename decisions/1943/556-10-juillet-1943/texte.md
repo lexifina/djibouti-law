@@ -1,0 +1,1 @@
+MM. Célestin RAOERA, Jean RAJAONARIVONY et RAJOELINA, employés con tractuels. sont autorisés à effectuer pour le compte des Services Administratifs locaux des travaux supplémentaires de dactylographic qui leur seront rémunérés à raison de CINQ FRANCS la page dactylographiée.
