@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 165 du 10 février 1961 en ce qui concerne Waiss Bouh Guireh, Somali Issa Rer Moussa Saad Moussa Harla, né en 1945 à Hadagala (Ethiopie), de Bouh Guireh et de Fatma Robleh.
