@@ -1,0 +1,1 @@
+M. Berger (Henri-Félix}, administrateur des colonies, service armé, classe de mobilisation 1925, ext classé dans l’affectation spéciale, dans son emploi actuel, pour une nouvelle période de trois mois à compter du 11 mars 1940.
