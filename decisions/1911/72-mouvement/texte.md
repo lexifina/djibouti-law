@@ -1,0 +1,1 @@
+le caporal Mandin (Pierre-Benjamin-Alexandre) de la section des infirmiers militaires des troupes coloniales, en service hors cadres à l’hôpital de Djibouti est autorisé à prolonger d’un an son séjour dans la colonie ( 1er année supplémentaire).
