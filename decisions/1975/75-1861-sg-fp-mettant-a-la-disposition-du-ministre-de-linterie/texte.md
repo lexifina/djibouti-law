@@ -1,0 +1,1 @@
+M. Duchamp René, attaché de Préfecture de 2° classe, 2° échelon, est, pour compter du 2 septembre 1975, date de son arrivé dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir au District de Djibouti.
