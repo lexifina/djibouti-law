@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 72/8° L du 12 décembre 1974 de la Chambre des Députés du Territoire francais des Afars et des Issas, portant réglementation relative A l’établissement du compte de gestion du Trésorier-Payeur général, pour les opérations eomcer rant tee eauece financiers du Territoire.
