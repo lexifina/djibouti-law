@@ -1,0 +1,1 @@
+le compte financier de l’Office des Postes et Télécommunications de la Côte Française des Somalis (exercice 1962) est arrêté à la somme nette de 162.027.853 francs Djibouti, sur la base d’un excédent des recettes sur les dépenses d’exploitation de 21.829.068 francs Djibouti.
