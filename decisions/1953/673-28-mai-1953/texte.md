@@ -1,0 +1,2 @@
+La décision n° 561 du 6 mai 1953, mettant à la disposition de l’Inspecteur du Travail et des lois sociales le nommé Abdallah Mohamed Mokbel, commis administratif auxiliaire 15e échelon, est et demeure rapportée.
+M. Abdallah Mohamed Mokbel, commis administratif auxiliaire 15e échelon, anciennement en service aux Finances, est mis à la disposition du Chef du Service Judiciaire pour compter du 1er juin 1953.
