@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Ahmed Hassan Ahmed la concession définitive d’une parcelle de terrain d’une superficie de cent quarante deux mètres carrés environ, sise à Dikhil, au prix de dix francs le mètre carré.
