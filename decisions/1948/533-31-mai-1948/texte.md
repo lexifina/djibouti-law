@@ -1,0 +1,1 @@
+Une punition de suspension de quatre jours de solde « pour incorrection et manque de conscience professionnelle », est infligée à Ahmed Liban, radio auxiliaire, 10° échelon, en service au poste d’As-Ela.
