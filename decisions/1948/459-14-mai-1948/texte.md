@@ -1,0 +1,1 @@
+Est acceptée la démission de son emploi de commis stagiaire de 4° classe de la Trésorerie de la Côte francaise des Somalis offerte par M. Boisson (Guy-René), commis stagiaire de 1er classe des Trésoreries coloninles en service à 1n Trésorerie générale de BRAZZAVILE.
