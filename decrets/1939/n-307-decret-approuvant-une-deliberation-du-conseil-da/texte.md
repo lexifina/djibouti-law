@@ -1,0 +1,2 @@
+Art, 1er, — Est approuvée la délibération susvisée du conseil d’administration de la Côte Française des Somalis, en date du 23 décembre 1938, tendant à augmenter les droits de douane à percevoir sur les marchandises étrangères importées dans cette colonie.
+Art, 2. — Le ministre des colonies est chargé de l’exécution du présent décret, qui sera publie au Journal Ofliciel de la République Française et inséré au Bulletin Officiel du ministère des colonies,
