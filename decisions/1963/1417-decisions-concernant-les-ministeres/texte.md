@@ -1,0 +1,1 @@
+Le garde territorial de 2e classe Ahmed Yabeh Kaireh mle 641, absent ilégal depuis le 17 octobre et déserteur depuis le 23 octobre 1963, est licencié de la Garde territoriale par mesure disciplinaire pour compter du 23 octobre 1963.
