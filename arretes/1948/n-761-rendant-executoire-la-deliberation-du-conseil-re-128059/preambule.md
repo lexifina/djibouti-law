@@ -1,0 +1,2 @@
+# Préambule
+Art, 1, — Est rendue exécutoire la délibération du Conseil raprésentatif de la Côte française des Somalis en date du 9 juin 1948 relative à Ia concession provisoire à titre onéreux faite à M. Mahmoud Ibrahim Moubine, entrepreneur de constructions, demeurant et domicilié à Djibouti, d’une parcelle de terrain d’une superficie de 1.141 mètres carrés à Boulaos, faisant partie du titre foncier n° 207 telle au surplus qu’elle est figurée au plan ci-annexé.
