@@ -1,0 +1,1 @@
+Est annulé l’arrêté n° 75-1027/SG/CD du 29-5-75 rendant exécutoire la délibération n° 114/8°L du 20-5-75, portant agrément de M, Fauzi Saïd Kassim, comme Agent Spécial de la société d’Assurances et de Réassurances « LANGUEDOC ».
