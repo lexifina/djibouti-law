@@ -1,0 +1,1 @@
+Le médecin-colonel Morin, directeur de la Santé publique, assurera, à compter du 15 juin 1964, conjointement avec ses fonctions de Directeur de la Santé publique, celles de médecin-chef de l’hôpital Peltier (en remplacement du médecin-colonel Pelon, rapatriable pour fin de séjour).
