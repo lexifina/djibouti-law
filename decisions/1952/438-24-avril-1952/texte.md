@@ -1,0 +1,1 @@
+Le traitement mensuel de M. Ahmed Hassan, chauffeur auxiliaire en service au Cercle d’Ali-Sabiet, est porté à 9.630 francs pour compter du 1er juillet 1951 et à 10.350 francs pour compter du 1er janvier 1952.
