@@ -1,0 +1,2 @@
+L’Administrateur en Chef des Affaires d’Outre-Mer, commandant le Cercle de Djibouti, porte à la connaissance du public qu’une enquête de commodo et incommodo d’une durée de quinze jours est ouverte, à compter du ler novembre 1964, en vue de recueillir les réserves et oppositions qui pourraient être formulées à l’encontre du projet d’installation d’une station-service dans l’angle Est formé par l’avenue des Messageries Maritimes et la route du Héron (lot n° 331).
+Les oppositions peuvent) être; dans le, di de soit adressées verbalement ou par écrit au Commandant de Cercle.
