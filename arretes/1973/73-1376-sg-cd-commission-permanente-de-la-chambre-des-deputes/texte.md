@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 378/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas complétant et modifiant la délibération n° 472/6e L du 24 mai 1968 de la Chambre des Députés portant réglementation d’hygiène et de voirie dans le Territoire français des Afars et des Issas.
