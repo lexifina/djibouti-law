@@ -1,0 +1,1 @@
+La prime de spécialité prévue par l’article 49 de l’arrêté n° 1037 du 6 novembre 1951 est fixée au taux uniforme de 1.800 francs par mois, quelle que soit la spécialité, pour compter du 1er janvier 1961.
