@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 27/7eL du 8 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas portant aménagement des épreuves des certificats de fin d’études professionnelles et commerciales décernés par le Collège d’enseignement technique de Djibouti.
