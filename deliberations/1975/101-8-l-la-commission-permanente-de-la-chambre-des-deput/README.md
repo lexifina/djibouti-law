@@ -1,0 +1,22 @@
+# DELIBERATION n° 101/8° L De la Commission Permanente de la Chambre des Députés portant modification du budget annexe du Port de Commerce de Djibouti pour l’exercice 1974. (Rendue exécutoire par arrêté n° 75-573/SG/CD du 28 mars 1975)
+
+Délibération · Journal officiel de la République de Djibouti, n° 8 du 25/04/1975 · <https://www.journalofficiel.dj/texte-juridique/deliberation-n-101-8-l-de-la-commission-permanente-de-la-chambre-des-deputes-portant-modification-du-budget-annexe-du-port-de-commerce-de-djibouti-pour-lexercice-1974-rendue-ex/>
+
+En vigueur : 1975-04-25 (date du Journal officiel qui le publie).
+
+## Signature
+
+Le Secrétaire .
+comission permanente
+de la chambre des Députés
+DaNIEL RUSCONI
+
+Le Vice-Présidentt
+de la Commission permanente
+de la Chambre des Députés
+SAMOD FARAH KHAIRE
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
