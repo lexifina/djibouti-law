@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 234 du 19 février 1965, la Commission pérmanente de l’Assemblée Territoriale a accordé à M. Guy Arnault la concession provisoire d’une parcelle de terrain d’une superficie de 2.095,50 mètres carrés environ, à Djibouti, quartier de la Plaine (lot n° 27), au prix de 500 franes le mètre carré.
