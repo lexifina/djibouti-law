@@ -1,0 +1,28 @@
+# Ordonnance n° 53-1307 supprimant l’envoi en possession du conjoint survivant
+
+Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1961 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-53-1307-supprimant-lenvoi-en-possession-du-conjoint-survivant/>
+
+En vigueur : 1961-08-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le président du conseil des ministres,
+Sur le rapport du garde des sceaux, ministre de la justice ;
+Vu la Constitution, et notamment ses articles 34 et 92 :
+Vu le code civil ;
+Le conseil d'Etat (commission permanente): entendu ;
+Le conseil des ministres entendu,
+
+## Signature
+
+C. DE GAULLE.
+Par le Président du Conseil des Ministres :
+Le Garde des Sceaux,
+Ministre de la Justice,
+
+Michel Desré.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
