@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 127 du 31 janvier 1963 en ce qui concerne Hassan Abdi Hadi, Somali Aberawal Djibril Abokor Bah Omar, né en 1941 à Guébileh (République Somalie) de Abdi Hadi et de Hadsan Awaleh.
