@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Térritorialé a accordé à la Communauté des Sœur$S Franciscainés de Djibouti, la concession provisoire d’une parcélle de terrain d’une superficie de trois mille huit cents mètres carrés, sise à Djibouti, plateau du Serpent (T. EF. n°° 442, 446, 173 et 595 ).
