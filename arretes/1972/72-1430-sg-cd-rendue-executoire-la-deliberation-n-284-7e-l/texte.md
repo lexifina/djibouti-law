@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 284/7e L du 29 septembre 1972 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant virement de crédits de chapitre à chapitre des dépenses extraordinaïres du budget annexe du Port de commerce de Djibouti, exercicé 1972.
