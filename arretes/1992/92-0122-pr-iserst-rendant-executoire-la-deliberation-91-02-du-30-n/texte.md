@@ -1,0 +1,1 @@
+est approuvée la Aélihération n6 91-02 du 30 novembre 1991 du conseil d’administration de l’ISERST portant approbation du budget 1992 de l’ISERST arrêté en recettes et en dépenses a la somme de : cent cinquante millions francs Djibouti {150 000 000 FD).
