@@ -1,0 +1,1 @@
+Au titre de l’année scolaire 1974-1975, la rentrée des classes dans les établissements d’enseignement de second degré et techniques publics et privés du territoire est fixée au lundi 23 septembre 1974.
