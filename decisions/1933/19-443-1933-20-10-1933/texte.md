@@ -1,0 +1,1 @@
+M. Robin, ingénieur adjoint du cadre local, a été chargé par intérim, cumu lativement avec ses fonctions actuelles, de la direction du service des travaux publics pen dant la durée de la mission, relative à la délimitation de frontière, confiée à M. Roussan, chef du service des travaux publics.
