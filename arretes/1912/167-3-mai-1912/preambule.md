@@ -1,0 +1,2 @@
+# Préambule
+Art. 1ert — Des concessions de passage. à titre gratuit, peuvent être accordées aux membres des familles des fonctionnaires ou officiers qui accompagneront leur chef lorsqu’il rentre en congé de convalescence, sans avoir accompli la durée du séjour colonial nécessaire pour avoir droit à un congé administratif et qui retourneront, avec le chef de famille outre-mer, à l’expiration de sa période d’absence.
