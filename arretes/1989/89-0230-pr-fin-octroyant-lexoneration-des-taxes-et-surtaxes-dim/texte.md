@@ -1,0 +1,1 @@
+est exonéré des taxes et surtaxes d’importation un envoi composé de 114 colis de médicaments et de tentes, d’un poids de 4 056 kg et d’une valeur de 4721 200 FD, don de Caritas Allemagne à Caritas Djibouti pour remise au Ministère de la Santé publique et des Affaires sociales de Diibouti.
