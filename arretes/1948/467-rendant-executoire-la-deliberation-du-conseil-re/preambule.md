@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, — Est rendue exécutoire la délibératon du Conscil représentat de la Côte française des Somalis en date du 31 mars 1948 relative à la concession provisoire faite à titre onéreux à M, Ali Banabila, commercant français à Saïgon, d un parcelle de terrain d une superfic’e de 1,890 mètres carrés environ situeé au sud-ouest de la dépression de Khor Bourhan, telle au surplus qu’elle figure au plan ci-annexé.
