@@ -1,0 +1,1 @@
+rendu sur la proposition du Ministre de la guerre et du Ministre des colontes, M. le colonel Mességné (Jean-Louis-Laurent), du 14e régiment de tirailleurs sénégnlnis, est nommé commandant supérieur des troupes de la Côte française des Somalis.
