@@ -1,0 +1,1 @@
+Une permission d’absence à solde entière de vingt et un jours est accordée à Djama Darod, planton stagiaire du Cadre local, 1er échelon, employé au Service de j l’Enregistrement, des Domaines et du ; Timbre.
