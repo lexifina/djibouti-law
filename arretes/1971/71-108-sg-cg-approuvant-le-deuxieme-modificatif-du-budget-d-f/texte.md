@@ -1,0 +1,1 @@
+est approuve la delibration n°28 du 17 decembre 1970 du conseil d’administration d’electricite de djibouti arrete l’etat de previsionne de recette et depense pour l’anne 1970 (2°modifiant à la somme de neuf dix sept millions trois cent soixante quinze mille francs djibouti.
