@@ -1,0 +1,1 @@
+rendue exetoire par arrêté n° 628 du 27 avril 1965, la Commission Permanente de l’Assemblée Territoriale a déclaré réclassée dans le domaine püblic du Territoire la parcelle de terrain sise à Djibouti, plateau du Serpent, et immatriculée au Livre foncier du Territoire Sous lè n° 392, pour servir de plage publique.
