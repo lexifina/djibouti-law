@@ -1,0 +1,1 @@
+M. Cloche (André), inspecteur LR. de 1re classe après deux ans, du cadre général des Postes et Télécommunications de la France d’Outre-Mer, est nommé chef de la Station Côtière de la T.S.F. pour compter du 7 septembre 1953, en remplacement de M. Lamarque partant en congé administratif.
