@@ -1,0 +1,1 @@
+Sont pris en charge par le budget du Territoire les frais d’évacuation, de traitement et de séjour de M. Mahamoud Yeh Arreh, infirmier de 2° classe, 2° échelon du cadre territorial de la Santé publique à Djibouti, évacué sanitaire le 21 août 1974 sur l’hôpital Cochin, n° 27, Faubourg Saint-Jacques, 75674 Paris Cedex 14 (Service du professeur Léger).
