@@ -1,0 +1,3 @@
+Le milicien de 2e classe Hamadou Ali Adbra, mle 2545, de la 4 compagnie de Milice à Damerdjog, reconnu inapte à servir dans la Milice de la C.F.S. par le Conseil de Santé en sa séance du 23 mai 1967, est licencié pour raison de santé à compter du 31 mai 1967.
+Totalisant 5 ans 11 mois 10 jours de services effectifs à la Milice de la C.F.S. et son inaptitude n’étant pas imputable au service, l’intéressé percevra une indemnité égale à deux mois de solde nette, à savoir : onze mille hüit cent douze francs Djibouti (11812 FD- à l’exclüusion de toute autre indemnité.
+Les droits à solde, vivrés et permissions du milicien Hamadou Ali Adbra seront liquidés par les soins de la 4 Compagnie de Milice:
