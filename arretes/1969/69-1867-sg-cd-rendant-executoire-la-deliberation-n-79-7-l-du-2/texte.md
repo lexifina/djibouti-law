@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 79/7L du 27 décémbré 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas autorisant des virements de crédits de chapitre à chapitre,exercice 1969 .
