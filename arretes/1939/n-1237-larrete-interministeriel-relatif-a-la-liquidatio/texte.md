@@ -1,0 +1,1 @@
+Artiele unique. — Le pouvoir de prendre des arrêtés analogues à celui du 30 septembre 1939 susvisé est délégué aux gouverneurs généraux, gouverneurs ét administrateurs des territoires relevant du ministère des colonies,
