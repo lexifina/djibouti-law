@@ -1,0 +1,1 @@
+M. Bodin (Gérard), vériticat ur principal, chef du service des donanes, cumulera provisoirenient ses fonctions avec celles de chef du bureau central de Djibouti à compter du 20 juillet 1938, date du départ en congé de M. Maury.
