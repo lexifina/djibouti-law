@@ -1,0 +1,1 @@
+Est rendue exécutoire la deéliberation n° 2952/06°L au 4 janvier 1966 de l’Assemblée Territoriale donnant délégation à la Commission Permanente .de l’Assemblée Territoriale de la Côte Française des Somalis.
