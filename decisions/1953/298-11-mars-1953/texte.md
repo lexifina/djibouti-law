@@ -1,0 +1,1 @@
+M. Mohamed Nasser est engage en qualité d’agent technique auxiliaire 6e échelon pour compter du 1er mars 1953 et mis à la disposition du Directeur du Service de Santé, en remplacement numérique de M. Daher Roble, licencié.
