@@ -1,0 +1,1 @@
+M. Robert Souchon, assistant technique des Travaux publics de l’Etat, 5° échelon, est pour compter du 8 février 1971, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir au bureau d’études des Travaux publics en remplacement numérique de. M. Bizot.
