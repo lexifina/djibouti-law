@@ -1,0 +1,1 @@
+Le Médecin Lieutenant-Colonel HelfEt (Jacques), Directeur du Service de Santé de la Côte Française des Somalis et Médecin-Chef de l’Hôpital Principal de Djibouti, en service « hors-cadres », est placé dans la position « cadres » pour compter du 1er janvier 1951.
