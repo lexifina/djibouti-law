@@ -1,0 +1,1 @@
+deliberation n°90/04 du 22 decembre 1990 du conseil déAdministration de l’ISERST portant approbation du budget 1991 de l4ISERST arrete en recette et en depense à la somme de cent cinquante millions francs Djibouti (150 000 000 fdj)
