@@ -1,0 +1,2 @@
+L’article 1° de l’arrêté n° 70-1320/PCG du 4 novembre 1970 interdisant la circulation et la commercialisation dans le Territoire de certains produits frais provenant de l’étranger est abrogé et remplacé par les dispositions suivantes :
+« Sont interdites dans l’ensemble du Territoire la circulation et la commercialisation du kath, des fruits frais et des légumes frais (à l’exception des légumes normalement consommés après cuisson) en provenance des territoires déclarés infectés par le choléra, dont la liste figure en ânnexe au présent arrêté.
