@@ -1,0 +1,1 @@
+Un congé administratif de trois mois pour en jouir à Addis-Abeba (Ethiopie), est accordé à M. Ralesa (Alfred), secrétaire contractuel en service au secrétariat général, pour compter du 2 octobre 1948.
