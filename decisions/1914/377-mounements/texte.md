@@ -1,0 +1,1 @@
+M, Guy de Nas de Tourris a été nommé à litre temporaire et pour compter du 1er Octobre 1914, dactylographe au Secrétariat Général, au traitement mensuel de 180 fr. avec droit à l’indemnité de cherté de vivres accordée aux agents auxiliaires.
