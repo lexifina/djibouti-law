@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 489 du 29 octobre 1963 de la Commission permanente de l’Assemblée Territoriale habilitant le Chef du Territoire à signer une Convention portant consolidation des avances consenties par la Caisse centrale de Coopération économique du Territoire dans le cadre des progratimes FIDES.
