@@ -1,0 +1,3 @@
+Le garde territorial de 1° classe Abdi Youssouf, matricule 315, en service à la Section de Police portuaire, est licencié de la Garde territoriale pour compter du ler juillet 1967, par mesure
+disciplinaire. Il recevra un certificat de libération.
+Ce garde, réunissant à cette date 4 ans 1 mois 28 jour de service militaire et 15 ans 4 moïs 13 jours de service dans les forces locales, soit un total de 19 ans 6 mois et 11 Jours de service, percevra une allocation viagère annuelle d’arñcienneté minorée de 2 % d’un montant de 52.920 francs (cinquante deux mille neuf cent vingt francs) payable trimestriellement et à terme échu.
