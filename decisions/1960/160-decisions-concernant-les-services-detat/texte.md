@@ -1,0 +1,2 @@
+Est acceptée pour compter du ler février 1960, la démission de Son emploi offerte par M Mohamed Bourhan, planton auxiliaire, 5° catégorie, échelle I, 3° échelon, indice local 145, en service au Ministère de la Production, de l’Elevage et de l’Agriculture.
+M. Mohamed Bourhan, qui réunit cinq mois de services effectifs, aura droit à une indemnité compensatrice de congé payé non pris à partir du l-septembre 1959, égale à 13 jours de salaire.
