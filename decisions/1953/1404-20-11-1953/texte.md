@@ -1,0 +1,1 @@
+M. Chavigny (Amédée), commis principal hors classe du Trésor, de retour de congé, est mis à la disposition du Trésorier-Payeur, pour compter du 11 novembre 1953, date de son débarquement sur le Territoire.
