@@ -1,0 +1,1 @@
+Est reporté l’arrêté d’expulsion n° 477 du 12 avril 1962 en ce qui concerne Ahmed Salem Mohamed Hanifa, Arabe Aoulaki, né vers 1911 à Ansab (Yémen), de feu Saleh Mohamed Hanifa et de Fatma Bakra, chauffeur, domicilié quartier 2, place Hadji Dideh.
