@@ -1,0 +1,1 @@
+Le salaire forfaitaire mensuel de M. Hua Da Ernest, chef d’atelier auxiliaire du service de la Voirie, est fixé, pour compter du 1er janvier 1961, à 70.000 francs Djibouti (soixante dix mille) exclusif de toutes indemnités à l’exception des allocations familiales.
