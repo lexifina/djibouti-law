@@ -1,0 +1,1 @@
+M. Moktar Djama Ahmed, aide-radio contractuel, catégorie «« Ey, ler échelon (indice 180), au service de l’Aviation civile (Météorologie) est licencié de son emploi pour « inaptitude physique » nour compter du 1er novembre 1963.
