@@ -1,0 +1,1 @@
+M. Youssouf Doualeh Elmi est autorisé à acquérir deux appartements faisant partie d’un immeuble, sis à Djibouti, quartier 2, immatriculé au Livre foncier du Territoire sous le n° 534, au nom de M. Aboubaker Mohamed Ahmed.
