@@ -1,0 +1,1 @@
+Est constatée, pour compter du 1° » août 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service des Finances (Ministère des Finances et du Plan) par M. Louis de Gonzague Randrianasolo, rédacteur de 1° classe, 2° échelon, du Cadre territorial de l’Administration générale.
