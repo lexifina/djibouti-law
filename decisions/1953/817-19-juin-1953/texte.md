@@ -1,0 +1,1 @@
+La peine de la réprimande est infiigée à l’infirmier stagiaire 10° échelon du cadre local, Abdourahman Mohamed, pour négligence dans le service et insuffisance de travail aux cours des infirmiers stagiaires.
