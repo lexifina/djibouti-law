@@ -1,0 +1,40 @@
+# Loi n° 49-758 établissant des servitudes dans l’intérêt des transmissions radioélectriques.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-49-758-etablissant-des-servitudes-dans-linteret-des-transmissions-radioelectriques/>
+
+En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
+
+## Visas
+
+L’Assemblée nationale et le Conseil de la République ont délibéré, L’Assemblée nationale a adopté, Le Président de la République promulgue la loi dont la teneur suit:
+
+## Signature
+
+VINCENT AimiOL.
+Par le Président de la République :
+Le président du conseil des ministres,
+HENRI QUEUILLE.
+Le ministre de l’intérieur,
+JULES MOCH.
+Le ministre de la défense nationale,
+PAUL RAMADIER.
+Le ministre des travaux publics,
+des transports et du tourisme,
+CHRISTIAN PINEAU.
+Le ministre de l’industrie et du commerce,
+ROBERT LACOSTE.
+Le ministre de la France d’outre-mer,
+PAUL COSTE-FLORET.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
+| [art-006.md](art-006.md) | Art. 6 |
+| [art-007.md](art-007.md) | Art. 7 |
+| [art-008.md](art-008.md) | Art. 8 |
+| [art-009.md](art-009.md) | Art. 9 |
+| [art-010.md](art-010.md) | Art. 10 |
