@@ -1,0 +1,1 @@
+Un congé de maternité de deux mois à solde entière est accordé à Mme Capo (Andrée), dame-employée auxiliaire 3e catégorie en service à l’Hôpital Principal de Djibouti, pour compter du 1er juillet 1953.
