@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 9-70 du 10 juillet 1970,du conseil d’administration de l’Office des Postes et Télécommunications modifiant la réglementation du service télex en ce qui concerne l’utilisation des postes d’abonnement par des tiers.
