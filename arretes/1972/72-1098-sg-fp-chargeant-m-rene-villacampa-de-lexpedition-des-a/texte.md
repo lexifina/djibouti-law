@@ -1,0 +1,1 @@
+M. René Villacampa, chef de division de la France d’outre-mer, chef du 2° arrondissement urbain du District de Djibouti est, cumulativement avec ses fonctions actuelles, chargé de l’expédition des affaires courantes du 3° arrondissement suburbain du District de Djibouti, pendant la durée d’absence de M. Jean Lovet.
