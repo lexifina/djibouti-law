@@ -1,0 +1,1 @@
+portant convocation du collège électoral pour l’élection de l’Assemblée Territoriale et fixant les heures du scrutin, a été publié dans un numéro spécial du « Journal Officiel » de la C.F.S. en date du 15 octobre 1963.
