@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 136/8° L du 15 juillet 1975 de la Chambré des Députés du Territoire Français des Afars et des Issas portant modification du code général des impôts — 2e partie – fiscalité indirecte.
