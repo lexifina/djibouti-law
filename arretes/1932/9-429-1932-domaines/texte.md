@@ -1,0 +1,1 @@
+il est attribué, à titre provisoire, à M. Hadji Ali Sarem, commerçant à Djibouti, le lot 115 du plan de lotissement de Djibouti, d’une superficie de 273 mètres carrés, tel qu’il est défini au plan joint au présent arrété.
