@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 393/6eL du 19 juin 1967 de la Commission Permanente de l’Assemblée Territoriale de la Côte Francaise des Somalis portant virement de crédits au budget du Service local, exercice 1967.
