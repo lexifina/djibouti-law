@@ -1,0 +1,1 @@
+Sont allouées en non valeurs à M. le Tréso rier-Payeur, les cotes indûment imposées com prises dans les rôles des contributions directes (exercice 1936) s’élevant à la somme de quatre-vingt-six francs quarante centimes (86 fr. 40).
