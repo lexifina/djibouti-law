@@ -1,0 +1,1 @@
+une permission de deux mois, dont quinze jours avec solde et indemnités , quinze jours à demi-solde et un mois sans solde, est accordée, à compter du 1er octobre 1927, au garde de 2e classe Hussein Fadal , matricule 414.
