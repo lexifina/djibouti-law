@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 5/74/SMI du 5 mars 1974 du conseil d’administration du Service médical interentreprises ayant autorisé les virements de chapitre à chapitre du budget 1973 pour la somme de 6 235 000 FD.
