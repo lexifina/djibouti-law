@@ -1,0 +1,1 @@
+Est. déclarée close, le 29 décembre 1966 à minuit, la session budgétaire de l’Assemblée Territoriale de la Côte Française des Somalis ouverte le samedi 29 octobre 1966 par arrêté n° 66/1375 du 26 octobre 1966.
