@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des So malis la loi du 9 avril 1942 étendant aux colonies les dispositions de la loi du 19 janvier 1942 relative aux biens mis sous séquestre en conséquence d’une mesure de sûreté généraL.
