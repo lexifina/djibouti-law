@@ -1,0 +1,1 @@
+Le décret du 21 mars 1924 rendant appli cable aux Colonies, autres que la Martinique, la Guadeloupe et la Réunion, ainsi qu’aux pays de protectorat dépendant du Ministère des Colonies, la loi du 7 février 1924 relative aux témoins des actes de nais sance et de décès.
