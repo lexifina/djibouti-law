@@ -1,0 +1,1 @@
+Article unidue. — Est ouvert au chapitre 4003. Hydraulique rurale, article 1° : équipement du Service, un crédit de : 6.5000.000 francs Djibouti, en autorisation de programme et en crédits de paiement, pour l’achat de quatre camions-citernes.
