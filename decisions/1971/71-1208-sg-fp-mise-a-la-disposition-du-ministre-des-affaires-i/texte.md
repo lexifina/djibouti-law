@@ -1,0 +1,1 @@
+Est constatée, pour compter du 4 septembre 1971. date de son retour au Territoire, la reprise de ses fonctions antérieures de régisseur-comptable à la prison civile de Djibouti (Ministère des Affaires intérieures) par M. Albert Chapelle, surveillant-chef de l’administration pénitentiaire.
