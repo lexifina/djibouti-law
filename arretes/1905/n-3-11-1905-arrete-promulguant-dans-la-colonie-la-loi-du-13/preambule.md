@@ -1,0 +1,2 @@
+# Préambule
+articler1 Les titres des fonctionnaires. officiers, agents on explorateurs non munis du brevet de l’Ecole Coloniale, candidats aux emplois d’Administrateur Colonial, dans les conditions tixées par les articles 4, 5, 6, 7, 8, 9 et 10 du décret organique du 6 avril 1900, doivent être pour pouvoir utilement examinés par la Commission prévue à l’article 11 du mème texte, ètre accompagnés d’un certiticat établissant que ces candidats ont suivi pendant une année scolaire les cours de l’Ecole Coloniale, dans les conditions déterminées ci-après :
