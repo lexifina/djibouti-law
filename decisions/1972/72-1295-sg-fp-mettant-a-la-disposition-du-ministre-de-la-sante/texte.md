@@ -1,0 +1,1 @@
+M. Roger Frossard, adjudant-chef en position « cadre hors budget des Armées », est, pour compter du 9 août 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’hôpital Peltier, en remplacement numérique de l’adjudant Valentin, rapatrié.
