@@ -1,0 +1,1 @@
+22 avril 1926, M. Bonfanti (Godefroy) est embauché au service des travaux publics en qualité de dessinateur auxiliaire pour comnter du 1 avril 1926. M. Bonfanti recevra un salaire journalier de 40 francs.
