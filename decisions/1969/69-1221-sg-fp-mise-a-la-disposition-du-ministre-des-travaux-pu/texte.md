@@ -1,0 +1,4 @@
+M. Daniel Gouvenot, volontaire de l’Aide technique, est,pour compter du 15 juillet 1969, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir en qualité d’ingénieur au Port de Commérce de Djibouti.
+Pour compter du 14 juillet 1969, date de son départ de métropole par voie aérienne à destination du Territoire, M. Daniel Gouvenot percevra une indemnité forfaitaire d’entretien prévue par la réglementation en vigueur.
+Pour, compter ‘de. la date de son arrivée au Territoire,il lui sera versé une indemnité de logement dans les conditions fixées par l’arrêté ministériel du 12 juin 1967, chaque fois que l’intéressé ne bénéficiera pas d’un logement en nature.
+Les dépenses afférentes à la présente décision sont imputablés au budget annexe du Port de Commerce.
