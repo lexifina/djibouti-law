@@ -1,0 +1,1 @@
+M. B. Astraud est autorisé à exploiter dans l’établissement du Bar de l’Aérogare, sis à l’Aéroport de Djibouti, une licence de 3e classe pour la vente à consommer sur place de boissons alcooliques ou hygiéniques (vente par intermittence),
