@@ -1,0 +1,2 @@
+Le séjour dans le District de Djibouti et dans les cercles de Tadjourah et d’Obock est interdit à Abdillahi Eleyeh Ali, né vers 1941 à Djibouti, condamné le 25 mars 1967 par le Tribunal d’Instance de Djibouti, à un an d’emprisonnement et cinq ans d’interdiction .de séjour pour infraction à un arrêté d’expulsion ;
+le 22 mai 1969 à 4 mois de prison et 5 ans d’interdiction de séjour pour vol et détention d’armes ; le 24 avril 1970 à 18 mois de prison pour vols, écroué le 24 mars 1974, libéré le 2 octobre 1974.
