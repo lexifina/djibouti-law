@@ -1,0 +1,2 @@
+Le milieien de 2e classe Mohamed Ali Hassan, matricule 2492, de la 4 Compagnie de Milice à Damerdjog, arrivant en fin de contrat le 16 octobre 1966, ne sera pas rengagé et sera licencié pour inaptitude à l’emploi à compter du 17 octobre 1966, date à laquelle il sera rayé des contrôles du Corps. Il recevra le certificate de bonne conduite.
+Totalisant six ans de services effectifs à la Milice, l’intéressé percevra une indemnité égale à trois mois de solde nette, à savoir : dix-sept mille sept cent dix-huit francs Djibouti (17.718 FD), à l’exclusion de toute autre indemnité.
