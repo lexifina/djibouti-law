@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 166/7°L du 3 avril 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à M. Abdoulkader Dini Ahmed la concession provisoire d’une parcelle de terrain sis à Ambouli.
