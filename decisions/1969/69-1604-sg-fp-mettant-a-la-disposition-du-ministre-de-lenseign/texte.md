@@ -1,0 +1,1 @@
+M. Jean Le Lay, professeur d’éducation physique et sportive 6e échelon, est, pour compter du 6 octobre 1969, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir au lycée mixte de Djibouti.
