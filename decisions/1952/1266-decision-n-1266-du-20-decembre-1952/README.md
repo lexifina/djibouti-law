@@ -1,0 +1,9 @@
+# Décision n° 1266 décision n° 1266 du 20 décembre 1952
+
+Décision · Journal officiel de la République de Djibouti, n° 1 du 01/01/1953 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1266-decision-n-1266-du-20-decembre-1952/>
+
+En vigueur : 1953-01-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | me Schmidt, dame employée auxiliaire l’° catégorie, en service au Trésor, est admise à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisée, pour compter du 8 septembre 1992. |
