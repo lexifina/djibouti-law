@@ -1,0 +1,2 @@
+— l’ordonnance n° 45-2050 du 8 septembre 1945 validant les actes promulgués depuis le 16 juin 1940 en matière d’assurance des marins français du commerce, de la pêche ou de plaisance et des agents du Service général à bord des navires contre la vieillesse, l’accident, la maladie, l’invalidité et le décès et portant modification à ces textes ;
+— l’ordonnance n° 45-2059 du 8 septembre 1945 portant extension à l’Algérie et aux territoires relevant du Ministère des Colonies de la législation sur la reconstruction aux dommages causés par la guerre.
