@@ -1,0 +1,1 @@
+un congé de convalescence à passer en France est accordé au Docteur Morel, qui prendra passage, avec sa famille, sur le paquebot des Messageries Maritimes, attendu à Djibouti le 15 février 1913. Le Docteur Le Fers, sera provisoirement chargé du service de santé et de la comptabilité de l’hôpital.
