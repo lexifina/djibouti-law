@@ -1,0 +1,1 @@
+les sieurs Rewasankar, Medawda et Rachid Daflabhay qui, sans motif valable, se sont abslenus d’assister, pendant plus de Irois mois, aux séances de la Chambre de commerce de Dibouli, sont déclarés désissionnaires de leur qualité de membres de colis Assemblée,
