@@ -1,0 +1,1 @@
+M. Depommier Maurice, administrateur de 7e échelon de la France d’Outre-Mer, en service au Cabinet Civil, est nommé, pour compter du 16 mai 1962, chef de Cabinet du chef de Territoire en remplacement de M. Bonneau Robert, administrateur en chef de 2e échelon des Affaires d’Outre-Mer, titulaire d’un congé.
