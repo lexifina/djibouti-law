@@ -1,0 +1,1 @@
+Mme Ali Mohamed Louchia est autorisée à exploiter à Djibouti, rue de Londres, une licence de boissons de 3° classe, pour la vente par ämfermittence de boissons alcooliques ou hygiéniques à consommer sur place.
