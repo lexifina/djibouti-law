@@ -1,0 +1,1 @@
+est rendu executoire la delibration n°202/7eL du 27 juillet 1971 de la commission permante de la chambre des depute de la territoire française des afar des afar et issa portant approbation la compte administratif de la chambre de commerce et d’industrie de djibouti pour l’exercice 1970.
