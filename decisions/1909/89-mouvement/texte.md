@@ -1,0 +1,1 @@
+M. Lasssigne (Georges) administrateur-adjoint de se classe des Colonies est nommé chef du Service des Affaires Indigénes et remplira également les fonctions de Juge Président du Tribunal Indigène du 1er decrét en remplacement de M. Roucou.
