@@ -1,0 +1,1 @@
+Jacques Pineau, médecin de 1er classe, en position < hors cadres», est, pour compter du 22 octobre’ 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des, la Santé publique et des Affaires sociales, en remplacement du médecin de 2° classe Marjou, rapatriable.
