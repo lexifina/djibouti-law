@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 12/8eL, du 21 décembre 1973 de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du budget annexe de la Résie des eaux de Djibouti pour l’exercice 1974.
