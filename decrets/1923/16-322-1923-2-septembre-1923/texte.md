@@ -1,0 +1,1 @@
+M Lhermitte, Procurevr de la Hépublique, Chef du service judiciaire à la Côte Française des Somalis, est nomané Conseiller à la Cour d’appel de la Martinique, en remplacement de M. Thalv. admis à faire valoir ses droits à la retraité.
