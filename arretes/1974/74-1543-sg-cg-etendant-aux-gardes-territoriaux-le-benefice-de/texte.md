@@ -1,0 +1,1 @@
+Le bénéfice de l’indemnité temporaire de cherté de vie institué par arrêté n° 74-5/SG/CG du 21 janvier 1974 est étendu pour compter du 1‘ janvier 1974 aux personnels non fonctionnaires et non conventionnés de la Garde territoriale suivant les modalités fixées-par arrêté sus-référencié.
