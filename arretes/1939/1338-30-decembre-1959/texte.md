@@ -1,0 +1,3 @@
+M. l’administrateur en chef des colonies Jourdain, inspecteur des affaires administratives, est délégué pour l’année 140 dans les fonctions de président Conseil du contentieux administratif de! la Côte francaise des Somailis.
+Les fonctions de commissaire du Gouvernement près le Conseil du contentieux administratif seront exercées pendant l’année 1940 par M. Poisson, administratenur-adioint des colonies.
+Sont désignés pour la même période comme membres magistrats , adjoints au Conseil d’administrat ion siégeant au contentieux : MM. Salmon, président du tribunal sapérieur d’appel . Ropagnol, jugesuppléant.
