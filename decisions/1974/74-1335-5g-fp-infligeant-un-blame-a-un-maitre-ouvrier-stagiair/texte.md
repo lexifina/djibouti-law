@@ -1,0 +1,1 @@
+Un blâme aveec inscription au dossier est infligé à M. Aden Warsama Doualé, maître-ouvrier du livre stagiaire, en service à l’Imprimerie administrative pour attitude incorrecte et insolente à l’égard de son chef de service.
