@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 127/8e L du 7 juin 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas, régularisant le déplacement du Président de la Chambre des Députés, Paris-Djibouti-Paris, à l’occasion de la visite du Secrétaire d’Etat aux dévartements et territoires d’outre-mer.
