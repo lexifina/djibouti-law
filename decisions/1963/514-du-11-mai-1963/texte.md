@@ -1,0 +1,3 @@
+M. Duverneuil, surveillant des travaux du Cadre supérieur des Travaux publics, est provisoirement chargé, cumulativement avec ses fonctions actuelles, de celles de géomètre du Service des Domaines, en remplacement de M. Mathieu en congé de maladie en France.
+Une indemnité forfaitaire mensuelle de quinze mille francs Djibouti (15.000 F.D.) au titre de travaux supplémentaires lui est accordée durant la période d’indisponibilité de M. Mathieu pour compter du 1er mai 1963.
+La dépense est imputable au Budget local, chapitre 8, article 5, $ 1 Avant d’entrer en fonction, M. Duverneuil prêtera le serment
