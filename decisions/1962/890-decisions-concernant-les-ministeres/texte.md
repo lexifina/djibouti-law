@@ -1,0 +1,1 @@
+M. Obsieh Boeuh Abdallah, commis auxiliaire (échelle VI, 1 échelon, indice 465), en service au Ministère des Travaux Publics et du Port, est mis à la disposition du Ministre de la Production, de l’Elevage et de l’Agriculture pour compter du 1 juin 1962, en remplacement de M. Abdourahman Osman, licencié.
