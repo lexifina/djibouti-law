@@ -1,0 +1,1 @@
+M. Pierre Vellut, conducteur des TPE, 5e échelon est, pour compter du 21 novembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publié Transports et du Tourisme, pour servir à la subdivision infrastructure des Travaux Publics en remplacement numérique de M. Arsène Plenet, rapatrié.
