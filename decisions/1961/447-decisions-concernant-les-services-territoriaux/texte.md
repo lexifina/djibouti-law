@@ -1,0 +1,3 @@
+Il est alloué à M. Sylva René, attaché de 2° classe 2° échelon de la France d’Outre-Mer, indice 390, en service au Bureau des Finances, une indemnité pour sujetions particulières dont le montant annuel est fixé à huit cent quarante nouveaux francs (840).
+Cette indemnité est exclusive de toute autre indemnité pour travaux supplémentaires ou pour services rendus. Elle sera payée en monnaie locale d’après la parité en vigueur au cours de la période sur laquelle porte la liquidation multipliée par l’index de correction applicable à la solde.
+La présente décision aura effet pour compter du 25 mars 1961.
