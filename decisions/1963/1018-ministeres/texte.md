@@ -1,0 +1,2 @@
+Le Médecin-Commandant Husson Yves, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 28 juin 1963 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 6 juillet 1963, date de son arrivée sur le Territoire.
+Cet Officier supérieur est désigné pour occuper les fonctions de chef des Sérvices Chirurgicaux à l’Hôpital Péltier pour comptèr du 16 juillét 1963, en remplacement du Médecin-Commandant Aubert, rapatriable.
