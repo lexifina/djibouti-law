@@ -1,0 +1,1 @@
+paru au Journal officiel de la République française du 17 juillet 1932, M. Naoumtchenko (Serge), employé, né lé 23 janvier 1885, à Kieff (Russie), demeurant à Djibouti (Côte francaise des Somalis), a été naturalisé Français.
