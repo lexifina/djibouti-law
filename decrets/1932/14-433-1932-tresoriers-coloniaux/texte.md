@@ -1,0 +1,2 @@
+Par décret en date du 7 décembre 1932, rendu sur le rapport du Ministre des finances AL Décieux (Georges-Tlenri-Hippolyte ), trésorier-payeur de la (‘ôte francaise des Somalis, a 6t6 nommé trésorier-payeur des établissements francais dans l’Inde, en remplacement de. M. Bé “ard, admis à faire valoir ses droits à la retraite.
+M. Georges (Richard), ancien député, à été nommé trésorier-payeur de la Côte française des Somalis, en remplacement de M. Décieux.
