@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 351/7e L, du 18 mai 1973 de la Chambre des députés du Territoire français des Afars et des Issas portant modification de la délibération n° 37/7e L, portant organisation de la Garde territoriale du Territoire français des Afars et des Issas.
