@@ -1,0 +1,2 @@
+Il est alloué au CO.G.ED.E.P. une subvention de cinq mille trois cent cinq nouveaux francs quatre-vingts centimes (5.305,80 NF) soit deux cent trente mille six cent quatre-vingt-six francs Djibouti (230.686 FD.) pour participation aux frais de transport et indemnité dite «argent de poche» à l’occasion du stage en métropole de dix jeunes originaires du Territoire.
+Cette dépense sera imputable sur le budget local en son chapitre 2.
