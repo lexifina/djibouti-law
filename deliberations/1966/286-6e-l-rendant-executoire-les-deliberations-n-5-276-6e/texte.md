@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 830 du 31 mai 1966, la Commission permanente de l’Assemblée Territoriale a accordé à M. Dilleita Mohamed Moussa la concession provisoire d’une parcelle de terrain d’une superficie de 648 mètres carrés, sise à Djibouti, au prix de 1 franc le mètre carré.
