@@ -1,0 +1,1 @@
+M. Vignon (Robert), instituteur de 4e classe du Cadre métropolitain, en service au Groupe scolaire de Djibouti, est chargé par intérim des fonctions de Directeur du Groupe scolaire de Djibouti pendant le congé administratif de M. Depouilly.
