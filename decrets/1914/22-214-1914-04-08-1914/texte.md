@@ -1,0 +1,1 @@
+En raison de l’état de guerre existant entre la République française et l’empire allemand, l’exequatur qui avait été accordé aux consuls généraux, consuls, vice-consuls et agents consulaires allemands sur le territoire de la République, de l’Algérie, des colonies et possessions françaises est retiré.
