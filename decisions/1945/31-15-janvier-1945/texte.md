@@ -1,0 +1,1 @@
+MM. COMBES Leon, controleur des P.T.T. en mission, DESSAIGNE Xavier. mécanicien auxiliaire, AOUALE AHMED, auxiliaire. en service à la Station intercoloniale de T.S.F., sont autorisés à effectuer des h ures supplémentaires de travail pour le compte du Service de l’Information.
