@@ -1,0 +1,1 @@
+M. Mohamed Aden Ahmed Dini, administrateur adjoint de 1er échelon du Cadre territorial, est mis à la disposition du Ministre des Affaires intérieures et affecté au Service territorial de l’Administration générale.
