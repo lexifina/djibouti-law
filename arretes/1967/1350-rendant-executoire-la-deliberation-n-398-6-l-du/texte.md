@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 398/6eL du 29 juin 1967 de la Commission Permanente de la Côte Française des Somalis prorogeant la délibération n° 295 du 24 février 1962 concernant la réglementation de la chasse en Côte Française des Somalis.
