@@ -1,0 +1,1 @@
+M Hassan Areyeh Barkadleh, contrôleur de 2 classe, 670) du Cadre territorial des Postes et Télécommunications, qui a été exclu temporairement, pour une durée de six mois à compter du octobre 1967, de ses fonctions, est autorisé à titre exceptionnel à reprendre ses fonctions antérieures à l’Office des Postes et Télécommunications pour compter du 1er février 1968.
