@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 50/8e L du 15 juin 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas envoyant en mission en métropole douze membres de la Chambre des députés.
