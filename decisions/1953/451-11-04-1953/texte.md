@@ -1,0 +1,1 @@
+Les épreuves de 1 examen du certificat d’études primaires élémentaires sont fixées au mardi 12 mai 1953. Elles commenceront à 7 heures et se dérouleront dans les salles de l’école publique de Djibouti.Les inscriptions seront reçues au bureau du Chef du Service de l’Enseignement jusqu’au dimanche 3 mai 1953.
