@@ -1,0 +1,1 @@
+M. Mohamed Aden, administrateur du Cadre territorial, chef du Service des Affaires administratives, est cumulativement avec ses fonctions actuelles, chargé, à titre provisoire, des fonctions de conseiller technique du Ministre de l’Intérieur et des Affaires musulmanes, en remplacement de M. Jacques Herry, bénéficiaire d’un congé à passer en Métropole,
