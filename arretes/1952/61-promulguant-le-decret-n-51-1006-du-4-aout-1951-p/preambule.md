@@ -1,0 +1,2 @@
+# Préambule
+Art 1er. — Est promulguée, dans le Territoire de la Côte Française des Somalis, le décret n° 51-1006 du 4 août 1951 portant règlement d’administration publique fixant les conditions d’accès des capitaines de port du cadre général du personnel des ports et rades de la France d’Outre-Mer et des adioints techniques principaux du cadre général des Travaux publics, des Mines et des Techniques industrielles Ge la France d’Outre-Mer aux classes exceptionnelles crées par le décret n° 49-508 du 14 avril 1949.
