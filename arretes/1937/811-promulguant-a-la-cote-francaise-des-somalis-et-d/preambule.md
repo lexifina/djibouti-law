@@ -1,0 +1,6 @@
+# Préambule
+Alt. 1er. Soin promulgués a la Côte française des Somalis et dépendances :
+1° Le décret du 29 juin 1937 portant publication et mise en application provisoire de l’avenant à la convention commerciale du 29 août 1929 cuire la France et la Turquie, signé à Ankara, le 15 juin 19337 (voir Journal oljirhl de la République fran«aise du 30 juin 1937, page 7386) :
+2° Le décret du .19 juin 19337 concernant la mise en application, à titre provisoire, des dispositions contenues dans l’échange de lettres du 19 juin 1937 portant renouvellement et modification du modus vivendi commercial conclu entre la France et l’Italie le 11 août 1936 voir Journal officiel de la République française du 1er juillet 1937, page 7129) ;
+3° Le decret du 19 juillet 1937 portant publication et mise en application, à titre provisoire, de l’accord franco-allemand sur les échanges commerciaux, signe a Paris le 10 juillet 1937 (voir Journal officiel de la République française des 19 et 20 juillet 1937, page 8165) ;
+4° Le décret du 19 juillet 1937 portant publication et mise en application, à titre provisoire, de l’accord franco-allemand sur les payements commerciaux, signé à Paris le 19 juillet 1937 (voir Journal officiel de la République française des 19 et 20 juillet 1937, page 8232).
