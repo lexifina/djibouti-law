@@ -1,0 +1,2 @@
+Un congé administratif de six mois, pour en jouir dans la Métropole, est accordé à M. Grouiller (André), commis principal de 1er classe des Trésoreries colonies, qui a accompli le 27 avril 1951 un séjour de deux ans dans le Territoire.
+Une réquisition de passage par voie aérienne Djibouti-Nice et une réquisition par voie ferrée Nice-Marseille seront délivrées à l’intéressé qui appartient au groupe II.
