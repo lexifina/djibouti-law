@@ -1,0 +1,1 @@
+M. Barnasson (André), chef de service du Trésor métropolitain, commis principal de 1re classe des Trésoreries d’Outre-Mer, est désigné pour remplir les fonctions de deuxième fondé de pouvoirs de la Trésorerie de la Côte Française des Som alis, en remplacement et pendant l’absence de M. Peretti, bénéficiaire d’un congé administratif de neuf mois, pour compter du 19 mai 1953.
