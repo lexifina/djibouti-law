@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 830 du 31 mai 1966, la Commission permanente de l’Assemblée Territoriale a accordé à M. Orbisso Gaddito Hassan la concession provisoire d’une parcelle de terrain, sise à Ambouli (lot 94), d’une superficie de 2.400 mètres carrés, au prix de 50 francs le mètre carré.
