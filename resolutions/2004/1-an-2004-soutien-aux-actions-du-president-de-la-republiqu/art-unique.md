@@ -1,0 +1,26 @@
+# Article unique
+L’Assemblée nationale,
+– VU La Constitution du 15 septembre 1992, particulièrement en son article 61 ;
+– VU La Résolution n°21AN/9313ème L du 23 juin 1993 portant Règlement intérieur de l’Assemblée, spécialement en son article 99 ;
+– VU le Circulaire n°168/AN/SG/MM du 11 avril 2004 convoquant l’Assemblée nationale en session ordinaire,
+a. après avoir examiné et débattu du rapport sur la politique générale du Gouvernement présenté par le Premier Ministre le 14 avril 2004 conformément à l’article 61 de la Constitution ;
+b. ayant analysé les réalisations et projets relatifs aux différents départements ministériels et saisi les explications des membres du Gouvernement ;
+c. approuvant et appréciant à leur juste valeur les initiatives et les investissements ambitieux dont le méga projet de Doraleh et la modernisation des moyens des télécommunications ainsi que du réseau routier entrepris par le Gouvernement avec des opérateurs étrangers pour doter le pays d’un environnement et d’un appareil économiques performants ;
+d. convaincue de la poursuite des efforts du Président de la République pour le développement du pays par la mise en valeur de ses ressources naturelles et des potentialités humaines sans oublier la préservation de l’environnement,
+1. se satisfait de la bonne atmosphère d’amitié, de coopération, de compréhension franche et mutuelle qui a prévalu tout au long du déroulement du débat, ce qui dénote une parfaite maîtrise de la démocratie par les protagonistes politiques de la majorité ;
+2. rend hommage au Gouvernement pour les actions menées sous l’impulsion de Son Excellence le Président de la République, M. Ismaël Omar Guelleh, en vue de maîtriser le déficit public par une gestion rationnelle des ressources, une maîtrise de l’inflation et une confiance absolue des partenaires internationaux à notre pays et à ses institutions ;
+3. invite l’Exécutif à renforcer les moyens dont dispose la justice pour la rendre performante puisque des institutions judiciaires et des mécanismes de contrôle indépendants, impartiaux et efficaces sont les garants de l’état de droit et les conditions idéales du développement économique et social du pays ;
+4. encourage le Gouvernement à poursuivre ses actions tendant à promouvoir une meilleure intégration des femmes dans le processus de prise de décision et leur permettre une plus grande représentativité et visibilité ;
+5. attire l’attention du Gouvernement sur la nécessité de renforcer les moyens humains et matériels mis à la disposition de la Jeunesse, des Sports et de la Culture et de mettre sur pied une politique et une stratégie nationales d’envergure pour un meilleur développement et une meilleure prise en main de notre jeunesse pour un épanouissement conséquent et la détection des talents précoces ;
+6. encourage le Gouvernement à poursuivre dans cette voie des réformes en adaptant les structures économiques et sociales aux normes et standards internationaux les plus performants possibles étant donné que notre économie est basée sur les services, et à relever les défis de la mondialisation ;
+7. apprécie les résultats encourageants enregistrés par les indicateurs économiques qui présentent un taux de croissance positif supérieur au taux démographique, signe d’une reprise et d’une amélioration de la qualité de vie des citoyens notamment par la création d’emplois nouveaux dans le cadre de la lutte contre la pauvreté ;
+8. assure le Président de la République et son Gouvernement de son ferme soutien d’accompagner leurs efforts et d’appuyer les orientations politiques pour le développement du pays et le bien-être social ;
+9. appelle l’attention du Gouvernement sur la nécessité d’accélérer une mise en place d’une politique et d’une stratégie nationales pour le développement des infrastructures d’information et de communication, particulièrement pour fournir des opportunités d’emploi et de formation pour les jeunes diplômés dans les secteurs des nouvelles technologies ;
+10. recommande au Gouvernement de rechercher, trouver et favoriser des nouvelles voies de coopération Sud/Sud (pays arabes, pays du sud-est asiatique, etc.) en vue de diversifier les partenaires économiques tout en renforçant les liens existant avec les alliés traditionnels ;
+11. félicite les nouvelles orientations et choix diplomatiques actifs, diversifiés et sans exclusive au service de la paix et du développement initiés par le Président de la République ;
+12. souhaite que les mesures appropriées soient prises et les moyens nécessaires mis en oeuvre par le Gouvernement pour l’exécution dans les meilleurs délais du Projet d’aménagement intégré de l’Oued d’Ambouli afin que ces catastrophes ne se répètent pas dans l’avenir ;
+13. demande au Gouvernement de lui soumettre le plus tôt possible un rapport relatif à la gestion de la catastrophe naturelle des pluies diluviennes du 13 avril 2004 ;
+14. encourage enfin le Gouvernement à continuer à collaborer avec l’Assemblée nationale dans le même état d’esprit, notamment en améliorant l’accès pour les députés aux informations dont ils ont besoin pour accomplir convenablement leurs missions.
+Le Président de l’Assemblée Le Secrétaire de l’Assemblée
+nationale nationale
+Idriss Arnaoud Ali Abdillahi Egueh Offleh
