@@ -1,0 +1,1 @@
+M. Hildenbrand, contrôleur principal de 4e classe des douanes, est chargé de la gestion du Bureau central des douanes à Djibouti, pendant l’absence de M. Sauteron, inspecteur central des douanes, se rendant en Ethiopie.
