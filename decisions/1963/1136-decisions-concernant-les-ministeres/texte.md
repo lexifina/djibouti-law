@@ -1,0 +1,1 @@
+Le maréchal des logis d’Artillerie de Marine Le Floch Jean-Piérre (B.C.S, B.L! AEB), est affecté en qualité de chef de garage de la 2e Compagnie de Milice du détachement de Milice d’Obock et du Cercle de Tadjourah pour compter du 20 septembre 1963.
