@@ -1,0 +1,20 @@
+# Loi n° 82/AN/84/1re L accordant une parcelle de terrain domanial en concession provisoire (rectificatif à la loi n° 50/AN/83/1re L).
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-84-1re-l-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire-rectificatif-a-la-loi-n50-an-83-1re-l/>
+
+En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
+
+## Visas
+
+L’ASSEMBLÉE NATIONALE A ADOPTÉ
+LE PRÉSIDENT DE LA RÉPUBLIQUE PROMULGUE
+LA LOI DONT LA TENEUR SUIT :
+
+VU les lois constitutionnelles n°LR/77-001 et 77-002 en date du 27 juin 1977 ;
+VU l'ordonnance n°LR/77-008 en date du 30 juin 1977 ;
+VU le décret du 29 juillet 1924 fixant et organisant le domaine privé dans le territoire ensemble l'arrêté d'application du 08 décembre 1925.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | Article 2 |
