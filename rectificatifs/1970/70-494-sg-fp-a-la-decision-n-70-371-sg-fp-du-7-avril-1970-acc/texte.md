@@ -1,0 +1,5 @@
+Au lieu de :
+«Art. 1er. — Un congé administratif de six mois huit jours à passer à Niort (79), 800, route d’Aiffres, est accordé à M. Rémy Boudaud, conducteur principal des Travaux publics de l’Etat (8e échelon, groupe III), en service au port de commerce de Djibouti (Ministère des Travaux publics et du Port), qui aura accompli au 1e juin 1970 2 ans 1 mois de séjour ininterrompu outre-mer.
+Lire:
+«Art, 1er. — Un congé administratif de six mois six jour à passer à Niort (79), 800, route d’Aiffres, est accordé à M. Rém Boudaud, conducteur principal des Travaux publics de l’Eat (8e échélon, groupe III), en service au port de commerce d Djibouti (Ministère des Travaux publics et du Port), qui aura accompli au 27 mai 1970 2_ans 26 jours de séjour ininterromp outre-mer.
+«Art. 2. — Une réquisition de passage par voie aérienn Djibouti-Paris, en classe touriste, sera délivrée à M, Rémy Bot daud, qui voyagera accompagné de-son épouse et de ,ses trois enfants: Dominique, né le 22 août 1953, Catherine, née 12 février 1957, et Laurence née le 23 février 1966, et quitter le Territoire par l’avion régulier du 27 mai 1970.
