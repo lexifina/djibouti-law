@@ -1,0 +1,1 @@
+est rendu exécutoire le premier rôle supplémentaire de la taxe personnelle, im pôt locatif, taxe de voirie (exercice 1937), comprenant vingt-six articles et s’élevant à la somme de six mille six cent vingt-quatre francs vingt centimes
