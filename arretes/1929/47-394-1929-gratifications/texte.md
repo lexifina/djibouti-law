@@ -1,0 +1,1 @@
+M. Roque (Henri-Isidore-Joseph), adjoint principal de classe exceptionnelle avant deux ans, du cadre local des services civils, est admis à faire valoir ses droits à la retraite pour infirmités, à compter du 27 octobre 1929.
