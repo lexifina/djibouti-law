@@ -1,0 +1,1 @@
+M. Pierre Brizio, instituteur du Cadre métropolitain de 4e échelon, du département de la Seine-Maritime, en instance de détachement, est, pour compter du. 18 septembre 1970, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
