@@ -1,0 +1,1 @@
+M. Mohamed Houssein Kahin, alias Fantass, expéditionnaire d’Administration de 2e classe, 2e échelon du Cadre Territorial de l’Administration Générale, en service au Trésor de Djibouti, est déféré devant lé Conseil de Discipline pour complicité du délit de diffamation à l’égard du Ministre des Finances.
