@@ -1,0 +1,3 @@
+Le Sergent-Chef Waiss Farah, mle 23 de la Garde Territoriale, est admis à faire valoir ses droits à la retraite d’ancienneté pour conuater du 1 août 1962.
+Il sera rayé des contrôles de la Garde Territoriale le dit jour, et recevra le certificat de bonne conduite.
+Ce gradé, totalisant à cette date 5 ans de service militaire et 16 ans 5 mois et 22 jours de service dans les Forces Locales soit un total de 21 ans, 5 mois et 22 jours de service, percevra une allocation viagère annuelle d’ancienneté de soixante dix huit mille francs (78.000 fr.) payable trimestriellement par le Service des Finances de Diibouti sauf avis contraire de ce Service.
