@@ -1,0 +1,1 @@
+Art. ler. – L’immeuble sis à Djibouti, angles des rues de Rome, de Verdon, Royen titre foncier n° 89 appartenant à Mme Anna Kebari Asgiedon, représentée à Djibouti par M. Mohamed Moussa Awlé dont l’état de délabrement et de vétusté risque par effrondrement de compromettre la sécurité publique devra être démoli pour la partie ler étage.
