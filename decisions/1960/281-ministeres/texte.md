@@ -1,0 +1,1 @@
+M. Mohamed Saïd Ahmed, Serrurier auxiliaire en service aux Bases Aériennes (T.P. Etat) est mis à la disposition du Ministre des Travaux Publics et du Port pour compter du 6 février 1960 en remplacement numérique de M. Giustiniani Jean, Conducteur principal des Travaux Publics, appelé à d’autres fonctions.
