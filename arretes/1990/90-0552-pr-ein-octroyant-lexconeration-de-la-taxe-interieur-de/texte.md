@@ -1,0 +1,1 @@
+Est exonéré de la taxe intérieure de consommation TIC le véhicule Cadillac Fleetwood Limousine, d’une valeur de 11 295 000 FD importe par l’Armée nationale et destiné à Monsieur le Président de la République.
