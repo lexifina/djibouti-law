@@ -1,0 +1,1 @@
+Le montant maximum de l’encaisse du directeur comptable de l’hôpital qui avait été fixé à 3.000 francs par arrêté du 24 avril 1930 est porté à 5.000 francs (cinq mille francs) à compter du 1 er décembre 1937.
