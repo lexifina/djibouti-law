@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 96/7° L du 24 mars 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas autorisant un virement de crédits de chapitre à chapitre sur le budget annexe du Port, exercice 1969.
