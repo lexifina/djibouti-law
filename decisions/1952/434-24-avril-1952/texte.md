@@ -1,0 +1,1 @@
+Le traitement mensuel du nommé Ahmed Cavallié, employé de bureau en service à la Régie des Eaux, est fixé à 19.860 francs pour compter du 1er juillet 1951 et à 21.150 francs pour compter i du 1er janvier 1952.
