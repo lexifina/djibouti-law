@@ -1,0 +1,1 @@
+Un conge de convalescence de un mois à solde entière, pour en jouir en Ethiopie (Harrar), est accordé à Mme Maria-Johana Wan Wegen, en religion Sœur Saint-Barthélemy, en service à l’Hôpital Principal de Djibouti.
