@@ -1,0 +1,1 @@
+Article ler. – L’immeuble sis à Djibouti, place Ménélik – angle rue de Paris, titre foncier n°390, appartenant à M. Saleh Mouti et M. Akil Fikree, dont l’état de délabrement et de vétusté risque par effondrement de compromettre la sécurité publique, devra être démoli pour la partie supérieure, y compris le premier étage.
