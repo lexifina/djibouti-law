@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 8/8e L dù 15 décembre 1973 de la Chambre des Députés du TFAÏI portant interdiction d’abattage, de mutilation et de saignée des palmiers dans lensemble du TFAI.
