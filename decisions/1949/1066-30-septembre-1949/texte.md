@@ -1,0 +1,1 @@
+M. Pau (Gabriel), admistrateur adjoint de 1er classe des colonies, commandant du cercle de Djibouti, assurera l’intérim de chef de cabinet civil, pendant l’absence de M. Bénazet, chargé de mission à l’étranger.
