@@ -1,0 +1,2 @@
+Est mis fin à la date du 30 juin 1961 au détachement de M. Abdoulkader Waberi, commis de 1er classe, 2e échelon des Services Administratifs et Financiers du Cadre Territorial de la Côte Française des Somalis, auprès de la R.T.F. (Radio-Djibouti).
+M. Abdoulkader Waberi, commis de 1er classe, 2e échelon des Services Administratifs et Financiers est réintégré dans son cadre d’origine pour compter du 1er juillet 1961 et mis à la disposition du Ministre des Finances, des Affaires Economiques et du Plan pour compter de cette date.
