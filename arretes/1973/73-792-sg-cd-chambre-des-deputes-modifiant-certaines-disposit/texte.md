@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 342/7e L du 10 mai 1973 de la Chambre des Députés du Territoire français des Afars et des Issas modifiant certaines dispositions de la loi n° 66-537 du 24 juillet 1966 sur les sociétés commerciales.
