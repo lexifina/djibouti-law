@@ -1,0 +1,1 @@
+L’autorisation d’exploiter, quaïtier de la Plaine à Djibouti, une licence de 1re classe pour la vente de boissons alcooliques ou-hygiéniques à consommer sur place ou à emporter; est transférée de Mme Léfert Isabelle, à M. Arnault Guy.
