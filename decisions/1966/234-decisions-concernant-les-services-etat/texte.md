@@ -1,0 +1,1 @@
+Est accordée à MM. Abdi Warsama et Houssein Douale,l’autorisation préalable de remblayer et de construire les terrains situés au Nord du lieudit «La Brise de Mer », constituant les lots n° 418 et 419 du Livre foncier du Territoire.
