@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n °1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Mohamed Djama Elabé la concession provisoire d’une parcelle de terrain d’une superficie de deux mille cent vingt mètres carrés environ, sise à Arta (titre foncier n° 360), au prix de cinq francs le mètre carré.
