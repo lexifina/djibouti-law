@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances le décret du 9 septembre 1942 réservant les droits des justiciables dans certains territoires relevant du Secréta riat d’Etat aux colonies.
