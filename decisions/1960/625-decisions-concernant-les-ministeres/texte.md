@@ -1,0 +1,2 @@
+Est acceptée pour compter du 13 juin 1960 la démission de son emploi offerte par Mme Enjalric (Rose), secrétaire dactylo-graphe auxiliaire, échelle X, ler échelon (indice 805), en service aux Finances.
+Mme En:ialric (Rose). qui compte depuis son engagement 7 mois et 13 jours de services effectifs, période du 1er novembre 1959 au 13 juin 1960, aura droit à une indemnité compensatrice de congétégale à 19 jours de salaire.
