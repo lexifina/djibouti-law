@@ -1,0 +1,1 @@
+le nommé Conizakis Stamatis, de nationalité grecque, est expulsé de la Côte française des Somalis et devra quiter, dans un délai expirant le 12 janvier 1933, le territoire de la colonie, qui lui reste interdit, ainsi que celui de ses dépendances.
