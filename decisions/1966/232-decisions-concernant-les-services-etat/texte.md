@@ -1,0 +1,1 @@
+M. Hizam Ghaleb, citoyen français, C.I.F. n° 627, demeurant à Djibouti, est autorisé à acquérir la moitié d’un immeuble sis à Djibouti, place Rimbaud, et immatriculé au Livre foncier sous le n° 149 au nom de MMMohamed et Saïd Salem Mouti.
