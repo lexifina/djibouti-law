@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 27 février 1942, modifiant le 1er alinéa de l’article 4 et l’avant dernier alinéa de l’article 5 de la loi du 13 août 1940 portant interdiction des associations secrètes.
