@@ -1,0 +1,1 @@
+La Société l’exploitation Bar-Restaurant-Hotel, SARL, dont les gerentes a sont M™ Cestac et Aubin, est autorisée a exploiter recommerce des boissons, licence de ite classe b, au piateau du Marzbout,boulevard M. Gallieni, immeuble de M. Valent a Djibouti.
