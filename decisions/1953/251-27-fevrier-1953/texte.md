@@ -1,0 +1,1 @@
+M. Mahfoud Mohamed, infirmier stagiaire 10e échelon, en service à l’Annexe de l’Hôpital Principal de Djibouti, est licencié de son emploi, pour compter du 1er mars 1953, pour faute grave dans le service.
