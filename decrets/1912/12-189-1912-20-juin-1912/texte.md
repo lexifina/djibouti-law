@@ -1,0 +1,1 @@
+M. le Ministre des Colonies a approuvé les dispositions de l’arrêté ci-après, fixant les conditions d’application à la Côte Française des Somalis du décret du 25 septembre 1911, modifiant la réglementation des passages du personnel colonial.
