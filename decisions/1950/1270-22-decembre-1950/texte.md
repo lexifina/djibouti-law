@@ -1,0 +1,1 @@
+Arbabim Moussa, Dankali, akel des Adoras sou Fndihitté, est nommé cadi cle Yoboki. Il entrera en fonctions le 1er janvier 1953 et percevra, à partir de cette date et en plus do sa solde d’akel, une gratification mensuelle de mille francs (1.000 francs).
