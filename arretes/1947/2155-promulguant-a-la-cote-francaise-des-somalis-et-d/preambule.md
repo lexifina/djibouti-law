@@ -1,0 +1,5 @@
+# Préambule
+Art 1er. — Sont promulgués à la Côte française des Somalis et dépendances :
+— le décret n° 47-2210 du 19 novembre 1947 rendant applicables à Madagascar et dépendances, au territoire des Comores, aux Etablissements français dans l’Inde, à la Côte fra neaise des Somalis, aux Etablissements français de l’Océanie, à la Nouvelle-Calédonie et dépendances, à Saint-Pierre et Miquelon et au Cameroun, les dispositions des lois des 9 juillet 1934 et 2 avril 1946 portant modification aux articles 187 et 193 du Code d’instruction criminelle (J. O. R. F. du 21 novembre 1947, page 11421) ;
+— le décret portant réglementation des mesures rela lives à u renforcement du maintien de l’ordre public (J. O. R. F. du 4 octobre 1935, page 11203) ;
+— le décret n° 47-221 | du 19 novembre 1947 rendant applicables aux territoires relevant du ministère de la France d’outre-mer autres que Madagascar, les dispositions du décret du 23 octobre 1935 portant réglementation des mesures relatives à l’ordre public (J. O. R. F. du 21 novembre 1947, page 11481).
