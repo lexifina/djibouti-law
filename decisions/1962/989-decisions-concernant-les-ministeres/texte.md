@@ -1,0 +1,2 @@
+L’Adjudant Fossey Jacques, du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 28 mai 1962 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 6 juin 1962, date de son arrivée dans le Territoire.
+Ce Sous-Officier est désigné pour occuper les fonctions de Chef Comptable à l’Hôpital Peltier pour compter du 1er juillet 1962, en remplacement du Sergent-Major Albert, rapatriable pour fin de séjour.
