@@ -1,0 +1,1 @@
+Mme Fruchart (Thérèse) est engagée en qualité de dame-auxiliaire de 2e catégorie, à salaire journalier, pour compter du 1er mars 1953 et mise à la disposition du Directeur des Travaux publics pour servir à la Direction du Port, en remplacement numérique de M. Vigne, titulaire d’un congé administratif.
