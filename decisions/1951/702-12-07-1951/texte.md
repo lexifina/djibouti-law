@@ -1,0 +1,27 @@
+Sont nommés dans la Compagnie des gardes-cercle de Djibouti, pour compter du 1er juillet 1951 :
+Daher Samatar,- Mle 231, 2e cie, 2e éch.;
+Mahamoud Abdillahi, Mle 232, 2e cl, 1er échelon;
+Hersi Mohamed, Mle 233, 2e cl, 1er éch.;
+Hussein Farah, Mle 234, 1er cl, 4e éch.;
+Omar Ahmed, Mle 235, 2e cl, 3e éch.;
+Hussein Boulaleh, Mle 236, 2e cl, 1er échelon;
+Idle Hassan, Mle 237, 2e cl, 1er éch.;
+Ismaël Guireh, Mle 238, 1er cl., 6e éch.;
+Ahmed Ouaiss, Mle 239, 2e cl, 1er éch.;
+Abdi Youssouf, Mle 240, 2e cl, 2e éch.;
+Obsie Mirane. Mle 241, 2e cl, 3e éch.;
+Adaita Abdallah, Mle 242, 2e cl, 2e éch.;
+Daher Doualeh, Mle 243, 2e cl, 2e éch.;
+Mohamed Ismaël, Mle 244, 2e cl, 1er éch.
+Mohamed Elmi, Mle 245, 2e cl, 1er éch.;
+Elmi Awaat, Mle 246, 2e cl, 1er éch.;
+Moussa Yousssouf, Mle 247, 2e cl, 2e échelon;
+Bareh Ahmed, Mle 243, 2e el, 1er éch.;
+Mohamed Moussa, Itïle 249, 2e cl, 1er échelon;
+Abdi Aden, Mle 250, 2e cl, 1er échelon;
+Ahmed Regale, Mle 253, 2e cl, 1er éch.;
+Abdillahi God, Mle 252, 2e cl, 1er éch.;
+Djama Mohamed, Mle 253, 2e cl. 1er éch.;
+Osman Abdi, Mle 254, 2e cl, 1er échel;
+Ali Abdi, Mle 255, 2e cl, 1er échelon;
+Abdillahi Roble, Mle 255, 2e cl, 2e éch.
