@@ -1,0 +1,2 @@
+Une subvention de vingt mille francs métropolitains (20.000 fr. m.) est accordée au Cercle Métropolitain de l’Empire français, 6, rue Galilée, Paris (16e), au titre de contribution du Territoire aux frais de diffusion de son bulletin d’information.
+La dépense visée à l’article 1er sera imputée à la Section XVII, chapitre XXXV, article 1er, § 2, du Budget de fonctionnement du Service local, pour l’exercice 1953.
