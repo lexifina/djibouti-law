@@ -1,0 +1,1 @@
+Est rendue exécutoire la déibération n° 456/6° L du 26 mars 1968 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédits au budget du Service local (exercice 1967).
