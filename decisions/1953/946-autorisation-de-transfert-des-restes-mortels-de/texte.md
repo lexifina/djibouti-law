@@ -1,0 +1,2 @@
+Les restes mortels de M. Lafon (Jérôme), décédé le 1er juin 1953 à bord du s/s « Pilote Garnier » et actuellement entreposés au dépositoire du cimetière de Djibouti, seront transférés au cimetière communal des « Pins Frances », à Cauderan (Gironde).
+Les dépenses occasionnées par le transfert des restes mortels du défunt jusqu’au lieu de l’inhumation seront supportées par la Compagnie Maritime de l’Afrique Orientale.
