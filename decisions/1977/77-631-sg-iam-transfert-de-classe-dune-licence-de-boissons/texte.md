@@ -1,0 +1,1 @@
+Est transférée de la 5° classe à la 1r° classe B, la licence de vente de boissons exploitée par Madame Oum-Hani, Hachem dans son bar « Anti Chaleur » à Djibouti en application de la décision n° 71-1146/SG/CG du 25 août 1971.
