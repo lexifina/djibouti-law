@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 910 du 8 juin 1966, la Commission permanente de l’Assemblée Teritoriale a accordé à M. Livio Carli la concession provisoire d’une parcelle de terrain d’une superficie de 2900 mètres carrés, à Djibouti, lotissement de l’Abattoir, lot n° 4, au prix de 50 francs le mètre carré.
