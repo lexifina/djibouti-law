@@ -1,0 +1,1 @@
+M. Maieseoi (Marcel), ingénieur-adjoint , contractuel, est mis à la disposition du Directeur du Service des Travaux publics pour servir à la Subdivision des Travaux publics ocur compter du 31 décembre 1950, date de son arrivée à Djibouti.
