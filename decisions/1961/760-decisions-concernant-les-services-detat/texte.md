@@ -1,0 +1,1 @@
+Le Sergent d’Infanterie de Marine Mattei Vincent, en service à la 3° Compagnie de Milice à Ali-Sabieh, est remis à la disposition du Général Commandant Supérieur des Forces Armées de la C.F.S. à compter du 1er juillet 1961.
