@@ -1,0 +1,1 @@
+La décision n° 642 du 20 mai 1953, portant engagement, à titre précaire et révocable, du nommé Ahmed Koumane, en qualité de chauffeur auxiliaire à salaire journalier, est et demeure rapportée, pour compter du 6 juin 1953.
