@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 19-71/CPS du 25 octobre 1971 du conseil d’administration de la caisse des prestation sociale fixant la composition du service charge du controle des employeur des allocateur des assures victime d’accident au travail et des enquete sur ces accident ainsi que certaines condition de leur remuneration
