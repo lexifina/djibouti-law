@@ -1,0 +1,2 @@
+Mme Labreuil Marguerite ex-secrétaire sténo-dactylographe auxiliaire, est réengagée en la même qualité pour compter du Jer février 1960 et mise à la disposition du Ministre des Travaux Publics et du Port, en remplacement numérique de Mme Zegna, démissionnaire.
+Mme Labreuil est classée à la 2° catégorie, échelle X, 2°-échelon indice 835 et conservera dans cet échelon une ancienneté de 6 mois, 22 jours.
