@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé, à MM. les héritiers de M. Pierre Marill, à céder leur droit de concession provisoire sur une parcelle de terrain composée de deux demi-ruelles déclassées entourant le titre foncier n° 739, à la Société American African Finance Corporation.
