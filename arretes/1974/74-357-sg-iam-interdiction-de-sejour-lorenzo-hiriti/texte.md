@@ -1,0 +1,1 @@
+Le séjour dans le TFAT est interdit pendant trois ans à Lorenzo Hiriti, né vers 1950 à Massawa (Ethiopie), condamné le 5 février 1974 par le Tribunal correctionmel de Djibouti à 6 mois de prison avec sursis et trois ans d’interdiction de séjour, pour vol, écroué le 4 février 1974, libéré le 5 février 1974 en vertu du sursis d’audience.
