@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 392/6eL du 19 juin 1967 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis accordant à l’Etat Français, pour les besoins de la Milice de la Côte Française des Somalis, la concession provisoire d’üne parcelle de terrain, sise à Djibouti, quartier de la Plaine, lots n° 4b et 4c.
