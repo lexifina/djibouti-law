@@ -1,0 +1,1 @@
+Les matériels de travaux publics visés à l’article 138 (B) du Code de la Route du Territoire Français des Afars et des Issas etspour lesquels sont seules applicables les dispositions du titre Ier et du titre III de ce code, sont énumérés dans la liste annexée au présent arrêté.
