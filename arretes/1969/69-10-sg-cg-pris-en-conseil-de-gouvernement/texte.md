@@ -1,0 +1,1 @@
+M. Georges Vimar est admis à exercer la profession d’avocat- défenseur dans le Territoire Français des Afars et des Issas à compter de la date de signature du présent arrêté Avant d’entrer en fonctions, M. Vimar prêtera serment devant le Tribunal supérieur d’Appel de Djibouti conformément à l’article 8 de l’arrêté n° 963 du 26 septembre 1950.
