@@ -1,0 +1,1 @@
+le nommé Rousso (Michel), do nationalité grecque, est expulsé de la Côte française des Somalis et devra quitter le ter ritoire de la colonie qui lui reste interdit, ainsi que celui de ses dépendances.
