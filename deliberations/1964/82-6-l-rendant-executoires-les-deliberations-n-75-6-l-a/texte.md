@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Previtera Léonardo, la concession provisoire d’un terrain d’une superficie de mille vingt-deux mètres carrés, sis à Djibouti, au Marabout (lot n° 588), au prix de un franc le mètre carré.
