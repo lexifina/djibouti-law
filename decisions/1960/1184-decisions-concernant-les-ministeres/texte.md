@@ -1,0 +1,2 @@
+Mme Cunil (Jacqueline) est engagée pour une durée d’un mois à compter du 12 septembre 1960 en qualité de secrétaire-sténo-dactylographe à salaire forfaitaire mensuel de 40.213 francs Djibouti et mise à la disposition du Ministre de la Production, de l’’Elevage et de l’Agriculture, en remplacement numérique de Mme Myriam Hassan, en congé.
+À la cessation de service, Mme Cunil percevra une indemnité de congé payé égale à deux jours et demi de salaire.
