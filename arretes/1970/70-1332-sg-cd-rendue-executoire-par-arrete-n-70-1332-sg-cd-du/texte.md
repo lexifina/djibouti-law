@@ -1,0 +1,1 @@
+Est réndue exécutoire la délibétration n° 139/7e L, du 27 octobre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas qui fixe la date d’ouverture et la durée de la deuxième session ordinaire 1970 de la Chambre des Députés.
