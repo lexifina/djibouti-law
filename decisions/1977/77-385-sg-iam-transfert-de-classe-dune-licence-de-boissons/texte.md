@@ -1,0 +1,1 @@
+Est transférée de la 8e à la 6e classe la licence de boissons accordée à Mme Mamite Ynessou Tekle par décision n° 75-741/ SG/CG du 23 avril 1975, pour être exploitée au 19 de la rue d’Athènes à Djibouti.
