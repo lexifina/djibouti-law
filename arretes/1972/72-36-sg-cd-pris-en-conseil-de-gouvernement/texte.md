@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 230/7° L du 28 décembre 1971 de la Chambre des Députés complétant la délibération n° 489/6° L du 24 mai 1968 portant institution d’un régime de retraites pour les membres de la Chambre des Députés du Territoire Francais des Afars et des Issas.
