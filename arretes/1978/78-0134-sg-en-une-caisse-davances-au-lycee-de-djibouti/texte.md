@@ -1,0 +1,1 @@
+Il est institué une caisse d’avances au lycée de Djibouti pour couvrir les menues dépenses (enseignement, fourniture et prestations diverses). Le montant de cette avance, renouvelable, est à cent cinquante mille francs Djibouti (150 000 FD). La dépense en résultant est imputable au budget de l’Etat, chapitre 35-11, art 21, paragraphe 3, 7 et 8.
