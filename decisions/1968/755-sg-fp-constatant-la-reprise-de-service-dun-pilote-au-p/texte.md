@@ -1,0 +1,1 @@
+Est constatée, pour compter du 11 mai 1968, date de son retour dans le Territoire, la reprise de ses fonctions antérieures par M. Jean Perrot, pilote du port, contractuel (catégorie B, 5e échelon), au service du port de Djibouti (Ministère des Travaux publics et du Port).
