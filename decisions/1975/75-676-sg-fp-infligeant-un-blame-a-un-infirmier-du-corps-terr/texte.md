@@ -1,0 +1,1 @@
+Un biâme ést infligé à M. Mohamed Saïd Abdallah, infirmier de 2° classe, 2° échelon du corps territorial de la Santé Publique en service à l’hôpital Peltier, pour ab$Sence irrégulière non motivée lors d’un service de garde.
