@@ -1,0 +1,1 @@
+Est approuvée et rendue exécutoire la délibération n° 9€ susvisée, adoptée par le Conseil d’administration d’ « Electricité de Djibouti» en sa séance du 30 décembre 1963, et modifiant l’état de prévisions de dépenses pour 1962.
