@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, Est promulgué à la Côte française des Somalis le décret, susvisé du 11 décembre 1928 élendant aux colonies les dispositions de l’article 41 de la loi du 19 décembre 1926 relatives au traitement appliqué aux objets de correspondance affranchis au taril réduit et contetant des inscriplions non autorisées ainsi aux colis postaux renfermant des lettres ou notes ayant le caractère de correspondance.
