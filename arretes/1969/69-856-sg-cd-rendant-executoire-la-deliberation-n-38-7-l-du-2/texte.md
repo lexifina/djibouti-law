@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 38/7e L du 20 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas complétant la délibération n° 10/7e L du 19 décembre 1968 portant délégation d’une partie des pouvoirs de la Chambre des Députés à la Commission permanente pour l’année 1960.
