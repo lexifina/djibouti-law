@@ -1,0 +1,2 @@
+Est acceptée, pour compter du 28 décembre 1965, la demande de démission présentée par l’agent journalier de 3e catégorie Abdallah Moussa Ali, précédemment en service, en qualité de manœuvre, à l’Hôpital Péltier.
+L’intéressé, qui comptait à cette date 9 mois et 10 jours de service, ne pourra prétendre au bénéfice de l’indemnité de licenciement prévue en äpplication des dispositions de l’article 16 de la Convention collective précitée.
