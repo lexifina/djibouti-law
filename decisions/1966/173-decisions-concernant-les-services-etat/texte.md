@@ -1,0 +1,1 @@
+M. Moussa Guédi Roble, somali issa, né à Djibouti en 1919,titulaire de la C-I.F. n° 1049, délivrée à Djibouti le 8 juin 1951,et des permis de conduire V.L. et P.L. ne 441 et 442 du 22 juin 1962, ést engagé à la Voirie de Djibouti en qualité de chauffeur 4° catégorie de la Convention collective territoriale du 16 mars 1956 (PB. 185).
