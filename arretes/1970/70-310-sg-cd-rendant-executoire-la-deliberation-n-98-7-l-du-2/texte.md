@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 98/71 du 24 mars 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du tarif spécial de droits de port sur marchandises en transit.
