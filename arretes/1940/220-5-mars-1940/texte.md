@@ -1,0 +1,1 @@
+M. l’administrateur des colonies Berger, licencié en droit, est nommé membre magistrat adjoint au Conseil d’administration siégeant un contentieux, en remplacement de M. Salmon, évacué sur l’hôpital Michel-Lévr.
