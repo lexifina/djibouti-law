@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 12-69 du 4 décembre 1969, du conseil d’administration de l’Office des Postes et Télécommunications fixant à 77.000 F.D. le montant maximum des mandats de poste du régime intérieur.
