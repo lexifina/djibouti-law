@@ -1,0 +1,1 @@
+M. Claude Cluzeau, médecin des Armées, est pour compter du 3 octobre 1975, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique pour servir en qualité de médecin-chef du cercle d’Obock, en remplacement de M. Lionnet, rapatrié.
