@@ -1,0 +1,4 @@
+Est autorisée l’évacuation sanitaire sur la Métropole et la prise en charge par le Budget du Service Locai.des irals ad noSpitansation de M. Dorani Omar, comptable auxiliaire du Service de l’Enregistrement.
+Les frais afférents seront supportés par le Budget du Service Local pour l’exercice 1963 (chapitre 26, article 3, paragraphe 3).
+Une autorisation d’absence d’une durée de 6 mois à compter du 4 mars 1963 pour cause de maladie est accordée à M. Dorani Omar comptable auxiliaire du Service de l’Enregistrement (échelle XI,échelon 1, indice 895).
+En application des dispositions des articles 47 et 48 du Code du Travail Outre-Mer, M. Dorani Omar aura droit à une indemnité d’un montant égal à deux mois de salaire (durée du préavis auquel il peut prétendre à la date du 4 mars 1963 pour une ancienneté de service de 5 ans, 4 mois, 7 jours).
