@@ -1,0 +1,4 @@
+# Préambule
+A – Les prix de vente au public dans les pharmacies de la République de tous les produits et spécialités pharmaceutiques d’origine française sont ceux repris au « tarif syndical national des pharmaciens » français ou des bulletins de variations dudit tarif applicables à partir du 1er janvier 1979 multipliés par le coefficient 50 (cinquante) pour valoir leur équivalence en francs Djibouti.
+B – Le prix de vente au public dans les pharmacies de la République de tous les produits et spécialités pharmaceutiques d’autre origine sont ceux pratiqués pour la mise à la disposition au public dans le pays d’origine multipliés par le même coefficient que ci-dessus.
+La preuve de ce prix de vente au public résultera d’un certificat administratif de l’autorité sanitaire officielle du pays d’origine fournie par le pharmacien djiboutien à l’inspecteur des pharmaciens.
