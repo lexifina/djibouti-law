@@ -1,0 +1,9 @@
+# Décision n° 125 Décisions concernant les Ministères
+
+Décision · Journal officiel de la République de Djibouti, n° 2 du 29/02/1960 · <https://www.journalofficiel.dj/texte-juridique/decision-n-125-decisions-concernant-les-ministeres/>
+
+En vigueur : 1960-02-29 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t acceptée pour compter du 10 février 1960 la démission de son emploi offerte par Mme Zegna (Léonie-Marie), Secrétaire-dactylographe auxiliaire, en service au Ministère des Travaux Publics et du Port. |
