@@ -1,0 +1,1 @@
+M. Goarin Jean, conseiller aux Affaires administratives de 1’° classe, est nommé Secrétaire général ad hoc à l’effet d’assurer la présidence du Conseil d’Administration de l’Office des Postes et Télécommunications de la Côte Française des Somalis en l’absence d’un Secrétaire général titulaire.
