@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Ahmed Mohamed Ali, agent d’hospitalisation de-classe exceptionnelle du corps territorial de la Santé Publique, en-service au Dispensaire de Tadjourah (ministère de l’Intérieur et des Affaires Musulmanes)pour absence non motivée du 4 septembre 1974 et manque de conscience brofessionnelle.
