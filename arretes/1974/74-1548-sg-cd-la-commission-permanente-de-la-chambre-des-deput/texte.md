@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 68/8e L du 4 octobre 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant modification du budget territorial pour l’exereice 1974.
