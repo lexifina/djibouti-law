@@ -1,0 +1,1 @@
+Un congé de maternité de quatorze semaines dont huit à solde entière et six à demi-solde, est accordé pour compter du 25 octobre 1960 à Mme Elisabeth Guireh, infirmière auxiliaire en service à l’Hopital Péltiers.
