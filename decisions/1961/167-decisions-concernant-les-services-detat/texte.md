@@ -1,0 +1,1 @@
+M Lafoux. Michel. ingénieur-adioint des Travaux publics de l’Etat de 3° classe, adjoint au Chef de la subdivision spéciale des bases aériennes à Djibouti, dont le séjour arrive à l’expiration le 17 février 1961 est autorisé à prolonger son séjour de trois mois pour compter de la date précitée.
