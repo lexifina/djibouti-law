@@ -1,0 +1,1 @@
+Il est alloué à M. Macé Girard, inspecteur des Impôts de 4 échelon détaché du Cadre métropolitain, une indemnité forfaitaire pour sujétions spéciales dont le taux annuel est fixé à neuf cents francs français (900 FF).
