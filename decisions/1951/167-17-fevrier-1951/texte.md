@@ -1,0 +1,1 @@
+Mlle Kadidja Houmad est engagée en qualité de femme de service pour servir à l’Ecole de filles de Djibouti pour compter du 8 janvier 1951 au salaire mensuel de 3.503 francs exclusif de toutes indemnités.
