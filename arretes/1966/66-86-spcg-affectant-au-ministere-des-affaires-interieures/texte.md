@@ -1,0 +1,4 @@
+Il est affecté au Ministère des Affaires intérieures de la Côte Française des Somalis, pour les besoins du Cercle de Djibouti, un terrain d’une superficie de 5.000 mètres carrés, sis à Djibouti, lieu-dit Boulaos, lots n° 13 et 14 du lotissement de l’Abattoir, ledit terrain tel au surplus qu’il est figuré au plan annexé au présent arrêté.
+Ce terrain doit permettre l’extension de celui déjà affecté pour le transfert du garage de la Voirie, actuellement installé au boulevard de Gaulle.
+Dans les vingt jours à compter de la date du présent arrêté, le Chef du Service des Domaïnes fera remise de la parcelle de terrain susvisée à M. le Ministre des Affaires intérieures.
+Il sera dressé procès-verbal de cette opération, lequel comportera évaluation du terrain affecté et détermination de ses limites.
