@@ -1,0 +1,1 @@
+Mme Maechler est engagée, pour compter du 21 avril 1953, en qualité de dame-employée auxiliaire 2e catégorie et mise à la disposition du Chef du Service Judiciaier en remplacement de M. Hua, bénéficiaire d’un congé de six mois.
