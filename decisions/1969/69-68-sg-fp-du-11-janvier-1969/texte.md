@@ -1,0 +1,1 @@
+M. Ahmed Aoualé Bilal, agent technique principal, 3° échelor du Cadre territorial des Travaux publics et du Port, eh service au Réseau général radio-électrique, est, pour compter du 1° janvier 1968 et à titre exceptionnel, intégré dans le Cadre de contremaîtres des travaux et nommé contremaître de 2° classe; 4 échelon (indice 560).
