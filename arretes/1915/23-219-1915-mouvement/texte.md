@@ -1,0 +1,1 @@
+il a été donné mainlevée à M. Repici du cautionnement de cinq cents francs qu’il a constitué le 2 Décembre 1914 suivant récépissé n° 975 en garantie de l’éxécution des clauses de son contrat pour la fourniture d’un rouleau compresseur à vapeur.
