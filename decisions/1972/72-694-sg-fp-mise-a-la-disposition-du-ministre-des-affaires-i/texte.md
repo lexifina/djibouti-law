@@ -1,0 +1,1 @@
+M. Edgard Zerbib, officier de police adjoint contractuel, est, pour compter du 15 mars 1972, mis à la disposition du Ministre des Affaires intérieures pour assurer, sous l’autorité du Commissaire central de police, les fonctions de Chef de poste du 1er arrondissement urbain du district de Djibouti.
