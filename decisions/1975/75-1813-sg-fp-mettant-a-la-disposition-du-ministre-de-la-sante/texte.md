@@ -1,0 +1,1 @@
+M. l’adjudant Tavernier Pierre, du cadre des infirmiers militaires des troupes de marine, est, pour compter du 22 août 1975,date de son arrivée dans le Territoire, mis à la disposition du Ministre dé la Santé publique pour servir en qualité d’anesthésiste à l’hôpital Peltier, en remplacement numérique de l’adjudant-chef Claudel Bernard, rapatrié.
