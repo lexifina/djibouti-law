@@ -1,0 +1,1 @@
+L’adjudant-chef Gérard Jean-Pierre du cadre des infirmiers des Troupes de marine en position «cadres hors budget des Armées » est, pour compter du 18 juin 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique pour servir à l’hôpital Peltier, en remplacement numérique de l’adjudant-chef Fleury Lucien, rapatrié.
