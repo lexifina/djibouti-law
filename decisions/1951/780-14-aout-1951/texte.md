@@ -1,0 +1,1 @@
+Une gratification de trois mille francs (3.000 fr.) est accordée au planton de 3° échelon Ismail Doubet, en service au Fort, en raison. des qualités de dévouement et de conscience professionnelle dont il a fait preuve.
