@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 112/7eL du 12 mai 1970 de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget du Service local pour l’exercice 1970 (report des crédits d’équipement inutilisés en 1969).
