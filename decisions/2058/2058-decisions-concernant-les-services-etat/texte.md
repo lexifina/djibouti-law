@@ -1,0 +1,1 @@
+M. Mahamoud Bouraleh Rayaleh, somali issa fourbala;, titulaire de l’acte de naissance n° 220 du 17 juin 1946, est engagé à la Voirie de Djibouti en qualité d’ébouebr 2° catégorie de la Convention collective territoriale d& 16 mars 1956 (PB. n° 71).
