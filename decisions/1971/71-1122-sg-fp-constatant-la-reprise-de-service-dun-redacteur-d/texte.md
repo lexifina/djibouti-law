@@ -1,0 +1,1 @@
+Est constatée, pour compter du 10 août 1971. date de son retour au Territoire, la reprise de ses fonctions antérieures au Service des Finances (Ministère des Finances) par M. Louis de Gonzague Randrianasolo, rédacteur principal, 1° échelon du corps territorial de l’Administration générale.
