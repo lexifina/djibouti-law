@@ -1,0 +1,1 @@
+Une permission d’absence de quinze jours, pour en jouir au Harrar (Ethiopie), est accordée à M. Carton (Albert). commandant de camp. en service au cercle de Djibouti pour compter du 12 septembre 1948.
