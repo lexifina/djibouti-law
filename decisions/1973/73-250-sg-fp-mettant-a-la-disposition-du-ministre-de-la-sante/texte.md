@@ -1,0 +1,1 @@
+M. Pierre Le Clec’h, adjudant-chef du cadre des infirmiers, militaire des troupes de marine, en position de « cadre hors budget des armées» est, pour compter du 8 janvier 1973, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir au Service de la Prévention de la tuberculose, en remplacement numérique de l’adjudant-chef Jacqueson, rapatrié.
