@@ -1,0 +1,1 @@
+Fcet rannorté l’arrêté d’expulsion n° 906 du 29 iuin 1962 en ce qui concerne Omar Soultan Guedi alias Omar Houssein Fayeh, somali Issack Abéraoual Saad Moussa Djibril Abokor Bah Omar, né en 1935 à Ditbouti de Soultan Guedi et de Kadidia Tabi.
