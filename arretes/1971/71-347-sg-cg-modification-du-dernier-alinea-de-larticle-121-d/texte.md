@@ -1,0 +1,2 @@
+L’article 121 de l’arrêté n° 69-1883/SG/CG du 31 décembre 1969, dernier alinéa, est modifié comme suit :
+« Les prêts au Territoire et aux établissements publics territoriaux ne peuvent être utilisés qu’au financement d’équipements publics ; ils sont consentis, à court ou moyen terme, à un taux qui ne peut être inférieur à celui de l’intérêt des fonds placés à la Caisse des Dépôts et Consignations. »
