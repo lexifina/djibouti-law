@@ -1,0 +1,1 @@
+M. Hassan Ali Mohamed dit Hassan Dalga, chef du service de l’Animation Culturelle, est, cumulativement avec ses fonctions, nommé conseiller technique du ministre de l’Enseignement, de la Jeunesse et des Sports.
