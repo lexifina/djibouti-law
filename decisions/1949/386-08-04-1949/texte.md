@@ -1,0 +1,1 @@
+L’adjudant ihinrinler Nicoli (Jean) , débarqué en Côte française des Somalis le 28 mars 1949 en position, hors cadres, est affecté pour compter du jour de son débarquement à l’hôpital colonial de Djibouti, en qualité de manipulateur-radio et stérilisteur-panseur, en remplacement du sergent-major infirmier Rousseau (Henri-Emile), rapatriable pour fin de séjour.
