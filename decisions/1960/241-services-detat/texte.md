@@ -1,0 +1,4 @@
+L’Adjudant Milicien Hassan Hersi, Mle 757, de la 1er Compagnie à Dikhil, arrivant en fin de contrat et totalisant 20 ans et 9 jours de services effectifs dans la Milice, est admis à faire valoir ses droits à l’allocation viagère annuelle en exécution de l’article n° 6 de l’arrêté n° 105 du 3 février 1943. L’intéressé sera libéré et rayé des contrôles de la Milice le 18 février 1960, il recevra le certificat de libération.
+L’Adjudant Hassan Hersi, Mle 757, bénéficiera pour compter du 18 février 1960 d’une allocation viagère annuelle de cinquante sept mille francs Djibouti (57.000 F.D.) payable trimestriellement et sur le vu d’un certificat de vie délivré par les autorités compétentes.
+La présente décision annule et remplace la décision n° 172, du Chef de Territoire en date du 12 février 1960.
+Les droits à solde, vivres et permission de l’intéressé, seront liquidés par les soins de la 1er Compagnie de Milice.
