@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des somalis le décret du 24 juillet 1942 concernant l’indemnisation des fonctionnaires et agents en service outre-mer relevés de leurs fonctions ou réputés démissionnaires de leur emploi par application des lois sur l’accès atix emplois publics,
