@@ -1,0 +1,1 @@
+M. le lieutenant Beaumadier, de l’infanterie coloniale, est nommé adjoint au commandant du cercle des Adaëls et président du tribunal indigène du 1er degré durant l’absence de M. le lieutenant Baudin autorisé à venir à Djibouti.
