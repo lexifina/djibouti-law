@@ -1,0 +1,4 @@
+# Préambule
+Art. ler. Le-séiour dans de Cercle dé Djibouti es interdit peñdant cinq ans et deux ans aux personnes dont les noms suivent :
+Mohamed Seg Bodek : Issa Maïmassan rer Hassan né vers 1934 à Goubeto, fils de Seg Bodeh et de Fatma Ragueh, condamné le°24 octobre 1960 à dix-huit mois de prison’et cind ans d’interdiction de séjour par le Tribunal Correctionnel pour tentative de vol :
+Abdillahi Obsieh/Gouled: Gadaboursi Mahadassé rer Mohamed, né vers 1904 Djibouti, fils de Obsieh Gouled et de Polia Bouh, condamné le 19 décembre 1960 à un an de prison et cinq ans d’interdiction de séjour par le Tribunal Supérieur d’Appel pour vol Douäleh Idieh Samaleh Gadaboursi Makäel Djibril Yonis né vers 1940 à Djibouti, fils de Idléh Samaleh et de Osman Abdillahi, condamné le 28 novembre 1960 à dix-huit mois de prisof et déux ans d’interdiction de séjour par le Tribunal Correctionnel pour vol et défaut d’autorisation de séjour.
