@@ -1,0 +1,2 @@
+# Article unique
+— La limite prévue au paragraphe 23 de la délibération n° 322 du 13 avril 1962, rendue exécutoire par l’arrêté n° 486 du 16 avril 1962 est reportée par translation à une ligne formée par la limite Nord des lots n° 538 et n° 539 du lotissement du boulevard de la République prolongée à l’Est jusqu’à ce même boulevard, et à l’Ouest jusqu’à la limite Ouest prévue au paragraphe 24 de la délibération susvisée.
