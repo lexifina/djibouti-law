@@ -1,0 +1,1 @@
+M. Bernard Carteron, médecin de 1″ classe, en position «hors-Cadre », est pour compter du 1 avril. 1973, date de son retour dans le Territoire, mis à la dispoistion dü ministre de la Santé Publique et des Affaires Sociales, pour servir en qualité de chef du service d’Hygiène et d’Epidémiologie et de chef du laboratoire de bactériologie de l’hôpital Peltier.
