@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 328/7e L. du 20 mars 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas, portant ouverture de crédits supplémetaires au budget du service local — budget de fonctionnement — exercice 1972.
