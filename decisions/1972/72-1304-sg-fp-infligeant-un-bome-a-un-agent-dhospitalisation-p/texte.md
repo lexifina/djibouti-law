@@ -1,0 +1,1 @@
+Un blôme est infligé à M. Hachi Abdi Elabe, agent d’hospitalisation principal, 3e échelon, du Corps territorial de la Santé publique, en service à l’hôpital Peltier, pour avoir dormi dans une chambre de malade alors qu’on le cherchait pour hospitaliser un malade, pendant sa garde, du 22 au 23 août 1972.
