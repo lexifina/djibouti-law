@@ -1,0 +1,3 @@
+Les dispositions des articles 1° et 2 de la décision n° 71-74/ SG/FP du 13 avril ,1971, sont annulées, en ce qui concerne M. Elmi Nour Boukore, aide agent sanitaire de 1” classe, 3° échelon, du cadre territorial du Service d’Hygiène
+En applicatiaon des dispositions dé l’article 40 de l’arrêté n°, 10-1134/SG/CG du 28 septembre 1970, M. Elmi Nour BouKore, aide-agent sanitaire de 1″ classe, 3° échelon, du cadre territorial du Service d’Hygiène, est versé dans le nouveau
+cadre d’agent d’exploitation et d’hispitalisation du cadre territorial du Service de Santé, et nommé agent d’exploitation principal,. 1° échelon, pour compter du 1e juillet 1970.
