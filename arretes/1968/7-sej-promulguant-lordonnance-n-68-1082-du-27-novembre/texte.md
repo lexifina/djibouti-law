@@ -1,0 +1,2 @@
+Art, 1 —— Est promulgué dans le Territoire Français des Afars et des Issas l’ordonnance n° 68-1082 du 27 novembre 1968 relative à la suppression en matière de réassurance et de rétrocession à la liberté d’établissement et à la libre prestation des services sur le territoire de la République française pour les entreprises des Etats membres de la Communauté économique européenne et modifiant la loi du 15 février 1967.
+Art 2 Le présent arrêté sera enregistré, publié et communiqué partout où besoin sera.
