@@ -1,0 +1,1 @@
+M. Robin (Aiidré), rédacteur de 3°classe d’Administration générale d’ontre-mer, est mis a la disposition dn chef de la 2° section du secrétariat général cumulativenienl avec ses fonctions de chef de la 3° section.
