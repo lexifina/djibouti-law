@@ -1,0 +1,1 @@
+Est rendue exécutoire la Délibération n° 206/6°L du 7 juillet 1965 de la Commission permanente de l’Assemblée territoriale de la Côte Francaise des Somalis complétant le barème des droits relatifs à l’exploitation du Port de Djibouti.
