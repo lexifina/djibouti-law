@@ -1,0 +1,1 @@
+M. Durand Pierre, Inspecteur principal de classe exceptionnelle, reprend son service à la Sûreté Généralé de la Côte Francaise des Somalis pour compter du 8 janvier 1961, date de son retour dans le Territoire.
