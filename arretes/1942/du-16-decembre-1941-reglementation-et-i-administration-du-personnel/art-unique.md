@@ -1,0 +1,3 @@
+# Article unique
+La direction du personnel chargée de la réglementation et de l’adminisration de l’ensemble du personnel civil tant de l’administration centrale et des services annexes que des services généraux des colonies, doit procéder à la mise au point et à la présentation de tous les textes organiques et de toutes les décisions concernant le recrutement et l’administration de ce personnel. Ces mesures sont prises après avis des services techniques en ce qui concerne le personnel de ces services.
+L’étude des questions concernant la rémunération. le classement, l’attribution d’avantages pécuniaires ou en nature à ce personnel relève également des attributions de la direction du personnel et de la comptabilité.
