@@ -1,0 +1,1 @@
+M. Martin (Jean), médecin de 2° classe en position «cadre hors budget des armées» est, pour compter du 28 juin 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir en qualité de médecin-chef du Cercle de Tadjourah, en remplacement numérique du médecin de 1° classe Crozes, rabpatriable.
