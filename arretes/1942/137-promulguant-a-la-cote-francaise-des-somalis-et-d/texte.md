@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis le décret du 20 février 1942 portant sup pression des indemnités spéciales temporaires et attribution d’un supplément de traitement et de solde aux fonctionnaires et agents des cadres coloniaux organisés par décret.
