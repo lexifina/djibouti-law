@@ -1,0 +1,2 @@
+# Préambule
+Les articles ci-dessous énumérés de l’arrêté n° 459 du 7 juin 1943, modifié par les arrêtés n°° 1187 du 27 novembre 1950 rendant exécutoire la délibération du Conseil représentatif en date du 27 octobre 1950, 62/11/SPCG du 25 janvier 1962, 842 du 6 juillet 1963 rendant exécutoire la délibération n° 462 du 4 juillet 1963, 63/114/SPCG du 19 septembre 1963, et 64/1/SPCG du 8 janvier 1964 sont modifiés comme suit :
