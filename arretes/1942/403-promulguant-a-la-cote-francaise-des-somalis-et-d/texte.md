@@ -1,0 +1,1 @@
+Est pronugué à la Côte française des Somalis et dépendances le décret du 25 juin 1942 modilant le décret du 1er décembre 1928 en ce qui concerne les indemnités pour charges de famille du personnel des cadres coloniaux régis par décret.
