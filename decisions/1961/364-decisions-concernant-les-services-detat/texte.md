@@ -1,0 +1,2 @@
+M. Allard Jean, attaché d’administration centrale, 2° classe,2° échelon, Commandant de Cerclé d’Ali-Sabieh est chargé cumulativement avec ses fonctions actuelles, de l’expédition des affaires courantes du Cercle de Dikhil pendant la durée de l’absence de M. Joriot, Pierre-Louis, administrateur en chef 1er échelon de la France d’Outre-Mer autorisé à se rendre en France pour compter du 3 avril 1961.
+M. Allard Jean assurera également les fonctions de Président au Tribunal du 2 degré dans le ressort du Cercle de Dikhil pendant l’absence de M. Joriot.
