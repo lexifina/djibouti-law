@@ -1,0 +1,1 @@
+Houssein Guiré est nommé planton auxiliaire au Secrétariat général, au salaire journalier de 4 fr. 50, pendant la durée de l’absence du planton Boenh Roblé, titulaire d’un congé de repos de 3 mois, Il sera licencié le jour même de la reprise de service de ce dernier.
