@@ -1,0 +1,3 @@
+Une indemnité forfaitaire, dont le taux mensuel ne pourra en aucun cas dépasser quinze mille francs (15.000 fr.), est accordée au Médecin-Lieutenant F ieschi, chef de l’équipe sanitaire mobile.
+é personnel subalterne affecté au candion-dispensatre et Le personnel subalterne affecté au camion-dispensaire, et comprenant deux infirmiers et un chauffeur, percevra également une indemnité forfaitaire de déplacement dont le taux mensuel ne pourra en aucun cas dépasser trois mille francs par personne.
+Les indemnités prévues ci-dessus seront liquidées sur Droduction d’un certificat délivré par. le Directeur du Service de Santé, attestant que des déplacement sur ordre ont été effectués
