@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 56/8e L du 6 juillet 1974 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du compte financier pour l’exercice 1972 du Service médical interentreprises.
