@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 104/7eL du 12 mai 1970 de la Chambre des Députés du Territoire Français des Afars et des Issas portant réglementation générale de l’enseignement du premier degré.
