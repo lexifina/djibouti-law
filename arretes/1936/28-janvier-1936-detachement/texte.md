@@ -1,0 +1,2 @@
+28 janvier 1936, M. Carbonnel, commis principal de 5° classe des trésorerie S mé tropolitaines, détaché à la Côte française des Somalis, est nommé en cette qualité, commis principal de 4° classe de la trésorerie locale, p jour Compter du 16 mai 1935. date de son détachement à la colonie.
+par suite de cette nomination, M. Carbonnel perd le bénéfice de l’ancienneté qu’il avait acquise dans son cadre d’origine.
