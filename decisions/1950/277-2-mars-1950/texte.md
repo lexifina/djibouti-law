@@ -1,0 +1,1 @@
+Barra Hussein, chauffeur à solde journalière à la direction du port, est admis chauffeur auxiliaire à la solde mensuelle de huit mille cinq cent francs (8.500) exclusive de toute indemnité, prime. gratification, à l’exception de l’indemnité de permanence prévue par l’arrêté n° 1099 du 3 juillet 1940. La présente décision aura effet pour compter du 1er mars 1950
