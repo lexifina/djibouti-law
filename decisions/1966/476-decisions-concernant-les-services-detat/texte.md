@@ -1,0 +1,1 @@
+M. Bakir Mahmoud Sabouni arabe chami titulaire de la C.I.F. n° 2736 délivrée à Djibouti le 12 juillet 1961 et des permis de conduire V.L. et P.L. n°5 318 et 319 du 25 maï 1962, est engagé en qualité de mécanicien journalier au Service de la Voirie de Djibouti (P.B. n° 4 des auxiliaires).
