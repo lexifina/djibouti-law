@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 199/7°L du 29 juin 1971 de la Commisison permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à M. Hassan Bassoma Hassan la concession provisoire d’üne parcelle de terrain, sise à Ambouli.
