@@ -1,0 +1,1 @@
+M. Bernard Bleton, volontaire de l’aide technique est, pour compter du 11 décembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Ecoñomie Rurale pour servir au service de l’Elevage en qualité de vétérinaire, service comptant pour le 1er décembre 1973.
