@@ -1,0 +1,1 @@
+Est rendue exécütoire la délibération n° 257/6°L du 20 janvier 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant exonération de taxe intérieure de consommation.
