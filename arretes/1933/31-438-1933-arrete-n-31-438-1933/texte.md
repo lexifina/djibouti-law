@@ -1,0 +1,1 @@
+a été rendu exécutoire de 3e rôle supplémentaire des patentes B de l’exercice 1932, comprenant articles et s’élevant à la somme de trente-sept mille cinq cent soixante-six francs, centimes additionnels compris.
