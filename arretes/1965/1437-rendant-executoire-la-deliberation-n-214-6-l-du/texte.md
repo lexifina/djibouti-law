@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 214/6°L du 1er septembre 1965 de la Commission permanente de l’Assemblée Terris toriale de la Côte Française dés Somalis autorisant le Chef de Territoire à acquérir pour le compte du Territoire (Budget Santé publique), une parcelle de terrain bâti sise à Ambouli.
