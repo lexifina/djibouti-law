@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Saïd Mohamed Kahin, nfirmier diplômé d’Etat de 2° classe, 4 échelon, du cadre terriorial de la Santé publique, en service au laboratoire pharmaceumique de l’hôpital Peltier, pour non observation des instructions du chef de laboratoire et refus d’obéissance.
