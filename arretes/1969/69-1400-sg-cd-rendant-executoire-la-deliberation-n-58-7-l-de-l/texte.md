@@ -1,0 +1,1 @@
+Est rendue exéeutoire la délibération n° 58/7°L du 13 septembre 1969 de la Commission permanente de la Chambre des Députés accordant à M. Hassan Mohamed Moyale, là concession provisoire d’un terrain sis à DiKhil.
