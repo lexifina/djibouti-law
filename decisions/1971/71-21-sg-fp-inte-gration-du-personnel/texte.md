@@ -1,0 +1,1 @@
+M. Mohamed Bourhan Abdallah, agent de contrôle principal 3° échelon du cadre territorial des Contributions, en service aux Contributions (Ministère des Finances et du Plan), est, à titre exceptionnel, intégré dans le Cadre des contrôleurs et nommé contrôleur de 2° classe, 4° échelon, pour compter du 1° juin 1970.
