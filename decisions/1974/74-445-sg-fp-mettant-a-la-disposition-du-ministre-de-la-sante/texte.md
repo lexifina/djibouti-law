@@ -1,0 +1,1 @@
+M. Hilaire Gerphagnon, adjudant-chef infirmier placé en disposition « cadres hors budget des Armées », est, pour compter 14 février 1974, mis à la disposition du ministre de la Santé plique pour servir au Centre antituberceuleux Paul Faure, en ranmplacement de l’adjudant Moran Claude, rapatrié pour fin de jour.
