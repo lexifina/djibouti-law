@@ -1,0 +1,1 @@
+les officiers le Lois grades les sous-officiers de tous grades et les militaires de la gendarmerie, percevront indemmité de zone prévue par l’arrêté du 2 mai 1930, Ces dispositions sont applicables à compter du 1 septembre 1930.
