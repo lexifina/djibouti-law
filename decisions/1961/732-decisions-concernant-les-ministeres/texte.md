@@ -1,0 +1,1 @@
+M. Ibrahim Ali Ahmed est autorisé à exploiter une licence de 5° classe pour la vente de boissons hygiéniques non fermentées, à la station-service « Cheval Rouge », boulevard de la République à Djibouti.
