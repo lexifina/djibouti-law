@@ -1,0 +1,1 @@
+M. Paraskevopoulos Aristoménis est autorisé à exploiter en gérance libre la licence de 1re classe pour la vente de toutes boissons à consommer sur place ou à emporter au bar-restaurant « Hôtel Continental» sis place Ménélik à Djibouti, dont les propriétaires sont Mmes Ketty Stavrou et Calliopi Dendrou.
