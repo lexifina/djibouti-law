@@ -1,0 +1,1 @@
+Le sous-lieutenant Rimhaut (François) est affecté à la milice à compter du 26 décembre 1950, date, de son débarquement sur le terri toire. Il prendra, a compter du 1er février 1951, le commandement du peloton môhariste du Henlé et du poste administratif de Yoboki, en l’emplacement, du lieutenant Le Goff, rapatriante
