@@ -1,0 +1,1 @@
+M. Lanfranchi (Bastien), sergent-chef de chancellerie coloniale, désigné pour servir hors-cadres en C.F.S. et arrivé à Djibouti le 11 février 1952, est affecté au Cabinet militaire pour compter du jour de son débarquement.
