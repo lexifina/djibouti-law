@@ -1,0 +1,1 @@
+Mr Kouhana (Denise), institutrice auxiliaire de 2e catégorie, est affecté au Cours commercial 1er année et assure l’enseignement de la Langue arabe au Cours complémentaire (4e et 3e), pour compter du 1er octobre 1953.
