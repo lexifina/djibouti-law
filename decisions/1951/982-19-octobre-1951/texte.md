@@ -1,0 +1,1 @@
+M. Rabibizaka (Marcel), commis-greffier de 1er classe du cadre local des commis-greffiers de la Côte Française des Somalis, est nommé notaire par intérim pendant la durée de l’hospitalisation de M. Arlanda, greffier-notaire.
