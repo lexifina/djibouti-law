@@ -1,0 +1,1 @@
+M. Rajohson- est mis- ù. la disposition de M. le chef du service des finances pour compter du 16 avril 1950, date de son débarquement, en remplacement, numérique de M. Rassamy (Pierre-Maxime), comptable de 2″ classe du cadre local des travaux publics.
