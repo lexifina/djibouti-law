@@ -1,0 +1,1 @@
+une gratification exceptionnelle de 200 francs est accordée au gendarme Le Gall à titre de rémunération de service en temps que porteur de contraintes de la trésorerie de Djibouti, pendant l’année 1928.
