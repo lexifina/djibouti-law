@@ -1,0 +1,1 @@
+M. Hildenbrand (Pierre), contrôleur principal de 4e classe des douanes, chef du bureau central et des douanes de Djibouti, est chargé de l’expédition des affaires courantes du service des douanes, durant l’absence de M. Godefroy, inspecteur central des douanes, se rendant à Aden.
