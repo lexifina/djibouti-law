@@ -1,0 +1,1 @@
+L’immeuble sis à Djibouti, avenue 13, boulevard 6 et 7,titre foncier n° 482, appartenant à M. Daher Aden Cochin, dont l’état de délabrement et de vétusté risque de compromettre la sécurité publique, devra être démoli à partir du ler étage avec consolidation de l’ensemble par un ceinturage en béton armé.
