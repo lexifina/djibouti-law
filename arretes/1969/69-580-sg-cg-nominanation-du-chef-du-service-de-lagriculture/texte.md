@@ -1,0 +1,1 @@
+M. Maurice Germeaux, ingénieur divisionnaire des travaux agricoles de 5e échelon, est, pour compter du 12 mars 1969, date de son arrivée au Territoire, nommé chef du Service de l’Agriculture (Ministèré des Affaires économiques).
