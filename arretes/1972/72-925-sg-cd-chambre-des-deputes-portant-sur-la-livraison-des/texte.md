@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 273/7e L du 6 juin 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant sur la livraison des marchandises débarquées dans le port de commerce de Djibouti.
