@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 136/7° L du 27 mars 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédits de chapitre à chapitre au budget annexe du Port de Commerce de Djibouti (exercice 1970).
