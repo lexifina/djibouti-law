@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 113/7°L du 12 mai 1970 de la Châmbre des Députés du Territoire Français des Afars et des Issas donnant une délégation spéciale à là Commission permanente de la Chambre des Députés.
