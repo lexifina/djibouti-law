@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 2-73/CEGD du 21 novembre 1973 du Conseil d’administration du-Centre d’Etudes Géologiques est de Développement ayant arrêté le budget 1974 du Centre d’Etudes Géologiques et de Développement en recettes et en dépenses à la somme de quatorze millions huit cent mille francs Djibouti.
