@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 350/7e L du 10 mai 1973 de la Chambre des députés du Territoire français des Afars et des Issas portant transfert et création de postes budgétaires et ouverture de crédits supplémentaires au budget du service local — budget de fonctionnement et d’équipement —— de l’exercice 1973.
