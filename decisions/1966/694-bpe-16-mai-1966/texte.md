@@ -1,0 +1,1 @@
+M. Joffraud (Louis), ingénieur de classe exceptionnelle du Corps autonome des Travaux météorologiques; est nommé, à titre intérimaire, pour compter du 18 mai 1966, chef du Service météorologique en remplacement de M. Hetier (Gilbert), ingénieur de classe exceptionnelle du Corps autonome des Travaux météorologiques, titulaire d’un congé à passer en métropole.
