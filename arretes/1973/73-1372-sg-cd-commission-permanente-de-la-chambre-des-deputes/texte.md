@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 374/7e L du 1er séptembre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant virement de crédits au budget annexe du port — budget extraordinaire — exercice 1973.
