@@ -1,0 +1,2 @@
+Un congé administratif de sept mois (7) pour en jouir à Tananarive (Madagascar) est accordé à M. Razafindrakoto (Pierre), secrétaire contractuel au service de l’’Enregistrement, des Domaines et du Timbre.
+Une réquisition de passage par première occasion maritime Djibouti-Tamative et une réquisition par voie ferrée Tamatave-Tananarive seront délivrées a l’intéresse qui voyage accompagné de son épouse et de ses deux enfants âgés respectivement de 6 et de 4 ans (groupe III).
