@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de véhicules (voitures publiques, charrettes bédanis, tombereaux « arabas »), exercice 1936 du cercle de Djiibouti, s’élevant à la somme de dix mille huit cent quatre-vinget-dix francs.
