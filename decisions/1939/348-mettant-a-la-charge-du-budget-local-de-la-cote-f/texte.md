@@ -1,0 +1,1 @@
+Le montant de ia consommation du courant pour l’éclairage électrique de toutes les mosquées de la ville de Djibouti est mis à la charge du budget local de la Côte française des Somalis, pour compter du 17 janvier 1939.
