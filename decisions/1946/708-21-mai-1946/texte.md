@@ -1,0 +1,1 @@
+M. Ch. Malhéné, géomètre contractuel, affec té au Service des travaux publics, à Djibouti, a été désigné en qualité de géomètre officiel de la Conservation foncière. en remplacement de M. Gourgeot, géomètre, rapatrié sur la France.
