@@ -1,0 +1,1 @@
+M. Ali Aref Bourhan, président du Conseil de Gouvernement, ministre des Travaux publics et du Port, est autorisé à se rendre en mission en France, pour une durée deux mois, pour compter du 30 juin 1973.
