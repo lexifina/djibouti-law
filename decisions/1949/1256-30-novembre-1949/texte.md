@@ -1,0 +1,1 @@
+L’adjudant hors cadres Tiré (Aimé), secrétaire au secrétariat général, est nommé, à compter du 15 novembre 1949, secrétaire administratif de l’Office des anciens combattants et victimes de la guerre de là Côte française des Somalis en remplacement de M, Lamarque, démissionnaire.
