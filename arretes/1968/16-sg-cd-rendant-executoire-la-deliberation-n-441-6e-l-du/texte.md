@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 441/6L du 30 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas portant fixation des conditions d’importation, de taxation et de vente du kath dans le Territoire.
