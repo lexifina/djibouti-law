@@ -1,0 +1,1 @@
+MM. Hassan Cassim, Mohamed Cassim et Ali Cassim sont autorisés à acquérir un immeuble bati, d’une superficie de 277,91 mètres carrés, sis à Djibouti, avenue Georges-Clemenceau, immatriculé au livre foncier du Territoire sous le n° 9 au nom de la Société Besse Mer Rouge.
