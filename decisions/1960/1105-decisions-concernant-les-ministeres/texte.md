@@ -1,0 +1,1 @@
+M. Hanhart (Paul), instituteur du 7e échelon détaché du cadre métropolitain, est muté, sur sa demande, à l’Ecole Primaire de garçons du boulevard de Gaulle en qualité d’adjoint, pour compter du 1er octobre 1960.
