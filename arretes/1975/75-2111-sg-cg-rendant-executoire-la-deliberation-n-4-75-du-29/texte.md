@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 4-75 du 29 mai 1975 du conseil d’administration de l’Office des Postes et Télécommunications portant réaménagement des tarifs postaux et financiers du régime intérieur.
