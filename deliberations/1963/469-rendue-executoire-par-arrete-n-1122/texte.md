@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1122 du 7 septembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à M. Osman Guelle Farah la cession définitive d’un terrain d’une superficie de 192 mètres carrés,sis rue Soleillet à Djibouti, au prix de 300 francs le mètre carré.
