@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 41/6°L du 27 mars 1964 de la Commission permanente de l’Assemblée Territoriale accordant le bénéfice d’un avantage en nature au chirurgien-chef de l’hôpital Peltier.
