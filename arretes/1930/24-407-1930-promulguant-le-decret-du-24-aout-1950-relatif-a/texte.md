@@ -1,0 +1,2 @@
+Art 1er — Est promulgué à la Côte francaise des Son ais .le décret du 24 août 1930, susvisé. relatif à ia réglementation de l’exercice de la profession d’avocat défenseur dans les co lonies autres que les Antilles, La Reunion, l’Indochine, ainsi que dans les territoires sous mandat.
+Art 2 — Le présent arrêté sera enreistré, publié et communiqué partout oû besoin sera et inséré au Journal officiel de la colonie.
