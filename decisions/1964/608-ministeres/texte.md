@@ -1,0 +1,1 @@
+M. Ibrahim Ahmed Moussa, élève maître admis au certificat élémentaire d’aptitude pédagogique, est titularisé instituteur de 2e classe, 1er échelon, du Corps territorial de l’’Enseignement public pour compter du 1er janvier 1964 et rangé à l’indice 490.
