@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 263/7e L du 12 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget annexe du Port de Commerce de Djibouti (exercice 1971).
