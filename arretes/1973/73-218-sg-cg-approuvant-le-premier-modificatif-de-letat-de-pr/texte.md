@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 274 du 18 décembre 1972 du conseil d’administration d’ « Electricité de Djibouti» arrêtant l’état de prévisions de dépenses de l’Etablissement, pour l’année 1972 à la somme de : 829.755.000 FD (huit cent vingt-neuf millions sept cent cinquante-cinq mille francs Djibouti).
