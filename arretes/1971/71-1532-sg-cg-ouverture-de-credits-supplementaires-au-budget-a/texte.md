@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 215/7eL du 4 novembre 1971 de la Commission, permanente de la Chambre des Députés du Territoire Fränçais des. Afars et des Issas portant ouverture dé crédité supplémentaireés au Budget annésé du Port (budget eKtraordinaire), exercice 1971.
