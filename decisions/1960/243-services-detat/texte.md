@@ -1,0 +1,2 @@
+Est acceptée, pour compter du 1er février 1960, la démission de son emploi offerte par Mme Kerpan, engagée à l’essai à compter du 29 décembre 1959 en qualité de secrétaire dactylographe, mise à la disposition de M. l’Inspecteur de la France d’Outre-Mer en mission.
+Mme Kerpan aura droit à une indemnité compensatrice de congé non pris égale à 1/16e de la rémunération qu’elle a perçue pour la durée de ses services.
