@@ -1,0 +1,1 @@
+Rectificatif au Journal officiel du 8 avril 1934 : page 3643, 1er colonne, 1re ligne, au lieu de : « M, Blacmer (Louis), gouverneur des colonies hors cadres », lire : « M. Blacher (Louis), gouverneur des colonies hors cadres ».
