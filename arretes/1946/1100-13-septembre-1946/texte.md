@@ -1,0 +1,1 @@
+Est expulsé du territoire de la Côte française des Somalis le nommé Mohamed Hussein Hadai, Arabe, fils de Hussein Mohamed Hadai et de Fatima bint Ali, habitant à Dji bouti, route de Boulaos. Le présent arrêté sera notifié à l’intéressé et communiqué partout où besoin sera.
