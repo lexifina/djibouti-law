@@ -1,0 +1,2 @@
+L’adjudant-chef Castor Louis, du cadre des agents des corps de troupe de Marine, embarqué par Avion à Paris le 1er août 1964, est affecté à la Milice de la Côte Française des Somalis pour compter du 2 août 1964, date de son débarquement.
+Ce sous-officier est mis à la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions d’agent spécial, en remplacement- de l’adjudant Dellavalle Germain, rapatriable.
