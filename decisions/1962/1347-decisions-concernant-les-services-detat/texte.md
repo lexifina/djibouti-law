@@ -1,0 +1,3 @@
+Le Milicien de 2° Classe Djilani Bourhan Kassim, mle 2498, de la 3° Compagnie de Milice à Ali-Sabieh arrivant en fin de contrat le 17 octobre 1962 et ne désirant pas rengager est libéré sur sa demande pour compter du 17 octobre 1962 et ne peut prétendre à aucune indemnité.
+Les: droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent spécial de la 3° Compagnie de Milice à Ali-Sabieh.
+Le Milicien de 2° Classe Djilani Bourhan Kassim. mlé 2498 sera rayé des contrôles de la Milice de la C.F.S. à compter du 17 octobre 1962, il recevra le certificat de libération.
