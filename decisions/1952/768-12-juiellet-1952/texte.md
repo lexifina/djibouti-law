@@ -1,0 +1,1 @@
+Pour compter du 1er juin 1952, le salaire mensuel de M. Pihodes (Pierre), comptable auxiliaire du Service des Travaux publics (Usine des Eaux), est porté à trente-neuf mille francs (39.000 fr.), exclusif de toute indemnité y compris celles pour, charges de famille.
