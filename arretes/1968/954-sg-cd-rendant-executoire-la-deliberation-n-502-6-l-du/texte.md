@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 502/6L du 10 juin 1968 de la Commission pérmanente de la Chambre des Députés du Territoire Françaises Afarset des Issas envoyant six membres de la Chambrédes Députés en mission en Métropole.
