@@ -1,0 +1,1 @@
+M. Jouve (Jean-Marie), administrateur en chef de classe exceptionnelle des Affaires d’Outre-Mer, chargé de mission auprès du Chef de Territoire, est nommé chef du, Service.des Affaires administratives d’Etat en remplacement de M. Gabirault (Pierre Henri), en instance de départ en congé.
