@@ -1,0 +1,1 @@
+Est approuveée la délibération n° 246 du 27 décembre 1971 du conseil d’administration d’Electricité de Djibouti arrêtant l’état ce prévisions de recettes et de dépenses pour l’année 1972 à la somme de 848.000.000 de FD. (huit cent quarante-huit millions de Francs Djibouti).
