@@ -1,0 +1,3 @@
+# Préambule
+Art, 1er. — Est promulgué à la Côte francaise des Somalis le décret du 4 novembre 1930, susvisé, modifiant le décret du 2 mars 1910 portant règlement sur la solde et les allocations accessoires des fonctionnaires, employés et agents des services
+coloniaux.
