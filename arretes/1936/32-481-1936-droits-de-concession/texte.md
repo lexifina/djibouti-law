@@ -1,0 +1,3 @@
+il est fait concession provisoire à la Compagnie de l’Afrique orientale maritime et commerciale aux clauses et conditons du cahier des charges annexé au présent arreté du lot n° 325 du platenn du Marabout, immatrieuté au nom de l’Etat français sous le n° 165 du Livre foncier de la colonie.
+Le concessionnaire devra se Soumettre aux lois, décrets et arrêtés et règlements en vigneur ou à intervenir concernant tant les concessions que la voirie et l’alignement.
+La Compagnie de l’Afrique orientale maritime et commerciale sera tenne de regnérir du conservateur de la propriété foncière à Djibouti l’inscription du droit réel ainsi constitué en sa faveur dans le mois qui suivra la date de signaturs du présent arrêté.
