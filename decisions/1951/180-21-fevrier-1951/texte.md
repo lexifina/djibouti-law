@@ -1,0 +1,2 @@
+1° Un congé administratif de six mois pour en jouir à Chaumont (Marne) est accordé à M. Jurey (Pierre), juge suppléant près le Tribunal de première instance de Djibouti qui aura accompli dans le Territoire, le 26 février 1951, un séjour de deux ans.
+2° Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Chaumont seront délivrées à l’intéressé qui appartient au groupe III.
