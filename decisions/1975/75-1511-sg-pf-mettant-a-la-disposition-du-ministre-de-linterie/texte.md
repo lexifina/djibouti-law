@@ -1,0 +1,1 @@
+M. Lecofte Jean-Pierre, adjoint techñique de la ville de Digne, est, pour compter du 10 juillet 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Intérieur et des Affaires musulmanes pour servir au cercle de Tadjourah en remplacement numérique de l’adjudant Monnot qui a quitté définitivement le Territoire.
