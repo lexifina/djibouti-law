@@ -1,0 +1,1 @@
+Le lieutenant d’administration Cacciaguerra (Charles), du Service de Santé colonial, est mis à la disposition du Directeur du Service de Santé pour servir en position hors cadres en qualité de gestionnaire de l’Hôpital Principal, à compter du 13 octobre 1953, date de son débarquement sur le Territoire.
