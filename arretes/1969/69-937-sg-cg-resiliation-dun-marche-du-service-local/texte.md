@@ -1,0 +1,1 @@
+Le marché n° 39/68/V concernant la fourniture et la pose de bas flancs au Centre pénitentiaire de Gabode, approuvé le 11 décembre 1968, conclu avec M. Ahmed Saleh Ahmed, et qui n’a pas recu commencement d’exécution, est résilié à l’amiable sans indemnité.
