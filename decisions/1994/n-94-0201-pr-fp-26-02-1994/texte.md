@@ -1,0 +1,1 @@
+chef du gouvernement, en date du 26 février 1994, M. Mahamoud ldleh Koulmiyeh, enquêteur de police de 2e classe — 2e échelon du corps de la Police nationale, en service à la direction des Services de Documentation et de Sécurité, est révoqué de son emploi avec suspension de ses droits à pension conformément aux dispositions de l’article 271 du décret n° 89-062/PRE du 29 mai 1989
