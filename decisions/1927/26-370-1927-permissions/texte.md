@@ -1,0 +1,1 @@
+une permission d’absence de vingt jours, à compler du 18 septembre 1927, est accordée à M. Cavaillé Marius, administrateur de 1er classe des colonies, chef du bureau des affaires politiques, pour en jouir à Diré-Daoua.
