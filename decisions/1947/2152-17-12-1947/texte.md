@@ -1,0 +1,1 @@
+Le set gent Montoroy (Jean), désigné pour servir hors cadres à la Côte française des Somalis, est affecté à la 2e compagnie de milice indigène, en qualité de mécanicien, pour compter du 12 décembre 1947, date de son débarquement.
