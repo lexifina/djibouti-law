@@ -1,0 +1,1 @@
+Le sergent d’Infanterie de Marine Giovanonni Augustin (251/T/TA-C.A.T. 2 comptable – C.L.A.), arrivé par avion à Djibouti le 11 septembre 1963, est mis à la disposition du Commandant de Cercle de Djibouti, commandant la 4 Compagnie de Milice, pour assurer les fonctions de radio et de secrétaire-comptable de la Compagnie.
