@@ -1,0 +1,1 @@
+M. E.Ph. Vlahoulis, de nationalité hellénique, demeurant à Khartoum (Soudan), est autorisé à acquérir un immeuble sis à Djibouti, plateau du Marabout (lot n° 566) et immatriculé au Livre foncier du Territoire sous le n° 564 au nom de la S.A.R.L. E. Ph. Vlahoulis (Djibouti) Limited, dont le siège social est à Djibouti.
