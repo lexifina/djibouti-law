@@ -1,0 +1,1 @@
+M. Robert Théolaire, volontaire de l’aide technique, est, pour compter du 1er septembre 1968, date de son incorporation, mis à la disposition du Ministre des Travaux publics et du Port, nour servir au port en qualité d’électricien.
