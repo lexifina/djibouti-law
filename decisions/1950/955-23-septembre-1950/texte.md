@@ -1,0 +1,2 @@
+M, Vigne (Jean), comptable contractuel assimilé à un comptable principal de 3e classe, est mis a la disposition du directeur des travaux publics pour, servir à l’Usine électrique, pour compter du 13 septembre 1950, date de son retour à la colonie.
+M. Vigne est désigné comme agent intermédiaire du Trésor pour la perception des produits de la régie administrative de la distribution du courant électrique Djibouti, en remplacement de M. Rhodes, désigné provisoirement par décision n° 845 du 24 août 195
