@@ -1,0 +1,2 @@
+Art 1– Les ressources fiscales créées pur l’article 11de la loi du 25 juin 1920 seront recouvrées dans les colonies au profil des budgets locaux et affec ées exclusivement aux habitations à bon marche, Un arrèté du gouverneur pris après délibération du C‘onseil général ou avis du Conseil du gouvernement, délerminera dans chaque colonie les conditions d’° applecation du présent article et de la loi du 5 décembre 1922 porlant codification des lois sur les
+habitations à bon imarcbé ei la pelile propriété.
