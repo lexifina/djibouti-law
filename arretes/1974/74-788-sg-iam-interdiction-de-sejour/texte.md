@@ -1,0 +1,1 @@
+Le séjour dans le district de Djibouti et tous les cercles est interdit à Adjallo Fabaneh Yilmo, né vers 1954 à Walamo (Ethiopie), condamné le 1° octobre 1973 par le Tribunal Supérieur d’Appel de Djibouti, a un an de prison et cinq ans d’interdiction de séjour, pour vol et DAS, écroué le 30 avril 1973, libérable le 30 avril 1974.
