@@ -1,0 +1,2 @@
+Un congé administratif de trois mois, pour en jouir A Aden, est accordé à M. Ali Mohamed Kadada, ouvrier de maîtrise contractuel en service à la Direction des Travaux publics, dont le contrat, arrivé à expiration, a été renouvelé pour une période d’égale durée.
+M. Al Mohamed Kadada, classé au groupe IV, voyagera accompagné de son fils âgé de 16 ans par voie maritime de Djibouti à Aden aux frais du budget local.
