@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 5-71 du 27 avril 1971. du conseil d’administration de l’Office des Postes et Télécommunication portant réaménagement de certaines taxes du service téléphonique.
