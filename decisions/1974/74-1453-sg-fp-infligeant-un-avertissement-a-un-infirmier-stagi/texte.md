@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Badri Mohamed Said, infirmier stagiaire du Corps territorial de la Santé publique, en service à l’Hôpital Peltier (service de pédiatrie) pour absence non motivée des 29 et 30 juillet 1974.
