@@ -1,0 +1,1 @@
+Mme Durand est engagée pour compter du 15 mars 1953 en qualité de dame-employée auxiliaire 3e catégorie et mise à la disposition du Chef du bureau des Affaires administratives en remplacement de Mme Chavigny, autorisée à cesser son service.
