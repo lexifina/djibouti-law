@@ -1,0 +1,1 @@
+M. Kognon (Robert), adjoint des services civils après dix-huit mois, dans la position de disponibilité depuis le 25 décembre 1925, est maintenu dans ladite position pour une période d’une année, à compter 25 décembre 1928,
