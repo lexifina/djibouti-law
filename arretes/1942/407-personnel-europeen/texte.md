@@ -1,0 +1,1 @@
+M. l’administrateur adjoint Marnay, lieute nant de réserve, est nommé secrétaire gref- fier du conseil du contentieux administratif de la colonie en remplacement du lieutenant Febreau. Il prêtera serment devant le Gouverneur en séance du Conseil d’administration.
