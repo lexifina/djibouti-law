@@ -1,0 +1,1 @@
+que le nommé Farah Ali, fils de feu Ali ben Ali Salem et de feue Mesk bint Salah, arabe Chargabi, domicilié à Djibouti, quartier 3, est sujet français pour jouir de tous le droits et prérogatives attachés à cette qualité.
