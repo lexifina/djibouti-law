@@ -1,0 +1,1 @@
+Sont pris en charge par le Budget local les frais d’évacuation sanitaire et d’hospitalisation de M. Andrianirina (Alphonse), agent contractuel du Service de Santé, à l’hôpital Gustave Roussy à Villejuif (Val-de-Marne).
