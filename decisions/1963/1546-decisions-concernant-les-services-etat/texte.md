@@ -1,0 +1,1 @@
+Le Milicien de 2° classe Ahmad Ali Mahammad, mle 2867 de la 4 Compagnie à Damerdjog, est licencié pour « Inaptitude à l’emploi» et pour compter du 17 décembre 1963. L’intéressé’ qui totalise 3 mois 11 jours de services effectifs dans la Milice de la C.F.S., n’ayant pas accompli un an de service, ne peut prétendre à aucune indemnité.
