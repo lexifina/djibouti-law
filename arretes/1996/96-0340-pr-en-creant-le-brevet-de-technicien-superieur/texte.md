@@ -1,0 +1,2 @@
+il est créé à compter de la rentrée scolaire 1995-1 996, un brevet de technicien supérieur dans la spécialité «assistant de direction».
+Les conditions de délivrance du brevet de technicien supérieur «assistant de direction» sont fixées conformément aux dispositions du décret n° 90-0109/PR/EN du 4 octobre 1990 portant règlement général du brevet de technicien supérieur ainsi que par les annexes | (règlement d’examen) et II (définition des épreuves) du présent arrêté.
