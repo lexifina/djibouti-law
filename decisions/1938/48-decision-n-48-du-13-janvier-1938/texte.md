@@ -1,0 +1,1 @@
+MM. Ernoux, Demangeot et Vallet, inspectEurs de police, en service détaché, nouvellement affectés à la Côte française des Somalis, sont mis à la disposition du chef du Service de la sûreté pour compter du 28 décembre 1937 jour de leur débarquement dans la colonie.
