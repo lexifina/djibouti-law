@@ -1,0 +1,1 @@
+M. Gautier (Fernand), comptable principal, de 1er classe du Service des Travaux publics (Usine électrique), est désigné provisoirement comme agent intermédiaire du Trésor pour la perception des produits de la régie administrative de la distribution d’eau à Djibouti, en remplacement de M. Rhodes (Pierre), comptable auxiliaire, actuellement en congé.
