@@ -1,0 +1,1 @@
+IL est mis fin, sur sa demande, pour compter du 15 juillet 1971, à l’engagement de Mme Lefol Marie-Hélène, directrice contractuelle de la Caisse des Prestations sociales du Territoire Français des Afars et des Issas.
