@@ -1,0 +1,2 @@
+1° Une allocation viagère de dix sep mille cinq cent vingt-deux francs (17.52 fr.) est accordée à Fatma Nour, veuve d Omar Ali Gouled, ex-planton de 8e échelon au Service des P.T.T., qui a servi pendant vingt-huit ans dans l’Administration,
+2° Cette allocation sera payable trimestriellernerit à terme échu pendant cinq armées pour compter du 1er octobre 1950, sur présentation d’un certificat de vie et d’un certificat établi par le Cadi, attestant qu’elle n’est pas remariée.
