@@ -1,0 +1,1 @@
+Mme haroutel (Jeanne) est engagée pour à compter du 1er octobre -1950 en qualité de secrétaire sténo-dactylographe auxiliaire, 1er catégorie, a salaire journalier, et mise à la disposition du directeur du service de santé en remplacement numérique de M. Personnel.
