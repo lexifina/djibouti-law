@@ -1,0 +1,1 @@
+Est rendue, exécutoire la délibération n° 152/7° L du 24 décembre 19/0 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du Code général des Impôts (contribution des patentes).
