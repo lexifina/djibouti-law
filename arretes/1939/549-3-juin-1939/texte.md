@@ -1,0 +1,1 @@
+M. Merlo, juge suppléant par intérim près le Tribunal de première instance de Djibouti, est désigné comme membre magistrat, adjoint au Conseil d’administration siégeant an contentieux, pendant la durée du congé de M. K.Ropagnol.
