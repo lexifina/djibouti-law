@@ -1,0 +1,2 @@
+1° M. Cantini (Pierre), comptable contractuel, est mis à la disposition du Chef du Service des Finances en remplacement numérique de M. Mouis qui a reçu une autre affectation pour compter du 31 décembre 1950, date de son débarquement à Djibouti.
+2° M. Mouis, comptable contractuel, précédemment en service aux Finances, est mis à la disposition du chef du Service des Contributions directes, pour compter de la même date.
