@@ -1,0 +1,2 @@
+Art. ler. – A tout aéronef importé en République de Djibouti qui possède un certificat de navigabilité établi selon les règlements de la République française, il pourrra être délivré un certificat de navigabilité djiboutien.
+Art 2. – Le ministre du Commerce, de l’Industrie, des Transports et du Tourisme est chargé de l’exécution du présent décret qui sera publié au Journal officiel de la République de Djibouti.
