@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 482 du 5 octobre 1963 de la Commission Permanente de l’Assemblée Territoriale portant autorisation de virements de crédits au Budget territorial de l’exercice 1968.
