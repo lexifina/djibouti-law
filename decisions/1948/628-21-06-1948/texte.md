@@ -1,0 +1,2 @@
+Un congé de convalescence de trois mois, pour en jouir à Saint-Mandé (Seine) est accordé à M. Sevrain, ingénieur principal de 4e classe du cadre principal des travaux publics, chef du service des travaux publics en Côte française des Somalis.
+M. Sevrain. accompagné de on épouse, rejoindra son lieu de congé par première occasion maritime, pour compter du 20 juin 1948 et voyagera en 1er classe aux frais du budget local (assimilation : 1er catég. B).
