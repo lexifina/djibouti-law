@@ -1,0 +1,1 @@
+Est rendu exécutoire le 1er rôle supplémentaire du 2e trimestre du rachat des prestations (exercice 1938), comprenant mille huit cent dix articles et à la somme de quarante-cing mille deux cent cinquante francs.
