@@ -1,0 +1,1 @@
+Le salaire mensuel du nommé Ali Mouna-verali, observateur météorologiste auxiliaire, est porté de vingt et un mille six cent francs (21.600 francs) pour compter du 10 mars 1950 à vingt-trois mille deux ceuts francs (23.200 francs) pour compter du 1er juillet 1950.
