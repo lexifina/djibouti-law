@@ -1,0 +1,1 @@
+Un congé à solde entière d’une durée de trois mois, pour en jouir à Djibouti, est accordé à M. Kamitsos (Louzis), dessinateur auxiliaire 2e catégorie, en service à la Direction des Travaux publics, pour compter du 1er décembre 1953.
