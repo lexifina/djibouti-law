@@ -1,0 +1,3 @@
+Une indemnité pour accident du travail de trente deux mille deux cent trente-trois francs Djibouti (32.233 F.D.) est accordée à M. Kamil Elmi Djama, employé aux Travaux Publics (Subdivision Entretien Bâtiments), victime d’un accident du travail survenu le 16 mars 1962.
+Le paiement de cette indemnité implique la renonciation par l’intéressé de tout recours civil ou contentieux, sauf aggravation médicalement constatée de 1’incapaciÿé permanente partielle résultantide l’accident du travail.
+La dépense visée ci-dessus est imputable sur le Budget local du Territoire, exercice 1962, chapitre 1, article 2, paragraphe 2.
