@@ -1,0 +1,1 @@
+Est constatée, pour compter du 3 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service du Personnel (Ministère de la Fonction publique), par M. Emile Ratsimandresy, rédacteur de 1er classe, 2e échelon, du Cadre territorial de l’Administration générale.
