@@ -1,0 +1,1 @@
+M. Terrien (Georges) est engagé à titre précaire et révocable en qualité de surveillant auxiliaire à la solde mensuelle de 30.000 francs exclusive de toute indemnité, y compris les charges de famille, pour compter du 13 octobre 1952 et mis à la disposition du Directeur du Service des Travaux publics.
