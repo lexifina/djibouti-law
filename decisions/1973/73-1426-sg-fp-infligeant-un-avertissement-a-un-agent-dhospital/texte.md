@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Soubane Eye Guessod, agent d’hospitalisation de 1° classe, 2° échelon du corps territorial de la Santé Publique, en service à l’hôpital Peltier (ministère de la Santé Publique et des Affaires Sociales), pour manque de conscience professionnelle.
