@@ -1,0 +1,21 @@
+# Arrêté n° 1272 Arrêté de promulgation n° 1272.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-1272-arrete-de-promulgation-n-1272/>
+
+En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Gouverneur, Chef du Territoire de la Côte Francaise des Somalis, Officier de la Légion d'Honneur,
+Vu l'ordonnance organique du 18 septembre 1844, rendue applicable au Territoire par decret du 18 juin 1884 ;
+
+## Signature
+
+Pour le Chef du Territoire et par délégation :
+Le Secrétaire Général,
+Y. de DARUVAR.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
