@@ -1,0 +1,1 @@
+La solde mensuelle de M. Casagrande (Georges), ouvrier à la Régie des eaux (Direction des travaux publies), est fixée à vingt-neuf mille cinq cents francs pour compter du 1er janvier 1950 et a trente et un mille francs pour compter du 1er juillet 1950.
