@@ -1,0 +1,3 @@
+M. Charles Merz, Chef du Service des Affaires administratives d’Etat, Administrateur en chef des Affaires d’outre-mer,licencié en droit, est nommé conseiller titulaire du Conseil du Contentieux administratif en remplacement de M. Tramier, Chef du Service des Affaires économiques.
+M. Jean Martini, Inspecteur central du Trésor, licencié en droit, est nommé conseiller suppléant au Conseil du Contentieux administratif en remplacement de M. Laurans, Chef du Service des Finances de l’Etat.
+M. Jean Larré, attaché de la France d’Outre-Mer, licencié en droit, est nommé conseiller suppléant au Conseil du Contentieux administratif en remplacement de M. Beaux, Directeur de Cabinet du Haut-Commissaire.
