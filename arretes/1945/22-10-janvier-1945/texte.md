@@ -1,0 +1,2 @@
+M. Jean DUCOUDRE, capitaine d’artillerie. licencié en droit, est nommé président ad-hoc du Tribunal supérieur d’appel pour recevoir la prestation de serment de l’huissier près les tribunaux français de Djibouti, et entériner le serment du président du tri bunal indigène du 1 1 degré de la subdivi sion d’Obock.
+Avant d’entrer en fonctions, M. DUCOU DRE prêtera, devant le Chef de la Colonie, le serment prescrit par la loi.
