@@ -1,0 +1,1 @@
+Mme Chauvin Andrée, commis d’administration universitaire, 4 échelon, est, pour compter du 21 septembre 1973, date de son arrivée dans le Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir à la Direction de l’Enseignement public du 1e degré.
