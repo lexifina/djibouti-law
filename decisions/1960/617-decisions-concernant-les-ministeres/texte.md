@@ -1,0 +1,1 @@
+L’élève Garde Territorial Abdi Awaleh, Mile 529, est licencié par mesure disciplinaire pour « désertion » et rayé des contrôles de la Garde Territoriale pour compter du 9 mai 1960 L’intéressé ne peut prétendre à aucune indemnité.
