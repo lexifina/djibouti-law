@@ -1,0 +1,2 @@
+1° Un congé administratif de sept mois pour en jouir dans la Métropole est accordé à M. Terrisse (Georges), instituteur de 4e classe, du Cadre métropolitain, détaché à la Côte Française des Somalis, qui a accompli le 28 mai 1951 un séjour de trente mois dans, le Territoire.
+2° Une réquisition de passage par voie maritime Djibouti-Marseille sera délivrée à l’intéressé qui voyagera accompagné de son épouse et de deux enfants âgés respectivement de vingt mois et deux mois (Groupe III).
