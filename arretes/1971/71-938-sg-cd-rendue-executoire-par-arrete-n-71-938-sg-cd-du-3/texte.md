@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 201/7eL, du 29 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en Métropole plusieurs membres de la Chambre des Députés.
