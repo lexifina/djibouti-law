@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 42/8e L du 10 juin 1974 de Ja Chambre des députés du Territoire français des Afars et des Issas délimitant dans le District de Djibouti, les zones où l’extraction en carrières de matériaux solides est autorisée.
