@@ -1,0 +1,1 @@
+l’Administration localemet gracieusement à la disposition du Comité des Fêtes et de M. Terras, l’immeuble dit « Salle des Fêtes” en vue de l’organisation de saines distractions récréatives, pour la population de Djibouti,
