@@ -1,0 +1,1 @@
+Une réprimande est infligée à M. Nguyen Thuong Tho, instituteur contractuel (catégorie D 1) en service à l’école primaire de Tadjourah (Cercle de Tadjourah) pour n’avoir pas assuré sa classe dans la journée du lündi 6 novembre 1972.
