@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 77/7L du 27 décembre 1969 de la Chambre des Députés du Territoire Français des, Afars et des Issas portant ouverture de crédits supplémentaires au budget annexe du port de commerce de Djibouti pour l’exercice 1969.
