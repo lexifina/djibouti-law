@@ -1,0 +1,1 @@
+M. Raymond Pécoul, Ministre des Finances, des Affaires Economiques et du Plan est chargé, à compter du 29 juillet 1963, de l’expédition des Affaires courantes du Ministère des Travaux Publics et du Port bendant l’absence de M. Taher Aden Douale, en congé.
