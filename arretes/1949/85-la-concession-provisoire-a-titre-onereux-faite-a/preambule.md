@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er. — Est rendue exécutoire la délibération du Conseil représentatif de la Côte française des. Somalis en date du 22 décembre 1948 relative à la concession provisoire à titre onéreux faite à M. Ahmed Abdallah Garadi, demeurant et domicilié à Djibouti, d’une parcelle de terrain d’une superficie de 1.500 mètres carrés formant le lot n° 400 du plan de lotissement du boulevard De-Gaulle, telle au surplus qu’elle est figurée au plan ci-annexé.
