@@ -1,0 +1,1 @@
+Le sergent Adam, en service hors cadres au cabinet militaire, est nommé dépositaire comptable du matériel et mobilier de l’hôtel du Gouvernement, en remplacement de M. Trobas, appelé à d’autres fonctions.
