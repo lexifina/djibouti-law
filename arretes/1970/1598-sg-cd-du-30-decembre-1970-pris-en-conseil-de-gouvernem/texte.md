@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 154/7° L du 24 décembre 1970 de la Commission permanente de la Chambre des Députés modifiant la délibération n° 37/7°L du 20 mai 1969 portant organisation de la Garde territoriale du Territoire Français des Afars et des Issas.
