@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances le décret du 25 juin 1942 rendant applicable aux fonctionnaires or agents civils en service dans les territoires relevant du secrétariat d’Etat aux colonies les dispositions de l’article 1 er de la loi n° 373 du 13 mars 1942.
