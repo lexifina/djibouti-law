@@ -1,0 +1,2 @@
+La décision n° 477 du 8 avril 1964 est annulée.
+En application. de l’article 32 de l’arrêté local n° 173 du 11 février 1937, portant réglementation de la circulation en Côte Française des Somalis, pour compter du 15 mai 1964, M. Huen (Bernard), chef comptable à la Subdivision des Eaux des Travaux publics, est chargé des examens du permis de conduire dans le Territoire et percevra l’indemnité spéciale à cette charge qui est fixée à cent francs Djibouti (100 F.D.) par examen.
