@@ -1,0 +1,4 @@
+Le 1er classe Saïd Ali, mle 1166 de la 1er Compagnie à Dikhil, maintenu-par tacite reconduction de son contrat du 5-4-60 au 1-6-61, totalisant 17 ans, 1 mois et 26 jours de services effectifs dans la Milice, est admis à faire valoir ses droits à l’Allocation viagère annuelle en exécution de l’article n° 6 de l’arrêté n° 105 du 3-2-43.
+Il sera-_libéré et rayé des contrôles de la Milice pour compter du 1-6-61. Il recevra le certificat dé bonne conduite.
+Le 1″ classe Saïd Ali, mle 1166, bénéficiera à compter du 1-6-61 d’une allocation viagère annuelle de trente sept mille deux cent Cinquante francs Djibouti (37.250 F.D.) payable trimestriellement et à terme échu et sur vu d’un certificat de vie délivré par les autorités compétentes.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent spécial de la 1° Compagnie à Dikhil.
