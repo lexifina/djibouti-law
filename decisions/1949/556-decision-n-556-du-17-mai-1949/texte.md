@@ -1,0 +1,1 @@
+Est acceptée pour « convenance personnelle » la démission de son emploi offerte par Saïd Farah, planton auxiliaire, 3e échelon, en service aux P. T. T. La présente décision aura effet pour compter du 16 mai 1949.
