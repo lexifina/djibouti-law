@@ -1,0 +1,1 @@
+M. René Puyhardy, brigadier de police, 3e échelon, affecté à la portion centrale de la Garde territoriale est mis à la disposition du directeur du port pour assurer le commandement du peloton de la police portuaire dans les conditions prévues aux articles 15 et 19, de la délibération n° 37/7e L du 12 mai 1970.
