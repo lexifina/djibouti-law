@@ -1,0 +1,4 @@
+1° Il est créé en Côte Française des Somalis pour l’année 1951 une commission du certificat d’aptitude pédagogique.
+2° L’épreuve écrite aura lieu le jeudi 1er mars, dans le local de l’école publique à partir de 7 h. 30. L’inscription des can- didats et candidates sera reçue jusqu’au jeudi 22 février au bureau du Chef du Service de l’enseignement.
+3° Les épreuves pratique et orale auront lieu, pour chaque candidat ou candidate admissible, dans le trimestre qui suivra la proclamation des résultats de l’examen écrit. A cet effet, une classe pourra être ouverte quarante-huit heures à l’avance à tout candidat ou candidate qui ne serait pas en fonction au moment de l’examen.
+4° La possession du certificat d’aptitude pédagogique n’entraînera pas pour son titulaire le droit à la nomination dans le Territoire, ce qui ne pourra intervenir que suivant les nécessités de service.
