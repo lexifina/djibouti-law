@@ -1,0 +1,2 @@
+Mme Fabresse (Yvonne), secrétaire dactylographe auxiliaire (échelle X, 3° échelon, indice 865), en service au Bureau du Personnel Etat, est autorisée sur sa demande à cesser ses fonctions pour compter du 23 juin 1960.
+Mme Fabresse aura droit à une indemnité compensatrice de congé non pris égale à 22 jours de salaire et conserve dans son échelon une ancienneté de 17 mois et 24 jours de services effectifs.
