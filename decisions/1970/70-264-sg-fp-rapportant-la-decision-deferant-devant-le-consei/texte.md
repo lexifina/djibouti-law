@@ -1,0 +1,1 @@
+La décision n° 70-134/SG/FP du 5 février 1970, déférant devant le conseil de discipline M. Abdillahi Egal Djama, planton principal, 3° échelon, du cadre territorial de l’Administration générale, en service à la Police nationale, pour complicité d’usage de fausse pièce d’identité, est rapportée.
