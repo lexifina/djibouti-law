@@ -1,0 +1,2 @@
+Est approuvé le budget de la Chambre de Commerce de Djibouti pour l’exercice 1966 arrêté en recettes et en dépenses à la somme de : (9.380.000 F.D.) neuf millions trois cent quatre-vingt mille francs Djibouti.
+Le Président de la Chambre de Commerce est autorisé à prélever sur le Fonds de réserve, aux fins d’équilibre du budget, une somme de trois millions neuf cent quatre-vingt mille francs Djibouti (3.980.000).
