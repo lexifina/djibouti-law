@@ -1,0 +1,1 @@
+Il est fait retour, au Domaine du Territoire, d’une parcelle de terrain, sise sur la route de l’Arta vers le kilomètre 4 et immatriculée au Livre foncier du Territoire sous le n° 741, ce en application de l’article 5 de l’arrêté gubernatorial n° 1504 du 7 novembre 1956, le concessionnaire n’ayant pas réalisé la mise en valeur de ladite parcelle dans le délai prevu.
