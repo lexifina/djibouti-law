@@ -1,0 +1,1 @@
+M. Mohamed Ali Mohamed, agent de contrôle auxiliaire au Service des Affaires économiques, est habilité à constater, par procès-verbaux, les infractions à la réglementation du commerce dans Île Territoire français des Afars et des Issas, Avant d’entrer en fonction, M. Mohamed Ali Mohamed prêtera le serment prescrit par la loi devant le président du tribunal de première instance.
