@@ -1,0 +1,1 @@
+rendüe exécutoire par arrêté n° 1686 du 5 décernbre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère des Armées), la concession définitive d’un terrain d’une Superficie de cinq hectares cinquante deux ares environ, sise à Obock (titre foncier n° 842), à titre gratuit
