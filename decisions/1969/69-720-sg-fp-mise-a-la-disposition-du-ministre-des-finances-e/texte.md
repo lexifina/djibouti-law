@@ -1,0 +1,1 @@
+M. Auguste Moyere, contrôleur des brigades des douanes, est, pour compter du 16 avril 1969, date de son arrivée au Territoire, mis à la disposition du Ministre des Finances et du Plan servir aux contributions.
