@@ -1,0 +1,1 @@
+M. Séré, Commis de 1er classe des Affaires Indigènes, Gradué en Droit, est délégué, pour compter du 1er mars 1908, dans les fonctions de Procureur de la République à Djibouti, en remplacement de M. Rizzo, titulaire d’un congé de convalescence,
