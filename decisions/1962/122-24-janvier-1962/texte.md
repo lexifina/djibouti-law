@@ -1,0 +1,2 @@
+Les restes mortels de l’enfant Rasoamanana Thierry, décédé à Djibouti le 9 mars 1961 et se trouvant actuellement au dépositoire du cimetière de cette ville, seront transférés au cimetière de Faravohitra-Nord, canton de Sabotsy-Namehana, district de Tananarive-Banlieue.
+Les dépéënses occasionnées par ce transfert séront à la charge du Budget de l’Etat (Budget des Armées — Affaires d’Outre-Mer — Chavpitre 32-93 — Transport du Personnel et Déplacements — Article 1er).
