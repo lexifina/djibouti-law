@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 74/1/CLR du 14 mars 1974 du conseil d’administration de la Caisse locale de Retraites octroyant un prêt de 100. 000.000 FD au Territoire pour l’édification de bâtiments à usage de logement.
