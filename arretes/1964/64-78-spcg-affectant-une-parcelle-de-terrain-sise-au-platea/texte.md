@@ -1,0 +1,1 @@
+Il est affecté, au Ministère des Travaux publics et du Port pour les besoins de la Direction du Port, une parcelle de terrain bâtie, d’une superficie de cinq cent vingt-cinq mètres carrés, sise à Djibouti, plateau du Marabout, et immatriculée au Livre foncier sous le n° 742.
