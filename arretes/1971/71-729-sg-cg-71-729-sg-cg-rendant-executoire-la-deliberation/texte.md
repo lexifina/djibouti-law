@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 1-71 du conseil d’administration de l’Office des Postes et Télécommunications instituant une allocation spéciale provisoire et une indemnité de risques et de sujétions au bénéfice de certaines catégories de personnels techniques de l’administration des PTT.
