@@ -1,0 +1,1 @@
+Est approuvé et rendu exécutoire le budget de l’exercice 1970 de l’Office de Développement du Tourisme s’élevaht en recettes et en dépenses à dix millions de francs pour la séction ordinaire, et.en recettes et en dépenses à cinq millions trois cent cinquante mille francs pour la section extraordinaire.
