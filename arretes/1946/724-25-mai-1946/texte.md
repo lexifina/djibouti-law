@@ -1,0 +1,1 @@
+Un congé de convalescence de quarante-cing jours a été accordé, à compter du 1er juin 1946, au milicien de 2e classe Robl Alale. n°mle 1360. Durant son congé, le milicien Roble Alale percevra sa solde dégagée de tous accessoires.
