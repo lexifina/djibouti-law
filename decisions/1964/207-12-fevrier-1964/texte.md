@@ -1,0 +1,1 @@
+Sont désignés comme membres du Conseil d’Administration de là Société Immobilière de la Côte Française des Somalis sur proposition de l’Assemblée Territoriale : MM. Mohamed Kamil Mohamed et Mohamed Ali Gadilleh, membres de l’Assemblée Territoriale.
