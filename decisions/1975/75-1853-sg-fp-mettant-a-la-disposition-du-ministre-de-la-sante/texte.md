@@ -1,0 +1,1 @@
+Le médecin en chef du corps des Armées Guy Charlopair est pour compter du 7 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique pour servir en qualité de chef du service d’électroradiologique de l’hôpital Peltier, en remplacement numérique du médecin et chef Michel Jabiol, rapatriable.
