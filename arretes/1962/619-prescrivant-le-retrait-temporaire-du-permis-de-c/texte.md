@@ -1,0 +1,4 @@
+Le permis de conduire n° 131 délivré à Djibouti le 5 août 1937 à M. Mohamed Madar Darar, Somali Issack abarawal djibril abokor, né vers 1917 à Djibouti, fils de Madar Darar et de Awaleh Toubeh, chauffeur à la C.M.A.O. demeurant à Djibouti, quartier 5, boulevard 12, maison 162, est suspendu pour une durée de quinze jours.
+Le permis de conduire n° 79 délivré le 7 juin 1938 à M. Omar Barteh Guedid, somali gadabourecy mahadasseh, né vers 1911 à Djibouti, fils de Barreh Guedid et de Ebleh Bedeh, chauffeur aux Travaux Publics, est suspendu pour une durée de huit jours.
+Le permis de conduire n° 329 délivré le 25 août 1960 à M. Doualeh Dirar Ahmed, somali gadabourcy mahadasseh bahabar moussa rer aden hassan, né vers 1925 à Borama (République Somalie) de Dirar Ahmed et de Fayah Badeh, domicilié à Djibouti, quartier 6, rue de Zeilah, chauffeur, est suspendu pour une durée de quinze jours.
+Le présent arrêté aura effet à compter de la date de sa notification aux intéressés.
