@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 5-73 du 11 décembre 1973 du conseil d’administration de l’Office des Postes et Télécommunications autorisant l’Office à acquérir la concession n° 401 sise à Djibouti, 17, boulevard du Maréchal-Foch.
