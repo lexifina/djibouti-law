@@ -1,0 +1,1 @@
+la somme de mille quatre cent soixante-douze francs dix centimes, représentant le montant des droits de douane et de la taxe de consommation relatifs à l’importation d’une automobile sera remboursée à la firme Mohamedally, importatrice.
