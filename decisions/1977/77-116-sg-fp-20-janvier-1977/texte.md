@@ -1,0 +1,1 @@
+M. Ali Hersi Djireh, agent de contrôle de 3e classe 2e échelon du cadre territorial du service des Contributions en service aux contributions indirectes, est mis en position de disponibilité sans traitement pour une durée de 2 ans à compter du 1er octobre 1976.
