@@ -1,0 +1,1 @@
+M. le Lieutenant Cuny, commandant du Peloton de la Milice à Obock, est, pendant les absences de M. Jean Allard, Commandant de Cercle à Obock, chargé de l’expédition des affaires courantes et urgentes dans le ressort dudit Cercle.
