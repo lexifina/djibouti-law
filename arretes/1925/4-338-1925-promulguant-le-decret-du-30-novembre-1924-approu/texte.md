@@ -1,0 +1,2 @@
+Art, 1er, — Est promulgaé dans la colonie, pour y être exéculé selon ses forme et teneur, le décret du 30 novembre 1924 approuvant les avenants provisoires passés entre le Ministre des colonies el la Compagnie du chemin de fer francope rl à hs der eg Menthe ion) saga éthiopien, la Compagnie du chemin de ler de Dakar à Saint-Louis et la Compagnie française du chemin de fer de l’Indo-Chine et du Yunnan.
+Art, 2, — Le présent arrêté sera enregistré, publié et communiqué partout où besoin sera et inséré au Journal officiel de la colonie.
