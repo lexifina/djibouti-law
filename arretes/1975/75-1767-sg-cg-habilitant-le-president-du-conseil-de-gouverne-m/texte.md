@@ -1,0 +1,1 @@
+Le Président du Conseil de Gouvernement est habilité à passer, au nom et pour le compte du Territoire français des Afars et des Issas avec l’Etat Français, un acte pour l’acquisition amiable et à titre gratuit d’une parcelle de terrain, d’une superficie de 1932 m2 environ, sise à Arta.
