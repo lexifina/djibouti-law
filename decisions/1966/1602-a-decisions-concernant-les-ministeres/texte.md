@@ -1,0 +1,3 @@
+M. Landru (Gaston), comptable contractuel, est nommêé, pour compter du 1° octobre 1966, billeteur pour le paiement de la solde et des allocations accessoires des personnels mensuels et journaliers des subdivisions du Port entretenus sur les fonds «du Budget annexe du Port, du Budget local, du Budget de Etat et du F.ID.E.S, en remplacement de (Henri, Pierre).
+Cumulativement avec ses fonctions, M. Landru (Gaston) est nommé, pour compter du 1°” octobre 1966, régisseur de la caisse des menues recettes du Port.
+L’intéressé pourra prétendre à 1’indemnté prévue par larrâté no 1704 modifié du 31 décembre 1955, susvisé.
