@@ -1,0 +1,1 @@
+Est rendu eexécutoire la délibération n° 114/7eL du 15 mai 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du tarif spécial de droits de port sur marchandises en transit.
