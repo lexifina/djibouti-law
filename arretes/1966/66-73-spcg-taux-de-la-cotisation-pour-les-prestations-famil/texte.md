@@ -1,0 +1,2 @@
+Le taux de la cotisation due au titre des Prestations familiales, par les employeurs autres que les employeurs de gens de
+maison, à la Caisse de Compensation des Prestations familiales et des Accidents du Travail est fixé, pour compter du 1er juillet 1966, à 5,50 % (cinq et demi pour cent) du montant des salaires versés tels que déterminés par les articles 2 à 4 inclus de l’arrêté n° 66/59/SPCG du 16 mai 1966.
