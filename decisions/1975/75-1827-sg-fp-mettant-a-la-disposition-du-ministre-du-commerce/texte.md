@@ -1,0 +1,1 @@
+M. Alban Tierce, commissaire principal de la Direction générale du Commerce et des Prix est, pour compter du 11 septembre 1975 mis à la disposition du Ministre du Commerce et du Développement industriel pour être affecté au service des Affaires économiques et des Prix.
