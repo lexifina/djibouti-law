@@ -1,0 +1,1 @@
+Est exemptée de la taxe intérieure de consommation une voiturette tricycle à manivelle, d’une valeur de 67.000 FD,importée par le Directeur de l’Ecole Charles-de-Foucauld, et destinée à être offerte gratuitement à un infirme.
