@@ -1,0 +1,1 @@
+L’autorisation d’exploiter, rue de Paris, à Djibouti, une licence de 2e classe pour la vente de boissons alcooliques ou hygiéniques à emporter, est transférée de MM. Macaradjis Frères à M. Salomonidis.
