@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 451/6e L du 18 janvier 1968 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas complétant les délibérations réglementant la Circulation routière et fixant les peines encourues par les contrevenants en cette matière.
