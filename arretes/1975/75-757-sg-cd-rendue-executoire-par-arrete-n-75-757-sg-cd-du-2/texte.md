@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 108/8° L du 10 avril 1975 de la Chambre des députés du Territoire français des Afars et des Issas portant modification du mode de calcul de l’indemnité des membres de la Chambre des députés.
