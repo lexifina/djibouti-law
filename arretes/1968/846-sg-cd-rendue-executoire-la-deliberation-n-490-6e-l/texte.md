@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 490/6e L du 24 mai 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédits au budget du service local exercice 1967.
