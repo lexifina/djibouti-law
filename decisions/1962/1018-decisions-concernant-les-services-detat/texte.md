@@ -1,0 +1,2 @@
+Le Sergent-Major Lagadec Roger, en service « Hors-Cadres » à la 3° Compagnie de Milice de la Côte Française des Somalis, assurera cumulativement les fonctions d’agent spécial, gérant de l’agence postale, de comptable matières, et chargé de la surveillance de la station de pompage et de la Centrale Electrique en remplacement de l’Adjudant de Gendarmerie Guitton Jean L’Àdjudant Guitton, adjoint au Commandant de Cercle, continuera à exercer la Présidence du Tribunal du premier degré.
+La prise de fonction de ce sous-officier prencira effet à compter du 1er août 1962.
