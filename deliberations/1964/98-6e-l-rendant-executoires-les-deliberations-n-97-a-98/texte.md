@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Ali Aref Bourhan la concession provisoire d’un terrain d’une superficie de mille trois cent cinquante-cinq mètres carrés environ, sis au plateau du Marabout, Djibouti (lot n° 356), au prix de cinq cents francs le mètre carré.
