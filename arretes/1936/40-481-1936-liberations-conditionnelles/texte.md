@@ -1,0 +1,1 @@
+le bénéfice de la Libération conditionnelle ést accordé au nommé Abdi Ismaël Harab, somali, condamné à un an de prison par jugement du tribunal indigène du 1er degré de Djibouti, en date du 11 juin 1936.
