@@ -1,0 +1,1 @@
+Est constatée, pour compter du 17 septembre 1971, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service de l’Enregistrement des Domaines et du Timbre (Ministère des Finances), par M. Joseph Tamby,commis des S.A.F. de 1er classe, 3e échelon, du cadre territorial de l’administration générale.
