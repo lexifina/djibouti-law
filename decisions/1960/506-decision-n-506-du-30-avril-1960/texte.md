@@ -1,0 +1,2 @@
+Le Médecin-Commandant des Troupes d’Outre-Mer Bouche René, désigné pour servir «hors-cadres» en Côte Française des Somalis par « J.O.R-F.» n° 299 du 25 décembre 1959), arrivé sur
+le Territoire le 16 avril 1960, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour servir « hors-cadres » à compter du 7 avril 1960, date de son embarquement en Métropole, en remplacement du Médecin-Commandant Constant,rapatrié pour fin de séjour.
