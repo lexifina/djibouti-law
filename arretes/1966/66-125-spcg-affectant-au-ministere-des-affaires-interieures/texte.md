@@ -1,0 +1,3 @@
+Il est affecté, au Ministère des Affaires intérieures de la Côte Française des Somalis, pour les besoins du Cercle de Djibouti, un terrain d’une superficie de 10 hectares environ, sis sur la route de Loyada, après le C.T.1’M,, ledit terrain tel au surplus qu’il est figuré au plan annexé au présent arrêtés Ce terrain est destiné à.la création d’un nouveau cimetière musuiman.
+Dans les vingt jours à compter de la date du présent arrêté, le Chef du Service des Domaines fera remise de la parcelle de terrain susvisée à M. le Ministre des Affaires intérieures.
+Il sera dressé procès-verbal de cette opération, lequel comportera évaluation du terrain affecté et détermination de ses limites.
