@@ -1,0 +1,2 @@
+Art, 1er. — Est rendue exécutoire la délibération du Conseil représentatif de la Côte française des Somalis en date du 25 novembre 1949 relative à l’affectation à l’autorité militaire d’un terrain de 9.900 mètres carrés situé à Boulaos entre la voie ferrée et le boulevard du général DeGaulle (sur une longueur de 110 mètres), tel qu’il est figuré au plan.
+Art, 2. — Le présent arrêté sera enregistré et publié partout où besoin sera et inséré au Journal officiel de la colonie.
