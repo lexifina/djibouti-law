@@ -1,0 +1,1 @@
+Est constatée, pour compter du 14 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Jacques Herry, administrateur civil hors classe, 7e échelon, Conseiller technique du Ministre de l’Information et du Tourisme, Chef du Service, par intérim, de l’Information et du Tourisme et Directeur de l’Office de développement du Tourisme.
