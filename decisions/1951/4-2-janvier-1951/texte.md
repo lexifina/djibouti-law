@@ -1,0 +1,1 @@
+M. Curiat (Georges), lieutenant de port de 2e classe, est mis à la disposition du Directeur du port de Djibouti pour compter du 26 décembre 1950, date de son débarquement à la Côte Française des Somalis.
