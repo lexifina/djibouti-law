@@ -1,0 +1,9 @@
+# Préambule
+Art. 1e. — Toute société pétrolière installée en Côte Francaise des Somalis et devenue concessionnaire dans les formes prévues par les textes sur le régime des terres domaniales en Côte Française des Somalis ne pourra aügmenter la capacité du dépôt en fonction du développement éventuel du trafic qu’à condition de faire approuver par les autorités compétentes les plans des nouvelles installations qui devront satisfaire aux règlements en vigueur dans lé Territoire. L’approbation sera donnée dans les mêmes formes que l’autorisation.
+La société concessionnaire devra se conformer sans réserve aux prescriptions du Service des Travaux publics concernant les matériaux à employer.
+Elle devra également se conformer aux régles d’aménagement intérieur et de sécurité des dépôts édictées par la Commission interministérielle des hydrocarbures dans sa séance du 20 avril 1948:
+Les installations ne pourront être prises en œuvre. qu’après vérification effectuée par les soins de l’expert désigné par le Chef du Territoire et devront faire l’objet d’une visite annuelle effectuée de la même facon.
+ATps Dis Ocupation du Domaine public.
+La société est autorisée à occuper le Domaine public pour établir ses canalisations et Ses postes de mazoutage, à condition de soumettre ses plans et dispositifs à l’approbation de l’Administration. Elle pourra en particulier utiliser les quais, térre-pleins, épis et môles d’accostage étant entendu toutefois que l’usage de ces ouvrages et du Domaine public en général ne sauraïent en aucun cas lui être exclusivement réservé.
+La société devra prendre toutes mesures nécessaires pour éviter que l’action du soleil ou de ia chaleur amène des fuites, par suite de la dilatation des huiles contenues dans les conduits.
+Dans le cas où des fuites se produiraient la société devra se mettre d’accord avec l’Administration, en vue des mesures à rendre pour supprimer lesdites fuites.
