@@ -1,0 +1,1 @@
+Meme Chavigny, dame employée auxiliaire 1er catégorie, en service au Secrétariat Général, est admise à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisé,pour compter du 15 septembre 1952.
