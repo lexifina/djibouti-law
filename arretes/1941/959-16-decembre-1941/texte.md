@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances le décret du 19 novembre 1941 relatif au personnel en service outre-mer visé par l’article 7 de la loi du 2 juin 1941 sur le statut des Juifs.
