@@ -1,0 +1,1 @@
+les usagers de la route de la commission spéciale technique prévus par les articles 29 et 115 de l’arrêté du 11 février 1937 susvisé, M. Lebaillif, ingénieur principal de la Compagnie du Chemin de Fer Franco-Ethiopien et M. Abdillahi Dirieh Didde, propriétaire de taxi.
