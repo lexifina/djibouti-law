@@ -1,0 +1,1 @@
+une rétribution de 1.500 francs (mille cinq cents francs) par mois est allouée à M. Crozet (Michel), greffier notaire p. i. du tribunal supérieur d’appel, pour compter du 10 février 1931, date de la prestation du serment de M. Crozet.
