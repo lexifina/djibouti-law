@@ -1,0 +1,3 @@
+M. Vaslin Jacques, conseiller aux Affaires administratives de 2° classe, 6° échelon, adjoint au Commandant de Cercle de Djibouti, président du Tribunal du le degré dans le ressort dudif Cercle pour les affaires concernant l’état civil des per-
+sonnes, est nommé cumulativement avec ses fonctions actuelles Président du Tribunal du le degré pour les affaires contentieuses en remplacement de M. Andreucci Jean-Dominique, en instance de départ en congé.
+M. Vaslin ayant prêté serment le 22 mai 1964 au cours de laudience publique extraordinaire du Tribunal supérieur d’appel, n’est pas astreint à cette formalité avant d’entrer an fonntion
