@@ -1,0 +1,1 @@
+Par arrêté en date du 29 mars 1930. M. Al- larousse (Lucien-Clément), administrateur de 1 classe des colonies, provenant de la Nouvelle-Calédonie, à été mis à la disposition du Gouverneur de la Côte francaise des Somalis, à compter de la veille de son embironement à «lestination de la colonie.
