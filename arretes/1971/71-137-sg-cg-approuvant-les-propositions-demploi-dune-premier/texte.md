@@ -1,0 +1,1 @@
+sont approuve les proposition du comite de gestion du fonds routier pour l’emploi d’une premier tranche d’un montant de quarante-sept mille francs djibouti (47.000.000 F.D) des ressources de ce fonds.
