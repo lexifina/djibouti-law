@@ -1,0 +1,1 @@
+Mme Pottier, institutrice de 4e classe, du Cadre métropolitain, détachée à la Côte Française des Somalis, de retour de congé, est mise à la disposition du Chef du Service de l’Enseignement pour servir au Groupe scolaire en qualité d’adjointe, à compter du 1er octobre 1951, date de son arrivée à Djibouti.
