@@ -1,0 +1,2 @@
+Le contrat du sergent Abdallah Mohamed, Mle 2745, déjà tituläire d’une pension militaire d’ancienneté, arrivant à expiration le 1er juillet 1965, ne sera pas renouvelé. L’intéressé qui totalise 5 ans et 15 jours de services dans la Milice (2ans et
+15 jours du 6 juin 1941 au 20 juin1943 sous le matricule 943 et 3 ans du 2 juillet 1962 au 1er juillet 1965 sous le matricule 2745) sera rayé des contrôles de la Milice le2juillet 1965.
