@@ -1,0 +1,2 @@
+Il est attribué à Mme Fatma Ibrahim, veuve et héritière du 1’° classe Houssein Ahmed, mle 473 de la Garde territoriale, décédé suite de maladie à l’Hôpital de Djibouti, le 9 juillet 1963, une indemnité égale à un mois de solde nette, soit six mille quatre cent soixante-trois francs (6.463 fr.) payable en une seule et unique fois.
+Ce garde totalisait à cette date : 4 ans, 10 mois et 23 jours de service dans les Forces locales.
