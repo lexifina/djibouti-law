@@ -1,0 +1,1 @@
+M. Baella Jacques, Ingénieur adjoint de première classe du cadre autonome des Travaux Publics dont le séjour administratif arrive à expiration le 22 août 1960, est autorisé à prolonger son séjour de six mois pour compter de la date précitée.
