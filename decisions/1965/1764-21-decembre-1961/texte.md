@@ -1,0 +1,1 @@
+Le milicien de 2e classe Saïd Ahmed Mohamed, matricule 2495, du Détachement autonome d’Obock, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. du 2 décembre 1964, est licencié pour raison de santé à compter du 10 décembre 1964.
