@@ -1,0 +1,1 @@
+M. Geoffroy (Pierre), opérateur-radio contractuel, est mis à la disposition du Chef du Service des P.T.T. pour servir à la Station côtière pour compter du 26 décembre 1950, date de son débarquement à Djibouti.
