@@ -1,0 +1,2 @@
+les travaux nécessaires pour remédier aux fautes de montage des portières métalliques du hangar Schwartz-Hautmont se rent entrepris d’office, en régie, par les soins et sous la direction du commandant de l’air et aux frais de l’entrepreneur.
+Les frais qui résulteront de ces travaux serent acquittés au moyen du cautionnement de 6.500 francs (six mille cinq cents francs) dé posé au Trésor par l’entrepreneur.
