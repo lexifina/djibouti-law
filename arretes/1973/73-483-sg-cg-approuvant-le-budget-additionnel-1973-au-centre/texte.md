@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1/73/CEGD du 27 février 1973 ayant arrête le budget additionnel 1973 du Centre d’études géologiques et de développement en recettes et en dépenses à la somme de 2320 000 FD.
