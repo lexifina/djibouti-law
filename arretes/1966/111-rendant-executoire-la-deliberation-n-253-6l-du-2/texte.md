@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 253/6°L du 20 janvier 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis instituant la perception d’une redevance pour location à des services administratifs ou privés dé matériel appartenant au Service de la Voirie et au Service Incendie du Cercle de Djibouti.
