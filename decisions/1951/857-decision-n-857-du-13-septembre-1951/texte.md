@@ -1,0 +1,1 @@
+M. Ibrahim Dirieh, infirmier 11° échelon, précédemment en service au Dispensaire d’Ali-Sabiet, est affecté à l’Hôpital Principal de Djibouti. M. Omar Dabar, infirmier 8°échelon en service à l’Hôpital Principal de Djibouti, est affecté au Dispensaire d’Ali-Sabieh, en remplacement de M. Ibrahim Dirieh.
