@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 511/6e L du 29 août 1968 de la Commission permanente de la Chambre des Députés approuvant le rapport d’exploitation et les comptes d’«Electricité de Djibouti» pour Kexercice 1967.
