@@ -1,0 +1,2 @@
+M. Mohamed Abdi Farah. dit «Chaida Nashaaÿ. agent de 2e classe, 3° échelon, du Cadre territorial des Postes et Télécommunications, en service à l’Office des Postes et Télécommunications, est révoqué de son emploi sans suspension de ses droits à pension. pour compter du 13 mars 1967. pour abandon de poste.
+Pour compter de la même date, l’intéressé est radié du contrôle des effectifs du personnel des Cadres territoriaux de la Côte Française des Somalis.
