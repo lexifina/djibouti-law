@@ -1,0 +1,1 @@
+Est constatée, à compter du 18 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures de Chef du Service de l’Enseignement du Premier degré (Ministère de l’Enseignement, des Sports et de la Jeunesse), par M. Marcien Tidone, inspecteur départemental de l’Education nationale, 7e échelon.
