@@ -1,0 +1,1 @@
+M. Robert Guisset, brigadier de police, est, pour compter du 14 mai 1975, date de son arrivée dans le Territoire, mis pour emploi, à la disposition du chef de District de Djibouti (Ministère de l’Intérieur et des Affaires musulmanes) pour l’encadrement du détachement de sécurité publique du District de Djibouti. La dépense est imputable au budget de l’Etat.
