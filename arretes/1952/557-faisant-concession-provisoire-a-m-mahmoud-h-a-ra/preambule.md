@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er. — Il est fait concession provisoire à M. Mahmoud H. A. Razack, à Djibouti, d’une parcelle de terrain d’une superficie de mille deux cent quarante-quatre mètres carrés (1.244 m²), formant le lot n° 453 du lotissement du boulevard de Gaulle, limitée : au Nord, par le lot,n° 452 ; à l’Est, par le lot n° 450 ; au Sud, par l’avenue 13 rectifiée ; à l’Ouest, par le futur boulevard, telle au surplus qu’elle est figurée au plan annexé au présent arrêté.
