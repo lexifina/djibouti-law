@@ -1,0 +1,1 @@
+La Société immobilière de Djibouti et du T.F.A.I est autorisée à acquérir un terrain non bâti, d’une superficie de 52 hectares environ, sis à Djibouti, au lieu dit « Salines Ouest », faisant partie du titre foncier n° 201, appartenant à la Compagnie des Salins du Midi et des Salines de l’Est.
