@@ -1,0 +1,3 @@
+Une indemnité de première mise d’équipement de 25.000 FD. (vingt cinq mille francs Djibouti) est accordée à M. Ali Guelle Dirir, ouvriers au Service Autonome du S.M.B, bénéficiaire d’une bourse d’études de la Communauté Economique Européenne pour recevoir une formation spécialisée.
+Un secours exceptionnel mensuel de 8.000 F.D., payable mensuellement pendant toute la durée de son stage (depuis la date de son départ jusqu’à celle de son retour dans le Territoire) sera versé à Mme Mariam Ali, mère de M. Ali Guelle Dirir.
+Les dépenses prévues par les articles 1 et 2 seront supportées par le Budget Local, chapitre 2, article 3, paragraphe 1.
