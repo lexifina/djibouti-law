@@ -1,0 +1,1 @@
+Mme Lariau Paule, secrétaire dactylographe, auxiliaire de deuxième catégorie, échelle XI, échelon I, indice 895 au Service des contributions, est autorisée à effectuer des heures supplémentaires durant le mois de janvier 1961 en vue de la frappe de la loi-programme.
