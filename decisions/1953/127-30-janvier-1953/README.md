@@ -1,0 +1,9 @@
+# Décision n° 127 30 janvier 1953
+
+Décision · Journal officiel de la République de Djibouti, n° 4 du 01/03/1953 · <https://www.journalofficiel.dj/texte-juridique/decision-n-127-30-janvier-1953/>
+
+En vigueur : 1953-03-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  congé administratif de six mois à passer dans la Métropole est accordé à M. Gackowski (Georges), agent de contrôle contractuel du Port de Diibouti. |
