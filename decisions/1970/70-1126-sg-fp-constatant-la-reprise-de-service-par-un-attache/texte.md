@@ -1,0 +1,1 @@
+Est constatée, pour compter du 18 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures d’adjoint au Directeur des Finances et du Plan (Ministère des Finances et du Plan) par M. Jean Larré, attaché de la F.O.M. de classe exceptionnelle.
