@@ -1,0 +1,1 @@
+M.Jean . Comte, Haut-Commissaire adjoint, outre la délégation objet de l’article 1° de la décision n° 1714/AAE du 21 octobre 1967, est habilité à signer au nom du Haut-Commissaire les actes et documents concernant la police des étrangers.
