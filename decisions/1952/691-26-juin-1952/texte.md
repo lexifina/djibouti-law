@@ -1,0 +1,1 @@
+Mme.Squelard (Gabrielle) est engagée pour compter du 16 juin 1952 en qualité de dame-eployée auxiliaire 2e catégorie à salaire journalier et mise à la disposition du Chef du Service de la Sûreté en remplacement numérique de Mme. Stolz, autorisée à cesser son service.
