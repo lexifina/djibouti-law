@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 379/7e L du 23 octobre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant création de plan d’alignement pour les voies urbaines du Territoire.
