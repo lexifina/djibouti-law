@@ -1,0 +1,1 @@
+srme Stolz, secrétaire contractuelle, précédemment affectée au Bureau des affaires économiques, est mise à la disposition du chef du service des contributions directes, en remplacement de Mlle Folacci, en instance de départ, pour compter du 10 mars 1918.
