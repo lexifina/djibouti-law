@@ -1,0 +1,2 @@
+Les débits de boissons à consommer sur place, dancings, night-clubs, bars et autres établissements similaires seront fermés à partir du samedi 16 novembre 1968 à 22 heures jusqu’au lundi 18 novembre 1968 à 7 heures.
+Les restaurants sont autorisés à rester ouverts maïs seulement aux heures normales des repas, c’est-à-dire, le samedi 16 novembre jusqu’à 22 heures et le dimanche 17 novembre de 7 h 30 à 8 h. 30, de 12 heures à 13 heures et de 19 h. 30 à 21’ heures.
