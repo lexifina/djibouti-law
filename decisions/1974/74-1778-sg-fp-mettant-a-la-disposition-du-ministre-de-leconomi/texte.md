@@ -1,0 +1,1 @@
+M.Pierre Morand, volontaire de l’aide technique, est, pour compter du 12 septembre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Economie Rurale, pour servir à l’Agriculture et Forêts en qualité d’ingénieur des travaux agricoles, service comptant au 1° septembre 1974, P.B. n° 2 V.A.T.
