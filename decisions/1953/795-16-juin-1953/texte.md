@@ -1,0 +1,2 @@
+Une somme de dix mille francs métropolitains (10.000 F.M.) est accordée à la « Presse de l’Union Francaise », documentation économique et sociale, 7 bis, place du Palais-Bourbon, Paris (7e), au titre d’un abonnement de soutien à son bulletin hebdomadaire souscrit pour l’année 1953.
+La dépense visée à l’article 1er sera imputée à la section XVII, chapitre XXXV, article l‘’, paragraphe 2 du budget de fonctionnement du Service local pour l’exercice 1953.
