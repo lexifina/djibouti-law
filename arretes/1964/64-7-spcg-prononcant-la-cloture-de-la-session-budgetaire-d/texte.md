@@ -1,0 +1,2 @@
+Est déclarée close le dimanche 26 janvier 1964 à minuit, la session budgétaire de l’Assemblée Territoriale de la Côte Française des Somalis ouverte le 27 novembre 1963 par arrêté n° 63/125/SPCG du 20 novembre 1963.
+L’Assemblée Territoriale de la Côte Française des Somalis est convoquée en session extraordinaire en son siège, le mardi 28 janvier 1964 à 9 heures, pour délibérer sur les questions qui n’ont pu être examinées avant la clôture de sa session budgétaire.
