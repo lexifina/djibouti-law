@@ -1,0 +1,1 @@
+Saïd Zeïd est recruté en qualité de cuisinier l’hôtel de M. le Secrétaire général, pour compter du 1er avril 1950, au salaire mensuel de cinq mille cinq cents (5.500 francs), en remplacement numérique de Ibrahim Mohamed, licencié pour compter de la même date.
