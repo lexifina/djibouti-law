@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances décret du 16 tuai 19442 complétant h» décret du 26 juillet 1941 réglementant la profession de journaliste et la délivrance d’une carte d’identité professionnelle aux journalistes dans les territoires re levant du secrétariat d’État aux colonie.
