@@ -1,0 +1,1 @@
+M. Mohamed Houmed Abdelkader, expéditionnaire d’Administration de 3° classe, 3° échelon du Cadre Territorial de l’Administration Générale en service au Bureau d’ordre du Gouvernement, est placé sur sa demande dans la position de disponibilité sans traitement pour une période de trois ans à compter du 20 août 1962.
