@@ -1,0 +1,2 @@
+# Préambule
+Art. 1C1. — Il est fait concession provisoire à M. Daher Ali, à Djibouti, d’une parcelle de terrain d’une superficie de 236 mètres carrés sise au Plateau de Djibouti, au quartier de l’ancien abattoir, limitée : au Nord par une rue non dénommée ; à l’Ouest,, par le futur boulevard Bonhoure prolongé ; au Sud, par un terrain vague ; à l’Est, par Je lot n° 7 et un terain vague, telle au surplus qu’elle est figurée au plan annexé.
