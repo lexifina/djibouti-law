@@ -1,0 +1,1 @@
+Est constatée, pour compter du 25 septembre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Ministère de l’Enseignement, des Sports et de la Jeunesse (Service de l’Enseignement primaire), par M. Emmanuel Gérard, instituteur, 6e échelon).
