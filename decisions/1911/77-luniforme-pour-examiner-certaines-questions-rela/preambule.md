@@ -1,0 +1,6 @@
+# Préambule
+Une Commission composée de :
+MM. le secrétaire général, président ;
+Bernard, conseiller d’administration, président de la Chambre de commerce et représentant de la Cle du Chemin de fer ; le chef du Service de Santé ;: le chef du Service des Travaux publics : le commandant de la Brigade indigène ; Prêt, ingénieur de la Cie du Chemin de fer ; Estassy, ingénieur de la Cie du Chemin de fer ; Colas, représentant du Contrôle du Chemin de fer de Djibouti ;
+La Fay, représentant de la Société Industrielle ; Schmidt, représentant de la Cie Française du Coton Colonial ; Abdou Wassé, propriétaire à Ambouli ; Saïd Alt; propriétaire à Ambouli, est nommée à leffet de rechercher les causes des inondations du village de Benderjedid et de la Plaine ; de proposer les mesures nécessaires pour en prévenir le retour ou tout au moins d’en diminuer l’intensité ; de préparer des instructions relatives aux précautions à prendre dans les parties inondées ; d’examiner Îles immeubles du plateau de Djibouti dont l’état est de nature à menacer la sécurité de la circulation et de faire des propositions à cet égard.
+M. Séré, administrateur-adjoint des colonies est adjoint à la Commission en qualité de secrétaire.
