@@ -1,0 +1,1 @@
+M. Paul Barbeau, officier de police adjoint est, pour compter du 30 juillet 1968, mis à la disposition du Ministre des Affaires intérieures pour assurer sous l’autorité du Commissaire central de police, les fonctions de Commissaire de police (1° arrondissement) .
