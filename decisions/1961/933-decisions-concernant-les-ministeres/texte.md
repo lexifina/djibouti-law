@@ -1,0 +1,1 @@
+M. Omar Mohamed Aloita est engagé, pour compter du 8 août 1961, en qualité de dactylo-copiste à salaire journalier de cinq cents francs (500) par jour ouvrable, et mis à la disposition du Ministre de là Fonction publique, en remplacement numérique de M. Hassan Ismaël Houssein nommé infirmiér-vétérinaire stagiaire.
