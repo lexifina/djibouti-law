@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 361/7e L du 28 juin 1973 de la Commission permanente de la Chambre des députés du Territoire Français des Afars et des Issas portant approbation du compte administratif de l’Office des postes et télécommunications pour l’exercice 1972.
