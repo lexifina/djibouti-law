@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 32/ 6° L. du 22 février 1964 de l’Assemblée Territoriale de la Côte Francaise des Somalis portant augmentation des taux des redevances pour extractions de matériaux sur le Domaine.
