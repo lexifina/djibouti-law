@@ -1,0 +1,1 @@
+Est rendue exécütoire la délibération n° 65/8° L, du 4 septembre 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas envoyant en mission en Métropole le Président de la Chambre des députés.
