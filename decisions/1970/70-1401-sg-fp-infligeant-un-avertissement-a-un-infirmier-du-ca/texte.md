@@ -1,0 +1,1 @@
+Un avertissement avec inscription au dossier, est infligé à M. Ali Bouh Gadid, infirmier de 3e classe, 1er échelon, du cadre territorial de la Santé publique, en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales), pour avoir causé une importante détérioration à un véhicule de service.
