@@ -1,0 +1,1 @@
+IL est fait restitution au sieur Salem Abdallah Moutti de la somme de sieuir cent vingt-quat re francs soixante centimes (924 francs 60 centimes) représentant le trop perçu des droits d’enregistrement sur un marché de denrées alimentaires passé le 22 novembre 1934 entre lui et la céolonie.
