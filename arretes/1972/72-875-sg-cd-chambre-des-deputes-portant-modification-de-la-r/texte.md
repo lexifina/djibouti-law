@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 271/7e L du 26 mai 1972 de la Chambre des Députés portant modification de la réglementation sur la réparation des accidents du travail et des maladies professionnelles dans le Territoire Français des Afars et des Issas.
