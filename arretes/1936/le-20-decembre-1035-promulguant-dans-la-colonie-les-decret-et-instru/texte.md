@@ -1,0 +1,2 @@
+Art, 1er, — Sont promulgués à la Côte françuise des Somalis et dépendances le décret et instruction du 20 décembre 1935 susvisés portant règlement sur l’administration et la comptabilité des troupes coloniales relevant du Département de la guerre, des troupes coloniales et métropolitaines à la charge du Département des colonies, (Voir publication Journal officiel de la République française des 6 et 7 janvier 1936, page 317 et suivantes.)
+Art 2 — Le présent arrêté sera enregistré, publié et communiqué partout où besoin sera.
