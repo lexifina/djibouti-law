@@ -1,0 +1,2 @@
+1° Un congé administratif de sept mois pour en jouir en France est accordé à M. Depouilly (Roland), instituteur de 2e cl., du Cadre métropolitain, détaché à la Côte Française des Somalis, qui a accompli le 28 mai 1951 un séjour de deux ans sept mois dans le Territoire.
+2° Une réquisition de passage par voie aérienne Djibouti-Paris et une réquisition par voie de terre Paris-Retoy-le-Château (par Noyon, Oise) seront délivrées à l’intéressé qui appartient au groupe II.
