@@ -1,0 +1,1 @@
+Le caporal Aden Farah, matricule 2337, du Détachement autonome de Milice d’Obock, arrivant en fin de contrat le 31 avril 1966, est mis à la retraite à compter du tr mai 1966, date à laquelle il sera rayé des contrôles du corps.
