@@ -1,0 +1,1 @@
+L’agrément donné par arrêté n° 816 en date du 29 juin 1963 à la société d’assurances « Caledonian Insurance Company » est étendu aux opérations prévues au paragraphe 16» : Opérations d’assurance maritime et d’assurance transport, de l’article 137 du décret du 30 décembre 1938.
