@@ -1,0 +1,1 @@
+Mme.Germaine Brissaud, sage-femme en chef du cadre autonome la France d’Outre-Mer est, pour compter du décembre 1974 date de son arrivée au Territoire, mise à la disposition ministre de la Santé Publique, pour servir a l’hospital Peltier.
