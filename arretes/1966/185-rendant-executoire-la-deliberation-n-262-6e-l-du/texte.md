@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération ne 262/6-L du 7 février 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant ouverture de crédits supplémentaires au budget du Service local, exercice 1966.
