@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 55-72/CPS du 21 novembre 1972 du Conseil d’administration de la Caisse des Prestations sociales portant adoption pour 1973 du budget et des états prévisionnels des recettes et des dépenses de cet organisme.
