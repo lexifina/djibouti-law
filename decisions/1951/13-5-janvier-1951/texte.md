@@ -1,0 +1,1 @@
+Un congé de convalescence à solde entière de deux mois à passer à Hadramout (Aden) est accordé à Omar Monbarak, commis administratif en service au Cercle de Djibouti, à l’issue duquel il devra se représenter au Médecin résident de l’Hôpital de Djibouti qui statuera sur son aptitude à servir à nouveau. Les frais de déplacement sont à la charge de l’intéressé.
