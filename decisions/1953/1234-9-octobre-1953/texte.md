@@ -1,0 +1,1 @@
+Mme Barra, institutrice auxiliaire de 1re catégorie, reprend son service à l’Ecole du boulevard de Gaulle, pour compter du 1er octobre 1953, en remplacement de Mme Pottier qui cesse se fonctions à la même date.
