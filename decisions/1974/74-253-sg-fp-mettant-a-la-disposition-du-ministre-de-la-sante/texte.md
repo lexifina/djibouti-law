@@ -1,0 +1,1 @@
+M. Jacques Louis, médecin omnipraticien, volontaire de l’Aide technique, est, pour compter du 11 décembre 1973, mis à la disposition du Ministre de la Santé publique, pour servir au cercle de Dikhil, en qualité de médecin adjoint au médecin-chef dudit cercle, services comptant pour le ler décembre 1973.
