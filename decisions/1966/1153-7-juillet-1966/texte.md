@@ -1,0 +1,1 @@
+M.Hassan Aden Saïd, infirmier à la Pharmacie de l’Océan Indien, demeurant à Djibouti, est autorisé à acquérir üne parcelle de terrain, d’une superficie de 870 metres carrés, sise à Ambouli et faisant partie d’un terrain plus vaste immatriculé au Livre foncier du Territoire sous le n° 858 au nom de Mme Soultana Bint Hamoudi, épouse de Rached Mohamed Ghaleb
