@@ -1,0 +1,1 @@
+M. Neveu (André), agent de contrôle et de l’hygiène à l’aérogare de Djibouti, est habilité à constater les infractions à la réglementation du Port et de l’Aéroport de Djibouti. M. Neveu (André) prêtera serment, conformément à la loi.
