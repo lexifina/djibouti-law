@@ -1,0 +1,25 @@
+# Décret n° 77-079/PR/MRI portant réorganisation des statuts d’Eiectricité de Dlibouti.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-079-pr-mri-portant-reorganisation-des-statuts-deiectricite-de-dlibouti/>
+
+En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le président de la République, chef du Gouvernement;
+Vu les lois constitutionnelles n° 1 et 2 du 27 Juin 1977;
+Vu l'ordonnance n° 77-008 du. 30 luin 1977;
+Vu la délibération n° 115 du 21 janvier 1960 créant l'Electricité de Djibouti;
+Vu l'arrêté n° 73-1477/SG/CG du 10 octobre 1973, portant réorganisation des statuts d'Electricité de Djibouti;
+Sur proposition du ministre des Régles industrielles ;
+Le Conseil des Ministres entendu dans sa séance du 6 décembre 1977 ;
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
+| [art-006.md](art-006.md) | Art. 6 |
+| [art-007.md](art-007.md) | Art. 7 |
+| [art-008.md](art-008.md) | Art. 8 |
+| [preambule.md](preambule.md) | PrÃ©ambule |
