@@ -1,0 +1,1 @@
+La décision n° 692 en date du 26 mai 1964 nommant l’adjudant-chef Huart chef de poste administratif d’As-Eyla par intérim, est annulée pour compter du 10 juin 1964, date à laquelle l’adjudant Paoli rentrant de congé a repris ses fonctions de chef de poste.
