@@ -1,0 +1,1 @@
+l’Arabian Trading Cie Limited représentée à Djibouti par M. Lowe, est autorisée à cacgnérir de la Société Baijeot et Cie « Comptoir européen », représentée par M. Grégoire, le lot n° 9 du plan de lotissement de Boulaos, immatriculé au nom de cette dernière sous le n° 49 du Livre foncier de la colonie.
