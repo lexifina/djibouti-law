@@ -1,0 +1,1 @@
+M. Daniel Alison, médecin généraliste, volontaire de l’aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique, pour servir en qualité de médecin-adjoint au médecin chef du cercle de Tadjourah, service comptant pour compter du 1er avril 1974.
