@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 91/7e L du 19 février 1970 de la Commission permanente de la Chambre des Députés au Territoire Francais des Afars et des Issas complélent délibération n° 32/7°L du 20 mai 1969 portant codification du régime des prestations familiales du Territoire Français des Afars et des Issas.
