@@ -1,0 +1,1 @@
+M. Rognon (Albert), adjoint des services civils après dix-huit mois, dans position de disponibilité depuis le 29 décembre 1925 est maintenu dans ladite position pour une dernière période d’une année, à compter du 29 décembre 1929
