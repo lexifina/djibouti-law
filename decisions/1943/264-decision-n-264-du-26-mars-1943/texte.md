@@ -1,0 +1,1 @@
+l’Adjudant-Chef TISSERAND de l’Infanterie Coloniale en service Hors-adres est remplacé dans les cadres et mis à la disposition du lieutenant Colonel, Commandant Supérieur des Troupes pour compter du 26 Mars 1943.
