@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 353/7° L du 18 mai 1973 de la Chambre des députés du Territoire français des Afars et des Issas portant/création et organisation d’un bureau de vérification des instruments de mesure.
