@@ -1,0 +1,1 @@
+Mme Aïcha Abdi est engagée à titre essentiellement précaire et révocable, en qualité de lingère auxiliaire au salaire mensuel de 6.500 francs exclusif de toutes indemnités y compris celles pour charges de famille, et mise à la disposition du Directeur du Service de Santé, pour compter du 10 juillet 1953, en remplacement numérique de Mme Sellas Alemayehou, licenciée.
