@@ -1,0 +1,1 @@
+L’Administrateur-Adjoint de 1re classe des Colonies, Gabriel Pau, est désigné pour représenter le Commandant de Cercle de Djibouti dans l’action en expulsion contre le sieur Hassan Djama Bidar, locataire du logement n° 1 du groupe d’habitations sis au quartier 5.
