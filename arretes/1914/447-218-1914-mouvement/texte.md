@@ -1,0 +1,1 @@
+il a été donné mainlevée à Mr. Nocéto entrepreneur à Djibouti du cautionnement de quinze cent frs. qu’il a constitué le 24 Juin 1914, en garantie de l’exécution des travaux de construction du bâtiment des Travaux Publics dont il était adjudicataire.
