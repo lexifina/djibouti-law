@@ -1,0 +1,1 @@
+Est accordé à la Société des salines de Djibouti, Sfax et Madagascar, dé grèvement de la somme de 1.075 francs, indû ment imposée au titre de l’Impôt foncier, rôle primitif de l’exercice 1937 (article 88).
