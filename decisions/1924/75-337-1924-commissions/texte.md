@@ -1,0 +1,1 @@
+une commission composée de MM. Thillard, président, Guesné et Bassières membres, se réunira avant le 15 décembre 192: sur la convocation de son président, pour dresser l’inventaire complet (matériel, livres et publications) de la bibliothèque publique de Djibouti.
