@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 4-71 du 27 avril 1971 du conseil d’administration de l’Office des Postes et Télécommunication, portant modification de la taxe de base déterminant les tarifs du service des télécommunications.
