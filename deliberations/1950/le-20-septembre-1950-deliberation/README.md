@@ -1,0 +1,24 @@
+# DELIBERATION n° le 20 septembre 1950 Délibération
+
+Délibération · Journal officiel de la République de Djibouti, n° 9 du 30/09/1950 · <https://www.journalofficiel.dj/texte-juridique/deliberation-n-le-20-septembre-1950-deliberation/>
+
+En vigueur : 1950-09-30 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Conseil représentatif de la Côte française des Somalis, Délibérant conformément aux dispositions de l'article 46, alinéa 7, du décret du 9 novembre 1945, a adopté au cours de sa séance du 2 septembre 1950, les délibérations dont la teneur suit :
+
+## Signature
+
+Le Secrétaire,
+R. CARRETRRO.
+Le Président,
+H. Maniette.
+Vu pour être annexé à l'arrêté en date de ce jour.
+Le Gouverneur,
+N. SADOUL.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
