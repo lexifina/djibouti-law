@@ -1,0 +1,1 @@
+est accordée la libération conditionnelle du nomimé Issa Doualé, condamné le 20 janvier 1927, à six mois de prison et 100 francs de dommages-intérêls, par le tribunal indigène du 1er degré pour coup et blessures volontaires.
