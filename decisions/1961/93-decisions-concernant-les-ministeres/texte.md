@@ -1,0 +1,4 @@
+Un passage de retour à destination de Noisy-le-Roi (Seine-et-Oise),. 65 bis, rue André-Lebourblanc, est accordé à M. Duplanil (Pierre), imprimeur tontractuel en service à l’Imprimerie Administrative dont le contrat, arrivant à expiration le 5 mars 1061 n’ést Das renouvelé sur s4 demande M. Dublanil (Pierre) aura accompli 31 mois de séjour effectif et ininterrompu dans le’Territoire au 5 mars 1961, aura droit à une indemnité compensatrice de congé payé, calculée à raison
+de sept jours et demi de salaire, décompté suivant les dispositions de Potticle 124 du Code du Travail, par’ mois de présence.
+M. Dubplanil (Pierre), classé au: groupe III, -voyagera accompagné de son épouse et de sa fille âgée de 23 ans (non mariée), et quittera Djibouti par première occasion maritime ou aérienne (elacce touriste) selon les possibilités à partir du 5 mars 1961.
+lA Aénencé eet imoutable eur & Budget local.
