@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 105/7° L du 12 mai 1970 de la Chambre des Députés du Territoire Français des Afars et des Issas interprétant et complétant le Code général des Impôts (taxe pour l’enlèvement des ordures ménagères).
