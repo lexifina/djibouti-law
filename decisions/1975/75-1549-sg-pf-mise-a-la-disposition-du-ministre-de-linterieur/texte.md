@@ -1,0 +1,1 @@
+M. Ravard Maurice, brigadier de police est pour compter du 2 juillet 1975 mis.à la disposition du commandant de cercle de Tadjourah (ministère de l’Intérieur et des Affaires Musulmanés) pour assurer le commandement du détachement de la Garde Territoriale de Tadjourah.
