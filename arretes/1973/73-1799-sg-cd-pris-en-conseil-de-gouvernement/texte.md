@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 11/8e L du 15 décembre 1973 de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du budget annexe du Port & Commerce de Djibouti pour lexercice 1974.
