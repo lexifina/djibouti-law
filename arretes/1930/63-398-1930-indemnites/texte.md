@@ -1,0 +1,2 @@
+la décision du 8 décembre 1925, attribuant une indemnité de fonctions de 3.000 francs au chef du service des postes et télégraphes, est et dumeure rapportée. Une indemnité de fonctions de 1.800 francs est allouée au chef du service des postes, télégraphes et téléphones. l’ne indemnité de responsabilité de 1.800 francs est allouée au receveur-comptable, chef du bureau de poste de Djibouti.
+Le présent arrêté aura son effet pour comp ter du 23 janvier 1930.
