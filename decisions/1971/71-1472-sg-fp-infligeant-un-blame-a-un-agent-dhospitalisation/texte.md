@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Ahmed Fod Robleh, agent d’hospitalisation del » classe, 2° échelon, du corps territorial de la Santé publique, pour négligence dans l’exercice de ses fonctions au bloc opératoire de l’hôpital Peltier.
