@@ -1,0 +1,1 @@
+M. Ibrahim. Dirieh percevra, du 28 juin 1952, date de sa suspension, au 7 octobre 1952, date de sa rétrogradationi le traitement d’infirmier 11°échelon du cadre local de la Côte Française des Somalis, dont il jouissait au moment de sa suspension.
