@@ -1,0 +1,3 @@
+conformément à l’article 2 paragraphe 2 et 3 dela loi n° 1878 du 30 mars 1978, l’Office national d’Approvisionnement et de Commercialisation le taux de rémunération de l’ONAC pour la commercialisation est fixé à 3.000 FD/T soit 3 FD le kilo pour le service rendu à l’Etat en la commercialisation Des dons et aide alimentaires.
+Cette rémunération permettra à l’Office de faire face aux frais résultants de réception du stockage, éclairage, gardienage et distribution.
+Ce taux de 3 FD le kilo ne concerne pas les frais directs soit des opérations de déchargement, frais portuaires manutentions et transport des marchandises port magasin.
