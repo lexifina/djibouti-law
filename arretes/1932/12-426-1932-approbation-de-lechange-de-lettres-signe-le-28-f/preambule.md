@@ -1,0 +1,2 @@
+# Préambule
+Art 1er. — Est promulguée à la Côte française des Somalis la loi du 6 avril 1932 susvisée, portant approbation y de l’échange de lettres signé, le 28 février 1930, entre la France et le Danemark et instituant des additions et modifications au traité de commerce franco-danois du 23 août 1742, à la convention provisoire et additionnelle de commerce et de navigation du 9 février 1842 et aux articles additionnels du 9 février 1910.
