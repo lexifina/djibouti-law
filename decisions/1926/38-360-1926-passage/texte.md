@@ -1,0 +1,1 @@
+le sergent Urlacher (Jean), de la section des télégraphistes coloniaux, en service hors cadres au poste côtier de T.S. F., qui comptera, au 2 février 1927, deux ans de séjour ininterrompu à colonie, sera rapatrié pour fin de campagne.
