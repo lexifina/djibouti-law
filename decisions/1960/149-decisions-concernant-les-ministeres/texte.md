@@ -1,0 +1,2 @@
+Un congé administratif de six mois à passer à «Reims la Brülée » par Vitry-le-Françoïis (Marne) ést accordé à M. Jehl (Jean-Paul), Lieutenant de Port 3° échelon, Commandant du Port de Djibouti, M. Jehl (Jean-Claude), classé au groupe II, indice 375, voyagera seul par voie maritime à compter du 15 avril 1960 date à laquelle l’intéressé aura accompli un séjour ininterrompu de 2 ans, 1 mois et 11 jours dans le Territoire.
+Les frais de transport sont imputables au Budget.de l’Etat.
