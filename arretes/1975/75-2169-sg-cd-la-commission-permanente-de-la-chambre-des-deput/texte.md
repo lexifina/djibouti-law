@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 150/8e L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas, portant modification du budget du service local pour l’exercice 1975.
