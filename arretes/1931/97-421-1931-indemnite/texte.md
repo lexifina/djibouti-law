@@ -1,0 +1,1 @@
+l’indemnité mensuelle forfaitaire de cent vingt-cinq francs, représentative de frais de transport, allouée au commissaire de police utilisant d’une manière distante une automobile lui appartenant, est portée à trois cent cinquante francs, pour compter du 1er février 1931.
