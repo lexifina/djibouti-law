@@ -1,0 +1,1 @@
+M. Laniarque (Roland), contrôleur du service radio-électrique du cadre général des transmissions coloniales, est nommé chef de la station côtière de T. S. F. pour compter du 1er janvier 1950. Il aura droit, en cette qualité, à l’indemnité de gérance’.prévue,an titre Ar. articles 12 et là de l’arrêté n° 678 du 2 juillet 3048.
