@@ -1,0 +1,1 @@
+Une gratification de six mille francs est allouée à l’adjudant Darches, de la milice in digène, chargé des fonctions d’agent spécial, de commissaire à l’immigration et de chef du bureau des douanes, à Ali-Sabieh.
