@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 42/6eL du 27 mars 1964 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant approbation de la résolution n° 15 du 16 janvier 1964 du Comité directeur du FIDÉS relative à la tranche 1964 de la loi programme.
