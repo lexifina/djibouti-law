@@ -1,0 +1,1 @@
+rendant exécutoire la délibération n° 373/6e L du 18 mai 1967 de l’Assemblée Territoriale donnant les délégations à la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis .
