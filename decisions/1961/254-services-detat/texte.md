@@ -1,0 +1,2 @@
+Est autorisé le règlement, au profit de M. Rafenomantato, docteur en médecine, demeurant à Arcy-sur-Aube (Yonne), d’une somme de soixante quatorze mille quatre vingt dix francs Djibouti (70.090 francs Djibouti) représentant le montant des cautionnement déposés par M. Fontaine qui ont fait l’objet de la reconnaissance de dette susvisée et qui avaient été appréhendés le 6 avril 1960.
+La dépense sera imputée sur le Budget local de l’exercice 1961 chapitre 3-3-11.
