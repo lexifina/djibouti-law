@@ -1,0 +1,1 @@
+il est fait concession définitive à la Compagnie de l’Afrique Orientale maritime et commerciale d’une parcelle de terrain de 30 m° 2, sise entre les lots 45 et 46 du plan de lotissement de Djibouti et immatriculée au nom de l’Etat français sous le n° 181 du Livre foncier de la colonie.
