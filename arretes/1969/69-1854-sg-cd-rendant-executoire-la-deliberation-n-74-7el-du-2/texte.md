@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 74/7°L du 23 décembre 1969 de la Chambre des Députés portant création d’un établissement public territorial dénommé «Office de Développement du Tourisme du Territoire Français des Afars et de Issas >.
