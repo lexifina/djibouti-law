@@ -1,0 +1,1 @@
+M. Abdou Moukrid Dafed est autorisé à exploiter dans l’établissement €Bar-Abdou » (Restaurant) sis au Quartier 4, une licence de 4° classe pour la vente au détail ou à consommer sur place de boissons hygiéniques ou alcooliques ne titrant pas plus de 13° d’alcool.
