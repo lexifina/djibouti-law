@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 460 du le avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Kassim Hamadou Houssein la concession provisoire d’un terrain d’une superficie de sept cent quatre-vingt trois mètres carrés sise à Ambouli, au prix de cent francs le mètre carré.
