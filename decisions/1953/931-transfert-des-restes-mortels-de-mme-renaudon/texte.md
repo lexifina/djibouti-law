@@ -1,0 +1,2 @@
+Les restes mortels de M’e Renaudon, épouse d’un militaire de la gendarmerie, décédée le 29 juillet 1947 à bord du s/s « Champollion » et inhumée à Djibouti, seront exhumés et transférés au cimetière de Ruffec (Charente).
+Les dépenses occasionnées par l’exhumation et le transfert des restes mortels de la défunte jusqu’au lieu de la réinhumation seront supportées par le budget général de Madagascar, conformément aux dispositions de la décision 1141 susvisée.
