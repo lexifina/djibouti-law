@@ -1,0 +1,3 @@
+Les annexes n°° I, IL IV, VI, VII, X XII XIV, XVI et XVIII de l’arrêté n° 61/35/SPCG du 17 mars 1961 fixant les modalités et programmes des concours professionnels d’accès aux différents corps territoriaux des Postes et Télécommuni-
+cations sont complétées par les dispositions suivantes :
+Une note de valeur professionnelle de 0 à 20 est attribuée à chaque candidat par la Commission de correction des épreuves, sur le vu des bulletins de notes des intéressés. Cette note, affectée des coefficients ci-après indiqués s’ajoute aux notes obtenues par les candidats aux diverses épreuves écrites et orales.
