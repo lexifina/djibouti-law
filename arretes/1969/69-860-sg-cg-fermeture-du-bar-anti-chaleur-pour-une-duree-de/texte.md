@@ -1,0 +1,1 @@
+Le bar «Anti-Chaleur», sis rue du Verdon, tenu par Mme Anna Beraki/’en gérance salariée, séra! fermé pour une durée de deux mois pour compter du lendemain de la notification du présent arrêté’à’l’intéressée.
