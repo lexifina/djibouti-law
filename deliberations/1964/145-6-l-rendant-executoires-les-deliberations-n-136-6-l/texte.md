@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à la Compagnie Maritime de l’Afrique Orientale la concession provisoire d’une parcelle de terrain d’une superficie de quatre cents mètres carrés environ, sise à Djibouti (titre foncier n° 57), au prix de deux mille neuf cents francs le mètre carré.
