@@ -1,0 +1,1 @@
+M. Ramanantseheno (Paul), agent d’hygiène contractuel, de retour de congé administratif, est mis à la dispositiondu Directeur du Service de Santé (Service d’Hygiène), pour compter du 24 août 1951, date de son débarquement sur le Territoire.
