@@ -1,0 +1,1 @@
+Le milicien de 2e classe Ahmed Ali Dour, mle 2965, de la 2e compagnie de Milice à Tadjourah, est licencié par mesure disciplinaire à compter du 20 août 1965. L’intéressé, qui totalise 1 an 1 mois 20 jours de services effectifs à la Milice de la C.F.S. étant licencié disciplinairement, ne peut prétendre à aucune indemnité.
