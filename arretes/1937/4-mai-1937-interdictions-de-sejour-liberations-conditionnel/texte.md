@@ -1,0 +1,8 @@
+4 mai 1937, le bénéfice de la libération condi tionnelle est accorde à la nommée Fatma Ah med. incarcérée h’ 15 octobre 1936 et condamnée à un an de prison par jugement du tri bunal indigène du 2′ degré de Djibouti, en date du 24 novembre 1936.
+4 mai 1937, le bénéfice de la libération conditionelle est accordé au nommé Ahmed Abdal lah. arabe. incarcéré h* 3 octobre 1936 et con damné à huit mois de prison par jugement du tribunal indigène du 2e degré, en date du 19 octobre 1936.
+5 mai 1937, le bénéfice de la libération conditionnelle est accordé au nommé Hassen Gabode, issa fourlaba, incarcéré le 4 décembre 1936 et condamné à la peine de huit mois de prison par jugement du tribunal indigène du 2 degré de Djibouti, en date du 28 décembre 19335.
+11 mai 19337. le séjour à la Côte francaise des Somalis et dépendances est interdit pendant un ans. pour compter «lu 16 mai 1937, date de sa libération, au nommé Farah Abdillahi.
+11 mai 1937, le séjour à la Côte française des Semalis et dépendances est interdit pendant huit deux ans, pour compter «lu 1 1 mai 15:37, date de libération, au nommé Abdillahi Mah moud.
+13 mai P. 37, h* bénéfice de la libération condit ionnelle est accordé au nommé Ghaleb Ali. incarcéré le ’. février et condamné à cing mois de prison par jugement du tribunal indigène du I degré «le Djibouti. «n date du 13 février 1937.
+22 mai P. 37, séjour à la Côte française des Somalis et dépendances est interdit, pendani deux ans. pour compter du 0 juin 19:7, date de sa libération, au nommé Abockor Mohamed.
+2′. mai 1937, séjour à la Côte française des Somalis et dépendances est interdit, pen dant cing ans, au nommé Saïd Abond. pour compter de la date de l’arrêté lui accordant le bénéfice de la libération conditionnelle.
