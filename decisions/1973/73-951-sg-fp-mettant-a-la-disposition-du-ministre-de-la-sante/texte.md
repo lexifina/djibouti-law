@@ -1,0 +1,1 @@
+M. Antoine Castelli, Adjudant-Chef en position «cadres hors budget des Armées », est, pour compter du 23 mai 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales, pour servir à l’Hôpital Peltier, en remplacement numérique de l’Adjudant-Chef Coffin, rapatriable.
