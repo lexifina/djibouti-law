@@ -1,0 +1,2 @@
+M. Mohamed Ibrahim dit Souffi, commis-interprête auxiliaire (échelle VII, 1er échelon, indice 585) en service au Cercle de Djibouti est muté au Cercle de Dikhil pour compter du 16 juin 1961% en remplacement numérique de M. Hassan Bouh Boudin, interprête auxiliaire qui reçoit une autre affectation
+M. Hassan Bouh Boudin, commis-interprêtre auxiliaire, échelle V, 2° échelon, indice 410, en service au Cercle de Dikhil est muté au Cercle de Djibouti pour compter du 16 juin 1961 en remplacement de M. Mohamed Ibrahim dit Soufﬁt.
