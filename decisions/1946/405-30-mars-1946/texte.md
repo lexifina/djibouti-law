@@ -1,0 +1,1 @@
+M. René Lefebvre, administrateur de 2e classe des colonies, commandant le cercle de Djibouti, a été chargé, cumulativement avec ces fonctions, de contrôler et diriger les services de la sûreté de la colonie à compter de la date de départ à l’inspecteur Durand, titulaire d’une permission d’absence.
