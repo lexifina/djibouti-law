@@ -1,0 +1,1 @@
+mutation est faite au nom dela République de Djibouti avec affectation auMinistére des Finances et de I’Economie nationale, les logements immatriculés au nom de |’Etat frangais dont les titres fonciers sont énumérés ci-aprés: TF n° 589, 596, 165, 587, 594, 585,581,620, 668, 615 et 664.
