@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 153/7° L du 24 décembre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du Code général des Impôts (obligations des redevables – documents à joindre à l’appui des déclarations).
