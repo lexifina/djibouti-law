@@ -1,0 +1,1 @@
+M. Hua (Ernest) est engagé en qualité de mécanicien électricien au salaire journalier de neuf cents francs (900 francs), pour compter du 13 mars 1950. L’intéressé est mis à la disposition du com mandant du cercle de Djibouti.
