@@ -1,0 +1,3 @@
+les mutilés et réformés, pensionnés de guerre, bénéficiaires de la loi du 31 mars 1919 et résidant dans la colonie, se réuniront dans la salle du tribunal], le samedi 26 mai 1934, à 17 heures, pour procéder à l’élection de deux membres titulaires et de deux membres éventuels chargés de les représenter à la commission de surveillance et de contrôle des soins médicaux, chirurgicaux et pharmaceutiques prévue par l’article 25 du décret du 15 juin 1926.
+Le délégué du gouverneur au comité colonial des anciens combattants assurera la présidence de cette réunion.
+Les résultats du vote seront immédiatement communiqués au gouverneur.
