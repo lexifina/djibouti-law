@@ -1,0 +1,21 @@
+# Arrêté n° 21-407-1930 promulguant le décret du 24 août 1930 relatif à des frais de transport et de dé placement du personnel colonial.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-21-407-1930-promulguant-le-decret-du-24-aout-1930-relatif-a-des-frais-de-transport-et-de-de-placement-du-personnel-colonial/>
+
+En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Gouverneur de la Côte francaise des Somalis,
+Vu l'ordonnance organique du 18 septembre 1844, rendue applicable à la colonie par décret du 18 juin 1884;
+Vu l'arrêté du 1 octobre 1914 réglant le mode de promulgation et de publication des lois, décrets et arrêtés et les conditions dans lesquelles ces lois, décrets et arrêtés deviennent exécutoires :
+Vu le décret du 24 août 1930 relatif à des frais de transport et de déplacement du personnel colonial,
+
+## Signature
+
+chapon-baissac
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
