@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 31/75/CPS du 12 juin 1975 du Conseil d’Administration de la Caisse des Prestations Sociales, portant dévolution au Territoire de l’actif du Centre de Formation Hôtelière d’Arta figurant au bilan au 31 décembre 1974 de la Caisse des Prestations Sociales (gestion D 3).
