@@ -1,0 +1,1 @@
+M. Gilbert Detolle, ataché de la France d’outre-mer, 1re classe, 2e échelon (indice net 430) est, pour compter du 18 janvier 1968, date de son arrivée au Territoire, mis à la disposition du Ministre des Affaires intérieures pour servir au District de Djibouti.
