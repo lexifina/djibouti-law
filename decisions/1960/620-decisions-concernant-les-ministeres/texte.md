@@ -1,0 +1,1 @@
+M. Leclerca (René), ingénieur adjoint de 2° classe des Travaux Publics (indice 300), est mis à la disposition de M. le Ministre des Travaux Publics et du Port pour compter du 14 mai 1960, date de son arrivée dans le Territoire.
