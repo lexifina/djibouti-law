@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les Cercles de Tadjourah et d’Obock est interdit à M. Abdo Ali Mohamed, né 20 juillet 1946 à Djibouti (TFAI), condamné le 20 juin 1974 par le Tribunal correctionnel de Djibouti à 1 an de prison et 5 ans d’interdiction de séjour, pour vol, écroué le 9 avril 1974, libéré le 9 avril 1975.
