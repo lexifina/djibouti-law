@@ -1,0 +1,1 @@
+M. Jacques Tournier, instituteur de 7° échelon l(indice nouveau 337) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir à l’Association territoriale pour la protection de la jeunesse.
