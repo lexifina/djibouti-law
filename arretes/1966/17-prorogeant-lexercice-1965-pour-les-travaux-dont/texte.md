@@ -1,0 +1,1 @@
+L’exercice 1965 du budget local de la Côte Française des Somalis et du budget annexe du Port de Commerce de Djibouti est prorogé jusqu’au 28 février 1966 pour permettre l’achèvement des travaux dont l’énumération est donnée ci-après et qui n’ont pu être terminée au 31 décembre 1965.
