@@ -1,0 +1,1 @@
+Est approuvée la délioération n° 30a-75/CPS du 12 juin 1975 du Conseil d’administration de la Caisse des Prestations sociales, portant modification di Eudget. de l’exerciée 1974 de la Caisse Ces Prestations sociales.
