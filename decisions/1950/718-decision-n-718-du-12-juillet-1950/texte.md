@@ -1,0 +1,2 @@
+Le pharmacien, capitaine, Olemensat (-Jean), placé dans la position « hors.cadres », est affecté à l’hôpital colonial de Djibouti, en remplacement du pharmacien capitaine Jardin, pour compter du 19 juin 1950. L’adjudant infirmier Aunionnier (Xoé), placé dans la position « hors cadres » pour compter du 5 juin 1950, est mis à la disposition du directeur du service de santé.
+Le sergent Cristint (Jean-Baptiste), placé d’ans la position « hors cadres » pour compter de la date de sont débarquement à Djibouti, est mis n la disposition du directeur du service de santé.
