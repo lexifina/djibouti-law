@@ -1,0 +1,1 @@
+et pour compter du 22 du même mois, M. Séré, administrateur-adjoint de deuxième classe des Colonies est nommé Président du Tribunal indigène du premier degré, en remplacement de M. Chanel, Chef du Service des Affaires indigènes.
