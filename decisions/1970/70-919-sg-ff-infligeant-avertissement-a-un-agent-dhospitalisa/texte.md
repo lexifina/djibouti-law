@@ -1,0 +1,1 @@
+Un avertissement est infligé à Mme Amina Ibrahim Warsama, agent d’hospitalisation de 1° classe, 1° échelon du cadre térritorial de la Santé publique, en service à l’Hôpital Peltier, pour manque de conscience professionnelle et abandon de poste le 27 juillet 1970, à 11 h. 15.
