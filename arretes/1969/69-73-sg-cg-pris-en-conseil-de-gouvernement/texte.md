@@ -1,0 +1,1 @@
+Raymond Reylé, ingénieur des travaux ruraux, 4 échelon, chef du Service de l’Hydraulique, est, à titre intérimaire, 2 cumulativement avec ses fonctions, nommé Chef du Service de PAgriculture (Ministère des Affaires économiques) pourcompter de la date du départ de M. Archimbaud.
