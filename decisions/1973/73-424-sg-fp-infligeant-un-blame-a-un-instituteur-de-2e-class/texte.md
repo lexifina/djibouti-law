@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Mohamed Farah Arreh dit Arreh Farah, instituteur de 2e classe, 2e échelon, du corps territorial de l’enseignement public du premier degré, en service à l’école du quartier 6 (Ministère de l’Enseignement, des Sports et de la Jeunesse) pour absences et retards répétés et injustifiés.
