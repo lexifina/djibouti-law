@@ -1,0 +1,23 @@
+# Décret n° 19-426-1932 approbation du budget local de la Côte française des Somalis pour l’exercice 1932.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-426-1932-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1932/>
+
+En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+Vu l'ordonnance organique du 18 septembre 1844, rendue applicable à la Côte française des Somalis par décret du 18 juin 1884;
+Vu le décret du 30 décembre 1912, sur le régime financier des colonies,
+
+## Signature
+
+PAUL DOUMER.
+
+Par le Président de la République :
+Le Ministre des colonies,
+DE CHAPPEDELAINE.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
