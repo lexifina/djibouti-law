@@ -1,0 +1,1 @@
+Pour compter du 1er janvier 1953, M. Clavies (Roland), Comptable auxiliaire en service au Bureau d’un traitement mensuel de trente-huit mille francs (38.000 fr.) exclusif de toute indemnité à de toute indemnité.
