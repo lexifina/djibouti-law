@@ -1,0 +1,1 @@
+Un avertissement est infligé à M Aboubaker Houmed Moussa, patron adjoint d’embarcation de 1er classe, 3e échelon, au port de Djibouti (Ministère des Travaux publics et du Port) pour injures graves proférées à l’encontre de son supérieur hiérarchique.
