@@ -1,0 +1,2 @@
+Mme Poitevineau Marie-Thérèse, ex-secrétaire-dactylographe auxiliaire, est réengagée en la même qualité et mise à la disposition du Ministre des Affaires Intérieures pour servir au Cercle de Djibouti à compter du 3 février 1960, en remplacement numérique de Mme Buisson appelée à d’autres fonctions.
+Mme Poitevineau est classée à la 2e catégorie, échelle XI, 1er échelon, indice local 895 et conservera dans cet échelon une ancienneté de 1 an, 5 mois 14 jours.
