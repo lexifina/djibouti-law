@@ -1,0 +1,1 @@
+Le taux de la redevance, prévue à l’article 2 de l’arrêté n° 873/SG/CG du 5 juin 1968 fixant le tarif de location du Théâtre des Salines est porté de 10 à 20 % du produit de la location des places —— qu’elles soient de premières ou de secondes — à compter du 1° janvier 1977.
