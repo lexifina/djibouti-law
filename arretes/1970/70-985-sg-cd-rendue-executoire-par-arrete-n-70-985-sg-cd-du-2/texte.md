@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 129/7°L du 13 août 1970 de la Commission permanente complétant la délibération m° 32/7 L au 20 mai 1969 portant codification du régime des prestations familiales du Territoire Français des Afars et des Issas.
