@@ -1,0 +1,1 @@
+Le sergent infirmier Chabound (Louis) débarqué en Côte francaise des Somalis le 9 août 1949 , en position € hours cadres », est affecté, pour compter du jour de son débaraquement, à l’hôpital colonial de Djibouti en qualité d’infirmier-major.
