@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et les Cercles Tadjourah et d’Obock est interdit pendant cinq ans à Mohamed Ahmed Mohamed, né vers 1944 à Tadjourah, condamné le 29 juin 1972 par le Tribunal correctionnel de Djibouti, à un an de prison et cinq ans d’interdiction de séjour, pour complicité de vol, écroué le 29 mars 1972, libéré le 29 mars 1973.
