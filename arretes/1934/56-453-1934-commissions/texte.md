@@ -1,0 +1,1 @@
+une commission composée de MM. Ravailler, chef du service judiciaire, président ; Callard et Hano, membres du Conseil d’administration, est nommée à l’effet de procéder au rapprochement des écritures de l’ordonnateur et de celles du trésorier-payeur, en ce qui concerne les opérations effectnées au titre du budget local au cours de l’exercice 1933.
