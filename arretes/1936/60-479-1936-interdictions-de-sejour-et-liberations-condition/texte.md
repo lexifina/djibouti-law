@@ -1,0 +1,1 @@
+le bénéfice de la libéraiion conditionnelle est accordé an nommé Abdi Djama, somali Darot, condamné à 18 mois de prison par jugement du tribunal indigène du 2e degré de Djibouti du 16 janvier 1936 et incarcéré depuis le 10 janvior 1936.
