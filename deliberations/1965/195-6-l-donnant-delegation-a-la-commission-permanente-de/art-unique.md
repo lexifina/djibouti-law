@@ -1,0 +1,2 @@
+# Article unique
+— L’Assemblée Territoriale donne délésation à sa Commission permanente pour délibérer et donner son avis pendant la période d’intersession sur tous les projets de délibération ou d’arrêté qui lui seront présentés. par le Conseil de Gouvernement et plus particulièrement sur les projets financiers parmi lesquels figurera le Collectif définitif dont les grandes lignes viennent d’être approuvées en séance plénière.
