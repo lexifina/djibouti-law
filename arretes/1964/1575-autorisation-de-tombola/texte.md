@@ -1,0 +1,1 @@
+Mme Levallois, présidente du Comité de la Croix-Rouge Française à Djibouti, est autorisée à organiser une tombola -composée de 1.000 billets à 200 FD l’un, dont le produit sera exclusivement destiné aux œuvres sociales de la Croix-Rouge.
