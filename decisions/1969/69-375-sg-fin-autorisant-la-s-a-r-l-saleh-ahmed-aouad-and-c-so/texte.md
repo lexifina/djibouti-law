@@ -1,0 +1,1 @@
+La S.A.R.L. Saleh Ahmed Aouad and C° (société étrangère),siège social: Djibouti, est autorisée à acquérir un immeuble sis à Djibouti, à l’angle de la rue de Marseille et du boulevard Bonhoure prolongé et immatriculé au Livre foncier du Territoire sous le n° 175 au nom de l’Americain Africain Finance Corporation.
