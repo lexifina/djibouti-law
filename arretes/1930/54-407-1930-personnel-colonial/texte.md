@@ -1,0 +1,1 @@
+Par arrété du Ministre des colonies en date du 1° » octobre 19530, M. Descamps (Jean-Louis-Eugène), administrateur de 1″ classe des coLonies, provenant de La Côte des Somalis, a A été mis à la disposition Du gouverneur général de l’Afrique équatoriale française, à compter de la veille du jour de son embarquement à destination de cette colonie.
