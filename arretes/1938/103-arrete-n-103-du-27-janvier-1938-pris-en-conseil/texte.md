@@ -1,0 +1,1 @@
+Est rendu exécutoire le 4e rôle supplémentaire de la taxe personnelle impôt locatif et taxe de voirie (exercice 1937), comprenant trente-cinq articles et s’élevant à la somme de cinq miille cent cinquante francs soixante centimes.
