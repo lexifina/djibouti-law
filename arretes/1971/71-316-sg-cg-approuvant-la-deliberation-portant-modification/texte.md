@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1-71/CPS du 8 février 1971 modifiant l’article 2 de la délibération n° 10-70/CPS du 11 décembre 1970 portant adoption du budget de fonctionnement de la Caisse des Prestations sociales pour 1971 (article 6181, gestion C, et chapitre 66, gestion D)
