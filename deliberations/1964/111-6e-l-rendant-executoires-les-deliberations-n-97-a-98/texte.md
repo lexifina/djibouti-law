@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé, à Mme Fatouma Doualé Idle, la concession provisoire d’une parcelle de terrain d’une superficie de deux cent cinquante-cinq mètres carrés environ, sisé à Djibouti, quartier 1, au prix de cent francs le mètre carré.
