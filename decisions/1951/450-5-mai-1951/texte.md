@@ -1,0 +1,1 @@
+M. Zouain (Jean), Commis principal du Cadre local des P.T.T., dont les intérêts matériel et de famille résident dans la Mertropole, bénéficiera de la majoration de dépaysement au taux de 5 dixièmes, pour compter du 1er janvier 1948, et au taux de 7,5 dixièmes pour compter du 1er janvier 1940
