@@ -1,0 +1,1 @@
+Le cahier des charges de la zone industrielle sud approuvé par arrêté n° 71-528/SG/CG du 8 avril 1971 est applicable à l’extension de cette zone autorisée par délibération n° 272/7e L du 6 juin 1972, conformément au plan joint au présent arrêté.
