@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif des patentes, tableau A (exercice 1938), comprenant deux cent soixante-quatorze articles et s’éle vant à la somme de cinq cent cinq mille neuf cent quatre-vingts francs (505.980 francs).
