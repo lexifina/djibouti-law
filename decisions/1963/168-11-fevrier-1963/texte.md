@@ -1,0 +1,1 @@
+M. Djama Yassin Farab, instituteur adjoint stagiaire en service à Yoboki, admis au certificat élémentaire d’aptitude pédagogique, est titularisé dans le grade d’instituteur de 2e classe du Corps territorial de l’Enseignement public et rangé au 1er échelon de ce grade pour compter du 1er janvier 1963.
