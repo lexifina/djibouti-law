@@ -1,0 +1,1 @@
+Le milicien de 2e classe Hamad Ibrahim, matricule 1821, de la 3e compagnie de milice à Djibouti, décédé à l’hôpital de Djibouti le 17 novembre 1949, est rayé des contrôles de la milice indigène à compter du 18 novembre 1949.
