@@ -1,0 +1,2 @@
+# Préambule
+Ait. I r . — Une enquéte de commodo et inrommodo d’une durée d’un mois sera ouverte en vue de recueillir les oppositions et les observations qui pourraient être formulées au sujet d’une demande de renouvellement du permis d’ocoipat ion d’une parcelle de terrain comprise au Domaine public maritime, d’une superficie de cinq cents mètres carres, sise sur le terre plein de la jetée du Gouvernement et sur laquelle est édifié un bâtiment dénommé L « Escale ».
