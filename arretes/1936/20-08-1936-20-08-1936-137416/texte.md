@@ -1,0 +1,1 @@
+M. Dartnell (Robert), président titulaire du tribunal de 1re instance, président p. i. du Tribunal supérieur d’appel, exerce les fonctions de procureur de la République pendant la durée de l’absence du procureur titulaire. Pendant ce même laps de temps, M. Dartnell exercera les fonctions de chef de service judiciaire.
