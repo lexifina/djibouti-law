@@ -1,0 +1,1 @@
+est promulgué à la Côte francaise des Somalis et dépendances, le dé cret du 15 mai 19440 qui étend aux colonies les dispositions du décret du 20 janvier 1940 complétant le décret du 1er septembre 1939. réprimant la publication d’informations de nature à exercer une influence fâcheuse sur l’esprit de l’armée et des populations.
