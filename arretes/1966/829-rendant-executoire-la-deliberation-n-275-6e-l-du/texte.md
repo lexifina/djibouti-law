@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 275/6e L du 24 mai 1966 de l’Assemblée Territoriale de la Côte Française des Somalis portant création d’un poste d’adjoint contractuel au Chef de la Subdivision Exploitation du Port de Commerce de Djibouti.
