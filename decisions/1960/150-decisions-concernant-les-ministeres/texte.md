@@ -1,0 +1,1 @@
+Est constatée pour compter du 2 février 1960, date de son retour dans le Territoire, la reprise par M. Robin André, Attaché de la France d’Outre-Mer de 2° classe, 1e échelon, de ses fonctions de Secrétaire Administratif Permanent de l’Assemblée Territoriale.
