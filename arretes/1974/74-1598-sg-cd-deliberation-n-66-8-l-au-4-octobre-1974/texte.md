@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n°.66/8° 1, du 4 octobre 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant-octroi de l’aval du Territoire à un emprunt complémentaire de 1068000 FF contracté par le Service Médical Interentreprises auprès de la Caisse de Coopération Economique.
