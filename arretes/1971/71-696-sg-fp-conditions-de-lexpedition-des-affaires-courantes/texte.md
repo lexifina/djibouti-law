@@ -1,0 +1,1 @@
+M. Michel Thévenin, journaliste contractuel (catésorie B, 5° échelon), est chargé de l’expédition des affaires courantes du Service de l’Information et de l’intérim des fonctions du Directeur du « Réveil de Djibouti » pendant l’absence de M. Herry, titulaire d’un congé administratif.
