@@ -1,0 +1,1 @@
+la somme de mille deux cent soixante-six francs quatre-vingts centimes, représentant le montant des droits sanitaires, ports, phares et balises, perçus sur le navire Sturmfels, arrivé dans notre port le 28 octobre 1933 sera remboursée à la Compagnie de l’Afrique orientale, consignataire de ce navire.
