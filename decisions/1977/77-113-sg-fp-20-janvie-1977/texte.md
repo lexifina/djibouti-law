@@ -1,0 +1,1 @@
+M. Abass Ibrahim Moussa, conducteur des travaux agricole de 2e classe, 3e échelon du cadre territorial des services de l’Agriculture et de l’Elevage, est nommé à titre intérimaire pour compter du 1er janvier 1977, adjoint au chef du service de l’Agriculture.
