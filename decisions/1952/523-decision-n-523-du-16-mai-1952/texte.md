@@ -1,0 +1,1 @@
+M. Chamboredon (Robert), administrateur en chef 3e échelon de la France d’Outre-Mer, secrétaire général de la Côte Française des Somalis, est chargé de l’expédition des affaires courantes et urgentes pendant l’absence du Gouverneur.
