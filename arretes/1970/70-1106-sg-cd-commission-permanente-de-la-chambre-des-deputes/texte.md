@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 131/7e L du 10 septembre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant approbation du Compte administratif de la Chambre de commerce et d’industrie de Djibouti pour l’exercice 1969.
