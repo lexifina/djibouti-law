@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 330/7e L. du 20 mars 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant virements et ouverture de crédits au budget annexe du port de commerce de Djibouti, budget d’équipement, exercice 1973.
