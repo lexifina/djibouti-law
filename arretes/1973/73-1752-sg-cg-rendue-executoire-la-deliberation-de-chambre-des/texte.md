@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 2/8eI, du 10 décembre 1973 de la Chambre des Députés du Territoire Francais des Afars et dés Issas portant modification du budget territorial pour l’exercice 1973.
