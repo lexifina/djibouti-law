@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 276/7e L du 15 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant agrément d’un agent spécial de compagnie d’assurances.
