@@ -1,0 +1,1 @@
+M. Parisse Pierre, chargé de l’expédition des affaires courantes du Service de l’Enseignement, est nommé billeteur pour le paiement de la solde et allocations accessoires du personnel autochtone du Service de l’Enseignement, en remplacement de Mme Muzotte, partant en congé.
