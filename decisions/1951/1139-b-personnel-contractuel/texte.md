@@ -1,0 +1,1 @@
+M. M’itler (Henri),, chef électricien contractuel, de retour de congé, est mis à la disposition du Directeur des Travaux I publics pour servir à la Subdivision des exploitations industrielles (Electricité) à compter du 10 décembre 1951, date de son débarquement sur le Territoire.
