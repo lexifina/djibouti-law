@@ -1,0 +1,3 @@
+Le sergent-chef Isman Abdi, mle 2006, de la 3° compagnie de Milice à Ali-Sabieh, arrivant en fin de contrat le 8 juin 1967, est mis à la retraite à compter du 9 juin 1967, date à laquelle il sera rayé des contrôles du corps. Il recevra le certificat de bonne conduite.
+Totalisant 20 ans de services effectifs à la Milice de la C.F.S., l’intéressé percevra une allocation viagère annuelle de soixante dix-huit mille francs Djibouti (78.000 FD- à compter du 9 juin 1967, payable trimestriellement à terme échu sur le vu d’un certificat de vie délivré par les autorités compétentes dû Territoire.
+Les droits à solde, vivres et permissions de l’intéressé seront liquidés par les soins de l’agent spécial du Cercle d’Ali-Sabieh.
