@@ -1,0 +1,9 @@
+# Arrêté n° 78-0024/PR Fixant les conditions de désignation de certains des membres du conseil d’administration du Port
+
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 23/01/1978 · <https://www.journalofficiel.dj/texte-juridique/arrete-n78-0024-pr-fixant-les-conditions-de-designation-de-certains-des-membres-du-conseil-dadministration-du-port/>
+
+En vigueur : 1978-01-23 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | s organismes représentés au conseil d’administration de l’Aéroport de Djibouti disposent d’un délai d’un mois à compter de la notification qui leur est faite par le ministre chargé de l’Aviation civile, pour lui faire connaître le nom du représentant qu’ils proposent. Dans le cas où les organismes représentés au conseil n’ont pas fait connaître dans le délai réglementaire d’un mois leurs propositions au ministre chargé de l’Aviation civile, celui-ci peut pourvoir, de sa propre autorité, à la désignation de leur représentant. Le représentant du personnel est élu par l’ensemble des agents de l’établissement. Il doit avoir été employé depuis trois ans au moins de manière permanente, par l’Aéroport de Djibouti ou par les services auxquels l’établissement s’est substitué. Une décision du directeur général fixe la date limite de dépôt des candidatures et la date du vote pour l’élection du représentant du personnel. Le directeur général veille à l’organisation matérielle du scrutin et rend compte des résultats au ministre chargé de l’Aviation civile, quinze jours au moins avant la date prévue pour la prise de fonction du représentant à désigner. Les dispositions du deuxième alinéa s’appliquent au représentant du personnel lorsque son élection n’a pu avoir lieu ou n’a pas permis d’aboutir à un résultat. Le ministre du Commerce, de l’Industrie, des Transports et du Tourisme est chargé de l’exécution du présent arrêté. |
