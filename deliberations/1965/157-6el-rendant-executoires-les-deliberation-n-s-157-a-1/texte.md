@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 234 du 19 février 1965, la Commission permanente de l’Assemblée Territoriale a accordé à, M. Mohamed Diletta Chueleïh la concession provisoire d’une parcelle de terrain d’une superficie de 455 mètres carrés environ, à Djibouti quartier 2, au prix 100 francs le mètre carré.
