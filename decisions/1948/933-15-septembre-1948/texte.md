@@ -1,0 +1,1 @@
+M. Moilliet (Robert), comptable principal des travaux publics, est nommé billeteur pour le payement des salaires du mois de septembre 1948. des ouvriers et manoeuvres, payés au compte du budget local et du budget du Fides, pendant l’absence de M. Bruckert.
