@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 31/6° L. du 22 février 1964 de l’Assemblée Territoriale de la Côte Française des Somalis portant autorisation de virements de crédits du Budget du Service local, exercice 1963.
