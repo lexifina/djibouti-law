@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est infligé à M. Souleiman Ahmed Chil, agent de contrôle stagiaire, du Cadre Territorial des Contributions, en service aux Contributions Indirectes (Ministère des Finances), pour refus d’obéissance manifeste.
