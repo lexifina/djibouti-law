@@ -1,0 +1,1 @@
+M. Rabehaja Martin est engagé en qualité d’agent de poursuites pour le recouvrement des contributions directes et mis à la disposition du Trésorier-Payeur pour s compter du 8 septembre 1951 à la solde mensuelle de 21.000 francs, exclusive de toutes indemnités.
