@@ -1,0 +1,2 @@
+Il est affecté au Ministère des Affaires intérieures de la Côte Française des Somalis, pour les besoins du Cercle de Djibouti, un terrain d’une superficie de 30.000 mètres carrés (3 ha) environ, sis à Ambouli, entre la piste de Doralé et celle de l’ancien dépôt d’ordures, ledit terrain tel au surplus qu’il est figuré au plan annexé au présent arrêté.
+Ce terrain est destiné à l’installation d’une nouvellé fourrière.
