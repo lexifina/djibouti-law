@@ -1,0 +1,2 @@
+L’arrêté n° 598 du 9 mai 1964 portant interdiction de se présenter à une session des permis de conduire en vue de l’obtention des permis dés câätégories «B » et au-dessus, ést prorogé pour une durée de deux ans en ce qui Concerne le sieur Moussa Ismaël Kipar, somali issack abar awal, né véers 1932 à Djibouti, de Ismaël Kipar et de Fatma Ali, mécanicien, démeurant à Djibouti, quartier n° 3, rue 7, maison 44.
+L’intéressé ne pourra, en conséquence, se présenter à une session de permis de conduire avant le 6 juin 1975.
