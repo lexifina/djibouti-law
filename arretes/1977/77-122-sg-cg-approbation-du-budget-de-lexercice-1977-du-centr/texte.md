@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 5-76/C.E.G.D. du 31 décembre 1976 du Conseil d’administration du Centre d’Etudes Géologiques et de Développement ayant arrêté le budget 1977 du C.E.G-D. en recettes et en dépenses à la somme de: trente-et-un millions six cent quarante mille quatre cent quatorze francs Djibouti (31 640 414 FD).
