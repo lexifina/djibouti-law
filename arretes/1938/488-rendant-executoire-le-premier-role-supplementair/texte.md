@@ -1,0 +1,1 @@
+Est rendu exécutoire le 1er rôle supplémen taire des patentes : « Tableau A », exercice 193S. comprenant cent soixante-quinze articles et s’élevant à la somme de quatre-vingt-onze mille deux cent-soixante francs.
