@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Djama Abdillahi, agent d’hygiène auxiliaire (catégorie C, 7° échelon) en service au Service d’hygiène et d’épidémiologie (Ministère de la Santé publique et des Affaires sociales) pour relâchement dans le travail et manque d’autorité.
