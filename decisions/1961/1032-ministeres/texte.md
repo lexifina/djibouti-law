@@ -1,0 +1,2 @@
+M. Kambourakis Basile, de nationalité hellénique, est autorisé à gérer l’établissement dit « Hôtel de l’Europe», sis à Djibouti, place Ménélick, et comprenant un hôtel, un restaurant et un débit de boissons.
+L’autorisation d’exploiter dans cet établissement une licence de première classe pour la vente de boissons alcooliques ou hygiéniques à consommer sur place ou à emporter, est transférée des héritiers de M. Nicoletto Mina à M. Kambourakis Basile.
