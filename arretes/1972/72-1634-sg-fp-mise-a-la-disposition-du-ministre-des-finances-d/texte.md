@@ -1,0 +1,1 @@
+M. Hubert Brel, inspecteur central des Douanes, 3° échelon, est, pour compter du 10 novembre 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Finances pour servir en qualité d’adjoint au chef du Service des Contributions indirectes.
