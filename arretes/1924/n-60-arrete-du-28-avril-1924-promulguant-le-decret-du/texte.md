@@ -1,0 +1,1 @@
+Art, 1er — Est promulgué dans la Colonie pour v être appliqué selon ses forme et teneur le décret du 26 mars 1924, portant réorganisation des opérations d’articles d’argent dans les relations entre la France et Algérie d’une part, et les colonies françaises d’autre part la Colonie.
