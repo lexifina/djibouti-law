@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de la contribution exceptionnelle sur les revenus de plus de 5O,000 franes pour l’exerercce 1936 s’élevant à ln somme de dix mille huit cent vingt-huit francs treize centimes.
