@@ -1,0 +1,2 @@
+Au lieu de : Un passage de retour par anticipation par voie maritime est accordé à Mme Rajoelina, épouse d’un secrétaire contractuel, qui voyagera accompagnée de ses deux enfants âgés, respectivement de deux ans et cinq mois (groupe V).
+Lire : Un passage de retour par anticipation pour Madagascar par voie maritime est accordé à Mme Rajoelina, épouse d’un secrétaire contractuel, qui voyagera accompagnée de ses trois (3) enfants âgés respectivement de cinq (5) ans, deux (2) ans et cinq (5) mois (groupe V).
