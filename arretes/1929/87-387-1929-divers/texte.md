@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est interdit pendant cinq ans au nommé Farah Aoualé, Issa Fourlaba, condamné à trois mois de prison, pour coups et blessures, et à la peine accessoire de cinq ans d’interdiction de séjour.
