@@ -1,0 +1,2 @@
+Art, 1er —Le secrétaire général de la Côte francaise des Somalis participe aux séances du Conseil privé de ce territoire an meme titre que le chef du service judiciaire et que le commandant mititaire,
+Art 2— Le Ministre de lu France d’outre-mer est chargé l’exécntion du nprésent décre qui sera publié au Journal officiel de la République francaise, au Journal officiel de la Câte francaise des Somalis et inséré au Bulletin officiel du ministère de la France d’outre-mer.
