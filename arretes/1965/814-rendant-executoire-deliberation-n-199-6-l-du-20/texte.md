@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 199/6 L du 20 mai 1965 de la Commission Permanente de l’Assemblée Territoriale portant autorisation de virements de crédits du budget du service local , exercice 1964.
