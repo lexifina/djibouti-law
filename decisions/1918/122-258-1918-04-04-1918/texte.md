@@ -1,0 +1,1 @@
+M. VERNIER a été désigné pour reprendre les fonctions d’huissier et de porteur de contraintes qui avaient été confiées par décision du 25 mars 1918 à M. AZENOR. Cette dernière décision a été rapportée
