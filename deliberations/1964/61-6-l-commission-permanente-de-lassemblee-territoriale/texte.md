@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 460 du 1er avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé àu Conseil d’administration des Biens du Diocèse de Djibouti la concession provisoire d’un terrain d’une superficie de deux mille quatre cents mètres carrés sise à Ambouli (lot n° 88), à titre gratuit.
