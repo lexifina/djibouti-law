@@ -1,0 +1,2 @@
+Au lieu de : Par arrêté n° 1156 rendant exécutoires les délibérations n° 297/6e L à 302/6e L du 2 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Sômalis en matière domaniale.
+Lire : Par arrêté n° 1156 du 8 juillet 1966 rendant exécutoires les délibérations n° 297/6eL, 299/6e1, 301/6e1, 302/6e L du 2 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côté Française des Somalis en matière domaniale.
