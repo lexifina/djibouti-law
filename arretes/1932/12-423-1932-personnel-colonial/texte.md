@@ -1,0 +1,1 @@
+M. Montout (Georges), sous-chef de bureau de 2e classe des secrétariats généraux des colonies, précédemment affecté à la Côte française des Somalis, a été mis à la disposition du Gouverneur de la Nouvelle-Calédonie, pour compter de la vieille du jour de son embarquement.
