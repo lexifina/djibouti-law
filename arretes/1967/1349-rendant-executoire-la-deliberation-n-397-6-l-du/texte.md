@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 397/6eL du 29 juin 1967 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis habilitant le Chef du Territoire à donner son aval à un emprunt de deux millions de francs-Djibouti contracté par le « Parachute-Club de Djibouti ».
