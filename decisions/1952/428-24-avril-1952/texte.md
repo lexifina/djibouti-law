@@ -1,0 +1,1 @@
+Le traitement mensuei du nommé Omar Merenech, cuisinier, en service à l’Atelier-Ecole de Djibouti, est porté à 4.970 francs pour compter du 1e juillet 1951 et à 5.290 francs pour compter au 1er janvier 1952,
