@@ -1,0 +1,2 @@
+Un congé administratif de six mois, pour en jouir à Aix-en Provence (Bouches-du-Rhône), est accordé à M. Versini (Antoine), Rédacteur de 1er classe d’Administration générale de la France d’Outre-Mer.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Aix-en-Provence seront délivrées à l’intéressé qui voyagera accompagné de son épouse et de sa fille âgée de deux ans (groupe III).
