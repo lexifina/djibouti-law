@@ -1,0 +1,1 @@
+Un blôme est infligé à M. Kamil Issa Ali, agent d’exploitation qualifié de 3e classe, 3e échelon du cadre territorial de la Santé Publique en service à l’hôpital Peltier pour absence irrégulière non motivée du 29 avril 1975 au 6 mai 1975 inclus.
