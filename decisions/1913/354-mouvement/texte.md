@@ -1,0 +1,1 @@
+M. Carreau, administrateur des Colonies, est délégué pour soutenir les intérêts de lAdministration locale dans Pinstance engagée devant le Conseil d’appel entre le syndic de la faillite Felouzakis et le chef mécanicien Gennaro di Capua.
