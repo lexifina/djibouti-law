@@ -1,0 +1,1 @@
+Le bar-restaurant «La Palmeraie » sis à Ambouli, exploité par M. Dublineau, sera fermé temporairement pendant la durée des travaux et réaménagement à exécuter conformément aux prescriptions indiquées dans le rapport susvisé.
