@@ -1,0 +1,1 @@
+Un congé de convalescence de trois mois à passer en France avec bénéfice de cures thermales à Vichy et à Aix est accordé à M. Maury (Georges), vérificateur hors classe du cadre métropolitain des douanes.
