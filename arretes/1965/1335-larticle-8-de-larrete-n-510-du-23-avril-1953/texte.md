@@ -1,0 +1,3 @@
+L’article 8 de l’arrêté n° 510 du 22 avril 1953 modifié par l’arrêté n° 128 du 8 février 1958 est modifié comme suit:
+«La mise en vente, l’achat et l’établissement des postes privés radio-électriques. de toute nature, servant à assurer l’émission, ou à la fois l’émission et la réception de signaux et de correspondance, sont subordonnés à une autorisation spéciale du Gouverneur de la Côte Française des Somalis et de la Commission prévue à l’article premier. »
+Le Procureur, Chef du Service judiciaire, le Chef du Service de la Sûreté, le Chef du Service des Postes et Télécommunications sont chargés, chacun en ce qui les concerne, de l’exécution du présent arrêté qui sera enregistré, publié et communiqué partout où besoin sera.
