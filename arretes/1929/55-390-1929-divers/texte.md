@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est interdit pendant cinq ans au nommé Ali Nacoulas, arabe couttou, condamné à deux ans de prison, pour tentative de cambriolage et à la peine accessoire de cinq ans d’interdicton de séjour.
