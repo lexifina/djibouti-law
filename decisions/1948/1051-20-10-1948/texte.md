@@ -1,0 +1,1 @@
+M. Andrianaivoravelona (Ludwig), comptable contractuel, précédemment en service à la Caisse centrale de la France d’outre-mer, est affecté au service du personnel des finances et de la comptabilité pour compter du 18 octobre 1948.
