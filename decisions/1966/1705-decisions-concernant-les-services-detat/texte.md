@@ -1,0 +1,1 @@
+Le milicien de 1re classe Mohamed Hamed Aboubakar, Mle 2427 de la 3e compagnie de Milice à Ali-Sabieh, arrivant en fin de contrat le 11 octobre 1966, et ne désirant pas rengager, est rayé des contrôles du corps le 12 octobre 1966. Il recevra le certificat de bonne conduite.
