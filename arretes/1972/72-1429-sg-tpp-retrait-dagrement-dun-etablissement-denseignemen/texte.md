@@ -1,0 +1,1 @@
+L’agrément accordé à M. Paul Tavera pour son établissement d’enseignement de conduite des véhicules à moteur, sis 12, place Ménélik, est retiré pour cessation d’exploitation pour compter du 1er octobre 1972.
