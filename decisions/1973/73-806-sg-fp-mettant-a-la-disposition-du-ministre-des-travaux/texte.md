@@ -1,0 +1,1 @@
+M. Michel Beaugrard, chef de section des Travaux publics de l’Etat, 6e échelon (indice majoré 376), est, pour compter du 27 avril 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux publics et du port, pour servir à la direction des Travaux publics.
