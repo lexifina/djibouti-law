@@ -1,0 +1,1 @@
+M. Dalal Ali Mohamed, agent de contrôle de 3e classe – 1er échelon du cadre territorial du service des Contributions en service aux Contributions Indirectes, est mis en position de disponibilité sans traitement pour une durée de 2 ans à compter du 1er octobre 1976.
