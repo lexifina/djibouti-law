@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 46/8e L du 10 juin 1974 de la Chambre des Députés du Territoire français des Afars et des Issas portant modification du budget territorial pour l’exercice 1974.
