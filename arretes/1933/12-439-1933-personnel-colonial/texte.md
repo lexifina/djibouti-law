@@ -1,0 +1,1 @@
+un rappel d’ancienneté de quatre ans, six mois et deux jours a été attribué, pour compter du jour de sa nomination et dans son emploi actuel, à M. Verger, lieutenant de port de 3e classe, reliquat englobe ceux que lintéressé aurait déjà obtenus dans son grade actuel à compter du jour de sa nomination à ce grade.
