@@ -1,0 +1,1 @@
+Un secours temporaire de trois mille francs (3.000 fr.) est accordé, au titre de l’année 1960, à Mme Adouka Omar Amanah, veuve Mohamed Farada, ex employé du Service d’Hygiène, domiciliée au quartier n° 4.
