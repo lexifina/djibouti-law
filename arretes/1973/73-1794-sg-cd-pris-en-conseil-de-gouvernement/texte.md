@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 6/8 L du 15 decembre 1973 de la Chambre des Députés du Territoire français des Afars et des Issa modifiant la délibération n° 91/7e L , du 19 fèvrier 1970 portant sanction du défaut d’affiliation à la Caisse Des Prestations Sociales et du non paiement des cotisations dues à cet organisme.
