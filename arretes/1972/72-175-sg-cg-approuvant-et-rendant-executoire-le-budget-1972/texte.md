@@ -1,0 +1,1 @@
+Est approuvé et rendu exécutoire le budget de l’exercice 1972 de l’Office de Développement du Tourisme s’élevant en recettes et en dépenses à onze millions cent soixante-seize mille neuf cent un francs pour la section ordinaire, et en recettes ‘et en dépenses à quatre millions pour la section extraordinaire.
