@@ -1,0 +1,1 @@
+Mme Mariam Hersi est engagée, à titre essentiellement précaire et révocable, en qualité d’infirmière auxiliaire 6e échelon, en remplacement de Mu Fathma Ahmed, licenciée, et mise à la disposition du Directeur du Service de Santé pour compter du 1er octobre 1953.
