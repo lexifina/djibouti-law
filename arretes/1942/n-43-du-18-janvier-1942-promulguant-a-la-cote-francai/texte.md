@@ -1,0 +1,1 @@
+Est promulguée à ln Côte francrise des somalis la loi du 2 novembre 1941 déterminant les conditions dans lesquelles pourront être 16 gitimés les enfants dent les parents se somtrouvés par la mobilisation du pére et le déces de ce dernier dans l’impossibilité de contracter mariage,
