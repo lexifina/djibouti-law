@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 31/8e L du 29 mars 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant organisation des examens d’entrée dans l’enseignement du Second degré public et privé du territoire.
