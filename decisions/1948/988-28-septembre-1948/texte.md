@@ -1,0 +1,1 @@
+M. Remy (Jacques), instituteur de 6e classe en service à Djibouti, est désigné pour prendre la direction de l’école primaire d’Ali-Sabieh à compter de la rentrée d’octobre 1948, en remplacement de M. Muzotte, rentré en congé.
