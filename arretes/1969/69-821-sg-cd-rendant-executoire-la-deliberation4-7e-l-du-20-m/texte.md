@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 34/7° L du 20 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget annexe du Port de commerce de Djibouti pour l’exercice 1969.
