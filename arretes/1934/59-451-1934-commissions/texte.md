@@ -1,0 +1,7 @@
+il a été institué à la Côte francaise des Somalis une commission de surveillance et de contrôle des soins médicaux, chirurgicaux et pharmaceutiques dus aux bénéficiaires de l’article 64 de la loi des pensions du 31 mars 1919.
+La commission siège à Djibouti, Sacomposition à été la suivante :
+a) Membre titulaire :
+1° Représentants de l’Etat : M. le chef des bureaux du secrétariat général, délégué du gouverneur, président; M. Georges-Richard, trésorier-payeur, membre, 2° Représentants des bénéficiaires de larticle 64 : MM. Cope, commis principal de trésorerie, et Brouillet, contrôleur des P,. T.T membres, 3° ieprésentants du corps des médecins et pharmaciens : MM. Huchon, médecin capitaine, et Laviec, pharmacien lieutenant, b) Membres érentuels :
+1° Représentants de l’Etat : M. le chef du service des douanes, délégué du gouverneur, président ; M, Leprévost, commis de trésorerie, membre,
+2° Représentants des bénéficiaires de T’article 64 : M. Colombani, contrôleur des douanes, et M. Guignot, sous-directeur au C, F, E., membes.
+3° Représentants de corps des médecins et pharmaciens : M, Paute, médecin capitaine, La commission a été nommée pour un an à compter de la date de publication du présent arrêté, La commission fonctionne et assure son contrôle dans les conditions prévues pur le décret du 15 juin 1926 : articles 25, 26, 26 quarto, 26 quinto, 27. 28 et 29, et particulièrement par les articles 25 à 29.
