@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 433/6° L du 26 décembre 1967 de la Chambre des Députés portant création et organisation du Secrétariat général du Gouvernement du Territoire Français des Afars et des Issas.
