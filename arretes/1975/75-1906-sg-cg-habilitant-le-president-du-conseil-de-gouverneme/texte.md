@@ -1,0 +1,1 @@
+Le Président du Conseil de Gouvernement est habilité à passer au nom et pour le compte du Territoire français des Afars et des Issas, trois actes pour les acquisitions amiables de quatre terrains bâtis, sis À Djibouti, avenue 26.
