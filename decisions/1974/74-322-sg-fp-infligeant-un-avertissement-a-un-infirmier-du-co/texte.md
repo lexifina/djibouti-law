@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Said Abdallah infirmier de 2e classe, 2e échelon, du corps territorial de la Santé publique, en service à l’Hôpital Peltier (pavillon Guibert-Germain, rez-de-Chaussée),. pour absence non motivée de l’après-midi du 25 janvier 1974)
