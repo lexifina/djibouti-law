@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Omar DjaÏhà Bouni, infirmier de 2e classe, 1er échelon du corps Territorial de la Santé Publique, en service à l’hôpital Peltier (ministère de la Santé Publique et des Affaires Sociales), pour manque de conscience professionnelle.
