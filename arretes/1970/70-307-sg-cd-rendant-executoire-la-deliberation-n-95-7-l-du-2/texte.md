@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 95/7°L du 24 mars 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas autorisant des virements de crédits de chapitre à chapitre sur le budget du SerVice local de l’exercice 1969.
