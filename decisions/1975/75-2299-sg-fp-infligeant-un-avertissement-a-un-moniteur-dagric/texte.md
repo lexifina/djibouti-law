@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Said Helem Mohamed, moteur d’agriculture de 3e classe, 3e échelon du cadre territorial service de l’Agriculture, en service au poste d’As-Eyla, pour que de discipline caractérisée et négligence professionnelle.
