@@ -1,0 +1,1 @@
+Dérogation est accordée à Mme Yewebdar Wolde Mariam, de nationalité éthiopienne, pour exercer le commerce des boissons, licence de 5° classe, au bar-restaurant sis au n° 10 du boulevraide Caulle A Djibonti.
