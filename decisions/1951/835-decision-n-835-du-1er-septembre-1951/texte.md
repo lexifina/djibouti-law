@@ -1,0 +1,3 @@
+Un congé administratif de neuf mois à passer à Tamatave (Madagascar) est accordé à M. Rajaonarivony (Jean), dactylographe contractuel, dont le contrat arrivé à expiration le 31 août 1951 est renouvelé pour une période d’égale durée.
+M. Rajaonarivony, autorisé à utiliser pour sa rentrée une voie maritime autre que celle normalement employée, percevra sur les fonds du budget local le prix, d’un passage normal par voie maritime, n 3° classe, Djibouti-Tamatave, d’après le tarif courant des Messageries Maritimes, soit 24.871 francs.
+Le congé administratif de M. Rajaonarivony prendra effet pour compter du douzième jour qui suivra la date de son départ du Territoire
