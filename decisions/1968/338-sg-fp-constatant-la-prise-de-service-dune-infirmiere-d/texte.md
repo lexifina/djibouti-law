@@ -1,0 +1,2 @@
+Est constatée pour compter du 15 janvier 1968 la prise de service au dispensaire de Tadjoura (Ministère de la Santé publique et des Affaires sociales) de Mile Béatrice Loitière, infirmière diplômée d’Etat en remplacement numérique de Mme Jacquéline Mathias, en religion Petite sœur Jacquéline Monique de Jésus, inapte à repreéndré son Service.
+Mlle Béatrice Loitière occupe un des neuf postes d’infirmières religieuses prévus à la Convention du 9 janvier 1957.
