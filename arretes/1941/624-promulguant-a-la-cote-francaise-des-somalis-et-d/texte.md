@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis le décret du 10 septembre 1941 rendant applicable aux territoires relevant du Secrétariat d’Etat aux colonies la loi du 4 mai 1941 complétant l’article 2 du décret du 1er septembre 1939 relatif aux actions en justice et prescriptions et délais de procédure intéressant les mobilisés.
