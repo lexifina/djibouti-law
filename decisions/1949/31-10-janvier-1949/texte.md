@@ -1,0 +1,2 @@
+Le traitement mensuel de Si Ali ben Abou Bekeur es Sequaf, cadi de la ville de Djibouti, est porté à vingt initie francs, pour compter du 1er janvier 1949, avec rappel pour compter du 1er octobre 1948.
+La présente décision, qui abroge toutes les dispositions -antérieures relatives aux émoluments alloués à Si Ali Iben Abou Bekeur es Sequaf, sera enregistrée, publiée, communiquée partout, où besoin sera et inserée au Journal officiel de la colonie.
