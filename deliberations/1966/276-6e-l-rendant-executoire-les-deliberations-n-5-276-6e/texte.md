@@ -1,0 +1,1 @@
+rendue executoire par arrêté n° 830 du 31 mai 1966, la Commission permanente de l’Assemblée Territoriale a accordé à la S.A.R.L V.H. Condayan la concession provisoire d’une parcelle de terrain d’une superficie de 77,80 mètres carrés, sise à Djibouti, au prix de 3.000 FD le mètre carré.
