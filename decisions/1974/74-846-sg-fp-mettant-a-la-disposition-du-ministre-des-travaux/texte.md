@@ -1,0 +1,1 @@
+M. Philippe Chevallier, volontaire de l’Aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics, des Transports et du Tourisme, pour servir au bureau d’études des Travaux publics, en qualité de dessinateur-projeteur, service comptant pour compter du ler avril 1974.
