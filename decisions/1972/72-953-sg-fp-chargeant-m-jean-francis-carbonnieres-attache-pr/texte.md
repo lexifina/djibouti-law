@@ -1,0 +1,1 @@
+M. Jan-Francis Carbonnières, attaché principal d’administration centrale de 1er classe, premier adjoint au Chef de District, est, pendant les absences de M. Lachal, Chef du District de Djibouti, chargé de l’expédition des affaires urgentes et courantes du ressort dudit District.
