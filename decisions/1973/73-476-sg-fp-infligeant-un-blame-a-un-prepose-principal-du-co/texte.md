@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Mohamed Nour Hassan, préposé principal, 2° échelon, du corps territorial des Postes et Télécommunications, pour absences non motivées et injustifiées, manque de compétence professionnelle et mauvaises manières habituelles de servir.
