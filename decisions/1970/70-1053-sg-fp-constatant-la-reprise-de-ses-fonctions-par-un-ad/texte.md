@@ -1,0 +1,1 @@
+Est Constatée, pour compter du 24 août 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Roger Lachal, administrateur civil de 1er classe, directeur des Finances et du Plan, et conseiller technique du Ministre des Finances et du, Plan.
