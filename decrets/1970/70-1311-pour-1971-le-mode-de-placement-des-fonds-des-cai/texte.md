@@ -1,0 +1,2 @@
+Art1er: le pourcentage des execendent de depot qui peuvent etre place sur l’inatiative de caisse d’epargne des territoire d’outre-mer autre que les commores est fixe pour chaque caisse,pour l’anne 1971,à 50% de l’excedent des depot realise par cette caisse au cours de l’annee 1970 pour l’ensemble des premier livret ouvert aux deposant.
+Art2.le ministre de l’economie et de finances et le ministre delegue aupres du premier ministre charge de l’execution du present decret qui sera publie au journal officiel de la republique.
