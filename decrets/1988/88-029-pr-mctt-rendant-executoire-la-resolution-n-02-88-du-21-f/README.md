@@ -1,0 +1,26 @@
+# Décret n° 88-029/PR/MCTT Rendant exécutoire la Résolution n° 02/88 du 21 février 1988 du Conseil d’Administration d’Aéroport de Djibouti et portant approbation du budget définitif de l’exercice 1988 de l’Aéroport de Djibouti.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-029-pr-mctt-rendant-executoire-la-resolution-n02-88-du-21-fevrier-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexer/>
+
+En vigueur : 1988-04-14 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU les Lois Constitutionnelles n°77-001 et 002 du 27 juin 1977 ;
+VU l’Ordonnances n°LR/77-008 en date du 30 juin 1977 ;
+VU l’Ordonnances n°77-048/PR du 26 octobre 1977 créant l’Établissement Public « Aéroport de Djibouti » ;
+VU le Décret n°87-098/PR du 23 novembre 1987 portant nomination des membres du Gouvernement ;
+VU le Décret n°87/035/PR/MCTT pris en Conseil des Ministres en date du 20 mai 1987 portant approbation du budget prévisionnel de l’exercice 1987 d’Aéroport de Djibouti ;
+SUR Proposition du Ministre de Commerce, des Transports et du Tourisme, Président du Conseil d’Administration d’Aéroport de Djibouti ;
+LE CONSEIL DES MINISTRES ENTENDU EN SA SÉANCE DU 05 AVRIL 1988 .
+
+## Signature
+
+Par le Président de la République,
+Chef du gouvernement
+HASSAN GOULED APTIDON
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
+| [art-002.md](art-002.md) | Article 2 |
