@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Beder Omar Robleh, agent d’hospitalisation de 1 classe, 2° échelon, du corps territorial de la Santé publique, pour négligence dans l’exercice de ses fonctions au bloc opératoire de l’hôpital Peltier.
