@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 255/7° L du 12 mai 1972 de la Chambre des Députés habilitant le Président du Conseil de Gouvernement à passer au nom du Territoire Français des Afars et des Issas (budget annexe du Port) avec la Caisse des Prestations sociales, la convention de prêt de 36.000.000 F.D. destiné à la construction du nouvel accès routier du port.
