@@ -1,0 +1,1 @@
+Est rendu exécutoire le 1er rôle supplémentaire des patentes (tableau B. du cercle mili taire de Dikkil-Gobad, exercice 1937), compre nant vingt-sept articles et s’élevant à la somme de sept cent soixante-cinq francs.
