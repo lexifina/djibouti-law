@@ -1,0 +1,1 @@
+une subvention extraordinaire de 2.000 francs est accordée à l’Institut Ménélick d’Addis-A bbeba. à titre de participation de la Colonie à la première mise de fonds nécessaire à l’achat de béliers et de brebis d’origine algérienne employés à des essais de croisement.
