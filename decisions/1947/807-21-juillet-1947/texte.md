@@ -1,0 +1,1 @@
+M. Pla, ingénieur hors classe du cadre local des travaux publics, est chargé cumuiativement avec ses fonctions de chef de la subdivision de contrôle des travaux du port, de l’intérin au service des travaux publics pendant l’absence du titulaire, M. Sevrain se rendant en France en mission.
