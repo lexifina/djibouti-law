@@ -1,0 +1,1 @@
+Une nouvelle autorisation administrative d’exercer le commerce des boissons, licence de 1re classe B, au bar «Café de Paris» (hôtel d’Europe), place Ménélik à Djibouti, est accordée à M. Omar Abokor Tani, devenu propriétaire du fonds de commerce de cet établissement.
