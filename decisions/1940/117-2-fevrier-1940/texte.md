@@ -1,0 +1,1 @@
+Un passage de rapatriement, en 1re classe, est accordé à Mme Landrau, femme d’un administrateur de 2e classe des colonies, qui prendra passage sur le prochain paquebot de la Compagnie des Messageries Maritimes, à destination de Marseille,
