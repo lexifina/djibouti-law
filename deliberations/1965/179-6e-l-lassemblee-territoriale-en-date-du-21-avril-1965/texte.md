@@ -1,0 +1,1 @@
+réndüe exétoire par arrêté n° 628 du 27 avril 1965, la Commission Permanente de l’Assemblée Territoriale a accordé à Mme Djouma Bourhañ ia Concéssioh provisoire d’une parcelle dé térrain d’une superficie de 2.525 m2 environ, sisé à Ambouli, derrière 18 jardin de M. Fidèle, au prix de 1 franc le mêtre carré.
