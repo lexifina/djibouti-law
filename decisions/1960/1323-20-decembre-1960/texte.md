@@ -1,0 +1,1 @@
+M. Abdoulkader Mohamed, interprète auxiliaire, échelle V, 2° échelon, indice 410, en service au Cercle de Tadjourah, est mis à la disposition du Chef de Cabinet du Gouvernement pour servir au Cabinet Civil pour compter du 13 décembre 1960.
