@@ -1,0 +1,1 @@
+L’arrêté d’interdiction de séjour n° 745 du 28 mai 1957 concernant le nommé Hassan Elmi Warsama, Somali Issa Mamassan rer Aoul, né vers 1934 à Ambouli, de Elmi Warsama et de Aïcha Robleh. est et demeure suspendu.
