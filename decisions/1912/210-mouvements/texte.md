@@ -1,0 +1,1 @@
+une Commission composée de : MM. Deltel, secrétaire général p. i.,président ; Faucon, chef du Service des Travaux publics ; Estassy, ingénieur à la Compagnie du Chemin de fer ; est nommée à l’effet de donner un avis motivé sur le classement définitif de M. Delporte, commis de 4e classe, à titre temporaire, du cadre général des Travaux publics des Colonies.
