@@ -1,0 +1,2 @@
+22 mai 1937, sont approuvés les propositions contenues dans h* procès-verbal du 18 mai 1937 établi par la commission nommée par décision du 13 mai 1937.
+En conséquence, le receveur de ‘enregistrement et du timbre est autorisé à sortir de ses écritures deux cent soixante-dix-sept timbres de 0 fr. 75 et soixante-dix-huit timbres à 30 francs. (pii seront détruits par les soins de la commission susdésignée, laquelle dressera un procès-verbal de ses opérations.
