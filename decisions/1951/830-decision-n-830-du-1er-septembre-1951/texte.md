@@ -1,0 +1,2 @@
+Un congé administratifde six mois pour en jouir dans la Métropole est accordé à M. Beyrand (Raymond), inspecteur de 3e classe du cadre local de Sûreté de la Côte Française des Somalis, qui aura accompli le 10 septembre 1951 un séjour de deux ans dans le Territoire.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie de terre Marseille La Gavotte (Bouehes-du-Rbône) seront délivrées à l’intéressé, qui appartient au groupe III.
