@@ -1,0 +1,1 @@
+M. Jean-Claude Le Dault, adjudant-chef des troupes de marine en position «cadres hors budget des armées», est, pour compter du 3 septembre 1971, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir à l’hôpital Peltier en remplacement numérique de l’adjudant-chef Ravet rapatriable.
