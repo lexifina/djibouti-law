@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 298/6e/L du 2 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant approbation de la résolution en date du 29 avril 1966 du Comité Directeur du F.I.D.E.S. relative à la tranche 1966 du Plan Quinquennal 1966-1970.
