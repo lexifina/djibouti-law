@@ -1,0 +1,1 @@
+Le traitement mensuel du nommé Abdou Saïd, encaisseur auxiliaire en service à la régie des eaux, est fixé à 14.800 francs pour compter du 3 janvier 1050, et à 15.89,0 francs pour compter du 1er juillet 1050.
