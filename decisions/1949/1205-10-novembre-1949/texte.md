@@ -1,0 +1,1 @@
+Mme Braud (iSuzanne) est engagée en qualité de dame employée auxiliaire de 2e catégorie à salaire journalier, pour compter du 7 novembre 1949, en remplacement numérique de M. Kaliotoudrasoa (Paul), affecté à la direction du port, Mme Brand est mise à la disposition du chef du service du personnel, des finances et de la comptabilité.
