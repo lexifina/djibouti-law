@@ -1,0 +1,1 @@
+M. Abdourahman Saleh Koubati, instituteur de 2e classe, 2t échelon, du cadre territorial de l’Enseignement public, en stage à l’Institut national des Sports, est placé, sur sa demande, dans la position de disponibilité sans traitement pour compter du 1 octobre 1965, pour une durée d’un an.
