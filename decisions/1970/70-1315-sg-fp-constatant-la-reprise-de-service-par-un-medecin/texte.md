@@ -1,0 +1,1 @@
+Est constatée. pour compter du 19 octobre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures de Chef des services chirurgicaux de l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) par M. Michel Bourges, médecin de 1° classe, en position «hors cadre ».
