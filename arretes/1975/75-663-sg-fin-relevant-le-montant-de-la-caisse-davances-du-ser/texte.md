@@ -1,0 +1,1 @@
+Le montant de l’avance pour les besoins du service de la Jeunesse et des Sports sur laquelle seront réglés les salaires et indemnités dus au personnel d’encadrement et de service des stages de formation de perfectionnement et de la colonie de vacances installée au Day (Cercle de Tadjourah) est porté à un million quatre mille francs Djibouti.
