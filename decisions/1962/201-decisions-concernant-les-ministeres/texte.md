@@ -1,0 +1,4 @@
+Le 1er Classe Nour Adawa, Mle 1865, de la 1er Compagnie de Mihice à Dikhil totalisant 15 ans de services effectifs dans la Milice et 2 ans, 4 mois et 2 jours de service dans l’Armée française est admis à faire valoir ses droits à l’allocation viagere annuelle en exécution de l’article 6 de l’arrêté n° 1252 du 16 novembre 1961, il sera libéré et rayé des contrôles de la Milice pour compter du 15 février 1962. Il recevra le certificat de bonne conduite.
+Le 1er Classe Nour Adawa bénéficiera à compter du 15 février 1962 d’une allocation viagère annuelle de trente-sept mille quatre cents francs Djibouti (37.400) payable trimestriellement et à terme échu et sur le vu d’un certificat de vie délivré par les autorités compétentes.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’agent spécial de la 1er Compagnie à
+Dikhil.
