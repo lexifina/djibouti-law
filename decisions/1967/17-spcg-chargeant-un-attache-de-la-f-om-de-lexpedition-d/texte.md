@@ -1,0 +1,1 @@
+M. Barrin (Honoré), attaché de 2° classe, 4 échelon, du Corps autonome de la France d’Outre-Mer, est chargé de l’expédition des affaires courantes du Cercle de Dikhil pendant la durée de l’absence de M. Le Chevanton (Yves-Marie), administrateur de classe exceptionnelle.
