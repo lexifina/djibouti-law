@@ -1,0 +1,1 @@
+Le Ministère des Travaux publics est autorisé à faire valoir exceptionnellement une avance de 68 000 000 FD sur les recettes du Fonds d’Investissement routier pour l’année 1979 afin de lui permettre d’assurer l’exécution des travaux (construction de la route Tadjourah-Randa) pour l’année en cours.
