@@ -1,0 +1,2 @@
+M Fahmi Ahmed Mohamed, titulaire du certificat d’études secondaires égyptien, équivalent. du baccalauréat, engagé en qualité d’élève-instituteur de 2° classe, est reclassé comme élève- l’instituteur de 1l’° classe pour compter du 2 janvier 1969.
+L’intéressé percevra mensuellement une indemnité, dite de stage, d’un montant égal aux 8/10 de la rémunération par un instituteur stagiaire de 1° classe (indice 500).
