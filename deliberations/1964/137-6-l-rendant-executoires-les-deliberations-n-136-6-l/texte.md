@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Abdi Warsamé la concession provisoire d’une parcelle de terrain d’une superficie de mille trois cent dix-huit mètres carrés environ, sise à Djibouti, lieu dit «Brise de Mer», au prix de un franc le mètre carré.
