@@ -1,0 +1,1 @@
+M. Robin (André), rédacteur de 3e classe ; d’administration générale d’outre-mer, de retour de congé, débarqué à la colonie le 18 septembre 1950, est mis il la disposition du secrétaire général en qualité de chef de la 3e section, pour compter de son retour à Djibouti.
