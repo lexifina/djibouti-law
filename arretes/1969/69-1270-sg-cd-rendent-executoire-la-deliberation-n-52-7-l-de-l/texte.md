@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 52/7° L du 12 août 1969 de la Commission permanente de la Chambre des Députés portant transformation en subvention d’une avance remboursable consentie à l’ASSOCOMA.
