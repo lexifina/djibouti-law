@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Faraoni, chef d’atelier en service à la voirie (cercle de Djibouti), est porté à trente et un mille deux cent cinquante francs (31.250 francs). La présente décision aura effet pour compter du 1er avril 1949.
