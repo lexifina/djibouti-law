@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 490 du 29 octobre 1963 de la Commission Permanente de l’Assemblée Territoriale portant ouverture de crédits supplémentaires au budget du Service local pour l’exercice 1963.
