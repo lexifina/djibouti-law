@@ -1,0 +1,1 @@
+Le sergent-chef radiotélégraphiste Colin (Jean), de la compagnie des télégraphistes coloniaux, détaché en service hors cadres à la milice indigène, est réintégré dans les cadres pour compter du 4 octobre 1935, et remis à la disposition du général commandant supérieur des troupes de la Côte française des Somalis.
