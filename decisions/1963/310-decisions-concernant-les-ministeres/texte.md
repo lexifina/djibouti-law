@@ -1,0 +1,1 @@
+Mme Grevze est autorisée à exploiter dans l’établissement «Les Tonnelles », sis à Ambouli, une licence de 3° classe pour la vente à consommer sur place de boissons alcooliques ou hygiéniques (vente par intermitence).
