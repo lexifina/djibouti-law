@@ -1,0 +1,1 @@
+Une licence de 2e classe est accordée à l’Association des Consommateurs du Secteur public de Djibouti (ASSOCOMA), rue d’Ethiopie, pour la vente en gros et en détail de boissons alcooliques et hygiéniques, exclusivement à emporter.
