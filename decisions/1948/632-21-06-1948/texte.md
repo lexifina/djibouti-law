@@ -1,0 +1,2 @@
+Un congé administratif de cinq mois pour en jouir à Tanantirive (Madagascar), est accordé à M. Rambeloson (Georges), dactylo-comptable contractuel au service judiciaire.
+M. Rambeloson, accompagné de son épouse et de son enfant, âgé de 5 ans, rejoindra son lieu de congé par première occasion maritime pour compter du 1er août 1948 et voyagera en 3e classe aux frais du budget local (assimilation : 4e catégorie).
