@@ -1,0 +1,1 @@
+Mohamed Ibrahim et Habib ben Homed, proclamés du 1er décembre 1913, le premier comme Sultan et le 2e comme Vizir do Tadjourah, auront droit en leur nouvelle qualité, aux coutumes allouées par le Gouvernement de la Colonie au Sultan et au V’izir de Tadjourah.
