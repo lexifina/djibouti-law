@@ -1,0 +1,1 @@
+M. Gauthier (Fernand). Secrétaire d’Administration Principal, 3° échelon du Cadre Supérieur de la Côte Française des Somalis, est mis à la disposition du Ministre des Travaux Publics et du Port, pour servir aux Travaux Publics (Régie des Eaux), pour compter du 9 novembre 1960, date de son retour dans le Territoire.
