@@ -1,0 +1,1 @@
+M. Aucouturier René. instituteur du 6° échelon. détaché du Cadre Métropolitain, précédemment en service à l’Ecole du boulevard de Gaulle est affecté, à titre provisoire, au Lycée de Djibouti en qualité de professeur d’éducation physique pour compter du ler octobre 1960.
