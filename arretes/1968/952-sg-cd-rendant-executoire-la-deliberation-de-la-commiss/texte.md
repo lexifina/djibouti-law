@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 500/6eL au 10 juin 1968 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant réglementation des loteries.
