@@ -1,0 +1,1 @@
+Sont admis à salaire mensuel et classés comme suit. dans la hiérarchie du personnel auxiliaire, pour compter du 30 septembre 1969, les agents à salaire journalier ci-après désignés en service au Ministère des Affaires Intérieures (Cercle de Djibouti) :
