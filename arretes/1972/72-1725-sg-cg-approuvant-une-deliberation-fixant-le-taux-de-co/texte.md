@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 5-72/SMI du 13 novembre 1972 du Conseil d’administration du Service médical interentreprises fixant, à compter du 1er janvier 1973, le taux de la cotisation due au Service médical interentreprises par les employeurs « Professionnels » à 1 % des salaires plafonnés à 200.000 FD par mois et par salarié.
