@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Abdoulkader Iwad Ali, infirmier stagiaire en service au Dispensaire de la cité Arhiba, pour absences répétées, et injustifiées, s’être octroyé un congé sans avis de son chef de service.
