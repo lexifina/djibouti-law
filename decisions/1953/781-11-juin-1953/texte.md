@@ -1,0 +1,2 @@
+M. Sougue Miguil Guele, Issa Fourlaba, est délégué pour 1953 au pélerinage aux lieux saints de l’Islam, comme représentant officiel de la Côte Française des Somalis.
+Les divers frais occasionnés par le voyage de M. Sougue Miguil Guele seront supportés par le budget local, exercice 1953 dans les limites des crédits prévus à cet effet à la section 13, chapitre 27, article 3, paragraphe 1 de ce budget.
