@@ -1,0 +1,1 @@
+Ahmed Abdillahi, agent de la Sûreté, détaché au poste frontière de Loyada, percevra pour travaux exceptionnels effectués au cours de l’année 1951, une indemnité de trois mille six cent cinquante francs (3.650 fr.).
