@@ -1,0 +1,1 @@
+1° M. Giustinani (Jean), surveillant orincinal cle 3e classe du cadre local si des Travaux oublies, débarqué à Djibouti le 19 janvier 1951, est mis à la disposition du directeur du Service des Travaux publics pour servir à la subdivision des a routes à compter de cette même date.
