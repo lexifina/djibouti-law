@@ -1,0 +1,1 @@
+une permission d’absence de trois mois pour en jouir en France est accordée a M. Belau, ingénieur des travaux publics des colonies. Il pourra sur sa demande percevoir avant son départ une avance de solde dans les conditions prévues a l’article 11 du décret du 1er août 1944 susvisé.
