@@ -1,0 +1,1 @@
+Un avertissement est inflisé à M. Mohamed ‘Ahmed Saleh rédacteur principal 1°’ échelon du cadre territorial de l’Administration générale, en service à la direction des Finances (ministère des Finances) pour acté d’indiscipline.
