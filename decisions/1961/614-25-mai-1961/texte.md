@@ -1,0 +1,6 @@
+Est consaté qu’à la date du 1er juin 1961, M. Arnauld d’Andilly (Michel), conseiller aux Affaires administratives de 1er classe, 2e échelon (indice 565 – groupe 1), Commandant de Cercle de Tadjoura, aura accompli 25 mois, 12 jours de services effectifs en Côte Francaise des Somalis compte tenu du congé annuel de 1 mois, 25 jours pris du 26 avril 1960 au 21 juin 1960.
+Un congé administratif propertionnel de 4 mois, 18 jours à passer en France, 6, rue Notre-Dame à Bordeaux (Gironde), est accordé à M. Arnaud d’Andilly, conseiller aux Affaires adminis tratifs auittant définitivement le Territoire.
+M. Arnaul d’Andilly (Michel) qui voyagera accompagné de sa famille (Son épouse et ses enfants : Odile 13 ans, France 10 ans, Brigitte 3-ans), est autorisé à emprunter la voie anormale.
+Il pércevra à cet effet, avant son départ, une avance représentant les frais de passage Djibouti – Paris par voie aérienne et Faris – Bordeaux par voie ferrée à charge pour lui de la justification desdits frais dans les conditions prévues par la règlementation en vigueur.
+Pour la détermination de ses droits à solde et à congé, M. Arnauld d’Andilly sera réputé avoir quitté Djibouti le ler juin 1961.
+La dépense est imputable sur le budget de l’Etat.
