@@ -1,0 +1,1 @@
+Est constatée, pour compter du 22 septembre 1969 date de Son retour au Territoire, la réprise de ses fonctions antérieures au Ministère du Travail par M. Michel Goyat, administrateur civil de 1er classe, 6e échelon, Inspecteur du Travail et des Lois sociales du Territoire.
