@@ -1,0 +1,2 @@
+M. Bouchet (Michel), administrateur-adjoint 2e échelon de la France d’Outre-Mer, adjoint au Commandant de Cercle de Djibouti, est nommé Président du Tribunal du Premier Degré de Djibouti en remplacement de M. Pau (Gabriel), administrateur 2e échelon de la France d’Outre-Mer, titulaire d’un congé administratif.
+Avant d’entrer en fonctions, M. Bouchet (Michel) prêtera le serment prescrit par la loi.
