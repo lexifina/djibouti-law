@@ -1,0 +1,1 @@
+le montant de l’allocation mensuelle prévue à l’article 2 de l’arrêté n° 556, du 30 août 1930, est fixé à cinq couts francs (500 francs) par mois, pour chacun des deux déportés Loïtah Houmed et Hadji Ali.
