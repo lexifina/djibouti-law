@@ -1,0 +1,1 @@
+Est constatée pour compter du 23 août 1960, date de son retour dans le Territoire, la reprise par M Rabibizaka (Marcel), Greffier principal 3e échelon (indice 350 – groupe II) du Cadre du Service Judiciaire de la Côte Française des Somalis, de ses fonctions au Service Judiciaire.
