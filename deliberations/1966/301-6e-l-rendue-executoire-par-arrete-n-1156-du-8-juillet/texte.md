@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1156 du 8 juillet 1966, la Commission permanente de l’Assemblée Territoriale a accordé à M. Abdekader Waberi Askar la concession provisoire ou définitive d’un terrain d’une superficie de 650 m2 à Djibouti au pris de 100 francs le m2.
