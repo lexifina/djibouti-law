@@ -1,0 +1,1 @@
+Est rendue exécutoire la délhperation n 46/6 L qu 47 mars 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas accordant à l’Etat Français la concession provisoire d’une parcelle de terrain, sise à Djibouti-au lieu-dit « Gabode ».
