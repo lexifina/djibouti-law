@@ -1,0 +1,1 @@
+Délégation permanente est donnée à M. Francois Chappellet, admimistrateur civil de 1″ classe, Directeur du Cabinet, à l’effetde signer au nom du Haut-Commissaire de la République, tous actes, correspondances et documents, à l’exclusion des arrêtés et décisions.
