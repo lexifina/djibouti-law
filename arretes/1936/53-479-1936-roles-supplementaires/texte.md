@@ -1,0 +1,1 @@
+est rendu exécutoire le 1er rôle supplémentaire des patentes, tableau B. du 3e trimestre 1936, du cercle de Dikkil-Gobed comprenant dix-neuf articles et s’élevaut à la somme de six cent quinze franes.
