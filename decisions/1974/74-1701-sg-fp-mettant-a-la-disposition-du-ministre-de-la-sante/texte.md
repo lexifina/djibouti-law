@@ -1,0 +1,1 @@
+M. Raoul Bovis, médecin en chef de 2° classe du service de Santé des Armées, en position « service détaché » est, pour compter du 18 septembre 1974, date de son retour dans le Territoire,mis à la disposition du ministre de la Santé Publique, pour servir en qualité de. médecin-chef des sérvices d’oto-thina-laryngologie-ophtalmogie de l’hôpital Peltier.
