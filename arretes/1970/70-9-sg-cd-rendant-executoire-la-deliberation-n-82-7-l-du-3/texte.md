@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 82/7° L du 30 decembre 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas portant réglementation de la profession de transitaire agréé dans le Port de Commerce de Djibouti.
