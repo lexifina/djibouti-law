@@ -1,0 +1,1 @@
+Le nommé Ali Daleb eat engagé à salaire Jouruadier en qualité de planton eyeliste auxilinire de 1er échelon et affectè au service du personnel des finances et de la comptabilité pour compter du 21 janvier 1947,
