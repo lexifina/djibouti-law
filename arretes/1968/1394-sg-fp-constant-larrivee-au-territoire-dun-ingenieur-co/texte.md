@@ -1,0 +1,1 @@
+M. Maurice Peene, ingénieur contractuel dès Travaux publics, est, pour compter du 2 septembre 1968, mis à la disposition du Ministre des Travaux publics et du Port pour servir à la Direction des Travaux publics (Urbanisme et Habitat).
