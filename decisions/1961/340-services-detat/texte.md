@@ -1,0 +1,1 @@
+Le Sergent d’Infanterie de Marine Isaac Raymond, désigné pour servir «hors cadres » en Côte Française des Somalis, arrivé à Djibouti le 25 février 1961, est affecté à la Milice de la Côte Française des Somalis pour compter de la date de son embarquement et mis à la disposition du Commandant de la 3e Compagnie à Ali-Sabieh en quaiité de chef de poste radio d’Ali-Addé.
