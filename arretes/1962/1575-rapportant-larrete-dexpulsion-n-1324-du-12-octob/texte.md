@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 1324 du 12 octobre 1962 en ce qui concerne Mohamed Saleban Mahamoud, alias Ibrahim Hassan Djama, somali issack abar yonis abdallah ismaël Gombour, rer égal, né vers 1942 à Arguéissa (République Somalie), de Saleban Mahamoud et de Chaklan Aïnacheh.
