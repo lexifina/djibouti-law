@@ -1,0 +1,2 @@
+Le médecin capitaine des troupes coloniales Colobert (Louis), désigné pour servir hors cadres en Côte française des Somalis, assu rera provisoirement le service médical des troupes en attendant le remplaçant du méde cin capitaine Granbarbe (rapatrié le 12 sep tembre 1948, sur la métropole), pour compter du 30 novembre 1948, date de son arrivée à Djibouti.
+Le médecin capitaine Colobert est chargé également du laboratoire de bactériologie de l’hôpital colonial.
