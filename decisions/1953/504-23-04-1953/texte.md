@@ -1,0 +1,1 @@
+Mme Gorlier (Yvette) est engagée, pour compteé du 10 avril 1953, en qualité de dame-employée auxiliaire 1re catégorie et mise à la disposition du Trésorier-Payeur, en remplacemenu numérique de Mme Peretti, autorisée à cesser son service.
