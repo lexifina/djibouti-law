@@ -1,0 +1,1 @@
+M. de Nas de tourris, Sous-chef de Bureau des Secrétariats Généraux des Colonies, est nommé Curateur aux Successions et Biens Vacants, pour compter du 1er mars 1908, en remplacement de M. Séré. appelé à d’autres fonctions.
