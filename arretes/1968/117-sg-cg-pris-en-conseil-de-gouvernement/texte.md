@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 185 du 15 décembre 1967 du Conseil d’Administration d’ «Electricité de Djibouti» autorisant le Président du Conseil d’Administration d° «Electricité de Djibouti » à reconduire le découvert bancaire de 80 millions de francs Djibouti de 1967 sur 1968, pour permettre le financement des travaux de production et de distribution pour l’année 1968.
