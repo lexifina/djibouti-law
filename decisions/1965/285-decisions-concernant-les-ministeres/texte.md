@@ -1,0 +1,1 @@
+M. Moumin Ali Houmed. planton de 22 classe, 1er échelon, du cadre territorial, en service au Ministère de l’Enseignement, des Sports et de la Jeunesse, titulaire des permis de conduire catégories tourisme, poids lourds et transports en commun, est nommé, pour compter du 1er janvier 1964, chauffeur de 1er classe, 1er échelon avec ancienneté civile conservée de 6 mois.
