@@ -1,0 +1,1 @@
+M. Martel (Georges, Inspecteur central de 2e catégorie des Contributions directes, détaché du cadre métropolitain, de retour de congé, arrivé à la Côte Française ces Somalis le 31 janvier 1951, reprend ses fonctions de Chef du Service des Contributions, directes, poux compter de cette même date.
