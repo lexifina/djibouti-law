@@ -1,0 +1,1 @@
+Par arrété du Ministre des colonies en date du 7 décembre 1932, les rappels d’ancienneté pour services militaires indiqués ci-après sont conservés dans leur emploi actuel aux fonctionnaires du cadre des administrateurs des colonies dont les noms suivent et qui ont ét promus, au point de vue exclusif de l’ancienneté pour compter du 1° » octobre 1932.
