@@ -1,0 +1,1 @@
+a été rendu exécutoire le 2e rôle supplémentaire de la contribution foncier pour année 1931, compronant 5 articles et s’élevant à la somme de trente-neuf mille quattre cent quatre-vingt-douze francs quatre vingt-dix centimes.
