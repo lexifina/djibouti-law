@@ -1,0 +1,1 @@
+une rémunération de 500 francs, pour travaux supplémentaires effectués en dehors des heures réglementaires de service, a été accordée à M. Abdul Razak, auxiliaire au secrétariat général, qui a établi le compte définitif de l’exercice 1932.
