@@ -1,0 +1,1 @@
+De traitement mensuel de «Mohamed Mustapha, chauffeur auxiliaire en service â la Direction du port, est fixé h 8.300 francs pour compter du 1er janvier 3950, et à 8.700 francs pour compter du 1er juillet 1950.
