@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 134/8° L du 15 juillet 1975 de la Chambre des Députés du Territoire français des Afars et des Issas modifiant la délibération n° 71/8°L du 23 décembre 1974, portant création d’un impôt général de solidarité sur les revenus et les bénéfices.
