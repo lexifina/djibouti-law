@@ -1,0 +1,2 @@
+# Préambule
+Art 1er. — Est promulgué dans le Territoire de la Côte Française des Somalis le décret du 30 janvier 1953 approuvant la délibération du 29 novembre 1952 du Conseil Représentatif de la Côte Française des Somalis, abrogeant le titre X du Cude general des Impôts directs (impôt foncier sur les paillotes et maisons en planches).
