@@ -1,0 +1,1 @@
+Le lieutenant Pelloquin (Etienne), débarqué à la colonie le 10 janvier 1938, est mis à la disposition du chef de bataillon commandant la milice indigène, et affecté à la 1er compagnie de milice, à compter du jour de son débarquement
