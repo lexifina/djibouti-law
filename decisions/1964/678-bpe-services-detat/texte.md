@@ -1,0 +1,1 @@
+M. Gabrielli (Jean), ingénieur des Travaux publics de l’Etat, 3e échelon, indice net 320, qui a quitté Paris par avion le 22 avril 1964 à destination de Djibouti, est, pour compter du 23 avril 1964 date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publiés et du Port pour servir aux Travaux publics (subdivision administrative).
