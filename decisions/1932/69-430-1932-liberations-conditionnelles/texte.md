@@ -1,0 +1,1 @@
+la mise en liberté conditionnelle est accordée au nommé Mahmoud Liban, condamné, par jugement du tribunal correctionnel, en date du 15 mars 1932. à un an de prison, pour vol, à compter du 10 septembre 1932.
