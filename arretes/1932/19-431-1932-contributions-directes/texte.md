@@ -1,0 +1,1 @@
+est le rendu exécutoire le 1er rôle supplémentaire des patentes (tableau B) del exerce ice 1932, comprenant six cent huit articles et s’élevant à la somme de trente-cinq mille huit cent dix-sept francs, centimes additionnels compris.
