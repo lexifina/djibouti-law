@@ -1,0 +1,1 @@
+Est rabvorté l’arrêté d’expulsion n 542 du 12 mai 1961 en ce qui concerne Mohamed Youssouf Chideh, alias Mohamed Youssouf Chil, somali issack aberaoual saad moussa rer abokor, fils de Youssouf Chideh et de Alouoh Samatar, né à Argueissa (République Somalie), vers 1940.
