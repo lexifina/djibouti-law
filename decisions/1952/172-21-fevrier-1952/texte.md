@@ -1,0 +1,1 @@
+M. Gendràut (iPerre), administrateur 2e échelon de la France d’Outre-Mer, arrivé à Djibouti le 14 janvier 1952, est nommé chef du Bureau des Affaires économiques en remplacement de M. Versini, rédacteur de 1er classe d’administration générale de la France d’Outre-Mer.
