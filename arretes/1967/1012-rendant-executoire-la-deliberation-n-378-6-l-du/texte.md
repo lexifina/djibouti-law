@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 378/6°L du 30 mai 1967 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant rectification de l’article 1er de la délibération n° 366/6°L du 12 mai 1967 portant autorisation de virements de crédits au budget annexe du Port, exercice 1966.
