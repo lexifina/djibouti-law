@@ -1,0 +1,1 @@
+Le Sergent Milicien NOUR ABDI n. Mle 147, est libéré du Service actif pour compter du 28 Juillet 1943. Ce Sergent Milicien qui a atteint quinze ans de Service peut prétendre a un pécule de CINQ MILLE DEUX CENT CINQUANTE Francs.
