@@ -1,0 +1,1 @@
+M. Raoilison, écrivain-interprète principal de 4° classe du cadre local de l’administration générale de Madagascar, détaché de son cadre d’origine pour une durée de 5 ans, est mis à la disposition du Chef du Service des Finances et de la Comptabilité,pour compter du 7 décembre 1952, date de son débarquement sur le Territoire.
