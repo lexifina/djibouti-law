@@ -1,0 +1,4 @@
+Un passage de retour à destination de Compiègne (Oise), 16 bis, rue Saint-Corneille, est accordé à M. Gonzalès (Fernand), électricien contractuel au Service du Port, dont le contrat arrivant à expiration le 16 janvier 1961, n’est pas renouvelé.
+M. Gonzalès (Fernand) qui aura accompli le 16 janvier 1961 un séjour effectif et ininterrompu de 24 mois dans le Territoire, aura droit à une indemnité compensatrice de congé payé égale à 5 jours de salaire, décompté suivant les dispositions de l’article 124 du Code du Travail, par mois de présence.
+M. Gonzalès (Fernand), classé au groupe III, voyagera accompagné de son épouse et de ses deux enfants âgés respectivement de 6 ans et 18 mois, et quittera Djibouti par première occasion maritime (classe touriste), à partir du 16 janvier 1961.
+La dépense est imputable sur le Budget local.
