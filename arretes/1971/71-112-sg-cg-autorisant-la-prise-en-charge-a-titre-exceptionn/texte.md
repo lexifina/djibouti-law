@@ -1,0 +1,2 @@
+est autorise le remboursement à un titre exeception à titre execeptions M.Martin ,compositeur typographe à l’imprimante administrations d’une somme de trois cent qurante-six mille sept cent neuf francs djibouti (346.739 F.D) representant la valeur des frais engages à l’occassion de l’accouchement metropole de son epouse reduit dans la proportion de securite sociale metropiltantaine (80%) .
+M.Martin subira sur ses emolument les retenus au des frais d’hospitalisation supporte par le les agent contration.
