@@ -1,0 +1,1 @@
+Mlle Wahida Saïd Ali, titulaire du B.E.P.C., est engagée, pour compter du 1er janvier 1965, en qualité d’élève institutrice de 2e classe du corps territorial de l’Enseignement public, et mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
