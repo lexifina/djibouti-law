@@ -1,0 +1,1 @@
+Le nommé Ahmed Abdou est engagé à sa laire journalier en qualité de planton cycliste auxiliaire de 2e échelon avec un an d’anciennetè L’intéressé est affecté au bureau des finances de la Côte francaise des Somalis pour compter du 1er janvier 1947.
