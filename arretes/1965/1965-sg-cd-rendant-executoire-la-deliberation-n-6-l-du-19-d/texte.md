@@ -1,0 +1,1 @@
+de la Chambre des Députés autorisant le Président du Conseil de Gouvernement à acquérir, à titre gratuit, pour le compte du Territoire Français des,Afars et des Issas, une a parcelle de terrain non bâti faisant partie d’un terrain plus vaste immatriculé au Livre foncier du Territoire sous le n° 633 au nom de l’Etat (Ministère des Postes et Télécommunications).
