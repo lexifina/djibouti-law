@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Abdallah Moussa Arreh, infirmier stagiaire du corps territorial de la Santé Publique, en service à l’hôpital Peltier, (ministère de la Santé Publique et des Affaires Sociales), pour s’être absenté sans autorisation la matinée du 21 juillet 1973.
