@@ -1,0 +1,1 @@
+Le Milicien de 1re classe Abdi Ibrahim Kochin, matricule 2391, de la 2e Compagnie de Milicé à Tadjourah, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. du 16 mars 1965, est licencié pour raison de santé à compter du 23 mars 1965.
