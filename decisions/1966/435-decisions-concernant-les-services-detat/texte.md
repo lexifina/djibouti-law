@@ -1,0 +1,2 @@
+Est accordée, au Lieutenant-Colonel. directeur du Service Matériel et Bâtiment de la Côte Française des Somalis, autorisation préalable de construire un bâtiment destiné à abriter le groupement des contrôles radio-électriques, carrefour de Loyada et d’Ambouli sur le titre foncier n° 672.
+La présente autorisation ne vaut pas” permis de construire qui sera délivré par le Commandant de Cercle de Diibouti suivant la procédure réglementaire.
