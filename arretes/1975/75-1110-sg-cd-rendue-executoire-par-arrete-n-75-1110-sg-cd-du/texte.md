@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 126/8° L du 27 mai 1975 de la Chambre des Députés du Territoire français des Afars et des Issas portant délégation d’une partie des pouvoirs de la Chambre des Députés à la Commission Permanente jusqu’à l’ouverture de la 2° Session Ordinaire de 1975.
