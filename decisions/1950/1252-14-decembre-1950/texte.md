@@ -1,0 +1,1 @@
+Le médecin capitaine Peucbot (Georges), débarqué du Jamaïque, le 5 décembre 1950, est placé dans la position « hors cadres » et affecté à l’hôpital de Djibouti, pour compter du jour de son débarquement.
