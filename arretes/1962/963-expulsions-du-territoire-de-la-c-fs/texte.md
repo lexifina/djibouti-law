@@ -1,0 +1,1 @@
+Sont expulsés du Territoire de la Côte Française des Somalis es Mohamed Aden Ahmed, dit Mohamed Cheick Aden, somali cheicache, rer ao goudoub rer omar siad, rer salan, se disant né vers 1938 à Diré-Daoua (Ethiopie), de Aden Ahmed et de Alima Fàràh, domicilié à Borama (République Somalie).
