@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est , interdit pendant deux ans au nommé Mohamed Nhour, Dankali, 22 ans environ, fils de Nhour et Yasana Youssouf, condamné à six mois de prison et à la peine accessoire de deux ans d’interdiction de séjour pour vol.
