@@ -1,0 +1,1 @@
+M. Djibril Djilane est engagnée, à titre esssentiellement précaire et révocable, en qualité d aide-comptable auxiliaire 12e échelon et mis à la disposition du Directeur des Travaux publics, pour compter du 1er septembre 1953.
