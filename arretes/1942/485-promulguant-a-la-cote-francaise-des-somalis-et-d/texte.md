@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 9 septembre 1942 relative à la forclusion en matière civile, commerciale et administrative et aux délais de présentation et de protêt des effets de commerce dans certains territoires relevant du Secrétariat d’État aux colonies.
