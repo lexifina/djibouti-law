@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis la loi du 3 février 1942, autorisant l’Etat, les départements, les communes, les offices, établissements publics et colonies à faire appel au concours d’anciens fonctionnaires civils ou militaires titulaires de pensions
