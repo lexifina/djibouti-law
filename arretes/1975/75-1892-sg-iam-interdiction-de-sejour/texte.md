@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les cercles de tadjourah et d’Obock est interdit à M. Ibrahim Mohamed Obsieh,neé en 1956 à Djibouti (TFAI) condamné le 21 novembre 1974 par le Tribunal correctionnel de Djibouti à 1 an de prison et À 3 ans d’interdiction de séjour, pour vols, écroué le 7 octobre1974 libéré le 7 octobre 1975.
