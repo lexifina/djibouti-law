@@ -1,0 +1,1 @@
+rendu exécutoire par arrêté n° 1299 du 7 septembre 1964, la Commission permanente de l’Assemblée Territoriale a accordé à MM. Albert et Raymond Pécoul la concession provisoire d’une bande de terrain d’une superficie de douze mille sept cents mètres carrés environ, sise à Arta, au prix de un franc le métre carré.
