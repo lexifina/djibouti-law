@@ -1,0 +1,1 @@
+16 janvier 1936. M. Julien, sous-chef de bureau des secrétariats généraux, est nommé juge suppléant au tribunal de première instance de Djibouti. en remplacement de M. de La Guéronnière, appelé à d’autres fonctions,
