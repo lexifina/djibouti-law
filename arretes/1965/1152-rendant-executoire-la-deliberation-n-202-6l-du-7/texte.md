@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 202/6eL du 7 juillet 1965 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis autorisant six membres de l’Assemblée Territoriale à se rendre en voyage d’information en Métropole.
