@@ -1,0 +1,1 @@
+rendu sur 1er proposition du Ministre des colonies, M: Joulia doseph, Marie, Eugène), administateur en chef de P classe des colonies, Secrétaire du gouvernement de la Guvane, à êté déléguans lesfonctions de Secrélaire général du Gouverneur de la Côte francaise des Somalis, en remplacement de M. Lippmann, administrateur de 1re classe des colonies, dont la délégation a pris fin.
