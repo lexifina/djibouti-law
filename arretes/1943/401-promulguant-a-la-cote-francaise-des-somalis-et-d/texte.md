@@ -1,0 +1,1 @@
+Est promulgué à la Côte Française des Somalis le décret n. 780 portant modification du décret du 2 Mars 1910 sur la solde et les allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
