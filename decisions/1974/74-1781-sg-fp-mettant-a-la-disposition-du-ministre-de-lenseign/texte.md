@@ -1,0 +1,1 @@
+M. Bernard Langenenld, volontaire de l’aide technique, est pour compter du 12 septembre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Enseignement, des Sports ét de la Jeunesse pour servir en qualité d’instituteur) à l’école d’Alaili-Dade, service comptant pour le 1er septembre 1974,(P.B. n°3 3/V.A.T.)
