@@ -1,0 +1,1 @@
+A compter du 1er janvier 1961, le M.d.L. Chef Jaquet André, chef du service administratif et comptable billeteur de la Garde Territoriale est nommé régisseur de la caisse d’avance pour paiement de gratifications, dans les conditions prévues à l’article 2 de l’arrêté n° 2159 du 21 septembre 1959, en remplacement du gendarme Guigo Charles, rapatriable.
