@@ -1,0 +1,2 @@
+Mme Veress (Sïlvane), précédemment en service à la Direction du Port en qualité de dame-employée auxiliaire 2° catégorie,reprend ses fonctions et est mise à la disposition du Trésorier-Payeur, en remplacement de M. Zafimbelo Rambeloarisoa dont le contrat, arrivé à expiration, n’a pas été renouvelé.
+Mme Veress est classée a la 2° catégorie après deux ans pour compter du 1er septembre 1953, date de sa prise de service.
