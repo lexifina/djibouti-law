@@ -1,0 +1,1 @@
+M. Roche, Président du Tribunal supérieur d’appel de Djibouti est chargé d’assurer les fonctions de Procureur de la République près le Tribunal supérieur d’appel de Djibouti et de Chef du Service judiciaire, pendant la durée de l’absence de M. Guillot. titulaire.
