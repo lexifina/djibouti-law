@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 40/8e I, du 27 mai 1974 de la Chambre des Députés du Territoire français des Afars et des Issas accordant à une société la concession provisoire d’une parcelle de terrain immergé, sise à Djibouti. boulevard GeorgsesPompidou.
