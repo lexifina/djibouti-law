@@ -1,0 +1,1 @@
+est rendu exécutoire le premier rôle supplémentaire de l’impôt foncier, urbain et rural (exercice 1937), comprenant sept articles et s’élevant à la somme de cinq mille sept cent neuf francs quarante-sept centimes.
