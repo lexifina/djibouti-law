@@ -1,0 +1,1 @@
+Le Maréchal-des-Logis-chef Sandri Virgile est nommé Commissaire de police de la ville de Djibouti à compter du 29 janvier 1962 en remplacement du Maréchal-des-Logis-chef Poitevineau Sylvain, rapatriable.
