@@ -1,0 +1,1 @@
+M. Jean-Paul Sudel, volontaire de l’aide technique, est pour compter du 12 septembre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Enseignement, des Sports et de la Jeunesse pour servir en qualité d’instituteur à l’école de Waddi, service comptant pour le 1er septembre 1974 (PB. n°2 V.A.T.)
