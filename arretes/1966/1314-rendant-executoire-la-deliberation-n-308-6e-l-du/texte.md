@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 308/6e L du 28 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis fixant les tarifs des taxis dans le Cercle de Djibouti.
