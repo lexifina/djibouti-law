@@ -1,0 +1,1 @@
+M. A. Besse est autorisé, sous réserve des droits des tiers, à occuper à titre provisoire, un terrain non loti d’une superficie de 6.000 mètres carrés situé au sud des terrains militaires et en bordure sur 60 mètres de la route d’Ambouli.
