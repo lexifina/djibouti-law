@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 357/7e L du 7 juin 1973 de la Chambre des Députés du Territoire français des Afars et des Issas instituant des conseils urbaïns et créant les conseils urbaïns de Tadjourah, Obock, Dikhil et Ali-Sabieh.
