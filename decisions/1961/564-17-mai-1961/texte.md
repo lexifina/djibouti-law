@@ -1,0 +1,3 @@
+Un congé administratif de sept mois à passer à Perpignan (P.-0.), 5, rue Petite la Réale, est accordé à M. Mussard (Louis), conducteur principal du Cadre Territorial des Travaux Publics de la Côte Française des Somalis, qui aura accompli un séjour effecuf et ininterrompu de 28 mois dans le Territoire au 2 juin 1961 (indice net ancien 340), indice de traitement nouveau : 1162.
+M. Mussard (Louis), classé au groupe IL voyagera accompagné dé son épouse et de sa fille âgée de douze ans, et quittera le Territoire, par voie aérienne ou maritime, selon les possibilités, à partir du 2 juin 1961.
+La dépense est imputable sur le budget local.
