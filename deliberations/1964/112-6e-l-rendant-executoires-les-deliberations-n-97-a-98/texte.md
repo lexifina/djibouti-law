@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé, à M. Mohamed Omar Saleh, la concession provisoire d’une bande de terrain d’une superficie de quatre-vingt dix-sept mètres carrés environ, sise à Djibouti, au prix de cinq cents francs le mètrecarré.
