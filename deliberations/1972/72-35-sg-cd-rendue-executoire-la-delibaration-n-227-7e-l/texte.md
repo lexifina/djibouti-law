@@ -1,0 +1,1 @@
+Est rendue exécutoire La délibération n° 227/7° L, du 28 décembre 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas approuvant la délibération n° 71-3/CLR du 23 novembre 1971 du conseil d’ädministration de la Caïsse locale de retraites approuvant le compte administratif 1970.
