@@ -1,0 +1,1 @@
+M. Farah Areh est engagé, pour A compter du 1er avril 1953, en qualité de planton auxiliaire 6e échelon et mis à la disposition du Chef du Service de l’Information, en remplacement numérique de M. Ibrahim Dirieh, planton, révoqué de son emploi.
