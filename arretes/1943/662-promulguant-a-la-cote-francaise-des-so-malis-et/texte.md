@@ -1,0 +1,1 @@
+Est promulgué à la Côte Française des Somalis le Décret n. 1050 du 17 Mai 1943 réglementant pendant la durée des hostilités, l’attribution de secours temporaires périodi ques aux familles des fonctionnaires et des agents auxiliaires européens de l’Administration décédé.
