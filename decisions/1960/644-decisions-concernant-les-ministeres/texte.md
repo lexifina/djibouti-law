@@ -1,0 +1,1 @@
+M. Aucouturier (René), instituteur du 6° échelon, détaché du cadre métropolitain, est chargé, pour compter du 1er juin 1960 de l’intérim du Chef de Service de l’Enseignement, pendant l’absence de M. Santenach.
