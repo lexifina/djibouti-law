@@ -1,0 +1,1 @@
+M. Roussan, chef du service des travaux publics, est désigné pour assurer, d’accord avec le médecin commandant Peltier, chef du service de santé et l’agent général des Messageries Maritimes, la répartition des passagers du paquebot Georges l’hilippar dans les différents locaux prévus à cet effet.
