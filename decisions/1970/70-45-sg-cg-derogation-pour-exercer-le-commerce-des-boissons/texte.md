@@ -1,0 +1,1 @@
+Dérogation est accordée à Mme Oude Kebede Waleyesse, de nationalité éthiopienne, pour exercer la profession de gérante salariée au bar-restaurant dit «Au bon coin», dont le propriétaire est M. Youssouf Mahmoud Foureh.
