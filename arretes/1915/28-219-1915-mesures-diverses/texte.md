@@ -1,0 +1,1 @@
+il a été donné main-levée à M. Mérignac du cautionnement de cent quatre vingt dix francs qu’il a constitué le 24 Décembre 1913 suivant récépissé n° 315 en garantie de l’’éxécution des clauses de son contrat pour la fourniture pendant l’année 1914 de l’orge et du foin nécessaires pour l’entretien des chevaux, ânes et mulets de l’administration.
