@@ -1,0 +1,1 @@
+M. Dahl Jean-Pierre, V.A.T. est, pour compter du 13 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Information et du Tourisme pour servir en qualité de journaliste au service de l’Information services comptant au 1er septembre 1973.
