@@ -1,0 +1,1 @@
+Est maintenu en position d’activité pendant la durée des vacances scolaires 1972, M. Gaucel, instituteur, 3e échelon, du département de la Moselle, en service à l’enseignement public du premier degré, pour assurer l’intérim de M. Georges Glardon, animateur culturel contractuel, titulaire d’un congé administratif.
