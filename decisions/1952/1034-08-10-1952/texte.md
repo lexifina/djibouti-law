@@ -1,0 +1,1 @@
+M. Delorme (Jacques) est engagé pour compter du 6 octobre 1952 en qualité de dactylographe auxiliaire au salaire journalier de mille francs (1.000 fr.), exclusif de toute indemnité, et mis à la disposition du Commandant du Cercle de Djibouti pour remplir les fonctions de secrétaire au Comissariat de Police.
