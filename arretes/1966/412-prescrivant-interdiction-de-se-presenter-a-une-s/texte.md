@@ -1,0 +1,9 @@
+Il est interdit se se présenter à une session de permis de conduire avant une durée de:
+— un an au sieur Djibril Ahmed Ali, somali issa fourlaba rer abokor, né vers 1944 à Djibouti, fils de Ahmed Ali et de Kadidja Ali; commerçant, deméurant au quartier 4 boulevard n° 6; n° 108, en vue de l’obtention du permis de conduire
+catégorie — un an au sieur Abdou Ali Saïd arabe maktari né en 1947 à Djibouti, fils de Ali Saïd et de Mesk Chamsan, mécanicien, demeurant au quartier n° 2, boulevard 18, n° 38. en vue de l’obtention du permis de conduire catégorie «B» ;
+— trois mois au sieur Elmi Boulaleh Waberi, somali issa walaldon,* né vers 1934 à.Djibouti, fils de Boulaleh Waberi et de Bouho Farah, deméurant au quartier n° 6, traverse T, maison n° 8, en vue de l’obtention du permis « A 1 ».
+— deux ans au sieur Moumin Farah Dourleh, somali gadabourey afar Afan moussa fine, né vers 1932 à Atar, fils de Farah Dourdeh et de Fatma Elmi, chauffeur, demeurant à Djibouti, quartier 5, avenue 26, en vue de l’obtention du permis de conduire catégorie « D ».
+Nota. — L’intéressé avant déjà une mesure d’interdiction en cours, et jusqu’au 7 novembre 1966, cette dernière remplace la précédente.
+— six mois au sieur Mohamed Hassan Adaweh, somali gadabourcy, makaïil djibril yonis, né vers 1943 à Holl-Holl, fils dé Hassan Adaweh ét de Moumina Moussa, chauffeur, demeurant à Djibouti, quartier 4, boulevard 7, n° 55, en vue de l’obtention du permis de conduire catégorie « D »;
+— six mois au sieur Djama Elmi Waberi, issa fourlabsa, né vers 1940 à Djibouti, fils de Elmi Waberi et de Dona Yileh, chauffeur, demeurant au quartier 6, rue du Stade, n° 27, en vue de l’obtention du permis de conduire ‘catégorie « D » ;
+__ six mois au sieur Saleh Mohamed Othman. arabe achmi né vers 1938 à Djibouti, fils de Mohamed Othman et de Salama Hassan, aide-chauffeur, demeurant à Ambouli, en vue de l’obtention du permis de conduire catégorie «B ».
