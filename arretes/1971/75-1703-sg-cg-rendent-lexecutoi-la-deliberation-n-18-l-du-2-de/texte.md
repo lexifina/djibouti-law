@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 13-71 du 9 décembre 1971 du Conseil d’administration de l’Office des Postes et Télécommunications portant réaménagement des tarifs de la maind’œuvre employée pour cessions de services à compter du 1er janvier.
