@@ -1,0 +1,2 @@
+Un congé administratif de huit mois, pour en jouir à Paris, est accordé à M. Duchet (André), ouvrier d’art contractuel, dont le contrat arrivé à expiration est renouvelé pour une période d’égsale durée.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Paris seront délivrées à l’intéressé, qui voyagera accompagné de son épouse et de ses deux enfants (Groupe IV).
