@@ -1,0 +1,1 @@
+Art, 1er — Est rendue exécutoire à compter du 25 novembre 1963 la délibération n° 486 bis du 29 octobre 1963 de la Commission Permanente de l’Assemblée Territoriale modifiant le tarif général des frais d’Aéroport sur marchandises à l’importation à lexpontation et au transit.
