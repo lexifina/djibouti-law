@@ -1,0 +1,1 @@
+Sont approuvées les délibérations n° 3/74/CPS du 21 mars 1974, 16, 17 et 18/74/CPS du 28 mars 1974, du Conseil d’administration de la Caisse des Prestations Sociales, portant modification du budget et d’états prévisionnels de dépenses de cet organisme pour 1974.
