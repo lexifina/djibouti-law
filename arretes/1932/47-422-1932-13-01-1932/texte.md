@@ -1,0 +1,1 @@
+M. Ravailler, procureur de la République, chef du service judiciaire, est délégué pour l’année 1932, dans les fonctions de président du Conseil du contentieux administratif de la Côte française des Somalis.
