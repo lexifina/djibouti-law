@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 39/6e L du 27 mars 1964 de la Commission permanente de l’Assemblée Territoriale de: la Côte Française des Somalis portant abrogation de la délibération n° 361 portant création, à Djibouti, d’un cours normal d’instituteurs adjoints.
