@@ -1,0 +1,1 @@
+Est rendue exécutoire. à compter du ler mars 1972. la délibération n° 1-72 du 6 juillet 1972 du conseil d’administration de l’Office des Postes et Télécommunications portant institution de cours de formation professionnelle à l’Office des Postes et Télécommunications,.
