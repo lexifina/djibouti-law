@@ -1,0 +1,3 @@
+Le Président du Conseil de Gouvernement est habilité à passer, au nom et pour le compte du Térritoire Français des Afars et des Issas, avec la Compagnie Maritime Auxiliaire
+d’Outre-Mer, un acque d’acquisition amiable, d’une parcelle de terrain non bâti, d’une superficie de 2.260 mètres carrés environ, faisant partie d’un terrain plus vaste, sis à Djibouti, immatriculé au Livre foncier du Territoire sous le n° 412, en vue de permettre l’accès à la nouvelle zone franche du Port de commerce de Djibouti.
+Les crédits nécessaires à cette acquisition seront inscrits au budget d’équipement et d’investissement du budget annexe du port.
