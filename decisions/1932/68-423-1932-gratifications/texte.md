@@ -1,0 +1,1 @@
+une gratification de 20 francs est accordée à l’interprète Ouabery Miguel, pour travaux supplémentaires, 18 février 1932, une gratification politique de 150 francs est accordée au chef Debeneh Ibrahim Ampharé.
