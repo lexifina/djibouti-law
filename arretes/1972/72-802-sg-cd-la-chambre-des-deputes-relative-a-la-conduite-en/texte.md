@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 260/7° L du 12 mai 72 de la Chambre des Députés du Territoire Français des Afars et des Issas relative à la conduite en mer (navigation motière) des navires de plaissance à moteur.
