@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé au Conseil d’administration des Biens du Diocèse de Djibouti une prolongation de délai de deux ans pour réaliser la mise en valeur d’un terrain sis boulevard de la République (lots n°° 540 et 542).
