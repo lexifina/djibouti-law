@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 197/6e L du 20 mai 1965 de la Commission Permanente de l’Assemblée Territoriale de la Côte Française des Somalis fixant le montant de l’indermnité forfaitaire mensuelle à allouer aux médecins de l’hôpita Peltier chargés de consultations externes en 1965.
