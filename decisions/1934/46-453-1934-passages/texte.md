@@ -1,0 +1,1 @@
+un passage en 2e classe, à destination de Marseille, est accordé à l’adjudant des troupes coloniales Morel (Camille), en service hors cendres à la Côte francaise des Somalis, qui compte deux ans de séjour ininterrompu à la colonie.
