@@ -1,0 +1,3 @@
+M. l’adminisirateur adjoint Garçon ma donné toute satisfaction dans tous les postes où il a été appelé à servir depuis deux ans. Tour à tour commandant de cercle, président du tribunal indigène, chef du
+poste administratif de Tadjourah, il a, partout et constamment, fait preuve d’un zèle infaligable, d’une parfaite reclitude d’esprit et de jugement, d’une grande conscience professionnelle et d’une parfaite loyauté.
+Appelé en octobre aux fonctions de chef de cabinet, il n’a pas cessé de me rendreles plus grands services en se dépensant sans compler pour la réorganisation et le bon fonctionnement du cabinet. Je suis très satisfait de sa manière de servir et lui décerne un témoignage officiel de satisfaction.
