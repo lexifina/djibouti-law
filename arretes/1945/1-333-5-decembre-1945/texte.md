@@ -1,0 +1,1 @@
+M. Sicard. administrateur-adjoint de 3 classe des Colonies a été nommé ordonnateur- délégué du budget local pendant l’absence de M. de la Gueronnière, administrateur de 2e classe des Colonies, titulaire d’une per mission de détente et ceci à compter du 3 décembre 1945.
