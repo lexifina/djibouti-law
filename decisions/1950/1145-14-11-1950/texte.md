@@ -1,0 +1,1 @@
+Un congé de convalescence de deux mois à passer à Dikhil (Côte française des Somalis) est accordé au garde-cercle de 1er classe Ahmed Assowe, matricule 110, de la compagnie de gardes-cercle de Djibouti. Pendant son congé, le garde-cercle Ahmed Assowe percevra sa solde dégagée de tous accessoires.
