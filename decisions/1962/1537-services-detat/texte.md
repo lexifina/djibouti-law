@@ -1,0 +1,3 @@
+L’Adjudant-Chef d’Infanterie de Marine Duchesne Julien, (B.S. Infanterie), désigné pour servir en Côte Française des Somalis, et placé en position «hors cadres » pour compter du 17 novembre 1962, date de son embarquement à Paris, est affecté à la Milice de la Côte Française des Somalis pour compter du 18 novembre 1962, date de son embarquement à Djibouti.
+Ce sous-officier assurera les fonctions d’adjoint au Commandant de Cercle d’Ali-Sabieh, en remplacement de l’Adjudant de Gendarmerie Guitton, rapatrié.
+L’entretien complet de ce sous-officier est à la charge du Ministère d’Etat chargé des Départements et Territoires d’Outre-Mer.
