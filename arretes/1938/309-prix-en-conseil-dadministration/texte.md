@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif des patentes spéciales : boutres à voiles et à moteurs (exercice 1938), comprenant quatre vingt dix-neuf articles et à la somme de seize mille quatre-vingts francs (16.080 francs).
