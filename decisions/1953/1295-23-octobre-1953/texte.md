@@ -1,0 +1,1 @@
+L’adjudant-chef infirmier Nicoli (Jean), de la S.MIMT.C, est mis à la disposition du Directeur du Service de Santé pour servir en position hors cadres en qualité de manipulateur d’électro-radiologie à l’Hôpital Principal, à compter du 13 octobre 1953, date de son débarquement sur le Territoire.
