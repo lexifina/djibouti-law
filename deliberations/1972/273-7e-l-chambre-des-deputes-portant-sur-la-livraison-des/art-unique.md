@@ -1,0 +1,2 @@
+# Article unique
+— La prise en charge par les magasins généraux des marchandises débarquées dans le port de commerce de Djibouti, conformément à l’article 55 de l’arrêté n° 71-954/SG/CG du 3 juillet 1971 portant règlement d’exploitation du port, constitue livraison finale de ces marchandises par le transporteur maritime, nonobstant les dispositions de la loi n° 66-420 et du décret n° 66-1078 sus-visés.
