@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Aboubaker Hassan Ali, infirmier de 2° classe, 2° échelon du cadre territorial de la Santé Publique en service à l’hôpital Peltier pour absence irrégulière non motivée le 16 juin 1975.
