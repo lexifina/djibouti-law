@@ -1,0 +1,3 @@
+# Article unique
+—Les familles des miliaires de larmee de terre et de l’armée de mer appelés ou rappelés sous les drapeaux, qui remplissent les devoirs de soutiens indispensables de famille, auront droit, sur leur demande, à une allocation journalière de 1 fr, 25 avec majorationde50 centimes par enfant âgé de moins de seize ans à la charge du soutien de famille.Ces allocations seront fournies par l’Etat pendant toute la durée de la guerre, quel que soit le sort du militaire, dans des conditions qui seront déterminées par décret.
+La présente loi délihérée et adoptée par le Sénat et la Chambre des députés sera exécutée comme loi de l’Etat.
