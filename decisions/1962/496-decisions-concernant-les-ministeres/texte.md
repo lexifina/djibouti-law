@@ -1,0 +1,3 @@
+Le Classe Saïd Abdallah Saïd, Mle 2459, de la 2° Compagnie le Milice à Tadjoura arrivant en fin de contrat le 17 octobre 1962 est licencié pour raison disciplinaire pour compter du 1er mai 1962, l’intéressé qui totalise 1 an 6 mois et 14 jours de services effectifs dans là Milice de la C.ESS. ne peut prétendre à aucune indemnité.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent spécial de la 2° Compagnie de Milice à Tadjoura.
+Le 2° Classe Saïd Abdallah Saïd, Mie 2459 sera rayé des contrôles de la Milice à compter du ler mai 1962, il recevra le certificat de libération.
