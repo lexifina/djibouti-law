@@ -1,0 +1,3 @@
+«Travaux sur mémoire et achats sur factures ».
+Les valeurs maximales de 2000 000 de francs Djibouti pour les travaux et Services sur mémoire et achats sur facture, fixées à l’article 62 du Code des Marchés publics sont portées à 5 000 000 franes Diibouti.
+L’article 124-1-b du Code des Marchés publics concernant l’avis à formuler par la Commission des Marchés sur tous les projets de marchés de travaux, fournitures et services lorsqu’ils sont passés de gré à gré pour un montant supérieur. de 4000000 de francs Djibouti sera désormais appliqué pour tous les marchés de gré à gré d’un montant égal ou supérieur à 5 000 000 francs Djibouti.
