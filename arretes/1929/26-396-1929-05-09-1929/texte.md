@@ -1,0 +1,1 @@
+M . Frantz Georges-Félix) est agréé en qualité de garde principal stagliire de la garde indigene, pour compter du 9 août 1928, veille du jour de son embarquement à Marseille, pour rejoindre son poste à Djibouti.
