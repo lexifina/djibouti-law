@@ -1,0 +1,1 @@
+8 colonne, article 5, 1° et 2° lignes, — Au lieu de : &« deux représentants et plus », Lire Article 6, 12° ligne, — Au lien de : & après le dépôt de la liste: en ens de décès », lire : « après le dépôt de la liste, En cas de décès »,
