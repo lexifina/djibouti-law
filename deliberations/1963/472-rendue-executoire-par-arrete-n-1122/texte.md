@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1122 du 7 septembre 1963, modifiant la délibération n° 331 du 27 avril 1962, la Commission permanente de l’Assemblée Territoriale à accordé à M. Idot la concession définitive d’un terrain d’une superficie de 744 mètres carrés, sis plateau du Marabout à Diibouti.
