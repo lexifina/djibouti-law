@@ -1,0 +1,1 @@
+Est classé, pour compter du ler janvier 1974, dans le cadre des agents d’exploitation qualifiés du corps territorial de la Santé publique et nommé agent d’exploitation qualifié principal, 2e échelon (service général-, M. Ahmed Hassan Gabode, agent d’exploitation qualifié de 1re classe, 2e échelon (ancienneté épuisée).
