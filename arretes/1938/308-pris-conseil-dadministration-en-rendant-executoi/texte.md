@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif sur la taxe personnelle, impôt locatif et taxe de voirie (exercice 1938) comprenant neuf cent quarante-deux articles, et s’élevant à la somme de : quatre cent dix-neuf mille cent quarante-deux francs vingt-deux centimes (419.142 fr. 22 cent.)
