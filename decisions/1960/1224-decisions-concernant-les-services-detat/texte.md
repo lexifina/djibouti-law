@@ -1,0 +1,1 @@
+Une indemnité forfaitaire mensuelle pour travaux supplémentaires de mille cinq cents francs Djibouti (1.500 F.D.) est allouée pour compter du 1er décembre 1960 à M. Hassan Mousse Badar, observateur météorologiste auxiliaire, échelle V-1 (indice 390).
