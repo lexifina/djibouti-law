@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 17/8°L du 2 février 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant modification du budget territorial pour l’exercice 1974.
