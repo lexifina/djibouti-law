@@ -1,0 +1,1 @@
+Le Service du Plan, dont le Ministre des Finances ‘avait reçu la gestion par arrêté n° 1784/SG du 26 novembre 1968, est rattaché à la Présidence du Conseil de Gouvernement (Secrétariat général du Gouvernement).
