@@ -1,0 +1,1 @@
+Les salaires mensuels des commis auxi liaires des Douanes ISMAIL HERSI et AB DALLAH MOKBEL sont fixés, pour compter du 1er Octobre 1943, à 1.300 frs (MILLE TROIS CENTS FRANCS’, exclusifs de toute indemnité.
