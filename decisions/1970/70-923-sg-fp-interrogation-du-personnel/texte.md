@@ -1,0 +1,1 @@
+M. Saleh Omar Ildid, commis de 2e classe, 4° échelon, en service aux Finances (Ministère des Finances et du Plan) est, à titre exceptionnel, intégré dans le cadre des rédacteurs et nommé rédacteur de 2e classe, 2° échelon, pour compter du 1° janvier 1970.
