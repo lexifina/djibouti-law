@@ -1,0 +1,1 @@
+est exonéré des taxes et surtaxes d’importation, un envoi de 30 cartons de cartouches, d’une valeur de 800.000 FD, destinés à la destruction d’oiseaux et autres animaux nuisibles. utilisés par les services du district de Djibouti.
