@@ -1,0 +1,1 @@
+M. Duverneuil Pierre, conducteur des Travaux publics de l’Etat — 10e échelon — (indice majoré 298) est, pour compter du 6 maï 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics, des Transport et du TouTrisme, pour servir à la subdivision Construction des Travaux publics.
