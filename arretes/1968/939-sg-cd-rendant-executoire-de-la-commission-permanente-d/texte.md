@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 495/6°L du 10 juin 1968 dé la Commission permanente de la Chambre des Députés du Territoire Francais des Afars et des Issas portant ouverture de crédits supplémentaires .
