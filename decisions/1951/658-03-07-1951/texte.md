@@ -1,0 +1,1 @@
+Mlle Olivier (Odette), sage-femme coloniale stagiaire, est mise à la disposition du Directeur du Service de Santé pour servir au dispensaire de Boulaos, pour compter du 29 juin 1951, date de son débarquement à la Côte Française des Somalis.
