@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôte primitif de l’impôt foncier pierres et planches,exercice 1936 cercle du de Djibouti, s’élevant à la somme de cinquante-sept mille huit-cent (rente-six francs quartre-vinght huit centimes.
