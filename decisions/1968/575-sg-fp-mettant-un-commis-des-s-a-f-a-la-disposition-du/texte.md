@@ -1,0 +1,1 @@
+M. Emile Ratsimandresy, commis principal 2° échelon du Cadre territorial des services administratifs et financiers, en service aù District de Djibouti, est mis à la disposition du Ministre des Affaires économiques pour servir en qualité de secrétaire dudit Ministre.
