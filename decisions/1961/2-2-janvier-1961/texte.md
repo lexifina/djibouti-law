@@ -1,0 +1,1 @@
+M. Cartray (Louis), Attaché de la France d’Outre-Mer, 3e classe, 3e échelon, est mis à la disposition du Ministre des Finances, des Affaires Economiques et du Plan, pour compter du 10 décembre 1960, date de son arrivée dans le Territoire.
