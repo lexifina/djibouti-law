@@ -1,0 +1,2 @@
+# Préambule
+Art 1er, — Les représentants des compagnies de navigation, les armateurs, consignataires, bateliers, les réceptionnaires et expéditeurs de marchandises qui voudront débarquer ou embarquer des marchandises dans l’enceinte da port de Djibouti les dimanches et jours fériés ou en dehors des heures réglementaires, pourront y être autorisés sous les réserves et conditions spécifiées à l’article 1er de l’arrêté du 20 juillet 1907.
