@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations suivantes de à Commission permanente de l’Assemblée territoriale de la Côte Française des Somalis en date du 18 mars 1966: nos 266 à 269/6° en matière domaniale.
