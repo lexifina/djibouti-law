@@ -1,0 +1,1 @@
+Les nommés Omar Oubeid, Ali Herrah, Ibrahim Saïd iSalem, Abdallah iSaïd Salem, Abdallah Sonitan et Abdillahi Cuire, en service au, « Dar-El-Akbhar », sont licenciés pour compter du 1er juillet 1950, pour das raisons d’ordre budgétaire.
