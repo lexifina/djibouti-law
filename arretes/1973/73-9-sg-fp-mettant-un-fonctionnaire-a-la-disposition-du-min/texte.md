@@ -1,0 +1,1 @@
+M. André Cocquebert, chef de section de préfecture, 5e échelon, est, pour compter du 11 décembre 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Affaires intérieures pour servir au Cercle de Tadjourah en qualité d’adjoint au commandant dudit Cercle.
