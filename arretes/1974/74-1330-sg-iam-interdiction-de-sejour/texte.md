@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les cercles de Tadjourah et d’Obock est interdit à Houssein Egueh Odoah, né vers 1941 à Dasbyo, condamné le 27 juillet 1973 par le Tribunal Correctionnel de Djibouti, à un an de prison et deux ans d’interdiction de séjour, pour vol, écroué le 25 juillet 1973, libéré le 25 juillet 1974.
