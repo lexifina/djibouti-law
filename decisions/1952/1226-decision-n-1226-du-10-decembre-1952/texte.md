@@ -1,0 +1,1 @@
+M. Osman Ahmed est nommé infirmier stagiaire 10° échelon pour compter du 1er décembre 1952 et mis à la disposition du Directeur du Service de Santé, en remplacement numérique de M. Mohamed Hassan, licencié.
