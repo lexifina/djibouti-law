@@ -1,0 +1,1 @@
+le pharmacien capitaine des troupes coloniales Auffret (Léon), en service hors cadres à la Côte française des Somalis, sera rapatrié pour fin de séjour par le paquebot licniardin-dc-Saint-Pierre, attendu à Djibouti vers le 24 novembre 1932.
