@@ -1,0 +1,1 @@
+cutoire par arrêté n° 116 du 29 janvier 1966, la Commission permenente de l’Assemblée Territoriale a accordé à M. Saïd Omar la concession provisoire d’une parcelle de terrain d’une superficie de 2.400 mètres carrés, sise à Ambouli, fitre foncier n°1852, au prix de 50 francs le mètre carré.
