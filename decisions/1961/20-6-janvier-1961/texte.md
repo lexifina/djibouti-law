@@ -1,0 +1,1 @@
+Le Sergent Infirmier des Troupe d’Outre-Mer Ranguin Guy, désigné pour servir «hors-cadres » en Côte Française des Somalis (J.OR.F. n°. 18 du 22-1-1960) arrivé au Territoire le 2 avril 1960, est réintégré dans les « Cadres » et mis à la disposition du Général, Commandant Supérieur des Forces Armées pour compter du 1er janvier 1961.
