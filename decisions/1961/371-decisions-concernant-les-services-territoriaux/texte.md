@@ -1,0 +1,4 @@
+Une somme de quatre cent mille francs Djibouti (400.000:F.D.) sera versée À M. Mohamed Ahmed Saïd, Arabe Zeidi, employé de commerce demeurant à Djibouti, rue de Rome.
+Cette somme représente le montant des dommages et intérêts à lui alloué par le Tribunal de 1″° Instance dans sa séance du 15 décembre 1960 pour la blessure et l’incapacité permanente qui lui ont été occasionnés lors de l’accident de la circulation dont a été reconnu responsable le chauffeur de la Voirie Abdallah Mohamed Houssein alors qu’il était en service.
+Le payement de cette indemnité implique la renonciation écrite par l’intéressé à tout recours. civil ou contentieux contre Abdallah Mohamed Houssein et l’Administration Territoriale.
+Cette dépense sera imputée sur le Budget Local pour l’exercice 1961 en son chapitre 3-3-11.
