@@ -1,0 +1,1 @@
+une gratification exceptionnelle de cent cinquante francs est accordée au daclylographe Ramiakalsoa, pour copie du compte définitif des recettes et des dépenses du service local, pour l’exercice 1925.
