@@ -1,0 +1,1 @@
+le nombre des places mises au concours des 4 et 5 avril 1924 pour l’admission au stage à l’Ecole coloniale des adjoints des services civils el des commis principaux des secrétariats généraux, et réservées pour la colonie de la Côte française les Somalis, a été porté de 1 à 2.
