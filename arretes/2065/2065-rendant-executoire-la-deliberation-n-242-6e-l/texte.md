@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du ler janvier 1966 la délibération A 242/6°L du 22 décembre 1965 de l’Assemblée Territoriale dela Côte Française des Somalis portant approbation du budget annexe du Port de Commerce de Djibouti pour l’exercice 1966.
