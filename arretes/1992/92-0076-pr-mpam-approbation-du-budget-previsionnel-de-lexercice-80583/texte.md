@@ -1,0 +1,2 @@
+le budget prévisionnel de l’exercice 1992 du PAID s’établit en recettes à 2.790.500.000.FD et en dépenses. à.2.577.100.000 FD, soit un résultat d’exploitation de 213.400.000 FD.
+Le montant des dépenses en capital à réaliser au cours de l’exercice 1992 est fixé à 2.458.750.000 FD.
