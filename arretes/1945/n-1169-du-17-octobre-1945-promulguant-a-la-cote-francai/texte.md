@@ -1,0 +1,4 @@
+par arrété n° 1169 du 17 octobre 1945.
+sont promulguées a Côte Française des Somalis et Dépendancas l’ordonnance n°’ 45-2275 du 8 octobre 145 portant apolication aux territoires d’outre-mer relevant du Ministre des À dispositions de l’ordonnance du 13 septembre 1945 relative aux inéligibilités prévues par l’ordonnance du 21 avril 1944 modifiée par l’ordonnance du 6 avril 1945.
+l’ordonnance n° 45-2281 du 9 octobre 145 modifiant et complétant l’ordonnance n° 45-1874 du 22 août 1945 fixant le mode de représentation à l’Assemblée Nationale Ccnstituante des territoires d’outre-mer relevant du Ministre des Colonies.
+l’ordonnance n° 45-2300 du 9 octobre 1945 déclarant applicables dans les territoires d’outre-mer relevant du Ministre des Colonies en ce qui concerne la consultation par référendum les titres II et III de l’ordonnance n° 45-1988 du 3 septembre 1945.
