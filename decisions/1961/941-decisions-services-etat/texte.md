@@ -1,0 +1,1 @@
+Mlle Clody Jacqueline, chiffreur principal de 3° classe du corps autonome de la France d’Outre-Mer (indice 315), est mise à la disposition du Chef de Cabinet, à compter du 4 août 1961, en qualité de chef du bureau du chiffre.
