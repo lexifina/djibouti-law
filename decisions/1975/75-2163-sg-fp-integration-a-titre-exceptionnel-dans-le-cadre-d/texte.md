@@ -1,0 +1,1 @@
+M. Mohamed Daoud Abdoulkader, rédacteur principal 1er échelon du cadre territorial de l’Administration générale, en service au cercle de Tadjourah (ministère de l’Intérieur et des Affaires Musulmanes) est intégré à titre exceptionnel dans le cadre des chefs de bureau, et nommé chef de bureau 1er échelon pour compter du 1er novembre 1975 avec ancienneté d’un an et dix mois.
