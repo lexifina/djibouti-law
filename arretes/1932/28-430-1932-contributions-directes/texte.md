@@ -1,0 +1,1 @@
+rendu exécutoire le rôle supplementaire de l’exercice. 1932 des automobiles (tourisme et camions), motocyclettes, tricycles, bicylettes, voitures publiques à traction animale, charrettes-bédahis et tombereaux comprenant six articles et s’élevant à la somme de mille huit cent quarante francs (1.840 francs).
