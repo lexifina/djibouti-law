@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 124/8° L du 27 mai 1975 de la Chambre des Députés du Territoire français des Afars et,des Issas portant modification de l’article 15-40-58 du chapitre IV. Titre V. du Code général des impôts. joint en annexe à la délibération n° 299/7° L du 19 décembre 1972.
