@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 13/75 du 4 avril 1975 du Conseil d’Administration de la Caisse des Prestations Sociales, portant modification et ouverture de crédits complémentaires au budget de l’exercice 1974 de la Caisse des Prestations Sociales.
