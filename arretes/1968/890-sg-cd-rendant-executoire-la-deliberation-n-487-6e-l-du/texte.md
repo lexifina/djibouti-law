@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 487/6e L du 24 mai 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création d’un cahier des charges applicable aux aliénations de gré à gré de parcelles de terrains du Domaine privé du Territoire.
