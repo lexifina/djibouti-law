@@ -1,0 +1,1 @@
+est rendu exécutoire le 2e rôle supplémentaire des patentes, tableau B, exercice 1936, comprenant cinq cent vingt et un articles et s’élevant à la somme de vingt-sept mille neuf cent vingt-quatre francs.
