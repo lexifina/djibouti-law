@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 162/7° L du 27 mars 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas portant remaniement du budget du Service local (ordinaire et extraordinaire) pour l’exercice 1970.
