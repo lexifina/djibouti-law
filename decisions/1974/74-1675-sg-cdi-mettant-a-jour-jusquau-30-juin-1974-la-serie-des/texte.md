@@ -1,0 +1,1 @@
+Les valeurs des indices de prix et de salaires à prendre en compte pour l’application des clauses de variation de prix dans Lies marchés de don en de travaux passés pour le compte du Territoire, sont fixées :
