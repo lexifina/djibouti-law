@@ -1,0 +1,1 @@
+M. Moise Istria, chef de division de la France d’Outre-Mer (indice majoré 554) est pour compter du 28 juin 1973 date de son arrivée dans le Territoire, mis à la disposition du Président de la chambre des députés pour servir en qualité de secrétaire permanent de ladite chambre, en remplacement numérique de M. André Bizet, attaché de préfecture, rapatriable.
