@@ -1,0 +1,2 @@
+Est autorisé le règlement d’une somme de soixante-sept mille cinq cent cinquante-deux (67.552) francs Djibouti à M. Abdoul Gabar Mohamed Sef, propriétaire du taxi n° 137 D 6 accidenté le 21 février 1966-par le véhicule n° 842 D 3, propriété du Territoire, en remboursement partiel des frais de remise en état, les torts étant réciproques.
+La dépense susvisée est imputable au Budget du service local pour l’exercice 1966, chapitre 9, article 6, § 8.
