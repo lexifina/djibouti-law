@@ -1,0 +1,1 @@
+M. Georges Gruel, adjudant-chef du cadre des infirmiers militaires, en position « cadres hors budget » des Armées, est, pour compter du 2 décembre 1973, date de son arrivée dans le territoire, mis à la disposition du ministre de la Santé publique, pour servir au Centre antituberculeux Paul Faure, en qualité de secrétaire d’administration hospitalière . (poste nouvellement crèè).
