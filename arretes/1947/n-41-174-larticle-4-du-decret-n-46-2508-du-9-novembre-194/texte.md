@@ -1,0 +1,6 @@
+Art, 19, — L’article 4 du décret susvisé du novembre 1946 est complété ainsi qu’il suit :
+« Les juges de ces juridictions en matière correctionnelle procèdent à la constatation, à la poursuite et à l’instruction des délits commis dans leur ressort et ont, à cet effet, les prérogatives des procureurs de la République
+et des juges d’instruction. Ils se saisissent d’office et font donner citation au prévenu devant leur tribunal sans préjudice du droit de citation directe de la partie civile, En cas de flagrant délit ils exercent les pouvoirs qui sont attribués aux procureurs de la République par la loi du 20 mai 1863 ils assu rent l’exécution de leurs jugements.
+« En matière de simple police, ils se «aisissent eux-mêmes d’office on à la requête de la partie civile et suivent la procédure fixée en la matière pour le territoire considéré. »
+Art, 2. — Le Garde des sceaux Ménuistre de la justice, et le Ministre de la France d’outre-mer sont chargés, chacun en ce qui le concerne, de l’exécution du présent décrit.
+qui sera publié au Journal officiel de 11 République française, aux journaux officiels de chacun des territoires intéressés et inséré au Bulletin officiel du ministère de la France d’outre-mer.
