@@ -1,0 +1,1 @@
+N. B. — Les personnes intéressées peuvent obtenir communication de ce texte, en s’adressant au Haut-Commissariat (Service de législation et l’administration générale, tél. 369) ou em le commandant à la Direction des journaux officziels, 26, rue Desaix,Paris (15°).
