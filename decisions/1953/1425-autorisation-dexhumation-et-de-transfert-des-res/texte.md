@@ -1,0 +1,1 @@
+Les restes mortels du tirailleur Rakotokitika, décédé le 19 juin 1945 et inhumé au cimetière de Djibouti, seront transférés au cimetière d’Ankadivory, canton de Manakambahiny-Est, dis trict d’Ambatondrazaka, province de Tamatave (Madagascar Les dépenses occasionnées par ce transfert seront réglées par les soins du Ministère des Anciens Combattants et Victimes de guerre.
