@@ -1,0 +1,1 @@
+Sont approuvées les propositions du Comité de gestion du Fonds d’Investissement Routier contenues dans le procès-verbal de la consultation à domicile en date du 11 juillet 1975 dudit Comité de gestion.
