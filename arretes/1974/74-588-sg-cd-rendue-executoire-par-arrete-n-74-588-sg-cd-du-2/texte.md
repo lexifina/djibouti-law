@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 24/8° L du 23 mars 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant modification du budget 1974 du service local.
