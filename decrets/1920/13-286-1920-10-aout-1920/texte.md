@@ -1,0 +1,2 @@
+Procureur de la République, Chef du service judiciaire de la coté française des Somalis, en remplacement de M. Longue précédemment nommé Conseiller à la Cour d’appel de la Guadeloupe. M. Lhermitté. Juge Président d’appel à la Côte francaise des Somalis.
+Juge Président d’’appel à la Côte francaise des Somalis. en remplacement de M Lhermitte M.de Chelles, Substitut du Procureur général de ’Afrique équatoriale française, en disponibleté.
