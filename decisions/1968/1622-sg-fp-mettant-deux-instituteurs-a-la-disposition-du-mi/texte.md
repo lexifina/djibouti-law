@@ -1,0 +1,1 @@
+M. Joseph Laiïisi, instituteur-directeur, 6° échelon (indice nouveau 304) et Mme Renée Laisi, institutrice, 4 échelon (indice nouveau 258) sont, pour compter du 24 septembre 1968, date de leur arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
