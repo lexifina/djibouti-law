@@ -1,0 +1,1 @@
+M. Cauvin (Maurice), maître de phare de 4° échelon du cadre métropolitain, détaché en Côte Française des Somalis, dont le séjour administratif arrive à expiration le 20 février 1960, est autorisé à prolonger son séjour d’un an.
