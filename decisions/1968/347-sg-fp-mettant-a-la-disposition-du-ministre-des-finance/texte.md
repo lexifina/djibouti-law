@@ -1,0 +1,1 @@
+M. Ali Bolock Mohamed, expéditionnaire d’administration de 1re classe, 26 échelon, d& Cadre territorial, est mis à la disposition du Ministre des Finances et d& Plan, pour servir aux Finances, pour compter du 15 février 1968.
