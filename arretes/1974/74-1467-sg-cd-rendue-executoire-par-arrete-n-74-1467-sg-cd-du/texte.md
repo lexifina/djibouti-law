@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 59/8eI, du 4 septembre 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas approuvant le rapport d’exploitation et les comptes d’« Electricité de Djibouti pour l’année 1973.
