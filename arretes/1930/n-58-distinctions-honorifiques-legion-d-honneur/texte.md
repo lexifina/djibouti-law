@@ -1,0 +1,3 @@
+Par décret en date du 4 mars 1930, rendu sur Ja proposition du Ministre des colonies, vu la déclaration du Conseil de l’Ordre national de la Légion d’honneur, en date du 21 fevrier 1930, portant que les promotions et nominations faites aux termes dudit décret n’ont rien de contraire aux lois, décrets et règlements en vigueur, ont été promus où només dans l’Ordre national de la Légion d’honneur:
+au grade de chevalicr (au titre civil)
+M. Lucciardi (Augustin), trésorier-pareur à Côte française des Somalis: 32 ans 6 mois 15 jours de services, dont 19 ans 2 mois 19 jours aux colonies. A accompli une longue carrière dans les services comptables coloniaux.
