@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 339/7e L du 26 avril 1973 de la Chambre des députés du Territoire français des Afars et des Issas portant approbation du plan parcellaire constituant le lotissement dénommé « Lotissement du Progrès » sis à Ambouli.
