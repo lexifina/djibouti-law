@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 89/6°L du ler juillet 1964 de l’Assemblée Territoriale réglementant les loyers. des locaux d’habitation et des locaux à usage professionnel sans caractère industriel où commercial.
