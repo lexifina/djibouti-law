@@ -1,0 +1,5 @@
+Article uniaue. -— Dans le Territoire Francais dés Afars et des Issas, la prospection, la recherche et l’exploitation des gites d’eaux chaudes, de vapeurs d’eau souterraines et de saumures naturelles à fortes concentrations d’éléments minéraux, en vue de leur utilisation directe ou de la production d’énergie géothermique, sont soumises au même régime que la prospection,
+la recherche et l’exploitation des substances minérales concessibles, sous réserve des dispositions suivantes :
+En cas de concession, la durée de celle-ci est limitée à un maximum de cinquante ans. À l’expiration de cette durée, le sisement et les débendances immobilières de la concession font retour gratuitement au Territoire.
+Les actes administratifs portant octroi du permis de recherches du permis d’exploitation et de la concession et les cahiers des charges annexés doivent prévoir les mesures de tous ordres
+nécessaires à la sauvegarde, danst l’immédiat comme à l’avenir, des autres intérêts en présence, notamment en matière d’alimentation en eau de la population, de salubrité publique, d’agriculture, de thermalisme, de protection des sites et paysages, et du tourisme.
