@@ -1,0 +1,2 @@
+Une gratification de vingt mille francs Djiboini (20.000) est accordée à M. Granddidier (Jacques), adjoint technique des Travaux publics, pour travaux exceptionnels effectués du 1er janvier 1951 au 30 juin 1951.
+Cette dépense est imputable au chapitre XIII, art. 2, § 1 de l’exercice 1951. Est rapportée la décision n° S27 du 26 avril 1851 allouant à M. Grandidier une indemnité mensuelle de six mille francs vjour suOTJëïBents de fonctions.
