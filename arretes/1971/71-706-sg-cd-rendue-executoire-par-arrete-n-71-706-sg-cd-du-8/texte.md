@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 182/7°L du 3 mai 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas. portant réslementation des allocations scolaires.
