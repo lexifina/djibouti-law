@@ -1,0 +1,2 @@
+Est accordée au Commandant du Groupement de Gendarmerie de la Côte Française des Somalis l’autorisation préalable de construire à Ambouli, sur les titres fonciers n° 628 et 767, un groupe de logements destinés à être habités par des auxiliaires de gendarmerie.
+La présente autorisation ne vaut pas permis de construire qui sera délivré par le Commandant de Cercle de Djibouti suivant la procédure réglementaire.
