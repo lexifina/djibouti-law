@@ -1,0 +1,1 @@
+à l’occasion du 14 juillet 1929, une gratification de cent francs sera accordée an sergent den Aouale, matricule 570 qui, en plus de ses fonctions ordinaires, 4, pemdant trois mois, servi d’interprète bénévole au chef du poste de tadjourah.
