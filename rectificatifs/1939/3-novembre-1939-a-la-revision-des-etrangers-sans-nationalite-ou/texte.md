@@ -1,0 +1,1 @@
+Rectificatif au Journal officiel du 12 novembre 1939 : page 13047, article 12, après : « à l’incorporation des assujettis âgés de », lire « plus de 35 ans, dans des corps de troupe », au lieu de : « verneurs et hauts commissaires de la Répu- tronpe »,
