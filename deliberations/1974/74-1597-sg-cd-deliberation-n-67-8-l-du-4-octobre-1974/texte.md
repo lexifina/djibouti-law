@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 67/8°L du 4 octobre 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des. Afars et des Issas portant l’octroi de laval du Territoire à un emprunt de 900 millions de francs Djibouti, contracté par Electricité de Diibouti aunrès de la Caisse Centrale: de Coopération : Economique:
