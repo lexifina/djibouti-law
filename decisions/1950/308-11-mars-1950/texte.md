@@ -1,0 +1,1 @@
+Mme Margaret Maes, en religion sœur Elisabeth de la Trinité, infirmière auxiliaire de 1 catégorie, en service au dispensaire Cha pon-Baissac, est classée infirmière de 1er catégorie pour compter du 1er janvier 1950. après deux ans de service.
