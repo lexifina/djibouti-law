@@ -1,0 +1,33 @@
+Art . 1er. — Sont annulés dans les écritures les crédits ci-après, restés sans emploi à la clôture de l’exercice et s’élevant au total de :
+| Chapitre II.
+| 4.064 60
+| Chapitre III.
+| 6.834 31
+| Chapitre IV.
+| 7.374 62
+| Chapitre V.
+| 14.425 13
+| Chapitre VI.
+| 44.721 15
+| Chapitre VII.
+| 7.472 81
+| Chapitre VIII.
+| 143.264 94
+| Chapitre IX.
+| 314.612 30
+| Chapitre X.
+| 32.018 86
+| Chapitre XI.
+| 4.565 38
+| Chapitre XII.
+| 9.530 02
+| Chapitre XIII.
+| 2.352 81
+| Chapitre XIV.
+| 3.500 »
+| Chapitre XV.
+| 31.074 80
+| Chapitre XVII.
+| 173.039 35
+TOTAL……. 798.851 08
+Art . 2. —Le présent arrêté sera enregistré, publié et communique partout où besoin sera, notifié au trésorier-payeur et inséré au Journal officiel de la colonie.
