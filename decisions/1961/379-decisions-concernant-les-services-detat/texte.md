@@ -1,0 +1,4 @@
+Un congé administratif de sept mois à passer à Launaguet (Haute-Garonne) est accordé à M. Nayral de Puybusque (Jean), magistrat de 3° grade (indice net 550), Président du Tribunal Supérieur d’Appel de Djibouti, qui aura accompli le 21 avril 1961 un séjour ininterrompu de 2 ans 4 mois 1 jour dans le Territoire,M. Nayral de Puybusque (Jean) qui voyagera accompagné de son épouse est autorisé à emprunter la voie anormale. 11 percevra avant son départ une avance représentant les frais de pas sage à charge pour lui de la justification desdits frais dans les conditions prévues par la réglementation en vigueur.
+M. Nayral de Puybusque doit quitter le Territoire en principe le 21 avril 1961.
+Son congé prendra effet pour compter du lendemain de la date de son départ de Djibouti.
+La dépense est imputable sur le Budget de l’Etat.
