@@ -1,0 +1,1 @@
+le salaire journalier de Mme Boué Louise, da me-employée alaire journalier de Mme Boué Louise, d’auxiliaire en service a la Sû reté générale est transformé suelle en solde men de 1.100 francs (mille cent francs )pour compter du 1er août 1945.
