@@ -1,0 +1,1 @@
+M. Jean Gabriel, administrateur en chef des Affaires d’outremer (3° Éthelon, indice nouveau 683) est, pour compter du 5 ‘octobre ‘1968 dâté de Son arrivée au Territoire, mis à la disposition. ‘du Ministre des Affaires économiques.
