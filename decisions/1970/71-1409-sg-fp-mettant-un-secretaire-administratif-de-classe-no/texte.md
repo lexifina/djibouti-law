@@ -1,0 +1,1 @@
+Est constatée, pour compter du 1er octobre 1971, date ‘de son retour dans le Territoire, la reprise de ses fonctions antérieures de ‘conseiller technique du Ministre de la Fonction publique, par M. Balakichenaretty, secrétaire administratif de classe normale, lle échelon.
