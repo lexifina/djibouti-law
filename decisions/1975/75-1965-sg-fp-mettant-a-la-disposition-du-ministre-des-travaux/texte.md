@@ -1,0 +1,1 @@
+M. Giudice Raymond, ingénieur hors classe des Travaux Publics de l’Etat est pour compter du 17 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics, des Transports et du Tourisme pour servir à la direction des Travaux Publics en qualité de chef de bureau d’Urbanisme et d’Habitat.
