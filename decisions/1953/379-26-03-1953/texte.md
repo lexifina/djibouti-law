@@ -1,0 +1,2 @@
+La décision n° 406, du 24 avril 1951, est et demeure rapportée.
+MM. Mohamed Ali 2, Said Adjeb, Mme Fatma Ali, Ida Alamou, NaNtalis Etiennette, Fatma Youssouf, Rosalia Julio, Maria Asfao, qui ne remplissent pas les conditions nécessaires pour être titularisés dans le cadre local des infirmiers et infirmières, sont dégagés du cadre sanitaire et nommés infirmiers et infirmières auxiliaires 6e échelon pour compter du 1er mai 1951.
