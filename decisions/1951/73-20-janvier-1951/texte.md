@@ -1,0 +1,1 @@
+1° M. Kermeur (René), inspecteur de l’enregistrement de 1re classe, 2e échelon, débarqué à Djibouti le 19 janvier 1951, de retour de congé administratif, reprend ses fonctions de chef du service de l’Enregistrement, des Domaines et du Timbre pour compter de cette même date.
