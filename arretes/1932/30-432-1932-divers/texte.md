@@ -1,0 +1,2 @@
+est ordonné le payement, do la somme de 531 francs, montant du prix du passage, en juin 1920, de Port-Saïd a Djibouti, sur le paquebot linge, de la Compagnie des messageries maritimes, d’un nommé Mohamed Ahmed, domestique indigent natif de Djibouti, rapatrié sur réquisition de passage délivrée par le consul de France à Port-Saïd.
+La dépense est imputable au chapitre 13, article 6, paragraphe I er, « Dépenses des exercices clos et périmés », du budget local de 1932.
