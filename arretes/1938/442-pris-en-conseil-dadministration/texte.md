@@ -1,0 +1,2 @@
+Les délais impartis à la Maison F . Livié-rato par l’article 11 de l’arrêté du 8 avril 1937 pour la mise en valeur du lot n° 4 du quartier de l’Ancien-Abattoir sont prorogés d’une année qui expirera me 8 avril 1939.
+Si le concessionnaire n’a pas satisfait à ses obligations dans les délais ci-dessus fixés, sa concession fera retour aux Domaines aux conditions déterminées par l’article 11 de l’arrêté du 8 décembre 1925.
