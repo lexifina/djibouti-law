@@ -1,0 +1,2 @@
+M. Mahmoud Haïd, Rédacteur principal 3° échelon du Cadre Territorial de l’Administration Générale, en service au Ministère de la Santé Publique et des Affaires Sociales, est inscrit au tableau d’avancement du Personnel des Cadres Territoriaux au titre de l’année 1962 pour le grade de Rédacteur Principal de classe exceptionnelle pour compter du 1er janvier 1962.
+M. Mahmoud Haïd, Rédacteur principal 3° échelon, est promu au garde de Rédacteur Principal Àde classe exceptionnelle pour compter du 1er janvier 1962.
