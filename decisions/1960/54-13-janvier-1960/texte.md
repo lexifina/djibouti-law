@@ -1,0 +1,2 @@
+M. Rajoelina, secrétaire dactylographe contractuel, est mis à la disposition du Ministre des Affaires intérieurés, pour compter du 5 janvier 1960, date de son arrivée à Djibouti.
+M. Ratsimandresy (Emile), commis de 2e classe, 2e échelon du cadre supérieur des Services administratifs et financiers en service au Ministère des Affaires intérieures, est mis à la disposition du Ministre de la Fonction publique pour servir au Bureau du Personnel territorial, pour compter du 11 janvier 1960.
