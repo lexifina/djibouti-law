@@ -1,0 +1,1 @@
+M. Bertrand, élève administrateur des colonies, est nommé par intérim chef du service du ravitaillement général, des affaires économiques et inspecteur du travail, en remplacement de M. Belin, en instance de départ en congé, pour compter du 19 mars 1918.
