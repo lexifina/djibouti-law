@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er. — Est promulgué à la Côte française des Somali et Dépendances pour y Être exfcute selon ses forme cet teneur le décret du 22 janvier 1921, rendant applicable dans les colonies autres que la Martinique, la Guadeloupe et la Réunion et dans les pavs de protectorat dépendant du ministère des colonies, la loi du 15 novembre 1921, qui modifie certains articles de cette du 24 juillet 1889 sur la protection des enfants maltraités ou moralement abandonnés.
