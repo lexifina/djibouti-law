@@ -1,0 +1,25 @@
+# Décret n° 1615 fixant la situation des personnels coloniaux pendant la période d’interruption des communications avec les colonies.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1615-fixant-la-situation-des-personnels-coloniaux-pendant-la-periode-dinterruption-des-communications-avec-les-colonies/>
+
+En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
+
+## Visas
+
+Vu l’acte constitutionnel n° 12 ;
+Vu le sénatus-consulte du 3 mai 1854 ;
+
+## Signature
+
+Pierre LAVAL.
+Par le Chef du Gouvernement :
+Le contre-amiral,
+Secrétaire d'Etat
+à la Marine et aux Colonies,
+A. BLEHAUT.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 — |
