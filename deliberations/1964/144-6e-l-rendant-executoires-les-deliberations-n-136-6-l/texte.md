@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à Mme Zhara Bent Othman Saïd la Concession provisoire d’une parcelle de terrain d’une superficie de cent douze mètres carrés environ, sise à Djibouti, quartier 1, au prix de cent francs le mètre carré.
