@@ -1,0 +1,9 @@
+# Décision n° 1038 08/10/1952
+
+Décision · Journal officiel de la République de Djibouti, n° 12 du 01/11/1952 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1038-08-10-1952/>
+
+En vigueur : 1952-11-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | e Magne est engagée en qualité de sténo-dactylo auxiliaire 2e catégorie pour compter du 7 octobre 1952. L’intéressée est mise à la disposition de l’Inspecteur du Travail. |
