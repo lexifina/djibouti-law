@@ -1,0 +1,1 @@
+15 mars 1934. M. Delcros (Rémy), contrôleur technique adjoint de 4° classe des cadres du contrôle du chemin de fer franco-éthiopien, est promu à la 3° classe de son grade, à comp ter du 1er janvier 1934.
