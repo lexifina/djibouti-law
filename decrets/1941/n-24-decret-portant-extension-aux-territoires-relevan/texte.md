@@ -1,0 +1,2 @@
+Art, 1. — Sont rendues applicales dans les territoires relevant du Secrétariat d’Etat aux colonies, à l’exception de la Guatdtaloupe la Martinique et la Réunion, les dispositions de la loi du 25 octobre 1941 modifiant ls articles 225 et 248 du Code penal et portant eblisation de déuonter des crimes ou projets de crimes attentatoires aux personnes et de secourir des personnes en danger. Ces dispositions sont également applicables aux indigènes et nsiatiques assimilés, justiciabls des juridictions francaises en Indochine.
+Art2.le present decret sera execute comme loi d’etat.
