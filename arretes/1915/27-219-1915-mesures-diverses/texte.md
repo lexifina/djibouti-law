@@ -1,0 +1,1 @@
+il a été donné main-levée à MM. Marill Allègre à Cie du cautionnement de 450 francs qu ils ont constitué le 15 Décembre 1913 suivant récépissé ne 305 en garantie de l’exécution de leur contrat pour la fourniture, pendant l’année 1914, des denrées nécessaires à l’alimentation des askaris et des okals.
