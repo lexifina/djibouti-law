@@ -1,0 +1,2 @@
+Chambre de Commerce et d’Industrie de Djibouti est autorisée en application de l’article 23 de la délibération n° 170/7° L du 8 avril 1971 susvisée, à construire un immeuble à usage de bureaux pour sa propre installation ou pour le fonctionnement des établissements commerciaux ou industriels ellé aurait la charge.
+L’autorisation de contracter un emprunt pour la réalisation de cet investissement fera l’objet d’un arrêté particulier lorsque les modalités de mobilisation et de remboursement de cet emprunt seront définies.
