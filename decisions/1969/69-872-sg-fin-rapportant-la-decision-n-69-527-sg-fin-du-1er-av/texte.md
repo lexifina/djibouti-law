@@ -1,0 +1,1 @@
+Est rapportée la décision n° 69-527/SG/FIN du 1er avril 1969 autorisant M. Belonia Alcibiade, à exploiter en gérance libre la licence de 1er classe pour la vente de toutes boissons à consommer sur place ou à emporter du M. Plianthos Pierre ést autorisé à reprendre l’exploitation de la licence de 1er classe afférente au <Bar Plianthos», sis rue de Madrid, angle rue du Verdon.
