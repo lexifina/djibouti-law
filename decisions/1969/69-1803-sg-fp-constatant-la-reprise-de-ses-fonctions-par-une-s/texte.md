@@ -1,0 +1,1 @@
+Est constatée, pour compter du 5 novembre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service de Santé (Ministère de la Santé publique et dés Affaires sociales) par Mlle Noëlla Girardet, sage-femme principale, 3° échelon.
