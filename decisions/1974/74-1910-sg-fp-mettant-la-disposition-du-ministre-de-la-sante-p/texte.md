@@ -1,0 +1,1 @@
+M. Jean-Paul Bonnet, médecin de 2e classe du service de Santé des armées est, pour compter du 21 novembre 1974, date de son arrivée à Djibouti, mis à la disposition du ministre de la Santé publique pour servir en qualité de médecin-chef du dispensaire Farah-Had.
