@@ -1,0 +1,2 @@
+Il est fait obligation à M. Bachanfar, propriétaire, de raser le bâtiment qui menace ruine édifié sur le titre foncier n° 117 en bordure de la rue de Boulaos, près des abattoirs, aux Salines Est, à Djibouti.
+La démolition, l’évacuation des matériaux résiduels ou leur mise en dépôt ordonnée sur place devront être achevées dans un délai de un (1) mois à compter de la notification du présent arrêté par le Chef de District de Djibouti.
