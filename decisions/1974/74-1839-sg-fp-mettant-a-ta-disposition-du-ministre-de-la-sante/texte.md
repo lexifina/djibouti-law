@@ -1,0 +1,1 @@
+M. Jean-Yves Colin, volontaire de l’aide technique, est pour compter du 12 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique pour servir à l’hôpital Peltier (ministère de la Santé Publique), service comptant au 1er septembre 1974.
