@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 285/7e L du 29 septembre 1972 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas accordant des parcelles de terrains domaniaux en concession provisoire.
