@@ -1,0 +1,34 @@
+# Décret n° du 14 janvier 1940 relatifs à l’incorporation obligatoire des indigènes résidant hors de leur colonie d’origine.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-14-janvier-1940-relatifs-a-lincorporation-obligatoire-des-indigenes-residant-hors-de-leur-colonie-dorigine-2/>
+
+En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Président de la République française,
+Vu Le décret du 29 mars 1933 relatif au recrutement des troupes indigènes de Madagascar et dépendances, de la Côte française des Somalis et du groupe du Pacifique :
+Sur la proposition du Président du Conseil,
+Ministre de la défense nationale et de la guerre et des affaires étrangères, des Ministres des colonies, des finances et de l'intérieur,
+
+## Signature
+
+ALBERT LEBRUN.
+Par le Président de la République :
+de la défense nationale et de la guerre et des affaires étrangères,
+Edouard DALADIER.
+Le Ministre des colonies.
+
+Georges MANDEL,
+Le Ministre des finances,
+
+Paul REYNAUD.
+Le Ministre de l'intérieur.
+
+Albert SARRAUT.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
