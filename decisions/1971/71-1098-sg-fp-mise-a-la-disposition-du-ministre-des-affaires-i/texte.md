@@ -1,0 +1,1 @@
+M. J. Zimmermann, brigadier-chef de police, est, pour un compter du 12 juillet 1971,date son retour au territoire vis a la disposition du ministre des affaires interieur pour servir au cercle de dikhil.
