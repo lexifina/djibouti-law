@@ -1,0 +1,1 @@
+L’indemnité mensuelle de M. Oudoun Sanalasse, Akel de la tribu des Mirganto et M. Moussa Abdallah, chef du village de Yoboki dans le Cercle de Dikhil est augmentée de trois mille franc à compter du 1eroctobre; 1968.
