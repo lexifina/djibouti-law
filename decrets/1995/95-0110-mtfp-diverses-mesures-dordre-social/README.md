@@ -1,0 +1,20 @@
+# Décret n° 95-0110/MTFP portant diverses mesures d’ordre social.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0110-mtfp-portant-diverses-mesures-dordre-social/>
+
+En vigueur : 1995-10-15 (date du Journal officiel qui le publie).
+
+## Visas
+
+Vu la Constitution du 4 septembre 1992 :
+
+Vu le décret n° 81-103/PR/TR du 4 octobre 1981 portant réglementation du travail des étrangers ;
+
+Vu le décret n° 95-0059/PRE du 8 juin 1995 portant remaniement des membres du gouvernement ;
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article premier — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | PrÃ©ambule |
