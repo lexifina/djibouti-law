@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 85/7° L du 20 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des, Issas portant additif à la délibération n° 5/7°L du 18. décembre 1969 portant remaniement de ressources budgétaires.
