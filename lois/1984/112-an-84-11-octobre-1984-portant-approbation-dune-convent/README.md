@@ -1,0 +1,18 @@
+# Loi n° 112/AN/84/1re L DU 11 OCTOBRE 1984 portant approbation d’une convention de crédit entre la République de Djibouti et la Caisse centrale de Coopération économique.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-84-1re-l-du-11-octobre-1984-portant-approbation-dune-convention-de-credit-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
+
+En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
+
+## Visas
+
+L’Assemblée nationale a adopté ;
+Le président de la République promulgue la loi dont la teneur suit ;
+Vu les lois constitutionnelles n° LR/77-001 et LR/77-002 du 27 juin 1977 ;
+Vu l’ordonnance n° LR/77-008 en date du 30 juin 1977 ;
+Vu le décret n° 82-041/ PRE du 5 juin 1982 portant nomination des membres du gouvernement ;
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | Art. 2 |
