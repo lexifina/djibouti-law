@@ -1,0 +1,1 @@
+Il est alloué à M. Robin, ingénieur adjoint du cadre local des travaux publics, en conformité de l’arrêté n° 544 du 27 août 1930, une indemnité forfaitaire mensuelle de 350 francs, pour usage, pour les besoins du service, de sa voiture automobile, pour compter du 26 décembre 1930.
