@@ -1,0 +1,1 @@
+Est acceptée, pour compter du 2 septembre 1966, 1a renonciation à sa demande d’exercer la profession d’avocat-défenseur présentée par M. Claude Fougerouse, cité «La Vigie», route de Balaguier, à la Seyne-sur-Mer (Var).
