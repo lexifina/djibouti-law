@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 268/7e L du 26 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas modifiant la délibération n° 212/7e L du 7 octobre 1971 relative à l’apposition d’affiches et de dispositifs de publicité.
