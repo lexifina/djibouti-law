@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 460 du 1er avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à la Société Djiboutienne de Constructions la concession provisoire d’un terrain d’une superficie de trois mille sept cent mètres carrés sise à Djibouti (lots n°° 5 à 12 inclus), au prix de deux cents francs le mètre carré.
