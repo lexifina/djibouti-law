@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 60/8°L du 4 septembre 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant approbation du compte administratif de l’Office d’approvisionnement des Magasins témoins pour l’exercice 1973.
