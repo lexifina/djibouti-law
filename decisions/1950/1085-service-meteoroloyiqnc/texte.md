@@ -1,0 +1,1 @@
+Le traitement mensuel du nommé Mahmoud Ibrahim, aide-opérateur en service à la météorologie, est fixé à 21.600 frcmics pour compter du 1er janvier 1950, et à 28.200 francs- pour compter du 1er juillet 1950.
