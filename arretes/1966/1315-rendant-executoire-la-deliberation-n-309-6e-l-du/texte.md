@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 309/6e L du 28 juillet 1966 de la Commission permanente de l’Assemblée Territoriale fixant les dispositions à prendre en Côte Française des Somalis pour imposer la réparation ou la démolition des constructions qui présentent un danger pour la sécurité publique.
