@@ -1,0 +1,1 @@
+Un congé proportionnel de cinq mois est accordé à M1,lc Matteï (Olga), institutrice de 6e classe du cadre métropolitain en cours de détachement en Côte Française des Somalis, pour en jouir dans la Métropole.
