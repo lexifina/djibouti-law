@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de l’im pôt foncier, exercice 1938, comprenant cent vingt articles et s’élevant à la somme de quatre cent quatre-vingt-dix mille quatre cent trente sept francs quatre-vingt-huit centimes.
