@@ -1,0 +1,1 @@
+M. Bertin (Jean), lieutenant d’infanterie coloniale en service « hors cadres » et arrivé en Côte Française des Somalis le 7 janvier 1952, est nommé officier d’Ordonnance du Chef du Territoire et cumulativement avec ces fonctions, adjoint au Capitaine chef du Cabinet Militaire, Commandant de la Milice de la Cote Francaise des Somalis.
