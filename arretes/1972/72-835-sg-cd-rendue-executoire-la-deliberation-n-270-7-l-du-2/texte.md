@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 270/7°L du 26 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création et organisation d’une épreuve d’arabe au Certificat d’études primaires.
