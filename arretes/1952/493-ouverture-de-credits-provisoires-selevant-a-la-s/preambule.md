@@ -1,0 +1,2 @@
+# Préambule
+Art. lor. — Des crédits provisoires s’élevant à la somme totale de vingt-deux millions deux cent cinquante-neuf mille cinq cent soixante-deux francs métropolitains, et dont le détail par chapitre est donné dans un état annexé au présent arrêté, sont ouverts au titre du Budget de l’État, France d’Outre-Mer, exercice 1952, et mis à la disposition de l’Intendant Militaire, Directeur du Service de l’Intendance, en vue du règlement des dépenses à effectuer.
