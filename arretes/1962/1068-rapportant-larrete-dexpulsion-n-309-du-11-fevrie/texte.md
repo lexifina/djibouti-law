@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion 309 en date du 11 février 1959 en ce Qui concerne Kadidja Mohamed Saleh alias Kadidja Aden Bilal, sorialie Issak Abéryonnis Moussa Ismaïl Moussa Tourouah Rer Abdi, née vers 1938 à Boroma (R.S.), de f. Mohamed Saleh et de Wilo Mohamed.
