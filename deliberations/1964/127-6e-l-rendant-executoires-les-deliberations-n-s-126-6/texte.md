@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1408 du 8 octobre 1964, la Commission permanente de l’Assemblée Territoriale autorise M. Bernard AStraud à céder son droit de concession provisoire sur un terrain accordé par délibération n° 369 du 20 novembre 1962 (T.F. n° 568).
