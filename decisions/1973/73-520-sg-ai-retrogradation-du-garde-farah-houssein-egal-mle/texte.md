@@ -1,0 +1,1 @@
+La rétrogradation du grade de 1er classe au grade de 2e classe est prononcée par mesure disciplinaire à l’encontre du garde Farah Houssein Egal, Mle 780. La sanction prendra effet pour compter du lendemain de la notification à l’intéressé de la présente décision.
