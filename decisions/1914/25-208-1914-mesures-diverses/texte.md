@@ -1,0 +1,1 @@
+et pour compter du 11 du dit, le nommé Ahmed Nouman est norme planton de quatrième classe au Secrétariat général en remplacement du nomméObaré Sobani, planton de quatrième classe, licencié pour compter du premier février 1914.
