@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 175/6e L du 8 avril 1965 de la Commission Permanente de l’Assemblée Territoriale portant additif à la délibération n° 346 du 16 juin 1962 concer“iant l’usise dés entrepôts frisorifijques dé l’äbattoir püblic de Djibouti ét fixant les tarifs.
