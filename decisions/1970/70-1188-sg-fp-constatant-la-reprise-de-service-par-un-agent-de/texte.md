@@ -1,0 +1,1 @@
+Est constatée, pour compter du 8 juin 1970, date de son retour au Territoire, la reprise de ses fonctions au Service des Contributions (Ministère des Finances et du Plan) par M. Ahmed Aden Omar, agent de contrôle de 2e classe, 2e échelon, du Cadre territorial des Contributions.
