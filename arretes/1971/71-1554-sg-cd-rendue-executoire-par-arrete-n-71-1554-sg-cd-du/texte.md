@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 217/7eL du 4 novembre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du Code général des Impôts, au titre de la fiscalité indirecte.
