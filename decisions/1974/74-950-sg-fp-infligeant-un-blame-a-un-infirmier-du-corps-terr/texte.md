@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Daoud Ali Mohamed, infirmier de 2%e classe – 1° échelon du corps territorial de la Santé publique, en service à l’hôpital Peltier (pavillon post-opéré) pour absences irrégulières répétées et négligeance dans son travail.
