@@ -1,0 +1,2 @@
+Un congé administratif de six mois pour en jouir à Nice (Alpes-Maritimes) est accordé à M. Chamboredon (Robert), administrateur de 1er classe ides colonies, secrétaire général de la Côte française des Somalis, dont le séjour colonial est arrivé à expiration le 19 septembre 1950.
+M, Chamboredon (Robert), appartenant ait groupe I, voyagera en 1er classe par voie, aérienne aux frais du budget de l’Etat,
