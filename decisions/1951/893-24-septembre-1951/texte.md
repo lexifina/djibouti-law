@@ -1,0 +1,1 @@
+Une gratification de deux mille cinq cents francs (2.500 fr.) est accordée à l’agent du port Moussa Roble, pour travaux exceptionnels. La présente dépense est imputable au chapitre 13, art. 13. § 1 de l.’exlrcice 1951.
