@@ -1,0 +1,1 @@
+La Société Entreprise Générale de France et d’Outre-Mer (SE.G.EF.O.M.), S. À. R. L., ayant son siège social à Djibouti, est autorisée à acquérir une parcelle de terrain urbain bâti, d’une superficie de 490 mèêtres carrés, sise à Djibouti, Plateau du Marabout, et immatriculée au Ilaivre foncier du Territoire sous le n° 930. au nom de M. Théodore Rossi.
