@@ -1,0 +1,1 @@
+Mme Suran (Berthe) est engagée en qualité de dame-employée auxiliaire 3e catégorie et mise à la disposition du Chef du Service de la Sûreté, en remplacement numérique de M. Rajoelina, titulaire d’un congé administratif, pour compter du 16 juillet 1953.
