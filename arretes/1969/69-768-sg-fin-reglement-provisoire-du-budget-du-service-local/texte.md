@@ -1,0 +1,1 @@
+M. Joachim Moustris est autorisé à acquérir une parcelle de terrain bâti, d’une superficie de 488 mètres carrés, sise à Djibouti, boulevard Bonhoure, faisant partie d’un terrain plus vaste immatriculé au Livre foncier du Territoire sous le n° 688 au nom de M. Gardoni Barthélémy.
