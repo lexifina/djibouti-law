@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, — Est promulgué à la Côte Française des Somalis pour y être appliqué suivant sa forme et teneur le décret du 10 Juin 1907 fixant la date de mise en vigueur des dispositions des articles 31, 32 et 33 de la Loi de Finances du 30 Janvier 1907, relatifs à la réduction de trois ans à un an du délai de prescription des mandets-poste et des valeurs de toute nature confiées à la Posts ou trouvées dans le service.
