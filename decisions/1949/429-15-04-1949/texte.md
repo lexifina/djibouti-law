@@ -1,0 +1,1 @@
+Le sergent infirmier Dipp (Gabriel), chargé du dispensaire de Dikhil et de l’infirmerie d’Ali-Sabieh, est placé dans la position, hors cadres à compter du 1er avril 1949 et maintenu dans son affectation actuelle.
