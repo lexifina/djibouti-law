@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Mohamed Ali Arras, infirmier de 2e classe 1er échelon du corps territorial de la Santé publique, au service médical Interentreprises (Ministère de la santé publique et des Affaires Sociales), pour retards répétés et attitude incorrecte envers ses supérieurs et ses collègues.
