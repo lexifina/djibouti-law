@@ -1,0 +1,2 @@
+Une commission composée de : MM. le Chef de Bataillon CHEDEVILLE, Commandant le Cercle de Dikhil Président L’Administrateur en Chef ALEMANT Commandant le Cercle de Djibouti Mme Le Capitaine LABARSOUQUE, Commandant le Cercle d’Ali-Sabieh Membre.
+Le Lieutenant MARNAY, Chef du Bureau des Affaires Politiques Membre. se réunira le 3 Janvier 1943 à 9 heures dans les bureaux du Gouverneument en vue de faire toutes propositions utiles au Chef de la Colonie au sujet de la réorganisation territoriale des Cercles de Dikhil et de Djibouti.
