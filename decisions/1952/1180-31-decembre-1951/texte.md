@@ -1,0 +1,1 @@
+M. Terrisse (Georges), instituteur de classe du cadre métropolitain, détaché à la Côte Française des Somalis, reprend la direction de l’École professionnelle de Djibouti, pour compter du 28 décembre 1951, date de son retour de congé.
