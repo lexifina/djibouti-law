@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 492/6e L du 24 mai 1968 complétant la délibération n° 449/6e L du 30 décembre 1967 portant délégation d’une partie des pouvoirs de la Chambre des Députés à la Commission permanente pour année 1968 .
