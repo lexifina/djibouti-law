@@ -1,0 +1,1 @@
+M.Romuald Bonnefoy, adjudant en position « Cadre hors budget des Armées » est, pour compter du 22 juillet 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’hôpital Peltier, en remplacement numérique de l’adjudant-chef Richaume, rapatriable.
