@@ -1,0 +1,2 @@
+# Préambule
+Art 1er. — Il est lait concession provisoire à M. Mi’kaelian Dkcran, commerçant de nationalité française, domicilié à Djibout, d’une parcelle de terrain d’une superfirae de 12’5 mètres carrés, sise à Boulaos, en bordure dm boulevard de Gaul, limitée à 3’Ouest par le boulevard de Gaulle, à l’Est par nn terrain vague, au Sud par le canal à Khor Bonrhan, et an Word par une rue future telle au surprise qu’elle est figurée au plan annexé au présent arrêté.
