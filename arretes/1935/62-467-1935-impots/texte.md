@@ -1,0 +1,1 @@
+est rendu exécutoire le deuxième rôle supplémentaire des patentes, tableau P, exercice 1985, comprenant quatre cent soixante-douze articles et s’élevant à la somme de vingt-cinq mille neuf cent cinq francs.
