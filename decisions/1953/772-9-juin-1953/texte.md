@@ -1,0 +1,1 @@
+M. Pérot, inspecteur de 1re classe des Contributions directes, est nommé Chef du Service des Contributions directes par intérim, en remplacement de M. Martel, titulaire d’un congé administratif, pour compter du 8 juin 1953.
