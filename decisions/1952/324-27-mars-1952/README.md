@@ -1,0 +1,9 @@
+# Décision n° 324 du 27 mars 1952 :
+
+Décision · Journal officiel de la République de Djibouti, n° 5 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decision-n-324-du-27-mars-1952-2/>
+
+En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t libéré du service actif à l’expiration de son contrat, pour compter du 25 mars 1952 : |
