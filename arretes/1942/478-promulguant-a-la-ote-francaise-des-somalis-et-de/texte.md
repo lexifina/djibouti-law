@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances le décret du 26 août 1942 étendant aux colonies les dispositions de la loi du 31 mars 1942 portant abrogation du dé cret du 1er septembre 1939 relatif à la signification des oppositions et cessions faites entre les mains des comptables de deniers publics et des préposés de la Caisse des dépôts et con signations.
