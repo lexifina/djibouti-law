@@ -1,0 +1,26 @@
+Les miliciens dont les noms suivent: ont droit à l’indemnité pour charges de famille :
+2057. Omar Warsama, 1er classe, 3° compagnie, pour compter du 1er juin 1940;
+2125. Mahama Dougoude, 2° classe, compter du 1er mai 1040;
+2130. Rnyyale Dabar, 2° classe, 1er compa gnie, pour compter du 4 février 1040;
+2132.Ali Miguil, 2e classe, 1er compagnie, pour compter du 4 février 1040;
+2157. Mogtte Mohamed, 2° classe, 1er conipagnie, pour compter du 12 février 1040;
+215S. Farah Bade, 2° classe, 1er Compagnie, pour compter du 12 février 1040;
+2162. Kaourah Ismaïl, 2° classe, 1er Compagnie, pour compter du 21 février 1049;
+1362. Dnbclar Guelte, 2° classe, 1er Compagnie, pour compter du 9 mai 1949;
+2195. Djama Isman, 2° classe, 1er Compagnie, pour compter du 11 mai 1949;
+2198. Adan Abdi, 2″ classe, 1er compagnie, pour compter du 13 mai 1049;
+2150. Moussa Hassan, 2° classe, 1er compa gnie, pour compter du 13 mai;
+2212.Saban Ivabyet, 1er classe, 3″ compa gnie, pour compter du 18 mai 1949;
+2212.Houssein Aden, 2° classe, 1er compa gnie, pour compter du 18 juin 1949;
+2227.Mohamed Houssen, 2° classe, 1er compagnie, pour compter du 29 juin 1940;
+225. Moussa Hadjin, 2″ classe, 1 compagnie, pour compter du 29 juin 1049;
+2220. Abdillahi Ra.be, 2e classe, 1er compagnie, pour compter du 20 juin 1049;
+2224. Bague Diriye, 2° classe, 1″ compagnie, pour compter du 20 juin 1040;
+2230. Mohamed Hassan, 2° classe, 1™ coinpagnie, pour compter du 1er juillet 1049;
+2230. Abdi Moussa, 2° classe, 1er Compagnie, pour compter du 4 juillet; 1949 ;
+2237. Saïd Hassan, 2″ classé, 1er compagnie, pour compter du 14 juillet. 1040;
+2235. Osman Gueile, 2° classe, 3° compagnie, pour compter du 4 juillet 1049;
+223S. Farah Guirre, 2° classe, 1™ compagnie, pour compter du 4 juillet 1949;
+2071. Mnhauind Hainnd,.2° classe, 3° compagnie, pour compter du 17 mars 1940;
+2076. Hared Guedid, 1er classe, 2′ compagnie, pour compter du 17 novembre 1949 ;
+2194. Mohamed Oursame, 2° classe, 3° compagnie, pour compter du 14 août 1949;
