@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 61/8° L, du 4 septembre 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas, interprétant certaines dispositions du code général des impôts et de la délibération créant une zone franche portuaire à Djibouti, et instituant des dispositions transitoires.
