@@ -1,0 +1,1 @@
+M. Georges Richaume, adjudant en position. cadres hors budget des Armées (indice -nouveau 267) est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 21 juillét 1969-pour servir à l’hôpital Peltier en remplacement numérique de ladjudant Pasqui, rapatriable.
