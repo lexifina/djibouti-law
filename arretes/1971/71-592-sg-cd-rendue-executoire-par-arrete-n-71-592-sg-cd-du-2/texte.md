@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 169/7° L du 8 avril 1971 de la Chambre des Députés du Territoire Français des Afars et des:lssas accordant à M. Ibrahim Sultan Mohamed la concession provisoire d’une parcelle de terrain sise à Djibouti.
