@@ -1,0 +1,1 @@
+M. Hassan Meat Farah est engagé en qualité d’agent technique auxiliaire 6e échelon pour compter du 1er juin 1952 et mis à la disposition du Directeur des Travaux publics pour servir à l’Usine Electrique.
