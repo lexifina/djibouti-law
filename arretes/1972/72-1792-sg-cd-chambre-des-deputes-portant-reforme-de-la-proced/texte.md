@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 299/7eL du 19 décembre 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant réforme de la procédure des actes de poursuites en matière d’impôts directs.
