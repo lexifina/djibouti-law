@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 249 du 28 avril 1972 du conseil d’administration d’Electricité de Djibouti arrêtant l’état de prévisions de recettes et de dépenses pour l’année 1971 (budget définitif) à la somme de 967.120.000 FD (neuf cent soixante-sept millions cent vingt mille francs Djibouti).
