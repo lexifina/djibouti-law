@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 830 du 31 mai 1966, la Commission permanente de l’Assemblée Territoriale a accordé à M. Abdillahi Ahmed Miré, dit Gol, la concession provisoire d’une parcelle de terrain d’une superficie de 2.500 mètres carrés, sise à Djibouti, au prix de 50 francs le mètre carré.
