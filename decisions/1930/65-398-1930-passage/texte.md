@@ -1,0 +1,1 @@
+le sergent Hordlon (Albert), de la section des télégraphistes coloniaux, en service hors cadres à la Côte française Des Somalis, qui comptera le 15 janvier 1939 vingt-quatre mois de séjour ininterrompu à la colonie, est rapatrié pour fin de campagne.
