@@ -1,0 +1,1 @@
+Les deux tiers du bâtiment, sis à Djibouti, Quartier de la Plaine, sur le terrain de la Milice de la Côte Française des Somalis et occupé par le Réseau général radio-électrique, en vertu de l’arrêté n° 562 du 6 novembre 1928 tels que figurant au plan ci-annexé, sont réaffectés à la Milice de la Côte Française des Somalis pour compter du 1er janvier 1964.
