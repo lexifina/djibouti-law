@@ -1,0 +1,2 @@
+Il est affecté, au Ministère de l’Enseignement, des Sports et de la Jeunesse de la Côte Française des Somalis, une parcelle de terrain, d’une superficie de deux mille six cent quatre-vingt-quinze mètres carrés environ, sise à Ambouli, lots n°’ 4 et 5 du lotissement du, boulevard d’Ambouli, la dite parcelle telle au surplus qu’elle est figurée au plan annexé au présent arrêté.
+Cette parcelle de terrain est destinée à la construction d’une école et ultérieurement de logements pour les maîtres.
