@@ -1,0 +1,1 @@
+M. Elmi Aouale est engagé à titre essentiellement précaire et révocable, pour compter du 1er avril 1953, en qualité d’électricien, 14e échelon, et mis à la disposition du Directeur du Service des Travaux publics (salaire mensuel de 16.300 fr.) exclusif de toutes autres indemnités autres que celles des allocations familiales.
