@@ -1,0 +1,1 @@
+M. Pottier (Robert), commis principal de 4e classe des Trésoreries coloniales, de retour de congé, est mis à la disposition du Trésorier-Payeur pour compter du 1er octobre 1951, date de son arrivée à Djibouti.
