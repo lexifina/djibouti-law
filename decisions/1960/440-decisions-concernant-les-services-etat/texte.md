@@ -1,0 +1,2 @@
+Les dispositions de l’article 2 de la décision n° 396 du 5 avril 1960 sont abrogées et remplacées par les suivantes :
+« Art. 2: — M, Dauber (Marcel), classé au groupe II, indice 360, qui voyagera accompagné de sa famille composée de son épouse et de sa fille née le 28 mai 1956, est autorisé à utiliser la voie anormale. Il percevra avant son départ une avance représentant les frais de passage Djibouti – Mary-sur-Marne (Seine-et-Marne), à charge pour lui de justification desdits frais dans les conditions prévues par la réglementation en vigueur. »
