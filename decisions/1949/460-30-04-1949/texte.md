@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Kamitsos (Louis), aide-dessinateur, est porté de douze mille francs (12.000 francs), à dix-huit mille francs (18 000 francs), exclusif de toutes indemnités pour compter du 1er avril 1949.
