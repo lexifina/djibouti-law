@@ -1,0 +1,1 @@
+M Giustiniani Jean. conducteur principal, 4 échelon des Travaux Publics du Cadre Supérieur de la Côte Française des Somalis, est mis à la disposition du Ministre des Travaux Publics et du Port, pour servir à la Subdivision «Routes et Bâtiments » des Travaux Publics, pour compter du 21 janvier-1961, date de son retour dans le Territoire.
