@@ -1,0 +1,1 @@
+M. Beyrand (Raymond), inspecteur de 3e classe du Cadre local de Police de la Côte Française des Somalis, mis à la disposition du chef du Service de la Sûreté générale par décision n° 445 du 25 avril 1952, est nommé commissaire spécial de Police de l’Aéroport pour compter du 1er juin 1952.
