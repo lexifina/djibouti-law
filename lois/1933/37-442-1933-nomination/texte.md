@@ -1,0 +1,1 @@
+7 septembre 19553, M. Vital, chef de burraux des socrétarints géneraux, a été hominé chef des bureanx du secrétariat général du Gouvernement ad hoc, pour la séance du Conseil d’administration du 9 septembre 1952.
