@@ -1,0 +1,1 @@
+M. Barra (Pierre), surveillant des travaux publics contractuel assimilé à un surveillant de 2e classé du cadre local des travaux publics, est mis à la disposition du directeur des travaux publics, pour compter du 13 septembre 1950, date de son rétour en Côte française des Somalis.
