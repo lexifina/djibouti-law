@@ -1,0 +1,1 @@
+M. Abdourahman Ahmed (Jacques) est engagé, à titre essentiellement précaire et révocable, en qualité de commis administratif auxiliaire 10e échelon et mis à la disposition du Chef du Service des Domaines, pour compter du 8 juin 1953.
