@@ -1,0 +1,1 @@
+Le gendarme Vault-Deschamps (Roger-Paui), arrivé en Côte Francaise cles somalis ie 19 jenvier 1951, est affecté à l’encadrement de Ja Compagnie de gardes-cercie Ge Djibouti, pour compter du 206 janvier 1951, ,
