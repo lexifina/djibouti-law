@@ -1,0 +1,1 @@
+Est constatée, pour compter du 15 octobre 1968, date de son retour au lerritoire, la reprise de ses fonctions antérieures au Service des Affaires administratives (Ministère des Affaires intérieures), par M. Mohamed Aden Ahmed Dini, administrateur adjoint du cadre territorial (3° échelon).
