@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 219/7e L du 15 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en métropole le Président de la Chambre des Députés.
