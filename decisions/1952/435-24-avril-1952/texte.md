@@ -1,0 +1,1 @@
+Le traitement mensuel de Mohamed Mustapha, patron du remorqueur à la Direction du Port, est porté à 13.500 francs, pour compter du 1er juillet 1951 et à 14.375 francs pour compter du 1er janvier 1952.
