@@ -1,0 +1,2 @@
+Les restes mortels de M»*5 Burdin, née Germunne-Marie Laurent, décédée le 24 octobre 1951 à Djibouti et se trouvant actuellement dans le dépositoire du cimetière de Djibouti, seront transférés au cimetière de Tananarive (lot n° 44, tombe n° 213).
+Les dépenses afférentes au transfert des restes mortels de la défunte jusqu’au lieu de rinhiimation, seront supportées par le budget local, exercice 1951.
