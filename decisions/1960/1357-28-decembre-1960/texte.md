@@ -1,0 +1,1 @@
+L’Adjudant-Chef du Service de Santé des Troupes d’Outre-Mer Casabianca Charles, en service au Secrétariat de la Direction de la Santé Publique, es tremis dans les Cadres à compter du 14 décembre 1960.
