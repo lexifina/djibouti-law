@@ -1,0 +1,1 @@
+La Société «Chic Parisien» et M. Osman Guelleh Farah sont autorisés à acquérir ün immeuble bâti, sis a Djibouti, avenue Georges-Clemenceau et de la rue de Paris, immatriculé au livre du Territoire sous le n° 185 au nom de Mariam, Zeïnah et Saïida Bent Mohamed Al-Makboul.
