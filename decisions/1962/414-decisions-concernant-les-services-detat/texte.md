@@ -1,0 +1,1 @@
+M. Omar Egueh Hersi est autorisé à exploiter dans l’établissement « Au Bon Accueil», quartier n° 3, boulevard 26, maison n° 30,une licence de 4° classe pour la vente en détail ou à consommer sur place de boissons hygiéniques ou aléooliques ne titrant pas plus de 13° d’alcool.
