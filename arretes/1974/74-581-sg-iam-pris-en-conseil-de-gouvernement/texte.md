@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 22/8°L du 23 mars 1974 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires sur le budget annexe du Port de commerce de Djibouti, budget de fonctionnement, de lexercice 1973.
