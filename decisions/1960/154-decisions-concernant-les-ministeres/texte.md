@@ -1,0 +1,1 @@
+Le tableau des effectifs de la Garde Territoriale figurant à l’annexe de l’arrêté n° 1037. du 6 novembre 1951 et de l’arrêté n° 1025 du 19 août 1954, est modifié comme suit, pour compter du 1e janvier 1960.
