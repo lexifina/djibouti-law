@@ -1,0 +1,1 @@
+Est constatée, pour compter du 25 janvier 1971, date de retour au Territoire, la reprise de ses fonctions antérieures au Commissariat central de police de Diibouti rar M. Daniel Sauvayre, brigadier-chef de police.
