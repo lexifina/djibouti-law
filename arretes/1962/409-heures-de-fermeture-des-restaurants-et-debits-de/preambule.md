@@ -1,0 +1,4 @@
+# Préambule
+Art. ler. L’article 5 de l’arrêté n° 1457 du 17 décembre 1957 susvisé est modifié comme suit :
+« Les débits de boïssons à consommer sur place cafés cabarets, bars, cercles, mess, salles de danses, etc. ainsi que les restaurants, auberges et tous établissements similaires seront fermés à 22 heures le 7 avril 1962. »
+Le reste de l’article est sans changement.
