@@ -1,0 +1,1 @@
+M- Rovrand .(Raymond), inspecteur de 5é classe du cadre local de la police, est nom Mmé commissaire de police de la ville de Djibouti en remplacement du maréchal des logis-chef Grellier (Marcel), en congé.
