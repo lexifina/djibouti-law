@@ -1,0 +1,1 @@
+M. Houssein Ahmed Cassim est autorisé à exploiter au « Palace Hôtel», sis à Djibouti, boulevard du Général de Gaulle, une licence de première classe pour la vente de boissons alcooliques ou hygiéniques, à consommer sur place ou à emporter.
