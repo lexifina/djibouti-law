@@ -1,0 +1,1 @@
+Par arrêté du Ministre des colonies, en date du 29 mars 1930, la deuxième session de l’examen spécial pour l’attribution du certificat d’aptitude aux fonctions judiciaires colonia les » sera ouverte au ministère des colonies le 3 juillet 1930,
