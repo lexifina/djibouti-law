@@ -1,0 +1,1 @@
+a été autorisé le payement à la Société des transports de la flotte en gérance (Compagnie des Messageries maritimes ) de la some de 24 fr. 75, montant du prix de transport d’une caisse d’ouvrages de Dbraire, embarquée à Marseille le 24 août 1918, sur le patquebot Dumbéa, à l’adresse du gouvernement de la Côte française des Somalis.
