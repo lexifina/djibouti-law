@@ -1,0 +1,1 @@
+M. Lucien Bergerot, sergent-chef, échelle 4. en position Cadre – hors budget des Armées, est, pour compter du 14 novembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales.
