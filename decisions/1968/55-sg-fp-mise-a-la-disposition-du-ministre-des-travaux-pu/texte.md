@@ -1,0 +1,1 @@
+Michel Rouvier, ingénieur des Travaux publics de l’Etat (4 échelon, indice net 360) est, pour compter du 13 janvier 1968, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port pour servir aux Travaux publics.
