@@ -1,0 +1,1 @@
+M. Allard (Jean), Attaché d’Administration Centrale 2° classe, 2° échelon (indice 350) est mis à la disposition de M. le Ministre des Finances, des Affaires Economiques et du Plan pour compter du 31 mai 1960, date de son arrivée dans le Territoire.
