@@ -1,0 +1,1 @@
+M. Lassaigne, chef du Bureau des Finances du Se crétari: at Général, est chargé de procéder le 30 juin 1909, après la fermeture des guichets du Trésor, à la vérification de la caisse et du portefeuille du Trésorier-Payeur.
