@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 20/©L. du 13 février 1969 de la Commission permanente de la Chambre … de Députés du Territoire Français des Afars et des Issas portant modification du tarif spécial des frais de port sur marchandises en transit.
