@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 767 du 1er juin 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Banabila la concession provisoire d’une bande de terrain d’une superficie de quarante-neuf mètres carrés environ, sise à Djibouti, quartier 1, au prix de cent francs le mètre carré.
