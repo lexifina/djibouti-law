@@ -1,0 +1,1 @@
+M. J.-L. Rouvin, Secrétaire général du Gouvernement, est chargé, en l’absence de M. Herry; des affaires courantes et de la direction de l’Office de Développement et du Tourisme et nommé ordonnateur du budget de ‘cet établissement.
