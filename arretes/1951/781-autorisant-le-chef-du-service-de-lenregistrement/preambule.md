@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er — Le Chef du Service de l’Enrvegistrement, des Domaines’et du Timbre est autorisé prôvisoirement et jusqu’à réception des vignettes aux nouveaux tarifs à compléter par des timbres fiscaux de la série unifiée, le tarif des timbres de connaissements maritimes fixé à 60 francs par délibération du Conseil Représentatif du 16 avril 1951, rendue exécutoire par arrêté n° 756 du 6 août 1951.
