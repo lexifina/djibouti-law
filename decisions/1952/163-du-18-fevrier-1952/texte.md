@@ -1,0 +1,1 @@
+M. Omar Farah, moniteur à l’école publique d’Ali-Sabiet, est chargé des cours d’adultes pour compter du 15 février 1952. Une indemnité mensuelle forfaitaire de 1.500 francs lui est attribuée pour travaux supplémentaires.
