@@ -1,0 +1,3 @@
+Une pension permanente, annuelle de 3.600 francs (trois mille six cents francs Djibouti) équivalente à une infirmité de 10 % est accordée à compter du 17 mars 1950 à l’ex-milicien de 1er classe Ahmed Saleh Sultan, Mle 1566, totalisant le jour de sa libération 5 années de service.
+Compte tenu de la déchéance triennale prescrite par l’article 240 du décret de 1912 du régime financier, la présente décision prendra effet du le: mars 1958. Cette pension sera payée trimestriellement à l’intéressé sur le vu d’un certificat de vie délivré par les autorités compétentes.
+La présente décision annule et remplace la décision 400 du Gouverneur de la C.F.S. en date du 3 février 1950.
