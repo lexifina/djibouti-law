@@ -1,0 +1,1 @@
+il est fait concession définitive à M. Salem Abdallah Mooti, propriétaire arabe d’une parcelle de terrain de 136 m° 93, sise à tender-Dijedid, immatriculée au nom de l’Etat français, sous le n° 193 du Livre foncier de la colonie
