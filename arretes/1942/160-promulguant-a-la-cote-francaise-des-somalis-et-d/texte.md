@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis la loi du 30 novembre 1941 réglant les droits à pension des fonctionnaires et agents civils victimes de faits de guerre et modifiant article 23 (2e paragraphe) de la loi du 14 avril 1924.
