@@ -1,0 +1,1 @@
+M.Abdallah Mohamed Kamil,diplome de l’institut d’etudes politique de l’universite de paris est integre dans le cadre de l’administrateur du territoire et nomme administrateur 1er echelons ,pour compter du 1er ocotbre 1970.
