@@ -1,0 +1,1 @@
+M. Mallorga (René), rédacteur d’administration générale au Service des Finances, est désigné pour procéder à la vérification de la caisse de Aa Bereite cles PET. Se Diibouti à l’occasion de da vemuse de service à M. KRichand (Paul).
