@@ -1,0 +1,2 @@
+Les restes mortels de l’enfant Dieudonné Ranaivoson, décédé à Djibouti le 14 novembre 1951, et actuellement entreposés au dépositoire du cimetière de Djibouti, seront transférés au cimetière d’Ambodivona, Anbohimanahdray, canton d’Ambohimanarina, district de Tananarive-Ville (Madagascar).
+Les dépenses occasionnées par le transfert des restes mortels du défunt jusqu’au lieu de l’inhumation seront supportées par le Budget de la Côte Française des Somalis.
