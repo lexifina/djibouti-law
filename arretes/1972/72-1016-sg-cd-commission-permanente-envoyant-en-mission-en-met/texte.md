@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 280/7e L du 20 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en métropole neuf membres de la Chambre des Députés.
