@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 286/7e L du 29 septembre 1972 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas, portant approbation du compte administratif de la Chambre de commerce et d’industrie de Diibouti pour l’exercice 1971.
