@@ -1,0 +1,2 @@
+Mlle Aïcha Ahmed Aden, titulaire de la carte d’identité française n° 2372, délivrée le 12 juin 1967 à Obock, est engagée au service de la Garde territoriale en qualité de fouilleuse, et classé à la catégorie des O.S.1, ler échelon, indice 150, de la Convention collective du 24 janvier 1967.
+La période d’essai est fixée à quinze jours. Cette période est renouvelable, par tacite reconduction, dans les limites prévues par l’article 11 dela convention précitée.
