@@ -1,0 +1,1 @@
+M. Arnaud (Bernard), ingénieur de 4e classe des Travaux publics de la F.O.M., débarqué à Djibouti le 4 octobre 1953, est mis à la disposition du Directeur des Travaux publics et du Port pour compter de cette même date, pour servir à la Subdivision administrative des Travaux publics.
