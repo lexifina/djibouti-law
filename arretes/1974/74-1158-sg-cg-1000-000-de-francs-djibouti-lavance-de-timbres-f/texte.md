@@ -1,0 +1,2 @@
+L’avance de timbres fiscaux, accordée au chef des Services de là Police nationale par l’article 11 de la deuxième partie de l’arrêté n° 1.533 du 31 décembre 1954, est portée à la somme de 1 000 000 de franes Djibouti,
+Cette avance fera l’objet d’un recu qui comportera la quotité,je nombre et la valeur des vignettes délivrées et qui restera à l’appui de là comptabilité de la Caisse de l’Enregistrement.
