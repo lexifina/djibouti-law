@@ -1,0 +1,1 @@
+M. Deteta Michel, adjudant, en position <cadre-hors budget des armées» est, pour compter du 29 juillet 1973, date de son arrivée dans le territoire, mis à la disposition du ministre de la Santé Publique et des Affaires Sociales, pour servir à l’hôpital Peltier, en qualité de manipulateur radiographe, en remplacement numérique de l’adjudant Guillemin Hervé. rapatrié
