@@ -1,0 +1,1 @@
+Le 2° Classe Milicien Khaireh Bourale, Mle 2365, arrivant en fin de contrat le 11 août 1961, est licencié pour raison disciplinaire pour compter du ler mai 1960. L’intéressé qui totalise 2 ans 8 mois et 20 jours de services effectifs dans la Milice, ne pourra prétendre à aucune indemnité de licenciement, ni pécule.
