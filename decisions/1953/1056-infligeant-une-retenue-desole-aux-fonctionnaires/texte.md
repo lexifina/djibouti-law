@@ -1,0 +1,2 @@
+Les fonctionnaires, employés et agents des divers cadres à salaire mensuel ou journalier, qui ne se sont pas présentés à leur poste le lundi 17 août 1953 et qui se sont absentés pendant les journées des 17, 18 et 19 août sans autorisation régulière, subiront une retenue de trois journées de solde ou salaire.
+Cette retenue sera opérée d’office par le Service des Finances sur le vu d’un certificat individuel ou collectif établi par les chefs des services intéressés.
