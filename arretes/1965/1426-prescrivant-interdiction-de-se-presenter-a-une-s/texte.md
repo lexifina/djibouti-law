@@ -1,0 +1,2 @@
+L’arrêté n° 1039 du 17 juin 1965 portant interdiction de se présenter à une session de permis de conduire en vue de l’obtention des permis de conduire catégorie « B» et au-dessus est prorogé pour une durée dun an, en ce qui concerne le sieur Elmi Gani Farah, Someli Isse Mamaësan rer Aoul Bah fourlaba, né en 1923 à Djibouti de Gani Faralet de Wilo Kachin transporteur, demeurant rue des Écoles quartier 6.
+L’intéressé ne pourra, en conséquence, ses présenter à une session de permis de la conduire avantile 15 juillet 1967.
