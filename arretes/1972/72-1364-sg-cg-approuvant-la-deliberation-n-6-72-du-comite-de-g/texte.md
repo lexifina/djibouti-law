@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 6/72 du Comité de Gestion du Fonds d’Aide et de Prévoyance proposant l’affectation d’une somme de 2.700.000 FD à l’aide à la reconstruction des maisons incendiées du quartier 4 à Diibouti.
