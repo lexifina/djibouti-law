@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Houmed Mohamed,-infirntier de 2e classe, 2e- échélon du cadre territorial de la Santé.publique en service au dispensaire Farah-Had, pour absence sans autorisation le lündi 29 septémbre 1975 jusqu’à 16 heures.
