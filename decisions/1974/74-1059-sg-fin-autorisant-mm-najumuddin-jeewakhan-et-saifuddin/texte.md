@@ -1,0 +1,1 @@
+MM. Najumuddin Jeewakhan et Saifuddin Jeewakhan sont autorisés à acquérir une parcelle de terrain non bâti, d’une superficie de 5625 mètres carrés — lot n° 187 — sise à Djibouti — zone industrielle sud — et faisant partie d’un terrain plus vaste, immatriculé au Livre foncier du Territoire sous le n° 1489 au nom de la Société commerciale et financière de Djibouti.
