@@ -1,0 +1,1 @@
+Est expulsée du Territoire de la Côte Française des Somalis, la nommée Worke Tassema Guebre Woldi alias Kadidja Ali Hassan,de nationalité éthiopienne, née à Harrar (Ethiopie) vers 1931, de Tassama Guebre Woldi et de Tafesseth Woldi.
