@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 167/7° L du 3 avril 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à Mmes Ouloufa, Roukaya et Zam-Zam Othman Saïd la concession provisoire d’une parcelle de terrain sise à Djibouti, quartier 1, titre foncier n° 982.
