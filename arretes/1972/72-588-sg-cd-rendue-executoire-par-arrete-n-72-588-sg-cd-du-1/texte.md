@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 245/7° L du 4 avril 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas relative au Centre d’éducation surveillée.
