@@ -1,0 +1,1 @@
+Est rendu executoire le 1er rôle supplémen taire de la taxe personnelle, impôt locatif et taxe de voirie, exercice 1938, comprenant trois cent soixante-six articles et s’élevant à la som me de quatre vingt-treize mille sept cent qua rante-sept francs et 25/10.
