@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 469/6e L du 20 avril 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant prise. en charge partielle des frais de fonctionnement du Centre d’hébergement pour enfants abandonnés chez les Sœurs Franciscaines de Calais à Djibouti.
