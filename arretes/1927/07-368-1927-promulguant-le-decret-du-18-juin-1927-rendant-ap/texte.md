@@ -1,0 +1,2 @@
+Art 1er — Est promulgué dans la colonie le décret du 1 IS juin 1927, rendant app He able aux colonies, pays de protetorat et territoires à mandat dépendant du ministère des colonies, sauf les Antilles et la Réunion. la loi du 27 mars 1923, modifiant l’article 317 du Code pénal,
+Art 2 — présent arrêté sera enregistré, publié et COMMUNIQUE partout ou besoin sera, et inséré au journal officiel de la colonie,
