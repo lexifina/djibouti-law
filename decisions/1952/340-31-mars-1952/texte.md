@@ -1,0 +1,2 @@
+Un congé administratif de neuf mois, pour en jouir à Perpignan (Pyrénées-Orientales), est accordé à M. Mussard (Louis), surveillant principal de 2e classe, du cadre local des Travaux Publics de la Côte Française des Somalis.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Perpignan seront délivrées à l’intéressé qui voyagera accompagné de sa fille, âgée de 2 ans 1/2, et qui appartient au groupe III.
