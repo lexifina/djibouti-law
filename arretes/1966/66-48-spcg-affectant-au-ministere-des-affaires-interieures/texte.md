@@ -1,0 +1,1 @@
+Il est affecté au Ministère des Affaires intérieures de la Côte Française des Somalis pour les besoins du Cercle de Djibouti, un terrain, d’une superficie de 5.000 mètres carrés environ, sis à Djibouti, lieudit Boulaos, lots n° 11 et 12 du lotissement de l’Abattoir, ledit terrain tel au surplus qu’il est figuré au plan annexé au présent arrêté.
