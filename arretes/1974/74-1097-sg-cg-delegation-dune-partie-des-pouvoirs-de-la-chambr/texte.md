@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 47/8e L du 10 juin 1974 portant délégation d’une partie des pouvoirs de la Chambre des députés à la commission permanente jusqu’à l’ouverture de la première Session ordinaire de 1975.
