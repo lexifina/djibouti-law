@@ -1,0 +1,4 @@
+M. Abdillahi Mohamed Abdilleh, chauffeur auxiliaire, échelle III, 1er échelon, indice 235, en service au Ministère de la Production, de l’Elevage et de l’Agriculture, est affecté au Service de l’Elevage, pour compter du 1er avril 1961, en remplacement numérique de M. Hussein Hassan qui reçoit une autre affectation.
+Est supprimée, pour compter du 1er avril 1961, l’indemnité forfaitaire mensuelle de trois mille francs pour travaux supplémentaires, allouée à M. Abdillahi Mohamed Abdillahi.
+M. Hussein Hassan, chauffeur auxiliaire (échelle II, 1er échelon, indice 175), en service à l’Elevage, est mis à la disposition du Ministre de la Production, de l’Elevage et de l’Agriculture pour compter du le avril 1961 en remplacement du chauffeur Abdillahi Mohamed Abdillen.
+M.Hussein Hassan percevra pour compter du 1er avril 1961 une indemnité forfaitaire mensuelle de trois mille francs (3.000) pour travaux supplémentaires.
