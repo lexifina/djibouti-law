@@ -1,0 +1,1 @@
+Mme Renée Nadaud, professeur technique adjoint, 10e échelon lon (indice nouveau 466) est, pour compter du 23 septembre 1968, date de son «srivée au Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir au Collège d’enseignement technique de Djibouti.
