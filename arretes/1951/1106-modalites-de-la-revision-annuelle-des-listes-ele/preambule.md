@@ -1,0 +1,2 @@
+# Préambule
+Art1 — Les Commissions administratives chargées de la révision annuelle des listes électorales prévue par la loi n° 51-586 (Titre II) du 23 mai 1951 susvisée, seront composées ainsi qu’il suit : Président : le Chef de la Circonscription administrative ou son représentant Membres un représentant de chaque groupement politique choisi parmi .des électeurs inscrits sur la liste électorale de la Circonscription et, à défaut, un suppléant désigné dans les mêmes conditions.
