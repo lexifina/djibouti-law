@@ -1,0 +1,22 @@
+# Loi n° 47/AN/88/2ème L portant approbation d’un prêt entre la République de Djibouti et le Fond Africain de Développement.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-88-2eme-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fond-africain-de-developpement/>
+
+En vigueur : 1988-12-15 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU Les Lois constitutionnelles n°LR/77-001 et LR/77-002 du 27 juin 1977 ;
+VU L'Ordonnance n°LR/77-008 en date du 30 JUIN 1977 ;
+VU Le Décret n°87-098/PRE du 23 novembre 1988 portant nomination des membres du gouvernement.
+
+## Signature
+
+Par le Président de la République
+Chef du Gouvernement
+HASSAN GOULED APTIDON
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
