@@ -1,0 +1,1 @@
+Le Chef du Service de l’Elevage est chargé de la gérance administrative et financière des installations et pêcheries provenant de l’ancienne Coopérative des Pêcheurs de Djibouti, à compter de la date de la présente décision, en remplacement de M. Mohamed Houmed Abro, qui demeure chargé de l’animation et des relations avec les autres pêcheurs.
