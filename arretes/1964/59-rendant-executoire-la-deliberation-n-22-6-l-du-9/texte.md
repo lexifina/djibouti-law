@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du 1er janvier 1964 la délibération n° 22/6e I. du 9 janvier 1964 de l’Assemblée Territoriale de la Côte Française des Somalis portant approbation du Budget local pour l’exercice 1964, arrêté en recettes et en dépenses à la somme de un milliard sept cent trente-quatre millions cent trente mille francs Djibouti (1.734.130.000 F.D.).
