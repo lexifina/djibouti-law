@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 195/7° L du 29 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas complétant la délibération n° 63/7° L du 6 novembre 1969 portant exonérations de droiïts et taxes au profit des administrations civiles de l’Etat pour des opérations d’investissement et d’équipement.
