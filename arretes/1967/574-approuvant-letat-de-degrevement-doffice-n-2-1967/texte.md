@@ -1,0 +1,2 @@
+Art 1er. Est aprouvé l’Etat de dégrèvement d’office n° 2/1967 présenté le 3 avril 1967 par le Ministre des Finances,intéressant quarante-cinq (45) cotes admises partiellement ou en totalité en non-valeur pour un montant de deux millions huit cent duatre-vingt-neuf mille huit cent soixante-seize francs (2889 976 FD).
+Art, 2: — Le Ministre des Finances et le Trésorier-Payeur sont chargés, chacun en ce: qui le concerne, de l’exécution du présent arrêté qui sera publié et communiqué partout où besoin sera.
