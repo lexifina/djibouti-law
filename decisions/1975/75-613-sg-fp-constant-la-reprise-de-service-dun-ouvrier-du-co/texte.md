@@ -1,0 +1,1 @@
+Est constatée pour compter du 28 décembre 1974 la reprise de fonction de M. Ahmed Warsama Mahmoud, ouvrierclasse, 2e échelon du corps territorial des Travaux publics Port en service à la Voirie de Djibouti (District de Djibouti Ministère de l’Intérieur et des Affaires musulmanes) de son congé de longue durée, pour affection non imputation service.
