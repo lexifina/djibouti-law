@@ -1,0 +1,1 @@
+Le milicien de 2e classe Saad Nagueye, mle 2833, de la 4e Compagnie de Milice à Damerdjog, est licencié pour «raison disciplinaire» pour compter du 31 décembre 1963. L’intéressé, qui totalise 9 mois, 6 jours de services effectifs dans la Milice de la C.F.S. étant licencié pour «raison disciplinaire », ne peut prétendre à aucune indemnité.
