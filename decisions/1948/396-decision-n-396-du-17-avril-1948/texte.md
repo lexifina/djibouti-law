@@ -1,0 +1,1 @@
+M. Andriamiaudravola (Victor), écrivain interprète principal de 3° classe des cadres spéciaux de Madagascar, en service au cercle de Djibouti est nommé régisseur-comptable de la Caisse des menues recettes et des menues dépenses, en remplacement de M. Raharijaona (Victor), en instance de départ en congé.
