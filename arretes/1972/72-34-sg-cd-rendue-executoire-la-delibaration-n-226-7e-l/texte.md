@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 226/7°L du 28 décembre 1971 de la Chambre des Députés du Territoire Français des Afars et. des Issas portant approbation des comptes administratifs du budget du Service local et: du budget annexe du Port (exercice 1970).
