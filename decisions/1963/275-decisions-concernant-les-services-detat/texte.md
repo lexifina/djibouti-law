@@ -1,0 +1,2 @@
+L’adiudant du Corps des Télésraphistes des Troupes de Marine (S.O:C.) Franchet Roger (B.S. 450/T), arrivé par avion à Djibouti le 17 février 1963, est affecté au Dépôt de la Milice à Djibouti pour remplir les fonctions d’officier des Transmissions de la Milice de la Côte Française des Somalis.
+L’entretien complet de ce sous-officier supérieur sera à la charge du Ministère d’Etat chargé des Départements et Territoires d’Outre-Mer.
