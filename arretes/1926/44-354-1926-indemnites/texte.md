@@ -1,0 +1,1 @@
+le taux de l’indemnité journalière de vivres à allouer aux rengagés et engagés volontaires devant constituer le contingent à fournir à la colonie de Madagascar est fixé à 4 fr. 25 pour chaque journée comprise entre l’acte de rengagement ou d’engagement et celle de l’embarquement.
