@@ -1,0 +1,1 @@
+Un congé administratif de six mois, pour en jouir à Vannes (Morbihan), est accordé à M. Guilbot (Gaston), administrateur es 2e échelon de la France d’Outre-Mer ce Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Vannes seront se délivrées à l’intéressé qui appartient au groupe II.
