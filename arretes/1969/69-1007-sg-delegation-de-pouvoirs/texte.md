@@ -1,0 +1,3 @@
+Dans le cadre, exclusivement, de la mise en œuvre éventuelle du plan O.R.S.E.C. le Secrétaire général du Gouvernement, ès qualités, désigné comme adjoint du Directeur des secours, a par délégation du Président du Conseil de Gouvernement, autorité directe sur l’ensemble des personnels des directions, services, circonscriptions administratives, offices et établisements publics territoriaux, rassemblés en vue d’une
+opération O.R.S.E.C. ou engagés dans celle-ci.
+IL peut, dans l’exercice de ces fonctions et de cette autorité déléguée, se faire assister par un ou deux fonctionnaires du Territoire de son choix.
