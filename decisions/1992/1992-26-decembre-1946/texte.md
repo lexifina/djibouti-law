@@ -1,0 +1,1 @@
+Le nommé Ibrahim Hussein est engagé, à compter du 10 décembre 1946, en qualité de préposé stagiaire des douanes (3e échelon) en remplacement du préposé des douanes (4e échelon) Ibrahim Yacob, démissionnaire.
