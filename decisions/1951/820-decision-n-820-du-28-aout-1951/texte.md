@@ -1,0 +1,1 @@
+M. Nour Robie, chauffeur auxiliaire en service au Cercle de Dikhil, est mis à la disposition du Chef du Service des Finances, en remplacement de M. Ahmed Aloui Riachi, licencié pour inaptitude physique.
