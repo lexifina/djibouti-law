@@ -1,0 +1,26 @@
+# Décret n° 6-430-1932 Ouverture de crédits supplémentaires au budget local de la Côte française des Somalis (exercice 1931).
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 430 du 30/09/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-430-1932-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1931/>
+
+En vigueur : 1932-09-30 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Président de la République francaise,
+Sur le rapport du Ministre des colonies.
+l' ordonnance organique du 18 septembre 1844, rendue applicable à la Côte française des Somalis par décret du 18 juin 1884;
+Vu le décret du 30 décembre 1912, sur le régime financier des colonies :
+Vu le décret du 16 juillet 1931, portant approbation du budget local de la Côte française des Somalis pour l'exercice 1931,
+
+## Signature
+
+Paul DOUMER.
+Par le Président de la République :
+Le Ministre des colonies.
+
+DE CHAPPEDELAINE.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art.1er |
+| [art-002.md](art-002.md) | Art. 2 |
