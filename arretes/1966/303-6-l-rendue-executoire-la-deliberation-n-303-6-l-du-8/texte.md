@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1190 du 16 juilet 1966, la Commission permanente de l’Assemblée Territoriale a accordé à M. Mohamed Omar Mohamed la concession provisoire ou définitive d’un terrain d’une superficie de 1.790 m2 sise à Ambouli au prix de 100 francs le m2.
