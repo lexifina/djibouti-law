@@ -1,0 +1,2 @@
+# Préambule
+Art 1 ;— Est ordonnée, au profit de l’Union Commerciale et Industrielle de Djibouti; société anonyme dont le siège social est à Djibouti, la restitution de la somme de soixante-treizemille cent vingt cinq francs (73.125 fr.}., acompte versé au titre de l’impôt sur le revenu des valeurs mobilières, devenu restituable pour cause de l’improductivité de la Société (droits d’enregistrement, chapitre 7, art. 5, § 1er).
