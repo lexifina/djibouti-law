@@ -1,0 +1,1 @@
+M. Gabourdès, comptable principal de 1er classe du cadre local des Travaux publics, est nommé, pour compter du 15 juillet 1953, gestionnaire comptable du Magasin des Travaux pu blics et dépositaire comptable du matériel en service du Service des Travaux publics en remplacement de M. Mahmoud Haid, en congé.
