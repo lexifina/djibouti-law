@@ -1,0 +1,1 @@
+M. Gatignol est engagé en qualité de comptable auxiliaise pour compter du 10 décembre 1951 à la solde forfaitaire mensuelle de quarante-deux mille francs (42.000 fr.). L’intéressé est mis à la disposition du Chef des DServices des Finances.
