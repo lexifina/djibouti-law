@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 288/7°L du 29 septembre 1972 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du compte financier de la Caïsse des Prestations sociales pour l’exercice 1971.
