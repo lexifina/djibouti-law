@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 37/6° L. du 22 février 1964 de l’Assemblée Territoriale de la Côte Française des Somalis autorisant le Chef du Territoire de la Côte Française des Somalis à se porter acquéreur d’un bâtiment à à usage de logement sis à Ali-Sabieh et portant autorisation de virement des crédits nécessaires.
