@@ -1,0 +1,3 @@
+Il est mis à la disposition de l’autorité militaire, pour une durée de deux ans à compter du 1° mai 1939, une parcelle de terrain située partie dans le domaine public, partie dans le domaine privé de l’Etat français, d’une superficie de 7.150 mètres ca rrés environ comprenant les lots n°* 357, 358, 374, 375, 377 et 378 du plan de lotissement du plateau du Marabout (partie nord), telle qu’elle ést déterminée au plan annexé au présent arrêté.
+Dans les huit jours de la date du présent arrêté, le receveur des Domaines fera remise de ce terrain à M. le commandant supérieur, des troupes de la Côte francaise des Somalis, et présence qu chef du Service des travaux publics.
+De cette opération, il sera dressé procès-verbal.
