@@ -1,0 +1,15 @@
+# Préambule
+At. 1° —tout réservoir souterrain destiné à l’emmagasinement de liquides inflammables devra etre construit en tôle de bonne qualité, d’une épaisseur minimu de millimétres, solidement assemblée et absolument étanche réservoir ne présentera aucune ouverture libre.
+Tous les joints, raccords de tuyaux et tampons de visite doivent être à sa partie supérieure et au-dessus du liquide contenu ils seront parfaitement étancnes.
+Sa résistance sera vérifiée avant la mise en place par un essai à l’eau, sous la pression de kilogranmme.
+Sa parfaite étanchéité, ainsi que celle es raccords, points et tampons de visite, cera vérifiée après la mise en place et avant la mise en service, le remblavage et la fermeture définitive de la fosse, par un essai au liquide inflammable devant être magasiné, fait sous la pression atmosphérique et, essai devra etre renouvelée toufes les fois qu’il sera fait une réparation pouvant intéresser étanchéité du réservoir.
+Ces essais de résistance et d’étanchéité devront être exécutés par le permissionnaire et à ses frais, en présence d’un agent du service des travaux publics, et seront constatés par un procès-verbal siené par le permiss’onnaire et le fonction-
+naire qui aura Suivi ces essais.
+Le procès-verbal, oui indiquera la date de chacun de ces essais, leurs conditions et leurs résultats devra être transmis au eouverneur avant la mise en service Cette mise en service ne pourra etre faite que sur Pautorisation écrite au gourverneur.
+jes précautions seront prises pour précerver efficacement le réservoir contre l’oxydation
+Le réservoir sera muni d’un dispositif convenable, toujours maintenu en bon état de fonctionnement, permettant de connaître à tout instant le volume du liquide qui y est contenu, sans permettre le dégagement de gaz.
+Ce dispositif pourra comprendre le jauveuge direct à l’aide d’une jauge plongée dans le liquide Dans ce cas, le réservoir sera muni d’un tube spécial plongeant jusqu’à la partie inférieure du réservoir et ouvert à sa partie basse, pour recevoir la jauge tout en formant joint hydraulique pour les gaz.
+Ce tube de jaugeage sera normalement fermé, à sa partie supérieure, par un tampon qui ne sera ouvert que pour le jaugeage Cette opération est interdite pendant l’’approvisionnement du réservoir.
+Un tube dévent ayant une section suffisante, en rapport avec celles des canalisations d’approvisionnement, permettra l’évacuation facile de l’air et des vapeurs du liquide inflammable emmagasiné pendant i’approvisionnement du réservoir.
+Son extrémité sera convenablement protégée contre la plu’e et le soleil, toujours entretenue en parfait état et disposée de manière que les gaz qui Sen dégagent puissent s’évacuer à l’air libre, à une hauteur suffisante, sans refluer dans les loCaux voisins ni près de foyers ou d’installations électriques susceptibles de donner des étincelles.
+L’approvisionnement du réservoir sera effectué à l’aide d’une canalisation fixe spéciale, dont l’orifice de chargement sera disposé de manière à éviter, pendant l’approvisionnement, toute fuite ou tout écoulement de liquide au dehors
