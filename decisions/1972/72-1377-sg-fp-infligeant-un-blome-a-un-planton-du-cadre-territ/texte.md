@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Hassan Miguil Egal, planton principal du corps territorial de l’Administration générale, en service à l’Enregistrement (Ministère des Finances), pour retards et absences injustifiées, et mauvaise manière habituelle de servir.
