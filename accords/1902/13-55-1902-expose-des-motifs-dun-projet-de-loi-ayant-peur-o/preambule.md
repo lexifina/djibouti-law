@@ -1,0 +1,3 @@
+# Préambule
+CONVENTION
+(SUITE)
