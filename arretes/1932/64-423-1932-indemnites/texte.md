@@ -1,0 +1,1 @@
+l’indemnité forfaitaire annuelle allouée primitivement nu trésorier-payeur, à titre de frais de bureau et de ma tériel, est portée de 6.000 à 10.500 francs et dénommée, à nouveau, indemnité forfaitaire pour frais de bureau de matériel et de logement pour compter du 1er novembre 1931.
