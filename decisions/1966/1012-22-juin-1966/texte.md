@@ -1,0 +1,2 @@
+M. Claude Granier, maréchal des logis chef de la Gendarmerie nationale, est nommé chef du Poste administratif d’Arta-Ouéah en remplacement du gendarme Robert Mournet, muté à l’Escadron de Gendaïmerie mobile à Djibouti.
+M. Claude Granier bénéficiéra de l’indemnité de frais de représentation au taux de 36.000 FD prévue par l’arrêté n° 1175 du 3 septembre 1955; cette dépense est imputable sur le Budget local.
