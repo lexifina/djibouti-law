@@ -1,0 +1,1 @@
+promulgué à la Côte Française des Somalis et dépendances l’arrêté du Ministre des Finances en date du 19 février 1945 relatif à l’application aux territoires d’outre-mer de la conversion d’emprunts effectues par la Société nationale des Chemins de fer français en 1942.
