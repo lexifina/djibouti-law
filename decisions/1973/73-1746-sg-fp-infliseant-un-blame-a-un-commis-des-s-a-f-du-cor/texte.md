@@ -1,0 +1,1 @@
+Un deuxième blâme est infligé à M. Dijilal Rayalé Warsama, commis des services Administratifs et Financiers de 2° classe, 3° échelon du corps territorial de l’Administration générale, en service au Port de Commerce de Djibouti, pour absences irrégulières répétées.
