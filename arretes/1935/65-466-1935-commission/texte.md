@@ -1,0 +1,4 @@
+une commission composée de MM. :
+Jourdain, inspecteur des affaires administratives, président ;
+Callard, président de la Chambre de commerce; Rousset, directeur de l’exploitation du chemin de fer franco-éthiopien: Lesdos, agent de la Compagnie des messageries maritimes ;
+Giély, agent de la Compagnie maritime de l’Afrique orientale; Weerts, agent de la maison Besse; Maury, chef du service des donanes; Pla, chef du service des travaux publics, rapporteur, membres, se réunira sur la convocation de son président dans la salle du Conseil d’administration, à l’effet d’examiner les propositions du service des travaux publics en vue de l’aménagement des terre-p’elns du nouveau port du Marabout et formuler, avec son avis, toutes propositions d’amélioration qu’elle jngera utile de soumettre à l’administration locale.
