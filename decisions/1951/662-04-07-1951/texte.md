@@ -1,0 +1,1 @@
+M. Besset (Gilbert), chef de poste de 1er classe des Transmissions coloniales, est mis à la disposition du Chef du Service des P.T.T. pour servir en qualité de Chef de la Station côtière de Djibouti, pour compter du 29 juin 1951, date de son débarquement à Djibouti.
