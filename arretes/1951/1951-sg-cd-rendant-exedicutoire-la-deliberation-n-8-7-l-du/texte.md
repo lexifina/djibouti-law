@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 8/7° L du 19 décembre 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédits. au:budget annexe du port de commerce de djibouti.
