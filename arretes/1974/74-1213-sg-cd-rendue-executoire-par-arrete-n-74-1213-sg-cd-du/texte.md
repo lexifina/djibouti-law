@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 51/8e L du 6 juillet 1974 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas modifiant la délibération n° 102/7e L du 5 mai 1970 portant code de la route du Territoire français des Afars et des Issas.
