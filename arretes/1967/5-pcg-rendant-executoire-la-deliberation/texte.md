@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 400/6eL du 11 juillet 1967 de la Commission permanente de la Chambre des Députés. du Territoire Français des Afars et des Issas portant rectification de l’article 2 de la délibération n° 358/6eL du 29 décembre 1966 et de l’article 3 de la délibération n° 370/6eL du 12 mai 1967.
