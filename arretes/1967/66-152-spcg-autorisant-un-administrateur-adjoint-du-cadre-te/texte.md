@@ -1,0 +1,5 @@
+M. Idriss Ahmed Doudoub, administirateur adjoint de 2e échelon du Cadre territorial, est autorisé à poursuivre ses études à l’Institut des Hautes Etudes d’outre-mer à Paris durant lannée scolaire 1966-1967.
+Pour combter du 28 octobre 196. date présumée de-son afrivée en métropole et nobostant les dispositions contraires de l’arrêté portant fixation du régime de solde des fonctionnaires des cadres territoriaux, M. Idriss Ahmed Doudoub percevra pendant son séjour en métropole, à l’exclusion des allocations familiales, la solde et les accessoires de solde d’un fonctionnaire
+métropolitain classé à un indice équivalent à son indice dans son cadre d’origine. Il percevra également une prime de transport égale à 16 francs métros par mois.
+une retenue bour pension. égale aux 6 % du traitement de bese de l’intéressé dans son cadre d’origine. sera effectuee sur son traitement.
+L’épouse de M. Idriss Ahmed Douboud percevra les allocations familiales sur la base du taux fixé par la réglementation locale et un secours de 15.000 francs Djibouti par mois.
