@@ -1,0 +1,1 @@
+Est constaté pour compter du 1er janvier 1975, le passage au 4e échelon dans le grade d’instituteur principal de 2e classe de M. Djama Vassin Farah, instituteur principal de 2e classe, 3e échelon du cadre territorial de l’Enseignement public du premier degré (régularisation).
