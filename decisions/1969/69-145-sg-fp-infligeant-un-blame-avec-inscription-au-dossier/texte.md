@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est Imilige à M. waiqd L Omar Saleh, infirmier adjoint vétérinaire de 1’° classe, 2° échelon ie du cadre territorial du Service de l’Elevage en service à Obock (Service Vétérinaire, Ministère des Affaires économiques) pour absences répétées et injustifiées.
