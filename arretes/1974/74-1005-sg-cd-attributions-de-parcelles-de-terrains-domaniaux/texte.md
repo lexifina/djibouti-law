@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 43/8e L du 10 juin 1974 de la Chambre des Députés du Territoire français des Afars et des Issas modifiant des attributions de parcelles de terrains domaniaux accordés par délibération n° 387/7e L, du 24 octobre 1973 et par délibération n° 33/8e L du 19 avril 1974.
