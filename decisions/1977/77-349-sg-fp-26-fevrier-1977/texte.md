@@ -1,0 +1,1 @@
+M. Lucien Bonnin, adjoint administratif au chef du Service de l’Elevage, est cumulativement avec ses fonctions, nommé assistant technique auprès du ministre de l’Economie rurale pour compter du 1er février 1977,
