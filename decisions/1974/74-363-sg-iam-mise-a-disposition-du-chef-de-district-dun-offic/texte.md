@@ -1,0 +1,2 @@
+M. Daniel Bouffier, officier de paix, 2e échelon, est pour compter du 6 janvier 1974, date de son arrivée dans le Territoire, affecté à la Portion centrale de la garde territoriale, est mis pour emploi à la disposition du chef de District de Djibouti pour l’encadrement du détachement du commissariat central dans les conditions prévues aux articles 14 et 19 de la délibération n° 37/7e L du 20 mai 1969, modifié par la délibération n° 250/7e L du 12 mai 1974.
+Il assurera les fonctions de commandant du corps urbain.
