@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 78/7°L du 27 décermbre 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas portant approbation des comptes administratifs du budget du service local et du budget annexe dU port, exercice 1968.
