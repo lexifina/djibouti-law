@@ -1,0 +1,1 @@
+Le milicien Moussa Hadjin, Mle 2225, 2e classe, de la 1re Cle, en position d’absence irrégulière du 15 septembre au 18 octobre 1953, sera placé en position de congé sans traitement durant cette période, sans préjudice d’autres sanctions disciplinaires qui peuvent être éventuellement prononcées à son égard par l’autorité qualifiée à cet effet.
