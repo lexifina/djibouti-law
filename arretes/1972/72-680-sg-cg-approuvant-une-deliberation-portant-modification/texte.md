@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 5-72/CPS du 11 février 1972 du Conseil d’administration de la Caisse des Prestations sociales portant modification du budget d’Action sanitaire et sociale et de Prévention de 1972.
