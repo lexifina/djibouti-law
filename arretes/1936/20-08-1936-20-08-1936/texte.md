@@ -1,0 +1,1 @@
+le capitaine Moguez, commandant de l’air de la Côte française des Somalis, chef d’aérodrome du terrain de Gabodé, est commissionné en vue de la constatation des infractions aux dispositions de la législation sur la navigation aérienne.
