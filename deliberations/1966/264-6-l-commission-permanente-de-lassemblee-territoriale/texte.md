@@ -1,0 +1,1 @@
+cutoire par arrêté n° 186 du 9 février 1966, la Commission permanente de l’Assemblée territoriale a accordé à M. Economidès (Constantin) la concession Provisoire d’une parcelle de terrain d’une superficie de 1.406 m° 50%à Djibouti, boulevard de la République (lot n° 539), au prix de 1 franc le mètre carré.
