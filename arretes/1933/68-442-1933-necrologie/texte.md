@@ -1,0 +1,1 @@
+Le Gouverneur de la Cote francaise des Somalis 4 le. Ÿ egret de faire part du décès M. Ferrando (I£o-Antonio-Francisco). greftier du Tribunal supérieur d’appel, survenu à Vichy (Allier), le 24 septembre 1933.
