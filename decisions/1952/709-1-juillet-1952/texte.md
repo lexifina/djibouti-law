@@ -1,0 +1,2 @@
+Un congé administratif de dix (10) moin, pour en jouir dans la Métropole, est accordé à M. Raffaneau (Charles), Ingénieur en chef de 2e classe du cadre général des.Travaux publics de la France d’Outre-Mer, Directeur des Travaux publics de la Côte Française des Somalis.
+Une réquisition de passage par voie aérienne Djibouti-Paris et une réquisitionpar voie ferrée.Paris-Saint-Jean-d’Angély (Cha rente-Maritime) seront délivrées à l’intéressé qui voyagera accom pagné de son épouse (groupe I).
