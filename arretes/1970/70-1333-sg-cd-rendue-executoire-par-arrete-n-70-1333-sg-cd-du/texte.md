@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 135/7e L du 27 octobre 1970 de la Commission pérmanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant un délai supplémentaire d’un an, à des concessionnaires, pour réaliser la mise en Valeur de parcelles de terrains domaniaux attribuées en concession provisoire.
