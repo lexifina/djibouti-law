@@ -1,0 +1,6 @@
+# Préambule
+PREMIERE PARTIE.
+Enregistrement.
+TITRE PREMIER.
+DE L’ENREGISTREMENT DES ACTES ET CONVENTIONS.
+CHAPITRE 1er. — Assiette de l’impôt.
