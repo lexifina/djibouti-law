@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 14/7°L du 7 janvier 1969 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification des conditions d’importation, de taxation et de vente du kath.
