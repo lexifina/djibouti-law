@@ -1,0 +1,1 @@
+M. Beyrand (Raymond), Inspecteur de 3e classe du Cadre local de Police de la Côte Française des Somalis, de retour de est mis à la disposition du Chef du Service de la Sûreté pour compter du 19 avril 1952, date de son débarquement en Côte Française des Somalis.
