@@ -1,0 +1,1 @@
+Est constatée, pour compter du 12 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures à la subdivision «Construction» des Travaux publics (Ministère des Travaux publics et du Port) par M. Jacques Parodi, conducteur des Travaux publics de l’Etat (10° échelon).
