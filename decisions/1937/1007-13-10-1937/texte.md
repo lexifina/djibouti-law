@@ -1,0 +1,1 @@
+M. Perron, administrateur de 1re classe des coionies, est nommé administrateur du cercle de Djibouti en remplacement de M. La Rougery nommé chef du bureau des affaires économiques et l’administration générale.
