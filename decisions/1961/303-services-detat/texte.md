@@ -1,0 +1,1 @@
+Une allocation viagère de reversion de dix-neuf mille cinq cents francs par an, payable trimestriellement, est accordée à Mme Fathma Warsama Egueh, Somalie Gadabourcy, Djibril younis, veuve et héritière du garde territorial de 1er classe Ahmed Waiss, Mle 239, tué dans un accident de la circulation le 26 décembre 1960, alors qu’il était en service commandé.
