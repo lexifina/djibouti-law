@@ -1,0 +1,3 @@
+Sera versé au Budget Annexe du Port et imputé en recette audit budget exercice 1960, chapitre 3, article 3, § 1, le reliquat suivant de la vente aux enchères publiques, non réclamé à l’expiration du délai d’un an.
+Reliquat de la vente du 20 novembre 1960 s’élevant à la somme de cent onze mille quatre cent soixante dix neuf francs Djibouti (111.479) en capital plus mille cent quatre vingt deux francs Djibouti (1.182) d’intérêts, soit au total cent douze mille six cent soixante et un francs Djibouti (112.661).
+Le Trésorier-payeur et le Ministre des Finances sont chargés chacun en ce qui les concerne, de l’application de la présente décision.
