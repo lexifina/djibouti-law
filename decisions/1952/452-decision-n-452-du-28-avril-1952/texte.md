@@ -1,0 +1,1 @@
+Le sergent infirmier des troupes coloniales Carpentier (Jean) est mis à la disposition du Directeur du Service de Santé en qualité de sous-officier chargé du Service du Matériel à l’Hôpital Principal de Djibouti, à compter du 20 avril 1952, date de son débarquement sur le Territoire.
