@@ -1,0 +1,3 @@
+Une autorisation d’absence d’une durée de six mois à compter du 4 février 1963 pour cause de maladie est accordée à M. Djama Abdillahi Mohamed, planton auxiliaire au Service des Contributions Directes (Echelle IV – 1er échelon – indice 330).
+En avvlication des dispositions des articles 47 et 48 du Code du Travail Outre-Mer, M. Djama Abdillahi Mohamed aura droit à une indemnité d’un montant égal à quatre mois de salaire (durée du préavis auquel il peut prétendre à la date du 4 février 1963 pour une ancienneté de service de 11 ans, 10 mois, 3 jours).
+La dépense susvisée sera imputable au Budget du Service local pour l’exercice 1963.
