@@ -1,0 +1,3 @@
+Le 2° Classe Djilal Egueh, Mile 2294, de la 2° Compagnie de Miüilice à Tadjoura, reconnu inapte définitif au rengagement, sera libéré le 1er février 1960 et rayé des contrôles de la Milice pour compter du 2 février, il recevra le Certificat de bonne conduite.
+Conformément aux dispositions de l’article 22 de l’arrêté n° 105 du 3 février 1943, le Milicien de 2° classe Djilal Egueh, qui aura effectué 9 ans de services à la Milice, percevra une indemnité de licenciement égale à trois mois de solde nette, à savoir, 5.486 X 3 — 16.458 F.D. Seize mille quatre cent cinquante-huit francs Djibouti.
+Les droits à vivres, solde, permission ainsi que l’indemnité de licenciement de l’intéressé, seront liquidés par les soins de la 2° Compagnie.
