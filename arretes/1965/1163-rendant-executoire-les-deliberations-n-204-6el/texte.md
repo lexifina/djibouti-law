@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations n° 204/6L et n° 205/6L du 7 juillet 1965 de la Commission Permanente de l’Assemblée Territoriale portant ouverture de crédits supplémentaires au budget du service local, exercice 1965.
