@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 274/7e L du 15 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas approuvant le rapport d’exploitation et les comptes d’Electricité de Djibouti pour l’année 1971.
