@@ -1,0 +1,1 @@
+La Société Saleh Ahmed Awad et C° (S.A.R.L.) est autorisée a acquérir une parcelle de terrain bâti, d’une superficie de 1.170 mètres carrés sise à Djibouti, plateau du Marabout, immatriculée au livre foncier du Territoire sous le n° 564 au nom de M. EE Ph Vishoulis.
