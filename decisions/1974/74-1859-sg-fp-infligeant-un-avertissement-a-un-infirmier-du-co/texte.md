@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Aouled Waberi Bouh, infirmier de 2e classe, 3e échelon du corps territorial de la Santé Publique, en service à l’hôpital Peltier (ministère de la Santé Publique) pour absence non motivée pendant sa garde du 27 octobre 1974.
