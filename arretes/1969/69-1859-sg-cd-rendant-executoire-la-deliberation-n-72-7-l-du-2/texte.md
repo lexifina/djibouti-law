@@ -1,0 +1,1 @@
+Est réndue éxécutoire la délibéfâtion n° 72/7°L du 23 décermbre 1969 de la Chambre des Députés du Territoire Français dés Afars ét des IsSas portant Création d’une Surtaxe Spéciale sur l’essence de pétrole et les supercarburants.
