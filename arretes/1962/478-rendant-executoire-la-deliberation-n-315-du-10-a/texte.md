@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du 19 janvier 1962 la délibération n° 315 du 10 avril 1962 de l’Assemblée Territoriale de la Côte Française des Somalis fixant le montant de l’indemnité forfaitaire mensuelle allouée aux médecins chargés du service des consultations externes à l’Hôpital Peltier.
