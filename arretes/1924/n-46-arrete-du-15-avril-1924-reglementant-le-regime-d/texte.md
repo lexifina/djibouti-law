@@ -1,0 +1,8 @@
+Art, 1er— Les permissions de 1 jours avec solde de présence et accessoires de solde peuvent être accordées annuellement aux askaris de la police Si Ia durée est de plus de 15 jours toutefois dépasser un mois, le bénéficiaire de la permission n’aura droit qu’à la moitié de la solde et indemniiés pendant toute sa permission, Si cette permission est de plus d’un mois, elle entraîne le retrait total de la solde et indemnités. pour la durée de absence
+Art, 2, joule punition obtenue dans le courant de l’année viendra en déduction sur la durée de la permission accordée avec solde de presence.
+Art, 3.— Le nombre des permis sionnaires ne pourra dépasser enr aucun cas le 1/10 de l’effectif présent, Le commissaire de police pourra suspendre les permissions si les nécessités du service l’exigent
+Art 4– Les permissions avec solde de présence ne dépassant pas une durée de 15 jours seront accordées par le secrétaire général, par délégation du Gouverneur, Les permissions qui pour un motif quelconque entraîneront le retrait partiel
+ou total de la solde seront accordées par le chef de la colonie.
+Art, 5.— L’askari qui rentre après le lerme fixé pour lexpiration de sa permission, ne reçoit aucune solde pour la durée de son absence illégale, Il sera en outre puni conformément aux dispositions de l’article 3 de larrêté du 6 février 1923 Si
+l’absence constatée dépasse une durée de 15 jours, son licenciement sera prononcé d’office sans qu’il ne puisse prétendre à aucune indemnité,
+Art, 6.— Le Secrétaire général du gouvernement et le commissaire de police sont chargés, chacun en ce qui le concerne, de l’exécution du présent arrêté qui sera enregistré, publié et communiqué partout où besoin sera et inséré au Journal officiel de la colonie.
