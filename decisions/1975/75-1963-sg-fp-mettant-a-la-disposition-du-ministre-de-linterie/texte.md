@@ -1,0 +1,1 @@
+M. Gaich Emond , gardien chef de la prison civile, 7° échelon est pour compter du 17 octobre 1975, date de son arrivée dans le Territoire mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir à la prison civile de Djibouti,en remplacement numérique de M. Boussereau.
