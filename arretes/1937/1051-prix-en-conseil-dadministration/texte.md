@@ -1,0 +1,1 @@
+Est rendu exécutoire de rôle supplémentaire de la taxe personnelle, impôt locatif et taxe* de voirie (exercice 1937». comprenant quatorze articles et s’élevant à la somme ele trois mille six cent quarante-trois francs quatre-vingt-quinze centimes.
