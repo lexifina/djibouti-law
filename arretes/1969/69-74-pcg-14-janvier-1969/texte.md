@@ -1,0 +1,3 @@
+M. Abdi Dembil Egual, Ministre qu +Tavall, Est Ces à compter du 15 janvier 1969, cumulativement avec ses fonctions actuelles, de l’intérim du Président du Conseil de Gouvernement, pendant la durée de l’absence de M. Ahmed Dini Ahmed, en mission.
+M. Ahmed Dini Ahmed reprendra ses fonctions de Président du Conseil de Gouvernement par intérim à son retour de mission
+M Chehem Daoud Clehem Ministre de la santé publique et des Affaires sociales, est chargé, à compter du 15 janvier 1969, cumulativement avec ses fonctions actuelles, de l’intérim du Ministre des Affaires intérieures, pendant la durée de l’absence de M. Ahmed Dini Ahmed, en mission.
