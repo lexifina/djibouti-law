@@ -1,0 +1,9 @@
+# Décision n° 352 à la décision n° 352 du 5 avril 1948.
+
+Décision · Journal officiel de la République de Djibouti, n° 4 du 30/04/1948 · <https://www.journalofficiel.dj/texte-juridique/decision-n-352-a-la-decision-n-352-du-5-avril-1948/>
+
+En vigueur : 1948-04-30 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  lieu de : |
