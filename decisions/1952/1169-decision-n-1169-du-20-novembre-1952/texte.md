@@ -1,0 +1,1 @@
+Le nommé Djama Egal est engagé en qualité de domestique au salaire mensuel forfaitaire dé cinq mille francs (5.000 fr.) et mis à la disposition de l’Inspecteur du Travail en Côte Française dès Somalis, pour compter du 1er août 1952.
