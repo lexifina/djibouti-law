@@ -1,0 +1,2 @@
+Art 1 — Est promulgué a la Cote francaise des Somalis le décret du 6 mars HR: susvisé portant mise en applicatioin provisoire de la convention de commerce et de navigation et de l’arrangement complémentaire entre Ja France et l’Espagne signés à Paris le 6 mars 1934.
+Art 2—- Le présent arrété sera enregistré, publié e t cor ununiqué partout où besoin sera et inséré au Journal officiel de la colonie.
