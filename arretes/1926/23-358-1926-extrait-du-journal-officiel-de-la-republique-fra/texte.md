@@ -1,0 +1,1 @@
+M. Alles (R obert), commis principal de 3e classe des postes et telégraphes de la Côte des Somalis, dans la position de disponibilité sans traitement, depuis le 15 octobre 1922, a été maintenu, d’office, dans ladite position, pour une dernière période d’une année, à compter du 15 octobre 1926.
