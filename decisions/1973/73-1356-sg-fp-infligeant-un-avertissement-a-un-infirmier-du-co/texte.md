@@ -1,0 +1,1 @@
+Un avertissement avec inscription au dossier est infligé à M. Mohamed Houmed Daoud, infirmier de 2e classe, 1er échelon du corps territorial de la Santé publique, en service au dispensaire d’Obock, pour absence non motivée de la journée du lundi 6 août 1973.
