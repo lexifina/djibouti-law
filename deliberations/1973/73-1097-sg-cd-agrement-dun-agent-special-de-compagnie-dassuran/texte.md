@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 364/7e L du 28 juin 1973 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant agrément d’un Agent spécial de compagnies d’assurances.
