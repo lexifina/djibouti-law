@@ -1,0 +1,1 @@
+Est constatée, pour compter du 8 décembre 1969, date de son retour dans le Territoire; la reprise de ses fonctions antérieures de chef de bureau d’études à la Direction des Travaux publics (Ministère des Travaux publics et du Port),.par M. Michel Rouvier, ingénieur des Travaux publics de l’Etat, 4° échelon.
