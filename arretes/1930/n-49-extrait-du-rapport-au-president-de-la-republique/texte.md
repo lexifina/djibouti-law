@@ -1,0 +1,2 @@
+L’activité Cconomique de la Côte des Somalis, exutoire de Abyssinie, s’est maintenue satisfaisante. Le commerce extérieur de la colonie a atteint 1 milliard 165.794645 francs contre 1.099.4711.000 francs en 1827. Ce commerce consiste presqne en totalité en marchandises en transit venant où allant en Abyssinie.
+La production locale, limitée à l’extraction du sel, à fourni à l’exportation des quantités susiblement supñrieures à celles de année miécédente, 25.422 tonnes valant 1.937.330 francs, contre18.19535 tonnes en 1927, représentent une valeur de 1.483.640 francs.
