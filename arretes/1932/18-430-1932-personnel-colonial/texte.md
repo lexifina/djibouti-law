@@ -1,0 +1,2 @@
+M. Roussan. ingénieur principal de 4e classe, 2e échelon, à titre provisoirée, du cadre général des travaux publics des colonies, est nommé, à titre définitif, à compter du 18 décembre 1931, ingénieur de 4e classe, 2e échelon, pour continuer ses services à la Côte francaise des Somalis
+Par application des lois militaires, M. Ronssan est reclassé comme suit : ingénieur principal de 3e classe, conserve un réeliquat de 13 mois 27 jours.
