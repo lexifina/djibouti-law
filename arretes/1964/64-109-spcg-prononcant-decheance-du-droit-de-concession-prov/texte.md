@@ -1,0 +1,1 @@
+Il est fait retour, au Domaine du Territoire, d’une parcelle de terrain sise à Ambouli, lot n° 8 du lotissement du boulevard d’Ambouli, ce en application de l’article 5 de la délibération n° 13/6° L de l’Assemblée Territoriale, le concessionnaire n’ayant pas acquitté léfprix fixé dans le délai prgévu.
