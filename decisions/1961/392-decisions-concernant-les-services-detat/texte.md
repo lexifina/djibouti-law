@@ -1,0 +1,1 @@
+wM. Fourcade (Philippe), élève-ingénieur. des Travaux agricoles (indice het 290) est mis à la disposition du Ministre de la Production, de l’Elevage et de l’Agriculture, pour compter du 25 mars 1961, date de son arrivée dans le Territoire.
