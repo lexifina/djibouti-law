@@ -1,0 +1,1 @@
+La stabilité des taux, des règles d’assiette et du mode de perception de la patente spéciale, ainSsi que le maintien de l’exclusion de tout autre impôt dans les conditions prévues par l’article 11.63.18 du Code général des Impôts, sont garantis à la Société d’Etudes et d’Investissements de l’Afrique Orientale, pour une nouvelle période de dix années, à compter du 1 janvrer 10971,
