@@ -1,0 +1,2 @@
+# Préambule
+Sous réserve de l’application des arrangements spéciaux, conclus en vertu de l’article 8 de la constitution de l’Union postale universelle, l’échange des correspondances ordinaires et recommandées, lettres et boîtes avec valeur déclarée, colis postaux, mandats de poste, virements postaux, envois contre remboursement et recouvrements entre la République de Djibouti d’une part, et les pays étrangers, d’autre part aura lieu dans les conditions fixées par la convention et les arrangements.
