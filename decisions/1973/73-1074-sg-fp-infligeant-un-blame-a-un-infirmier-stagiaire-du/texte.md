@@ -1,0 +1,1 @@
+Un blôme est infligé à M. Abdoulkader Iwad Ali, infirmier stagiaire du corps territorial de la Santé publique, en service au dispensaire de Dihkil (Ministère de la santé publique et des Affaires Sociales), pour absence non motivées.
