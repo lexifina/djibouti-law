@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 355/7e L du 18 maï 1973 de la Chambre des députés du Territoire français des Afars et des Issas, envoyant en mission en Métropole un membre de la Chambre des députés.
