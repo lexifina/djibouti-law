@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 481 du 5 octobre 1963 de la Commission Permanente de l’Assemblée Territoriale portant création d’un poste d’agent contractuel au Service de l’Information.
