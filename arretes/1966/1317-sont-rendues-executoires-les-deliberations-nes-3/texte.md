@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations nes 311, 312, 313 et 314/6e L du 28 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant ouverture et virements de crédits au Budget local, exercice 1966.
