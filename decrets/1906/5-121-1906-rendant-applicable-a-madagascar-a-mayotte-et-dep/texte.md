@@ -1,0 +1,6 @@
+Monsieur le Président.
+Le décret du 27 décembre 1851, relatif aux lignes télégraphiques eaux transmissions par signaux, a été rendu applicable, soit intégralement, soit partiellement, dans quelques colonies par divers actes de la métropole, Le développement considérable des réseaux télégraphiques dans nos possessions d’outre-mer a établi la nécessité d’une réglementation générale dont les dispositions soient susceptibles d’être appliquées à toutes nos colonies, sauf les dérogations imposées par le régime légal propre à certaines d’entre elles,
+Pour satisfaire à cet objet, le décret dont il s’agit serait appliqué intégralement dans les colonies de Madagascar, à Mayotte et dépendances, à la Côte francaise des Somalis, dans les établissements francais de l’Inde et dans les établissements francais de l’Océanie.
+Le méme décret, moins l’article 4, serait rendu applicable à la Martinique et à la Réunion, À Saint-Pierre et Miquelon les articles 10 et 11 ayant déjà été promulgués, il suffirait de prescrire l’application des dispositions contenues dans les autres articles du décret.
+C’est dans ce but que mon département a préparé le projet de décret ci-joint, que j’ai l’honneur de vous prier de vouloir bien revètir de votre signature.
+Je vous prier d’agreer, monsieur le Président, l’hommage de mon profond respect.
