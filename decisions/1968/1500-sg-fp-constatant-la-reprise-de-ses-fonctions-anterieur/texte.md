@@ -1,0 +1,1 @@
+Est constatée, pour compter du 11 septembre 1968, date de son retour au Territoire, la reprise de ses fonctions antérieures par, M. Edgard Xiste, surveillant général 3e groupe, 9 échelon, indice nouveau 379, en service au Lycée de Djibouti
