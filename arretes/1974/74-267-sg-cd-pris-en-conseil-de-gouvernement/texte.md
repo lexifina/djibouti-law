@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 16/8°[L du 2 février 1974 de la Commission pérmanente de la Chambre des députés du Territoire français des Afars et des Issas accordant des par-celles de terrains domaniaux en concession provisoire.
