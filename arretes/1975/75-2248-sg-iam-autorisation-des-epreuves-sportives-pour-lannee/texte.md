@@ -1,0 +1,1 @@
+La Fédération des Sports du Territoire français des Afars et des Issas, est autorisée à organiser des courses cyclistes et des rallyes suivant le calendrier susvisé pendant la saison 1975-1976 qui débutera le 23 novembre 1975 jusqu’aux environs de fin libéré le 24 octobre 1975.
