@@ -1,0 +1,2 @@
+M. Därmendrail Joseph, Administrateur de 7° échelon des Affaires d’Outre-Mer, est nommé Adjoint au Commandant de Cercle de Djibouti pour compter du 29 juillet 1962, date de son arrivée en Côte Française des Somalis.
+M. Darmendrail Joseph est, à compter|du 13 août 1962 et pour la durée de l’absence de M. Morin, titulaire d’un congé annuel à passer en Métropole du 13 août au 27 septembre 1962, nommé par intérim, Commandant de Cercle de Djibouti et Président du Tribunal de 2° degré dans le ressort du dit Cercle.
