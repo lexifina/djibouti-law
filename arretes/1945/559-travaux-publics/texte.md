@@ -1,0 +1,1 @@
+sont intégrés blics dans le cadre local des Travaux Pu les agents dont les noms suivent : En classe qualité de comptable principal de 1re : M. Mahamoud Haïd. En qualité de comptable de 1re classe M. : Gabourdes Louis. Ces intégrations porteront effet au point de vue ancienneté vièr pour compter du 1er janvier 1944, au point de vue pécuniaire compter du pour 1 er juillet 1945.
