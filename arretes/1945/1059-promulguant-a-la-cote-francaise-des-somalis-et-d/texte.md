@@ -1,0 +1,1 @@
+Le décret n° 45-1.960 du 30 août 1945 modifiant à titre exceptionnel dans les territoires de l’Afrique Occidentale Française, au Togo, en Afrique Equatoriale Française, au Cameroun et à la Côte Française des Somalis, la condition de résidence exigee pour l’inscription des citoyens français sur les listes électorales.
