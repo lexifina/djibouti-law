@@ -1,0 +1,4 @@
+Un passage de retour à destination de Tananarive (Madagascar) est accordé à M. Ranaivoson (Jean), comptable contractuel au Service des Finances, dont lé contrat arrivant à expiration le 3 octobre 1960, n’est pas, sur sa demande, renouvelé.
+M. Ranaivoson (Jean), qui aura accompli au 3 octobre 1960, 24 mois de séjour effectif et ininterrompu dans le Territoire, aura droit à une indemnité compensatrice de congé payé, calculée à raison de 7 jours et demi de salaire, décompté suivant les dispositions de l’article 124 du Code du Travail, par mois de présence.
+M. Ranaivoson (Jean), classé au groupe III, voyagera accompagné de son épouse, et quittera Djibouti, par première occasion maritime ou aérienne (classe touriste), selon les possibilités, à partir du 3 octobre 1960.
+La dépense est imputable sur le budget local.
