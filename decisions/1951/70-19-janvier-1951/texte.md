@@ -1,0 +1,1 @@
+1° M. Le Hir (Roger), instituteur de 5e classe, est mis à la disposition du chef du service de l’enseignement pour servir au Groupe scolaire de Djibouti en qualité d’adjoint, pour compter du 17 janvier 1951, date de son arrivée à Djibouti.
