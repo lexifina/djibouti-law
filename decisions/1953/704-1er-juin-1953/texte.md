@@ -1,0 +1,1 @@
+Mme Bar Houssein God est engagée, à titre essentiellement précaire est révocable, en qualité d’infirmière auxiliaire 6e échelon et mise à la disposition du Directeur du Service de Santé pour compter du 1er juin 1953, en remplacement numérique de Mme Kadidja Abdillahi, démissionnaire.
