@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est infligé à M. Idriss Farah, observateur auxiliaire du Service de la Météorologie pour incorrection à l’égard de son Chef de Service dans une requête adressée au Chef du Territoire.
