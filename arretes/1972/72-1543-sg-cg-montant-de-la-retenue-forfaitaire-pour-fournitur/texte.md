@@ -1,0 +1,3 @@
+En application de l’article 90 de la délibération n° 3*L du 20 mai 1969, les gradés et gardes territoriaux logés parêt l’Administration dans des logements individuels ne subissent aucune retenue de logement.
+Lorsque leur logement ne comporte pas de compteurs d’électricité ni d’eau individuels, ils subissent une reténue mensuelle forfaitairé de 1.500 FD (mille cing cents). 5$ Lorsque leur logement comporte des compteurs individuels, ils règlent leurs factures directerment à la Régie concernée. Lors qu’un logement comporte seülement un compteur d’électricité, la fourniture de l’eau est gratuite.
+Les gradés et gardes encasernés et logés chambrées collectives ne subissent aucune retenue d’électricité et d’eau.
