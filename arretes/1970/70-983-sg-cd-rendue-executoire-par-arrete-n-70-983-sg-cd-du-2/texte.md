@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 127/7°L du 13 août 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas approuvant la délibération n° 70/1/CLR du 17 juillet 1970 du conseil d’administration de la Caisse locale de retraites approuvant le compte administratif 1969.
