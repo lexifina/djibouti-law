@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis la loi du 12 août 1942 tendant à étendre aux territoires d’outre-mer, relevant du secrétariat d’Etat aux colonies, autres que les Antilles et da Réunion les dispositions de la loi du 9 décembre 1941 relative au régime pénitentiaire des détenus avant formé un pourvoi devant la Cour de cassation.
