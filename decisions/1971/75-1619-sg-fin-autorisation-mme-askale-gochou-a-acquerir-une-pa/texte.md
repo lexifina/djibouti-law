@@ -1,0 +1,1 @@
+_ Mme Askale Grocnou est autorisee a acquerir Uune parcelle de terrain bâti, d’une superficie de 180 mètres carrés, sise à Djibouti, avenue de Brazzaville, immatriculé au Livre foncier du Territoire sous le n° 471, au nom de Mme Harsuta Chimanlal,veuve de Chimanla!l Kaniee Parekh.
