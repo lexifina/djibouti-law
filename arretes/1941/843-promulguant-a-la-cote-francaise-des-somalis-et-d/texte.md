@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 31 octobre 1941 réprimant les activités communistes et anarchistes dans les territoires relevant du Secrétariat d’Etat aux colonies.
