@@ -1,0 +1,2 @@
+# Préambule
+Art 1er — Sous réserve de I’application des arrangements spéciaux, conclus en vertu de V’article 8 de la constitution de a l’Union postale universelle, l’échange des correspondances ordinaires et recommandées, lettres et boites avec valeur déclarée, colis postaux, mandats de poste, virements postaux, envois contre Bs remboursement et recouvrements entre le Territoire frangais des Afars et des Issas, d’une part, et les pays étrangers, d’autre part, aura lieu dans les conditions fixées par la convention et les arrangement.
