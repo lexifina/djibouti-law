@@ -1,0 +1,2 @@
+Les restes mortels de l’Adjudant-Chef d’Infanterie de Marine Sirjacques André, décédé à Djibouti, le 5 décembre 1959, actuellement au dépositoire de Diibouti. seront transférés au cimetière de Montignac (France).
+Les dépeñses occasionnées par ce transfert seront à la charge du budget de l’Etat (Budget des Afmées « Affaires d’Outre-Mer » chapitre 32-83 — Transport du Personnel et Déplacements — article 1)
