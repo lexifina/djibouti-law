@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 269/7e L du 26 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant modification du plan directeur d’urbanisme de Djibouti concernant les ernprises des voies : boulevard de la République, boulevard du Général de Gaulle.
