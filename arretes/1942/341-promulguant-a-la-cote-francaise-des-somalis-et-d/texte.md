@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances le décret du 23 mai 1942 étendant aux territoires relevant du se crétariat d’Etat aux colonies les dispositions de la loi du 7 août 1941 relative aux acquisi tions immobilières par l’Etat.
