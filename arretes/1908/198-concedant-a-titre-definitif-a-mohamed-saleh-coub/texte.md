@@ -1,0 +1,5 @@
+Art, 1er, — Il est fait concession définitive au sieur Mohamed Saleh Coubèche, négociant à Djibouti, du lot de terrain portant le n° 121 du plan cadastral de Djibouti, d’une superficie totale de 226 mq. 98 environ, qui lui avait été accordé, à titre provisoire, par arrété du 15 juin 1906.
+Art, 2, — La Colonie ne fournit au concessionnaire aucune garantie contre les troubles, évictions ou revendications des tiers,
+Art 3. — Les dispositions des arrêtés sur le régime des concessions, ainsi que toutes les réglementations qui pourraient intervenir dans la suite en la matière sont applicables à la concession qui fait l’objet du présent arrêté.
+Art 4, — Les formalités d’enregistrement et de transcription du présent arrêté seront remplies par le concessionnaire aux frais du concessionnaire et par ses soins au bureau de Enregistrement et ce, dans un délai de un mois, à compter de la notilication de l’arrêté.
+Art, 5. — Le présent arrêté sera enregistré, communiqué partout où besoin sera et inséré au Journal Officiel de la Colonie.
