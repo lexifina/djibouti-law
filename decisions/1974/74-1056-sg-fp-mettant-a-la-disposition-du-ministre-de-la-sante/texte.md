@@ -1,0 +1,1 @@
+M. Cayer Jean-Marie, adjudant-infirmier, en position «Cadres hors budget des armées» est, pour compter du 17 mai 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique, pour servir à la pharmacie d’approvisionnement de l’Hôpital Peltier, en remplacement numérique de l’adjudant-chef Pichet René, rapatriable pour fin de séjour.
