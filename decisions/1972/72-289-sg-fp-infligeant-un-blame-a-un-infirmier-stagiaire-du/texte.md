@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Saïd Aboubaker Mohamed, infirmier stagiaire en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour avoir abandonné son service à 13h 30 alors qu’il était de garde au pavillon Peltier (femme) le samedi 22 janvier 1972 dé 12 heures à 15 h 30.
