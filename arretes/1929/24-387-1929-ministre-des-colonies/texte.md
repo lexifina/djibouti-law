@@ -1,0 +1,1 @@
+du Ministre des colonies, en date du 24 janvier 1929, pris en exécution des lois des 1er avril 1923 (art. 7), 9 décembre 1927 et 19 mars 1928, accordant des rappels d’ancienneté pour service militaire, lies gouverneurs des colonies et résidents supérieurs ont été reclassés de la façon suivante :
