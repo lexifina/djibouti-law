@@ -1,0 +1,1 @@
+Le sergent Darnau (Georges), du Dépôt de Transition (Transmissions), est placé ! dans la position « hors-cadres) et affecté à la Milice de la Côte Française des Somalis (1re Cie, P.M.H.), à compter du 1er février 1951.
