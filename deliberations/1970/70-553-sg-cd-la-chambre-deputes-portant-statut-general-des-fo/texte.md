@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 103/7: L du 5 mai 1970 de la Chambre des Députés du Territoire Français des Afars et des Issas portant Statut général des fonctionnaires des cadres territoriaux.
