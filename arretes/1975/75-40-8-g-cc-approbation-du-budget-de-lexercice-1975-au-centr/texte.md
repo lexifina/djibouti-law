@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1-74/CEGD du 31 octobre 17164 Conseil d’Administration du centre d’Etudes Géologiques de la Developpement ,ayant arret le eentre d’Etudes Géologiques et en dépenses a la somme de seize millions huit cent mille Francs djibouti (160800 fd).
