@@ -1,0 +1,1 @@
+Est rendu exécutoire la délibération n° 74/8° L du 12 décembre1974 de la Chambre des Députés du Territoire francais des Afars et des Issas, portant protection des eaux souterraines et eaux de surface.
