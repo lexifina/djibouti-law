@@ -1,0 +1,1 @@
+M. Cau Mario, chef de garage contractuel, est pour compter du 15 juin 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir au District de Djibouti, en qualité de chef de garage à- la voirie.
