@@ -1,0 +1,2 @@
+# Préambule
+Art 1- Est dans le Territoire Français des Afars et des Issas le décret n° 68-1040 du 22 novembre 1968 portant règlement d’administration publique pour l’application de article 38 de la loi n° 66-948 du 22 décembre 1966 étendant à certains territoires d’outre-mer la réglementation métropolitaine concernant le fonds de garantie et certaines dispositions relatives à l’institution d’une oblisation d’assurance en matière de circulation de véhicules.
