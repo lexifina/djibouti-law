@@ -1,0 +1,1 @@
+Est constatée, pour compter du-25 janvier 1971, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service des Travaux publics (Ministère des Travaux publics et du Port), par M. Robert Poirson, conducteur des Travaux publics de l’Etat, 3° échelon.
