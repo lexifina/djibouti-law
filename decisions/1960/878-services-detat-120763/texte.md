@@ -1,0 +1,4 @@
+MM. Abdi Ibrahim Mohamed, Robert Dibeth, Mohamed Abdou Wahab, Jean-Claude Dirié, Ibrahim Ali Mohamed, Mahamoud Saïd Ali, Omar Maine Roblé, percevront chacun avant leur départ de Djibouti l’indemnité de premier équipement d’un montant de deux cent cinquante nouveaux francs (250 NF), soit dix mille huit cent soixante-neuf francs Djibouti (10.869 FE. Dj.).
+Cette somme sera à valoir sur le montant de l’indemnité de trousseau et de premier équipement qui leur sera prochainement versé.
+MM. Abdi Ibrahim Mohamed, Robert Dibeth, Mohamed Abdou Wahab, Jean-Claude Dirié, Ibrahim Ali Mohamed, Mahamoud Saïd Ali, Omar Maine Roblé, quitteront Djibouti par voie maritime dans la première quinzaine de septembre 1960, à destination de Marseille en troisième classe. Il leur sera en outre délivré une réquisition de chemin de fer de Marseille à leur Centre d’Etudes respectif.
+Les dépenses seront supportées par le budget local, exercice 1960 en son chapitre 14.
