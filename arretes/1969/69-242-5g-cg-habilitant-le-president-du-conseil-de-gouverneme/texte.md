@@ -1,0 +1,2 @@
+Président du Conseil de Gouvernement du Territoire Français des Afars et des Issas, est habilité au nom du Territoire à ester en justice dans l’affaire de l’accident survenu le 25 mai 1968 au carrefour de la route d’Arta et de l’avenue du Stade entre le camion n° 850 D3 de la Voirie et un véhicule particulier.
+Me Castel, avocat-défenseur, est chargé de la défense des intérêts du Territoire en ce qui concerne cette affaire.
