@@ -1,0 +1,2 @@
+# PrÃ©ambule
+DECRETE
