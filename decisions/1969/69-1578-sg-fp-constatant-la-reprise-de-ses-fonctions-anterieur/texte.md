@@ -1,0 +1,1 @@
+Est constatée, pour,compter du 10 octobre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service des Contributions (Ministère des Finances et du Plan) par M. Raymond Sandjivy, agent de constätation, 8° échelon, ME 1, des services extérieurs de la Direction générale de Impôts.
