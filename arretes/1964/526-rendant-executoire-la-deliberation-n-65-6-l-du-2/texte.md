@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 65/6e L du 27 mars 1964 de la Commission permanente de l’Assemblée Territoriale portant fixation du loyer maximum des locaux à usage d’habitation et à usage professionnel.
