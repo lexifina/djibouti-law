@@ -1,0 +1,1 @@
+Les crédits de paiement du plan d’équipement et de développement économique et social (Cinquième Plan – Plan Quinquennal 1966-1970) non consommés au 31 décembre 1970 sont arrêtés comme suit par chapitres budgétaires et reportés sur l’exercice 1971:
