@@ -1,0 +1,1 @@
+M. Rognon (Robert), adjoint des services civils après dix-huit mois, dans ls position de disponibilité depuis le 25 décembre 1925, est maintenu dans ladite position pour une période d’une année, à compter du 25 décembre 1927.
