@@ -1,0 +1,1 @@
+Un blame est infligé à M. Ibrahim Barre Darar, contrôleur sanitaire au service quarantenaire du Port pour absence dans la nuit du 16 au 17 juillet 1972, ayant entraîné du retard dans facheminement de deux télégrammes médicaux destinés à un navire en mer.
