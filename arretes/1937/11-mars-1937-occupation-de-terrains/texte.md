@@ -1,0 +1,1 @@
+Il est accordé, sous réserve des droits des tiers à Association générale ita lienne «le pétrole, représentée à Djibouti par MM. Zavaglia et Kauten, un permis d’occupa tion provisoire de 10.000 mètres carrés, situé sur la route d’Ambouli, au nord du terrain ac cordé à la Société franco-italienne de transit.
