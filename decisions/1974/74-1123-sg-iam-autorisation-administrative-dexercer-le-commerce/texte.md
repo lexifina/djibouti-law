@@ -1,0 +1,1 @@
+Une autorisation administrative est accordée à M. Massoni Charles, pour exercer le commerce des boissons, licence de lre classe à l’établissement dénommé « Société d’exploitation hôtelière et de casino », sis au quartier de la Croix de Lorraine, Maison Artaxet à Djibouti.
