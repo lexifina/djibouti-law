@@ -1,0 +1,2 @@
+# Art. Unique
+-Par dérogation aux prohibitions de sortie actuellement en vigueur peuvent être exportées où réexportées des Colonies et pays de protectorats autres que la Tunisie et le Maroc, sans autorisation Spéciale, lorsque l’envoi a pour. destination l’Angleterre, les Dominions, les pays de protectorat cet colonies britanniques, la Belgique, le Japon, le Monténégro, la Russie(1), a Serbie(1), ou les états de Amérique, les volailles mortes soit à l’état frais, soit conservées par un procédé quelconque.
