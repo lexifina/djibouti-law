@@ -1,0 +1,1 @@
+M. Georges Meffre, contrôleur des impôts, 9e échelon, est pour compter du 31 mai 1975, date de son arrivée au Territoire, mis à la disposition du Ministre des Finances pour servi aux Contributions Directes.
