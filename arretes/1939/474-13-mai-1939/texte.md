@@ -1,0 +1,1 @@
+M. Guanadicom (Etienne), contrôleur des P. T. T. après 4 ans, mis à la disposition du chef du Bureau des finances, qui réunit les conditions exigées À l’article 31 de l’arrêté du 26 avril 1928 susvisé, est nommé contrôleur principal avant 3 ans pour compter du 13 mai 1939.
