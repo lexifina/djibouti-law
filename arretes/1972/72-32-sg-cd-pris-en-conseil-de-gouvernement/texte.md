@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 225/7° L du 28 décembre 1971 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création et organisation du Service de l’administration pénitentiaire.
