@@ -1,0 +1,1 @@
+Mme Langenier (France), institutrice de 5e classe, rentrant de congé, est affectée aux classes primaires de Djibouti en qualité d’adjointe pour compter du 14 mars 1953, en remplacement de Mme Buschaud, institutrice auxiliaire démissionnaire.
