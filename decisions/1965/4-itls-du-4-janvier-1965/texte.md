@@ -1,0 +1,1 @@
+Le délai imparti à M. Lassays, expert dans le différend collectif Manutention-Transit, pour fournir son rapport et Sa recommandation qui Vient à expiration le 8 janvier 1965, est prorogé jusqu’au 16 janvier 1965.
