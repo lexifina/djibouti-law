@@ -1,0 +1,1 @@
+La décision n° 18 du 8 janvier 1948 susvisée est rapportée Doubet Waiss, agent technique de 2 classe 11e échelon, est remis à la disposition du chef du service météorologique, pour compter du 1er avril 1948.
