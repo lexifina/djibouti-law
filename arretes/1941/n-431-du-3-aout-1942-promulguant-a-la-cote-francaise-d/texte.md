@@ -1,0 +1,1 @@
+Est promuilgué à la Côte française des Somalis le décret du 27 juillet 1942 prorogeant le délai prévu par l’artidie ü du décret du 25 juin 1942 pour l’attribution de la prime à 11 première naissance et étendant à titre temporaire le bénétice de l’indemnité pour salaire unique aux jeunes ménages sûnls enfants,
