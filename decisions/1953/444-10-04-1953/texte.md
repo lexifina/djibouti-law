@@ -1,0 +1,1 @@
+M. Bernard (Lucien), électricien à la è nouvelle Centrale, recruté en France par les soins du Ministère et débarqué à la Colonie le 6 février 1953, aura droit, à titre provisoire et jusqu’à signature de son contrat, à un salaire mensuel de 55.971 francs, charges de famille comprises et indemnité d’éloignement non comprise.
