@@ -1,0 +1,2 @@
+Est rapportée la décision n° 1798 du 31 décembre 1964,autorisant M. Benatti (Nando) à prendre en gérance libre la licence de 1° classe pour la vente de toutes boissons à consommer sur place ou à emporter, au «Bar Lelyannis », sis 5, rue du Verdon, Djibouti, dont le propriétaire est M. Delyannis (Mitso).
+Le Commandant de Cercle de Djibouti et le Chef du Service des Contributions directes sont chargés, chacun en ce qui le concerne, de l’exécution de la présente décision qui sera enre gistrée, publiée et communiquée partout où besoin sera.
