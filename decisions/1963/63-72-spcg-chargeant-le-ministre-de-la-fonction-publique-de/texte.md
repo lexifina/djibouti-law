@@ -1,0 +1,1 @@
+M. Omar Mohamed Bourhan, Ministre de la Fonction Publique, est chargé, à compter du 12 juillet 1963, de l’expédition des affaires courantes du Ministère de l’Enseignement, des Sports et de la Jeunesse pendant l’absence de M. Barkat Gourat Hamadou, Ministre titulaire, en mission officielle en France.
