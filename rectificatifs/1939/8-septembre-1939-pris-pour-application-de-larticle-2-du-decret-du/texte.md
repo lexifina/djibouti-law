@@ -1,0 +1,1 @@
+Rectitic natif: 1 Journul officiel du 2 septembre 1939 : page 10977. colonne. 14° et 15° lignes, au lieu de engagemeuts aux poursuites et autres actions en justice », lire : « enagées où poursuivies les actions en justice »
