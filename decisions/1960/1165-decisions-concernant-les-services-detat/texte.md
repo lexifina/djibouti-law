@@ -1,0 +1,1 @@
+Une indemnité forfaitaire mensuelle pour travaux supplémentaire de cinq mille francs Djibouti, est allouée pour compter du 2 janvier au 20 mai 1960 et du 7 septembre au 31 décembre 1960, à M. Le Van Ky (Pierre), secrétaire auxiliaire faisant fonctions de greffier d’Instruction.
