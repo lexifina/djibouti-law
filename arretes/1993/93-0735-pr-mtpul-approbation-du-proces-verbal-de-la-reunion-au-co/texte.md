@@ -1,0 +1,1 @@
+sont approuvées les propositions du comité de gestion du fonds special a entretien des installations d’assainissement contenues dans le procès verbal de la réunion du 29 mars 1998 ainsi que le projet de budget del’exercice 1993 arrêté en recettes et dépenses à 57.997.071 FD.
