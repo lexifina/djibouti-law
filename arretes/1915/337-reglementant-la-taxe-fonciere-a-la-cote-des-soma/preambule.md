@@ -1,0 +1,3 @@
+# Préambule
+Les arrêtés des 12 Octobre et 29 Décembre 1900, 27 Septembre 1902 et 3 Novembre 1909, réglementant la taxe foncière à la Côte française des Somalis, sont abrogés et remplacés par les dispositions suivantes :
+Art. ler.- Les terrains couverts de constructions de toute nature ou servant à une exploitation quelconque, les terrains non bâtis ou non exploités, situés dans la zone urbaine, c’estä-dire sur les trois plateaux de Djibouti, du Serpent et du Marabout ainsi que dans le quartier dit de la plaine, Sont indistinctement assujettis à une taxe foncière égale au 3°, de la valeur localive de la propriété.
