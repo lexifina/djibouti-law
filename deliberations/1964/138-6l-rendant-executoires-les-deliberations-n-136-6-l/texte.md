@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Kamel Galeb Obsie la concession provisoire d’une parcelle de terrain d’une superficie de trois cent vingt-sept mètres carrés environ, sise à Djibouti (quartier 4), au prix de cent francs le mètre carré.
