@@ -1,0 +1,9 @@
+# Préambule
+Art 1er . — Les articles 15.21.01 et 15.21.02 du code général des impôts sont abrogés et remplacés par les dispositions suivantes :
+«Art. 15.21.01 (nouveau). — Les impôts directs, taxes et produits assimilés sont exigibles le dernier jour du mois suivant celui de la mise en recouvrement du rôle.
+Toutefois, le décès du contribuable inscrit au rôle, le déménagement hors du Territoire, la vente volontaire ou forcée, la cessation d’entreprise entraînent l’exigibilité immédiate de la totalité de l’impôt. Entraîne également l’exigibilité immédiate et totale, l’application d’une majoration pour non-déciaration, déclaration tardive ou fausse déclaration.
+« Art. 15.21.02 (nouveau). — Par exception à l’article 15.21.01 précédent :
+1° Les patentés dont la profession n’est pas exercée à demeure fixe ou comporte un droit de patente de 9e ou 10e classe, devront acquitter par anticipation et en une seule fois avant le 1er mars de l’année de l’imposition, les droits dont ils seront le 1er mars de l’année de l’imposition, les droits dont ils seront redevables ;
+2° Les personnes qui entreprendront en cours d’année l’exercice d’une des professions visées au paragraphe 1° ci-dessus ainsi que les contribuables visés à l’article 11.61.02 ci-dessus, seront tenus d’acquitter immédiatement et par anticipation, le montant des droits dont ils seront redevables :
+3° Les titulaires au 1er janvier de l’année de l’imposition, d’une autorisation administrative d’exercer le commerce des boissons, devront acquitter par anticipation et en une seule fois avant le 1er février, les droits de licence dont ïls sont redevables ;
+4° Les personnes auxquelles sera délivrée en cours d’année une autorisation administrative d’exercer le commerce des ‘boissons, devront acquitter par anticipation et avant l’ouverture de l’établissement, les droits de licence dont elles sont redevables.»
