@@ -1,0 +1,1 @@
+Par arrêté du Ministre des colonies, en date du 17 mai 1930, M. Barthélemy (Roger-Pierre), administrateur de classe des colonies, provenant côte française des Somalis, à été mis à à la disposition du Gouverneur général de l’Afrique équatoriale française, à compter de veille du jour de son embarquement à destination de la colonie.
