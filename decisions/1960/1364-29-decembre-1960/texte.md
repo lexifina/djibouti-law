@@ -1,0 +1,10 @@
+Une indemnité de première mise d’équipement de 25.000 francs Djibouti (vingt cinq mille) est accordée à :
+M. Aden Taher Aye, observateur météorologiste auxiliaire, échelle VIII, 1er échelon.
+M. Hassan Aden Bourale, observateur météorologiste auxiliaire, échelle V, 1e échelon, bénéficiaires de bourses d’études de la Communauté Economique Européenne qui doivent se rendre dans les services météorologiqués d’Offenbach (Allemagne Fédérale) poür y recevoir une formation spécialisée.
+Une avance d’un mois de rémunération mensuelle est accordée aux agents mentionnés dans l’article premier de la présente décision.
+Le montant de cette avance sera prélevé par quart sur la rémunération prévue à l’article 3 de la présente décision pour compter du mois de février 1961.
+Pendant toute la durée de leur stage, les agents mentionnés ci-dessus continueront à bénéficier de la rémunération qu’ils percevaient dans la position de service à Djibouti.
+Toutefois le montant de leur rémunération ne leur sera mandatée que pour la partie qui excèderait le montant des bourses qui leur seront payées par la Communauté Economique Européenne.
+Les dépenses prévues par les articles 1 et 2 seront supportées par le budget local, chapitre XII, artcle 1er, paragraphe III (exercice 1960).
+Les bénéficiaires des bourses d’études désignés ci-dessus, devront servir pendant cinq ans dans les services publics du Territoire pour compter de la date de leur retour dans le Territoire à l’issue de leur stage.
+Dans le cas où de leur propre chef, ils quitteraient leur emploi administratif, soit en cours ou à l’issue de ce stage, soit avant l’expiration du délai de cinq ans prévu ci-dessus, ils dévront rembourser au budget du Territoire les sommes qu’ils auront perçues aù titre des-articles 1, 2 et 3 de la présente décision à l’exclusion de celles prises en charge par la Communauté Economique Européenne, proportionnellement au temps de service au’ils auraient dû accomplir en application des dispositions de la présente décision.
