@@ -1,0 +1,1 @@
+Est déclarée close le mercredi 17 février 1965 à minuit la première session extraordinaire de l’Assemblée Territoriale de la Côte Française des Somalis ouverte le 8 février 1965 par arrêté n° 65/11/SPCG.
