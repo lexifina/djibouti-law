@@ -1,0 +1,1 @@
+Mme Geneviève Gadais, agent de bureau de l’administration universitaire, 3e échelon (E. 3), en service détaché, est mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour compter du 6 septembre 1967. La rémunération sera à la charge du budget local jusqu’au 31 décembre 1967.
