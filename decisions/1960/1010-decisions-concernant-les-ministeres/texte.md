@@ -1,0 +1,1 @@
+M. Macé (Gérard), Inspecteur des Impôts, 3e échelon, est mis à la disposition du Ministre des Finances, des Affaires Economiques et du Plan, pour compter du 30 août 1960, date de son arrivée dans le Territoire.
