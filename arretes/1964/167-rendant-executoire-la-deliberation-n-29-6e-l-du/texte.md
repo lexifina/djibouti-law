@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du 1er janvier 1964 la délibération n° 29/6e L du 1er février 1964 de l’Assemblée Territoriale de la Côte Française des Somalis portant adoption du Budget annexe du Port de commerce de Djibouti pour l’exercice 1964.
