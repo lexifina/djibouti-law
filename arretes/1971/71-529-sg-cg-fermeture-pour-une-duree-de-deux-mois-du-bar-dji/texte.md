@@ -1,0 +1,1 @@
+Le «Bar Djibouti», sis place Ménélik, dont le propriétaire- gérant est M. Ali Bogoreh Diraneh, dit «Ladie», sera fermé pour une durée de deux mois pour compter de la date de notification du présent arrêté.
