@@ -1,0 +1,1 @@
+M. Guilbot (Jean), administrateur adjoint de 1er classe des colonies, est affecté au cercle de Djibouti et mis à la disposition du commandant de cercle pour compter du 2 mars 1950, jour de son débarquement.
