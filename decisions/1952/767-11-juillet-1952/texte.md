@@ -1,0 +1,1 @@
+Pour compter du 1er juin 1952, le salaire mensuel de M. Landru (Gaston), comptable auxiliaire du Service des Travaux publics (Usine Electrique), est porté à quarante mille francs (40.000 fr.), exclusif de toute indemnité y compris Celles pour charges de famille.
