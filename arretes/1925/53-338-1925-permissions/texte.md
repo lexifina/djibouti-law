@@ -1,0 +1,1 @@
+M. Bodin (Clément), adjoint de ire classe des services civils, qui comptera le 26 février 1925, 27 mois de séjour ininterrompu à la colonie, est autorisé à se rendre en France en congé administratif de 6 mois.
