@@ -1,0 +1,1 @@
+M. Michel Daubet, inspecteur départemental de l’Education nationale, 6e échelon, est pour compter du 24 septembre 1974, date de son arrivée dans. le Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.
