@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er — En execution du paragraphe cinquième de l’acte intervenu entre la colonie et la succession Repici et par lequel celle-ci cède à li amidra tane ene dranite cette-cl cede à 1a premiere Tous ses «lroits sur lusine électrique de Djibout ainsi que Sur les matériels. outillaves et matières consomimables approvisionnés pour le compte des héritiers Repici un acompte de denx cent mille francs (200.000 francs) à valoir sur le montant desdits matériels, outillaves et matières consommables.
