@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les Cercles de Tadjourah et d’Obock est interdit à Souleiman Kahin Ali, né vers 1950 à Djibouti, condamné le 5 février 1973 par le Tribunal supérieur d’appel de Djibouti à deux ans de prison et cinq ans d’interdiction de séjour, pour vols et tentatives de vols, écroué le 10 juillet 1972, libéré le 10 juillet 1974.
