@@ -1,0 +1,1 @@
+Est fait remise gracieuse, à Mme Egret, résidence « Les Oliviers », bâtiment A 2, La Farbèche (Var), d’une somme de”cinquante-sept mille soixante-dix (57.070) FD représentant le montant des frais funéraires dûs à l’occasion du décès de son mari.
