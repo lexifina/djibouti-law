@@ -1,0 +1,1 @@
+M. Larsonneur (Georges) est engagé en qualité d’aide- météorologiste a u falaire mensuel de quatre mille cinq cents francs (4.500 francs), exclusif de toutes indemnités, pour compter du 1er octobre 1948.
