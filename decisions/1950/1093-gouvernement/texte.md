@@ -1,0 +1,1 @@
+Le traitemeiiif, mensuel de Ali Moussa, mécanicien affecté «au service intérieur du Gouvernement, est fixé à 7560 francs pour compter du 1er janvier 1950, et à. 8.120 francs pour compter du 1er juillet 1950.
