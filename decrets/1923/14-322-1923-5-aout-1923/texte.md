@@ -1,0 +1,1 @@
+rendu sur la proposition du Ministre des colonies, la délégation dans les fonctions de Secrétaire général de la Côle Francçaise des Somalie de M. Lippmann-Edmond’, administrateur de classe des colonies, à pris fin à compter du dit JOUR.
