@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 14*75/SMI du ‘22 avril 1975 du Conseil d’administration du S.M.I. portant modification et ouverture de crédits au budget 1974 du S MI et extournes de chapitre à chapitre.
