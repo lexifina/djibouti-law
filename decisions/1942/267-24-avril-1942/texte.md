@@ -1,0 +1,1 @@
+Le médecin commandant des troupes coloniales Leitner assurera provisoirement, à compter du 16 avril 1942, les fonctions de chef du Service de santé de la colonie en remplacement du médecin lieutenant-colonel Legendre, indisponible.
