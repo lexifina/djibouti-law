@@ -1,0 +1,1 @@
+M. Jacques Guïllemain, attaché de la France d’outre-mer de classe exceptionnelle est, pour compter du 23 juin 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Affaires intérieures pour servir au District de Djibouti.
