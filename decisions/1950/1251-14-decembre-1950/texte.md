@@ -1,0 +1,1 @@
+Le médecin capitaine Gamet. (André), placé dans la position « hors cadres », est affecté en qualité de chef du service d’hygiène, pour compter du 6 décembre 1950, en remplacement du médecin capitaine Colobert, rapatrié.
