@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire là délibération n° 6/6° L du 24 décembre 1963 de l’Assemblée Territoriale accordant à la SAC.ER. l’exonération des droits d’enregistrement et de timbre exigibles sur un marché administratif.
