@@ -1,0 +1,2 @@
+Sont promulgués à la Côte française des Somalis et dépendances le décret du 19 décembre 1941 supprimant la formalité du visa et de légalisation du Soerétaire d’Etat aux colonies pour les aies dressés en France destinés à être produits duns les colonies et pour les nctes dresse duns les colonies dont il doit être fait usage en Francais :
+la loi du 6 décembre 1941 portant modlification de da doi du 2S février 1941 relative La forme et à la négociation des actions.
