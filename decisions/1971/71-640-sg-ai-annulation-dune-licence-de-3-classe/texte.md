@@ -1,0 +1,1 @@
+Est annulée l’autorisation (décision n° 69-1248/SG/CG du 18 août 1969) ayant entraîné l’octroi d’une licence de 3° classe à M. Laborde Pierre pour le «Bar de la Marine », sis 16, rue des Messageries-Maritimes à Djibouti.
