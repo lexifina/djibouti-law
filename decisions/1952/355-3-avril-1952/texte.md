@@ -1,0 +1,1 @@
+M. Uros (Gabriel), mécanicien contractuel de retour de congé, est mis à la disposition du Directeur des Travaux Publics pour servir à la Subdivision des Routes pour compter du 2 avril 1952, date de son débarquement sur le Territoire.
