@@ -1,0 +1,1 @@
+M. André Debrut, conducteur de travaux contractuel (catégorie C), est, pour compter du 8 avril 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux Publics et du Port, pour servir à la subdivision infrastreture des Travaux Publics. P.B. n° 3 CD.
