@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 78/8° L. du 23 décembre 1974 de la Chambre des députés du Territoire francais des Afars et des Issas portant approbation du budget du Service local ( exercice 1975)
