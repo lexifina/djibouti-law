@@ -1,0 +1,1 @@
+le séjour à la Côte française des Somalis ei dépendances est interdit pendant cinq ans, pour compter du 4 janvier 1937, date de sa lib ation, au nommé Mohamed Fadji Nour, condamné à deux mois de prison et cinq ans d’interdiction de séjour pour vol.
