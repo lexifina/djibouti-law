@@ -1,0 +1,9 @@
+# Arrêté n° 74-1332/SG/IAM portant interdiction de séjour.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 26/08/1974 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-74-1332-sg-iam-portant-interdiction-de-sejour/>
+
+En vigueur : 1974-08-26 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  séjour dans le District de Djibouti et dans les cercles de Tadj0urah et d’Obock est interdit à Youssouf Wabéri Bouni, né vers 1928 à Ali-Sabieh, condamné le 4 octobre 1973 par le Tribunal correctionnel de Djibouti, à 6 mois de prison et deux ans d’interdiction de séjour, pour vol, écroué le 4 octobre 1973, libéré le 24 juillet 1974 en vertu de l’amnistre DL 74 643 du 16 juillet 1974. |
