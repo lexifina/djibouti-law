@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 980 du 13 juillet 1963 en cé qui concerne la nommée Fatoum Saïd Salman, Arabe ChaKari, née vers 1922 à Djibouti de Saïd Salman et de Djoumah Dinaréh, maïiée le 28 janvier 1941 avec Mohamed Omar, citoyen français, Sans profession, demeurant au quartier n° 2 à Djibouti.
