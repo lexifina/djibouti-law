@@ -1,0 +1,1 @@
+Le milicien de 1re classe Abdallah Nacer, matricule 2275, de la 2° Compagnie de Milice à Tadjourah, arrivant en fin de contrat le 31 décembre 1965, est mis à la retraite à compter du 1er janvier 1966.
