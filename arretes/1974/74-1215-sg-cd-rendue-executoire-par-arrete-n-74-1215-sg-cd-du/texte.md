@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 53/8e L du 6 juillet 1974 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas portant réglementation d’urbanisme sur la zone d’Ambouli.
