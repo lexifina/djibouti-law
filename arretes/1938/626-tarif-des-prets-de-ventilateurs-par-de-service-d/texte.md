@@ -1,0 +1,1 @@
+A partir du 1er juillet 1938. le tarif à appliquer pour prêt de ventilateurs aux officiers mariés ou célibataires et aux sous-officiers mariés logeant en ville est fixé à dix francs par appareil et par mois.
