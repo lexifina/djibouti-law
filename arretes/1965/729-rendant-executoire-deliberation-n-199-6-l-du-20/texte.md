@@ -1,0 +1,2 @@
+Est nommé, pour compter du ler mai 1965, préposé stagiaire du corps territorial des préposés des Postes et Télécommunications (service radiotélégraphique), M. Mohamed Omar Moussa, opérateur contractuel (catégorie E, 3e échelon), candidat déclaré admis au concours direct.
+La rémunération indiciaire de M.-Mohamed Omar Moussa, afférente à son nouvel emploi, étant inférieure à celle qu’il percevait jusqu’à la date de sa nomination au grade de préposé Stagiaire, il percevra, dans les conditions réglementaires, une indemnité -combénsatrice.
