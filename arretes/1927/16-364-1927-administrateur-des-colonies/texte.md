@@ -1,0 +1,1 @@
+M. Mary (Gaston Jean-Laurent-Joseph). administrateur-adjoint de 1er classe des colonires. provenant de l’Afrique occidentale française, à élé mis à la disposition du Gouverneur de la Côte [rançaise des Somalis, à compter de la veille du jour de son embarquement à destination de la colonie.
