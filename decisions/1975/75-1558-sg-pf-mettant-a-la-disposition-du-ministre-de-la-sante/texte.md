@@ -1,0 +1,1 @@
+L’adjudant-chef Pasqui René, infirmier des Troupes de Marine en position «cadre hofs budget des Armées » est pour compter du 13 juillet 1975, date de son arrivée dans le Territoire mis à là disposition du ministre de là Santé Publique pour servir à l’hôpital Peltier en remplacément numérique de l’adjudant Bonnefoy Romuald, rapatriable.
