@@ -1,0 +1,1 @@
+M. Benamar (Madani), contrôleur de 3e classe des Transmissions coloniales, de retour de congé, est mis à la disposition du Chef du Service des P.T.T. pour compter du 3 juin 1951, date de son arrivée à Djibouti.
