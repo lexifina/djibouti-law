@@ -1,0 +1,1 @@
+Est promulgué à la Côte francaise des Somalis et dépendances le décret n° 47-190 du 29 avril 1947 portant modification au décret du 2 mars 1910 en ce qui concerne le régime des congés et abrogeant le décret du 1 août 1944, (7. O, KR, F. du 1″ mai 1947), page
