@@ -1,0 +1,1 @@
+Est rendué exécutoire la &élibération n° 71/7°L du 23 décémbre 1969 de, la Chambre des Députés modifiant la délibération n° 28/7°L du 8 mai 1969 portant création d’un Fonds d’Investissement Routier du Territoire Français des Afars et des Issas.
