@@ -1,0 +1,1 @@
+M. Noël Georges, technicien de 2e classe, 4e échelon, du Cadre Territorial de la Santé Publique, en service à l’Hôpital Peltier, est révoqué de son emploi, sans suspension de ses droits à pension, pour abandon de poste et rayé du cadre de la Santé pour compter du 2 janvier 1962.
