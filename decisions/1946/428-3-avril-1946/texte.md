@@ -1,0 +1,1 @@
+Une allocation de sept cent cinquante francs (750 fr.) une fois payée, pour premiers frais d’installation a été attribuée à MM. Rakotoni rainy, dactylo-comptable, en service au bureau des finances, et Rambeloson, dactylographe au Cabinet civil.
