@@ -1,0 +1,2 @@
+Un congé administratif de six mois pour en jouir à Saint-Cast (Côtes-du-Hord), est accordé à M. Moal (Roland), vétérinaire inspecteur de 3° classe, qui. aura accompli le 27 septembre 1951 un séjour de deux ans dans le Territoire.
+Une réquisition de passage par voie aérienne Djibouti-Paris et une réquisition par voie ferrée Paris-Saint-Cast (Côtes du Nord) seront délivrées à l’intéressé, qui appartient au groupe III.
