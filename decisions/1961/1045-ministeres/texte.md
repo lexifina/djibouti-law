@@ -1,0 +1,2 @@
+L’autorisation d’exploiter au bar-restaurant «Palmier en Zinc » sis à Djibouti, avenue Albert-Bernard, une licence de première classe pour la vente de boissons alcooliques ou hygièniques à consommer sur place ou à emporter, est transférée, à compter du 12 juillet 1961 et pour une durée de trois mois, de M. Cucini Claude à Mme Coccia Marie-Dominique.
+Le Commandant de Cercle de Djibouti et le Chef du Service des Contributions sont chargés de l’exécution de la présente décision.
