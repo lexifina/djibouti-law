@@ -1,0 +1,2 @@
+Art. ler — Les dispositions de l’arrêté du 13 avril 1959 relatif à la délivrance d’autorisation de parachutage aux pilotes privés d’avion sont applicables dans les Territoires d’Outre-Mer. Si Artipies Le Secrétaire général à l’Aviation civile et com-
+merciale et les Chefs de Territoire sont chargés, chacun en ce qui le concerne, de l’exécution du présent arrêté, qui sera publié au Journal officiel de la République française.
