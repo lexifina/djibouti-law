@@ -1,0 +1,1 @@
+M. Doyen (André), Chef de bureau de 2e classe d’Adminis tration générale d’Outre-Mer, est chargé de l’intérim de M. Malen fant, Chef du Service de l’Inscription maritime, pendant la durée de son congé annuel
