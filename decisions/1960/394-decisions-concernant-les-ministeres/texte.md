@@ -1,0 +1,1 @@
+M. Wabberi Moussa, infirmier du Cadre local, 2e classe, 1er échelon, actuellement en service à l’Hôpital Peltier, est mis, pour compter du ler avril 1960, à la disposition du Médecin-Chef du Service d’Hygiène et du Service Quarantenaire, pour servir au Dispensaire du Port.
