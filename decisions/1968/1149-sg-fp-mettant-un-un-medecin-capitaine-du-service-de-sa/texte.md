@@ -1,0 +1,1 @@
+M. Jean Cesari, médecin-capitaine du Service de Santé des Armées, arrivé au Territoire le 17 juin 1968 est, pour compter de la même date, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir en qualité de médecin résident à l’hôpital Peltier, en remplacement du médecin-capitaine Laroche, rapatrié.
