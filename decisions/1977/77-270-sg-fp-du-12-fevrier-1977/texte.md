@@ -1,0 +1,1 @@
+M. Jean Long, chef de poste administratif contractuel est, pour compter du 4 février 1977, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires musulmanes pour servir au cercle de Dikhil.
