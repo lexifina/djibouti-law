@@ -1,0 +1,1 @@
+M. Ali Koutena, téléphoniste auxiliaire du Service des Postes et Télécommunications, est licencié de son emploi pour « mauvaise manière habituelle de servir » à compter du jour de la notification de la présente décision.
