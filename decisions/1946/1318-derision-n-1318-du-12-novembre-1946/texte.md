@@ -1,0 +1,1 @@
+Mm Caron ( Berthe-Marie-Louise), en religion sœur Eugénie-Marie, de la Mission des Sœurs Franciscaines de Calais, est engagée comme infirmière auxiliaire de 2e catégorie, à compter du 1er novembre 1946, en remplacement de Mme Thomas (Yvonne).
