@@ -1,0 +1,1 @@
+Est licencié de son emploi pour inaptitude physique, le planton Moussa Arde, auxiliaire 12 échelon, en service aux finances, pour compter du 12 septembre 1050. Moussa Arde auni droit, à une indemnité de licenciement correspondant à 45 jours de solde.
