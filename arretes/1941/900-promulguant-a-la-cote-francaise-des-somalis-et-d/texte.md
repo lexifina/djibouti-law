@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 21 septembre 1941 tendant à réglementer dans les territoires relevant de l’autorité du Secrétaire d’État aux colonies les ventes aux enchères ou à cri public.
