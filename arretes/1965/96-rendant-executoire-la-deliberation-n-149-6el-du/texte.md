@@ -1,0 +1,1 @@
+Est rendue exécutoire, à compter du 1e janvier 1965, la délibération n° 149/6-L du 14 janvier 1965 de l’Assemblée Territoriale de la Côte Française des Somalis portant adoption du budget annexe du Port de commerce de Djibouti pour l’exercice 1965.
