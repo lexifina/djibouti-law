@@ -1,0 +1,1 @@
+le nommé Hassen Ahmed, alias Honssein Boeuh, Somali Darot, né à Daremi (Abyssinie), sera, à l’expiration de la peine qu il purge, expulsé de la colonie et reconduit à Ja frontiere de l’Abyssinie, les territoires de Côte française des Somalis et dépendances lui restant interdits.
