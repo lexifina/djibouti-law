@@ -1,0 +1,1 @@
+M. Fanti Franco est autorisé à exploiter en gérance libre la licence de 1″ classe pour la vente de toutes boissons à consommer sur place où à émporter du bar-restaurant «Les Délices», sis rue d’Athènes, à Djibouti, dont le propriétaire est M.Vayanos Kyriakis.
