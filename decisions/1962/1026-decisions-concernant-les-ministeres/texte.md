@@ -1,0 +1,2 @@
+M.Fossey Jacques, Adjudant du Cadre des Infirmiers Militaires des Troupes de Marine, Chef Comptable de l’Hôpital Peltier, est nommé billeteur pour le paiement des traitements du Personnel de la Santé Publique à compter du 1er août 1962, en remplacement du Sergent Major Albert Damien, prochainement rapatriable.
+M. Fossey percevra l’indemnité prévue par l’article 4 de l’arrêté n° 1704 du 31 décembre 1955.
