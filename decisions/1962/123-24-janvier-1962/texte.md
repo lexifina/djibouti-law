@@ -1,0 +1,1 @@
+M. Ali Bogore Bouh est autorisé à exploiter dans un établissement sis à Djibouti, quartier 2, une licence de 4e classe pour la vente en détail ou à consommer sur place de boissons hygiéniques ou alcooliques ne titrant pas plus de 13° d’alcool.
