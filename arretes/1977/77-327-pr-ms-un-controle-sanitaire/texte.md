@@ -1,0 +1,2 @@
+Dès maintenant jusqu’à nouvel ordre, conformément aux dispositions du réglement sanitaire international, l’entrée de toute personne dans la République de Djibouti, en provenance des pays du Moyen-Orient, est subordonnée à la présentation d’un certificat de vaccination anticholérique en cours de validité (c’est-à-dire de moins de 6 mois).
+Le présent arrêté sera enregistré, communiqué et publié suivant la procédure d’urgence, partout où besoin sera et au Journal officiel de la République de Djibouti.
