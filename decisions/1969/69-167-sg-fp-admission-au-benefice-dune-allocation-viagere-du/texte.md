@@ -1,0 +1,2 @@
+M. Abbas Noba Abdallah, chauffeur auxiliaire (échelle VIH, 1er échelon) en service au Cercle d’Obock (Ministère des Affaires intérieures) qui comptera au 1° » février 1969, 38 ans, 1 mois
+de service, sera, pour compter de la même date, admis au de bénéfice d’une allocation viagère d’ancienneté payable trimestriellement et à terme échu, sur présentation d’un certificat de vie délivré par les autorités compétentes.
