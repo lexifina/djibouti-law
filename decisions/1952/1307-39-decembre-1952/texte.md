@@ -1,0 +1,1 @@
+M. Richaud (Paul), inspecteur du cadre métropolitain des Postes, Télégraphes et Téléphones, détaché Outre-Mer, est mis à la disposition du Chef du Service des Postes et Télécommunications du Territoire pour compter du 29 décembre 1952, date de son arrivée a Djibouti.
