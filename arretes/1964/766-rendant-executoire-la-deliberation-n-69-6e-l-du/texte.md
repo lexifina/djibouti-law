@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 69/6e L, du 29 mai 1964 de l’Assemblée Territoriale complétant la délibération n° 201 du 2 février 1961 et fixant le barème de location du ponton-mêture de 80 tonnes.
