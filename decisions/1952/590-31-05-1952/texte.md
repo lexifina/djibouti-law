@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Ratsimandresy (Emile), observateur météorologiste auxiliaire, est porté à vingt-deux mille quatre cent soixante-dix francs (22.470 fr.) pour compter du 1er juillet 1951 et à vingt-quatre mille cent cinquante francs (24.150 fr.) pour compter du 1er janvier 1952.
