@@ -1,0 +1,1 @@
+Pour compter du 1eR février 1965, la Société Anonyme des Pétroles de Djibouti est autorisée à assurer elle-même le service de toutes les prestations consécutives aux accidents du travail ou aux maladies professionnelles survenus à son personnel.
