@@ -1,0 +1,3 @@
+Le 2e Classe Kassim Mohamed Kassim, Mle 2407, de la 1re Compagnie de Milice à Dikhil arrivant en fin de contrat le 21 avril 1962, est licencié pour raisons disciplinaires pour compter du 29 décembre 1961, l’intéressé qui totalise 8 mois et 9 jours de services effectifs dans la Milice ne peut prétendre à aucune indemnité.
+Les droits à solde et vivres de l’intéressé seront liquidés par les soins de l’Agent spécial de la 1re Compagnie de Milice à Dikhil.
+Le 2e Classe Kassim Mohamed Kassim, Mile 2407, sera rayé des contrôles de la Milice à compter du 29 décembre 1961, il recevra le certificat de libération.
