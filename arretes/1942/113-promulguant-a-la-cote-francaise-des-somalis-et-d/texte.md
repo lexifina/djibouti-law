@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis le décret du 11 février 1942 étendant aux territoires relevant du Secrétariat d’Etat aux colonies la loi du 31 décembre 1941 modifiant l’article 5 du décret-loi du 26 septem bre 1939 portant dissolution des organisations communistes.
