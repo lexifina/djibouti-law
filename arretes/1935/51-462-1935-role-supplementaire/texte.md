@@ -1,0 +1,1 @@
+est rendu exécutoire le 1er rôle supplémentaire de la taxe personnelle et de l’impôt locatif, exercice 1935, s’élevant à la somme de deux mille neuf cent soixante-quatre francs cinquante-cinq centimes.
