@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à M. Ali Mohamed Ahmed la concession provisoire d’une parcelle de terrain d’une superficie de deux cent cinquante trois mètres carrés environ, sise à Djibouti, au prix de cent francs le mètre carré.
