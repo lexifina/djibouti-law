@@ -1,0 +1,1 @@
+sont reportés sur l’exercice 1975 du budget annexe de la Eaux (opérations en capital) avec les imputations et por montants indiqués ci-après, les crédits disponibles à la 28 février 1975 sur les dépenses en capital relatifs à des opération inscrites sur le budget de l’exercice 1974 et non terminer à cette date:
