@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 101/8° L du 21 mars 1975 de la Commission Permanente de la Chambre des Député , au Territoire français des Afars et des Issas portant modification du budget annexe commerce de Djibouti pour l’exercice.
