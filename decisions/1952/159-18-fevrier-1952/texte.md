@@ -1,0 +1,1 @@
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Paris seront délivrée à M. Servette (Gilbert), secrétaire-comptable contractuel (groupe V). L’intéressé percevra, avant son départ du Territoire, une indemnité de fin de contrat égale à un mois et demi de rémunération
