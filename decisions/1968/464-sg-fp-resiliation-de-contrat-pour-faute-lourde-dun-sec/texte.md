@@ -1,0 +1,2 @@
+Le contrat de travail susvisé de M. Abdourahman Abdallah Guedid, dactylographe en service au District de Djibouti, est résilié pour faute lourde (négligence professionnelle caractérisée persistante).
+L’intéressé ayant épuisé tous ses droits au congé jusqu’au 31 décembre 1257, ne pourra prétendre qu’à une indemnité compensatrice de congé payé non pris égale à huit jours de salaire au titre de la période de services accomplis à partir du 1er janvier 1968.
