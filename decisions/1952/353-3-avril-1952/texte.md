@@ -1,0 +1,1 @@
+Le sergent-chef infirmier des Troupes Coloniales Saleun (Pierre) est mis à la disposition du Directeur du Service de Santé en qualité de sous-officier mécanicien dentiste à l’Hôpital Principal de Djibouti, à compter du 31 mars 1952, date de son débarquement sur le Territoire.
