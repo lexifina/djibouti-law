@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 3/72 du Comité de gestion du Fonds d’aide et de prévoyance proposant l’affectation d’une somme maximale de 2.200.000 FD. à l’aide aux maraîchers sinistrés par les pluies de 1972.
