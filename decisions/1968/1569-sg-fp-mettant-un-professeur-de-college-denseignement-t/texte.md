@@ -1,0 +1,1 @@
+M. Robert Senteral, professeur de Collège d’enseignement général, 2° groupe, 8° échelon (indice nouveau 355) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mis à la disposition dù Ministre de l’Enseignement des Sports et de la Jeunesse pour servir au Collège d’enséignement technique de Djibouti.
