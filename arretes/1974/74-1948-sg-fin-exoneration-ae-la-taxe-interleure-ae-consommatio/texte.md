@@ -1,0 +1,1 @@
+Il est exonérée de la taxe intérieure de consommation une voiture Benault type R12 break TL, importée par les Etablissements de oporatives des combats de Bazeilles dont le tirage est fixé au lundi 11 novembre 1974.
