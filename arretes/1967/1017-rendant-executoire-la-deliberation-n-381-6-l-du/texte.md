@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 381/6L du 30 mai 1967 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant virement de chapitre à chapitre sur l’exercice 1967 (budget local).
