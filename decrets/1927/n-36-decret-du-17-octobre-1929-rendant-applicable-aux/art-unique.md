@@ -1,0 +1,8 @@
+# Article unique
+, — L’article 106 du Code de commerce est modifié comme suit :
+« En cas de refuis des objets transportés on présentés pour être tramsportés, où de contes de quelque mature qu’elle soit, sur la formation ou l’exécution du contrat de transport, ou à raison d’un incident survenu au cours même et à l’occasion du tramsport, l’état des chefs transportés ou présentés pour être transportés et, en tant que de besoin, leur conditionnement, leur poids, leur nature, ete.
+sont vérifiés et constatés par um où plusieurs experts, nommés par le président du tribunal de commence où, à son défaut, par le juge de paix et par ordonnance au pied d’une requite
+Le requerant est tenu, sous si responrihilité, d’appeler à cette expertise, même par simpie iettre recommandée où par télégramme, toutes parties susceptibles d’être mises en cause, notamment l’expéditeur, Le destinataire, le voitmier et le commissiennaire, et les experts doivent prêter serment, sans formalité d’audience, devant le juge qui les aura commis où devant le juge de paix du canton où ils procéderont ; toutefois, en cas d’urgence, le juge saisi de la requête pourra dispenser de l’accomplissement de tout ou partie des formalités prévues au présent paragraphe; mention sera faite de cette dispense dams l’ordonnances.
+Le dépôt on séquestre des objets en litige ensuite leur transport dans un dépôt public pouvent être ordonnés.
+La vente peut en être ordonnée jusqu’à concurrence de frais de voiture ou autres déjà aits. Le juge attribuera le produit de la vente à celle des parties qui aura fuit l’avance des dits frais. »
+La présente, loi, délibérée et adoptée par le Sénat et par la Chambre des députés, sera exécutée comme loi de l’Etat.
