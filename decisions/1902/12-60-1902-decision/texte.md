@@ -1,0 +1,1 @@
+le nommé Hadji Ali, gardien de phare à Ambouli, qui a quitté son poste sans autorisation, est licencié à dater du 1er Mai. Il est remplacé par le nommé Hassen Ali, tailleur du Gouvernement dont l’emploi est supprimé.
