@@ -1,0 +1,1 @@
+Est constatée, pour compter du 22 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service de l’Enseignement primaire (Ministère de l’Enseignement, des Sports et de la Jeunesse) par M. Raymond Bourdeau, instituteur, 11e échelon, conseiller pédagogique.
