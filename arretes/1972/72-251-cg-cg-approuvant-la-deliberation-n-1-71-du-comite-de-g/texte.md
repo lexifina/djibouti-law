@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1/72 du Comité de gestion du Fonds d’aide et de prévoyance répartissant la subvention que l’Etat français lui a versée pour venir en aide à la population du Cercle d’Obock.
