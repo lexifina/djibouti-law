@@ -1,0 +1,1 @@
+Un blame avec inscription au dossier est infligé à M. Omar Ahmed Seiïf, infirmier-vétérinaire de 3° classe, 1 échelon, du scadre territorial du service de l’Elevage pour avoir délivré de faux certificats de vaccination antirabique.
