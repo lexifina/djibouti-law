@@ -1,0 +1,2 @@
+M. Eyrard Marc, instituteur du département de PEure, 1er échelon, M. Cartereau Christian, instituteur du département de la Sarthe, 1er échelon, M. David Jean Noël, attaché d’administration centrale, 2° clase, 3° échelon, libérés de leurs obligations du service national le 1er janvier 1973, en cours de détachement, sont, pour compter de cette même date,
+mis à la disposition du Ministre de l’Enseisnement des Sport et de la Jeunesse pour servir à la Direction de l’Enseignement.
