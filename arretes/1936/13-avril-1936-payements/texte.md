@@ -1,0 +1,1 @@
+un prélèvement ordinaire de quatre cent trente mille francs sera effectué sur le fonds disponibles de la Caisse de réserve pour faire face au paye ment des travaux de l’entreprise du port de Djibouti.
