@@ -1,0 +1,1 @@
+est exonéré des taxes et surtaxes d’importation, un envoi de 12.634 kg d’huile de tournesol d’une valeur de 2.425.000 FD, don de l’organisation «Médecins du Monde» à l’ONARS au titre de l’aide aux sinistrés de la sécheresse en République de Djibouti.
