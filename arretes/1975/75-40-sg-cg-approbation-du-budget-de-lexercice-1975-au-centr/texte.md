@@ -1,0 +1,1 @@
+Em approuvée Ia délibénation n° 1.74/CEGD au 31 octobre Conseil d’Administration du centre d’Etudes Géologiqueset et de Développement ayant arrété le budget 1975 du CEGD en et en dépenses a la somme de seize millions huit cent mille francs Djibouti (16 850000 FD).
