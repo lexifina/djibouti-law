@@ -1,0 +1,1 @@
+la cession des effets, matières et objets du service de l’habillement et du service du couchage aux officiers et sous-officiers dans les cadres et hors cadres s’habillant à leurs frais, est autorisée d’une façon perma
