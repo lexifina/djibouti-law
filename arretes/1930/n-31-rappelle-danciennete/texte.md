@@ -1,0 +1,1 @@
+M. Berger, adjoint des services civils avant dix-huit mois, qui réunit les conditions d’ancienneté et de séjour colonial exigées par le paragraphe A de l’article 6 de l’arrété du 26 avril 1928, passe automatiquement adjoint après dix-huit mois, pour compter du 7 septembre 1929.
