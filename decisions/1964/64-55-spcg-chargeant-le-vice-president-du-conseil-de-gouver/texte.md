@@ -1,0 +1,1 @@
+M. Ali Aref Bourhan, Vice-Président du Conseil de Gouvernement, Ministre des Travaux publics et du Port, est chargé, à compter du 29 mai 1964, de l’expédition des affaires courantes du Ministère de la Santé publique et des Affaires sociales pendant l’absence de M. Barkat Gourat Hamadou, Ministre titulaire.
