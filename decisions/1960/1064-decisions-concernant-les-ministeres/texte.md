@@ -1,0 +1,1 @@
+M. Goarin (Jean), Conseiller aux Affaires administratives de 1er classe, 3e échelon, est nommé pour compter du 23 septembre 1960, date de son retour dans le Territoire, Chef du Service Territorial des Finances, et Ordonnateur Délégué du Budget local et Au Budget annexe du Port de Commerce.
