@@ -1,0 +1,1 @@
+exécutoire par arrêté n° 2068 du 31 décembre 1965, la Commission Permanente de l’Assemblée Territoriale a accordé à la Menuiserie Métallique Moderne, à Djibouti, la concession provisoire d’un terrain d’une superficie de 4.800 mètres Carrés, sis à Djibouti (Boulaos), lots n° 5 et n° 10, au prix de 50 francs le mètre carré.
