@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 256/66L du 20 janvier 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis autorisant six membres de l’Assemblée Territoriale à se rendre en voyage d’information en métropole.
