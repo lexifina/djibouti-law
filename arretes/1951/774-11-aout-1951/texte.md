@@ -1,0 +1,2 @@
+1 M. Abdou Mohamed Bourhan, fonctionnaire en service à Dibouti, membre du Conseil Représentatif, est délégué pour l’année 1951 au pèlerinage aux Lieux Saints de l’Islam, comme représentant officiel de la Côte Francaise des Somalis;
+2 M. Abdou Mohamed Bourhan percevra, à titre de frais de mission et de voyage, une somme. de cent mille francs (100.000 fr.), imputable au Budget local, exercice 1951, chapitre 5, art. 2, $ T.
