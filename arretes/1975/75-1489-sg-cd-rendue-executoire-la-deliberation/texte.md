@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 137/8° L du 15 juillet 1975 de la Chambre des Députés du Territoire français des Afars et des Issas portant modification du budget annexe de la Régie des Eaux de Djibouti pour l’année 1975.
