@@ -1,0 +1,1 @@
+Est constatée pour compter du 19 novembre 1973, date d’’expiration de son mandat électif à la Chambre des Députés, la reprise de ses fonctions à l’Office des Postes et Télécommunications de M. Abdi Dembil Egal, contrôleur de 1° classe, 2e échelon du corps territorial des Postes et Télécommunications.
