@@ -1,0 +1,2 @@
+Est acceptée, pour compter du 1er février 1961, la démission de son emploi offerte par Mme Jézéquel (Geneviève), Secrétaire sténo-dactylographe auxiliaire en service à la Vice-Présidence du Conseil du Gouvernement, Ministère des Travaux Publics et du Port.
+Mme Jézéaquel (Geneviève), qui réunira au ler février 1961, 4 mois 17 jours de services effectifs aura droit à une indemnité compensatrice de congé payé non pris égale à 11 jours de salaire.
