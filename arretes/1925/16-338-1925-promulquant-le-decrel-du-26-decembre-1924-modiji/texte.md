@@ -1,0 +1,2 @@
+Art, 1er, — Est promulgué dans la colonie, pour v êlre exécuté selon ses forme el teneur, le décre t du 26 décembre 124 qui réglemente les sanctions de police administrative en Afrique occidentale francaise, en Afrique équatoriale française el à la Côte francaise des Somahis.
+Art, 2, — Le présent arrêté sera enregistré, publié et communiqué partout où besoin sera et inséré au Journal officiel de la colonie.
