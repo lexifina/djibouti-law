@@ -1,0 +1,1 @@
+Maître Georges Vimar est autorisé à acquérir un immeuble,d’une superficie de 184,32 mètres carrés, sis à Djibouti, à l’angle de l’avenue Saint-Laurent-du-Var et de la rue Marchand, et immatriculé au Livre foncier du Territoire sous le n° 60 au nom de la Société Hayel Saeed et Cie.
