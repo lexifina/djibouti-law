@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n°139/8°L du 15 juillet 1975 de la Chambre des Députés du Territoire français des Afars et des Issas, portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1974.
