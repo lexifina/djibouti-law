@@ -1,0 +1,1 @@
+M. Michel Goyat, administrateur civil de 1er classe, 7e échelon, nommé Conseiller technique du Ministre du Travail, est, pour compter du 18 septembre 1970, date de son retour au Territoire, mis à la disposition du Ministre du Travail.
