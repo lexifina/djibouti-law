@@ -1,0 +1,1 @@
+Mme Marie Van Wegen (en religion Sœur Saint-Barthélemy), infrrolère auxilieire 1er cafégorie après deux ans, est autorisée à cesser son service à l’Hôpital Principal de Djiboudi pour cornpter du 1er juin 1951.
