@@ -1,0 +1,2 @@
+M. Patry (Germain), agent contractuel au Service de l’Hygiène, percevra, au titre d’indemnité compensatrice de déclassement, une somme de dix sept mille cent soixante dix-sept francs Djibouti (17.177 F.D.), représentant la différence entre le prix du transport en 2° classe à laquelle son épouse et lui pouvaient normalement prétendre, et la 3° classe dans laquelle le transport a été effectué lors de leur retour à Djibouti le 29 octobre 1952.
+La dépense visée à l’article 1er est imputable au chapitre XIV, article 1er, paragraphe 2, de l’exercice 1952.
