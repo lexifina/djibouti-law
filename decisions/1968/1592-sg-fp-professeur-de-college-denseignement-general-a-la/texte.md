@@ -1,0 +1,1 @@
+M. Jacques Cartier, professeur de Collège d’enseignement général, 3e groupe, 9e échelon (indice nouveau 402) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir au Lycée de Djibouti.
