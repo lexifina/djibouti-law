@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 131/8e L du 7 juin, 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas envoyant en mission en métropole un membre de la chambre des Députés.
