@@ -1,0 +1,1 @@
+une subvention de quinze mille francs (15.000 fr.), à titre de participation de la colonie aux dépenses de la mission d’é tudes sur le parcours Djibouti -Dakar, a été allouée à M. Griaule. assistant au laboratoire de l’Ecole des hautes études, chargé de ladite mission.
