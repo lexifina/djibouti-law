@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 115/8° L, du 20 mai 1975 de la Chambre des députés du Territoire français des Afars et des Issas portant agrément d’un agent spécial d’une société d’assurances (Compagnie « La Mondiale ).
