@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 307/6e L du 28 juillet 1966 de la Commission permanente de l’Assemblée Territoriale. de la Côte Française des Somalis portant modification de l’arrêté n° 719 du 23 juillet 1951 réglementant l’enseignement privé en Côte Française des Somalis.
