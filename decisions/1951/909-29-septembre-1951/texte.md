@@ -1,0 +1,1 @@
+Mme Maria van Wegen, en religion Soeur Saint Barthélémy, infirmière auxiliaire 1er catégorie après 2 ans, en service à l’Hôpital Principal de Djibouti, reprend ses fonctions pour compter du 1er octobre 1951.
