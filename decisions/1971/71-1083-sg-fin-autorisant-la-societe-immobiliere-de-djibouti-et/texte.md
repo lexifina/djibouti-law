@@ -1,0 +1,1 @@
+la Société Immobilière de Diibouti et du Territoire Francais des Afars et des Issas est autorisée à acquérir un terrain non bâti, d’une superficie de 509.283 mètres carrés environ, sis à Djibouti (lotissement des Salines Ouest), faisant partie du titre foncier n° 201 appartenant à la Compagnie des Salins du Midi et des Salines de l’Est.
