@@ -1,0 +1,1 @@
+L’article 2 du décret du 22 octobre 1929 est comniété comime suit; coivent une indemnité supérieure à celle fixée à l’article 1er conserveront à titre personnel le bénéfice des dispositions antérienres des dispositions antérieures.
