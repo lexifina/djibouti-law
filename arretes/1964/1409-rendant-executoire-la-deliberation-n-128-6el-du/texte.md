@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 128/6e E du 7 octobre 1964 de la Commission permanente de l’Assemblée Territoriale modifiant le barème des droits d’exploitation du Port de commerce de Djibouti.
