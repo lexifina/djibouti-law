@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 215 du 26 août 1969 du Conseil d’administration d’Electrieité de Djibouti afrêtant l’état de prévisions de recettes et de dépenses d’Electricité de Djibouti pour l’année 1969 (premier modificatif) à la somine de 826.750.000 franés Djibouti (huit cent vingt-six millions Sept cent cinquante mille francs Djibouti).
