@@ -1,0 +1,1 @@
+M- Boulanger (Ernest), ingénieur contractuel de retour de congé, débarqué sur le Territoire le 28 octobre 1952, est mis à la disposition du Directeur du Service des Travaux publics et affecté à la Subdivision des Eaux, en qualité de chef de subdivision, en remplacement de M. Tholomier (Robert), ingénieur contractuel partant en congé administratif.
