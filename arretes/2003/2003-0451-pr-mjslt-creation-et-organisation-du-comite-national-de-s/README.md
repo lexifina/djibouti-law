@@ -1,0 +1,29 @@
+# Arrêté n° 2003-0451/PR/MJSLT portant création et organisation du Comité National de Suivi des Assises du Sport.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0451-pr-mjslt-portant-creation-et-organisation-du-comite-national-de-suivi-des-assises-du-sport/>
+
+En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU La constitution du 15 septembre 1992 ;
+VU La loi n°129/AN/99/4ème L Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme ;
+VU Le décret n°2001-0053/PRE du 04 mars 2001 portant nomination du Premier Ministre ;
+VU Le décret n°2001-0137/PRE du 04 juillet 2001 portant nomination des membres du Gouvernement ;
+SUR Proposition du Ministre de la Jeunesse, des Sports, des Loisirs et du Tourisme.
+
+## Signature
+
+Le Président de la République,
+chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
+| [art-007.md](art-007.md) | Article 7 |
