@@ -1,0 +1,1 @@
+Sont approuvées les propositions du comité de gestion Fonds d’Investissement routier contenues dans les procès-1 de ses séances des 4 février 1974 et 26 novembre 1974, dans le procès-verbal de la consultation à domicile du 30 decenbre 1974 dudit comité de geston.
