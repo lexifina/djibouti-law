@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Ibrahim Chirdon, maître-maçon auxiliaire en service au Cercle de Tadjoura, est porté à 8.500 fr. pour compter du 1er juillet 1951 et à 9.000 fr. pour compter du 1er janvier 1952.
