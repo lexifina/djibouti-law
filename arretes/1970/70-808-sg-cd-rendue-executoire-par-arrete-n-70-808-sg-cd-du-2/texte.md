@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 117/7° L du 20 juin 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant régularisation d’un prélèvement sur le fonds spécial de renouvellement du port de commerce de Djibouti.
