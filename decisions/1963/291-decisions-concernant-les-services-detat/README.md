@@ -1,0 +1,9 @@
+# Décision n° 291 DECISIONS CONCERNANT LES SERVICES D’ETAT
+
+Décision · Journal officiel de la République de Djibouti, n° 3 du 31/03/1963 · <https://www.journalofficiel.dj/texte-juridique/decision-n-291-decisions-concernant-les-services-detat/>
+
+En vigueur : 1963-03-31 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t acceptée la démission de leurs cadres respectifs d’appartenance au Corps territorial d’Administration générale de la Côte Française des Somalis de : |
