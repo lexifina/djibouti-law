@@ -1,0 +1,1 @@
+rendue exécutoirepar arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français, pour la Milice de la C.F.S., la concession provisoire d’un terrain d’une superfcie de quatre mille sept cent quatre vingt-neuf mètres carrés sis à Arta, à titre gratuit.
