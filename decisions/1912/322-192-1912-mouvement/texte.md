@@ -1,0 +1,1 @@
+un congé de convalescence de trois mois à passer en France, est accordé au sergent d’infanterie coloniale Aguillon, m. 23-ic-183. Ce sous-officier prendra passage sur le paquebot attendu à Djibouti le 18 octobre 1912.
