@@ -1,0 +1,1 @@
+L’autorité d’enseigner à l’Ecole Charles de Foucauld à Dijibouti est accordée à M. Pernot (Louis-Paul-Marie), en religion Frère Louis Ravmond, de nationalité française, titulaire du baccalauréat. (série philosophie).
