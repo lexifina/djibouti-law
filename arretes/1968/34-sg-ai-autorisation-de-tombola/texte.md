@@ -1,0 +1,1 @@
+Mme Constant, présidente de la délégation diocésaine du Secours catholique de Djibouti, est autorisée à organiser une tombola composée de vingt mille billets de cent francs l’un, dont le profit sera exclusivement affecté aux besoins du Secours catholique pour ses œuvres.
