@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 40/7° L du 27 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas envoyent en misson en Métropole le Président de la Chambre des Députés.
