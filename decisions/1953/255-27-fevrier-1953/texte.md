@@ -1,0 +1,2 @@
+Un congé administratif de neuf mois, pour en jouir à Tana-narive (Madagascar), est accordé à M. Andrianirina (Alphonse), Préparateur en pharmacie contractuel, en service à l’Hôpital Principal.
+Une réquisition de passage par première occasion maritime Djibouti-Tamatave et une réquisition par voie ferrée Tamatave-Tananarive seront délivrées à l’intéressé, qui voyage accompagné de son épouse et de sa fille âgée de 1 an 9 mois (Groupe IV).
