@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations n° 297/6e L à 302/6e L de la Commission permanente de l’Assemblée Territoriale en Côte Française des Somalis, en date du 2 juillet 1966, en matière domaniale :
