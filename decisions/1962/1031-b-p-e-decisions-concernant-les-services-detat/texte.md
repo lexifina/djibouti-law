@@ -1,0 +1,1 @@
+M. Valette Eugène, Commissaire Principal, 4° échelon, de la Sûreté Nationale (indice net 560) arrivé au Territoire le 15 juillet 1962 est nommé, pour compter du 30 juillet 1962, Chef du Service de la Sûreté Générale de la Côte Française des Somalis en remplacement de M. Luciani, Commissaire Divisionnaire de la Sûreté Nationale, 2° échelon, titulaire d’un congé adm1mstratif.
