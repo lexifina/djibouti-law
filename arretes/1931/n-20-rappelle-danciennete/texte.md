@@ -1,0 +1,2 @@
+il est attribué à M. Colambani (Horace). coutrôleur-adjoint des douanes, une bonification d’ancienneté de service de deux ans un mois vingt jours, au titre de l’article 55 de la loi-de finances du 19 mars 1928 M. Colombhani, qui réunit les conditions d’ancienneté et de séjour colonial reguises, est sommé contrôleur-adijoint avant deux ans à compter du 1° juillet 1927, avec sept mois et vingt jours de rappels conserve.
+M. Colombain, qui réunit les conditions d’ancienneté et de séjour colonial requises est nommé contrôleur-adijoint après deux ans à compter du 10 novermbre1928.
