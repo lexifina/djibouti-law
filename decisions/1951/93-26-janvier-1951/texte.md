@@ -1,0 +1,1 @@
+Un congé de convalescence de trois mois à passer à Djidjica (Ethiopie) est accordé au sergent-chef Youssouf Boeuh, Mle 10, de la Compagnie de gardes-cercle de Djibouti, Pendant son congé, le sergent-chef Youssouf Boeuh percevra sa solde dégagée de tous accessoires.
