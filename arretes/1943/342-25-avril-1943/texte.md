@@ -1,0 +1,2 @@
+Les arrêtés des 10 Février et 1 Mars 1943 sus-visés concernant M. MERLO, sont et demeurant rapportés. M. MERLO, Sous-Chef de Bureau des Secrétariets Généraux des Colonies, licencié en droit, est nommé à titre provisoire et par intérim Président du Tribunal Supérieur d Appel en remplacement du ‘Titulaire, appelé à d’autres fonctions. M. MERLO aura droit en cette qualité à 1 allocation prévue par l’article 9 alinéa 3 du Décret du 2 Mars 1910, soit 9.000 francs l’an.
+Avant d’entre en fonctions M. MERUO prêtera le serment règlementaire devant le Chef de la Colonie.
