@@ -1,0 +1,1 @@
+M. Pierre Gilhardi, inspecteur central des Impôts, 1° échelon, est, pour compter du 14 juillet 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Finances et du Plan pour servir au Service des Contributions.
