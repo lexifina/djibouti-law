@@ -1,0 +1,1 @@
+L’adjudant-chefinfirmier des T.S. Ramplou (Arthur) est mis à la disposition du Directeur du Service de Santé pour servir à la Pharmacie générale d’approvisionnement &.& la C.F.S. à Djibouti, à compter du 10 décembre 1951, date de son débarquement sur le Territoire.
