@@ -1,0 +1,1 @@
+Il est fait retour au domaine public du Territoire français des Afars et des Issas de la digue de cingq mètres de large dite « digue du Héron » reliant l’îÎle du Héron (terrain militaire) au plateau du Marabout.
