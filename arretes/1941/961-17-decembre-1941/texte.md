@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 10 novembre 1941 portant publication du protocole du 9 octobre 1941 relatif à l’application aux payements franco-norvégiens de l’accord de compensâtion pour les payements franco-allemands du 14 novembre 1940.
