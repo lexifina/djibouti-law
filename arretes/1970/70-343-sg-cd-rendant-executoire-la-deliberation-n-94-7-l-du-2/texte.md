@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 94/7eL du 24 mars 1970 de la Commission pérmanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits au budget du Service local, exercice 1970, budgef d’équipement et d’investissement.
