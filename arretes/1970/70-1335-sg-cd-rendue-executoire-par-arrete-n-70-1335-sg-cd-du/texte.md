@@ -1,0 +1,2 @@
+Est rendue exécutoire la délibération n° 137/7° L du 27 octobre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à M. Théodore Rossi la concession provisoire d’une parcelle de terrain, sis à Djibouti, Plateau du Marabout, titre foncier n° 655.
+La Commission permanente de la Chambre des Députés du Territoire Francais des Afars et des Issas.
