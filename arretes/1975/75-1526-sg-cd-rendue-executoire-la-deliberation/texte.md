@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 135/8°L du 15 juitlet 1975 de la Chambre des Députés du Territoire français des Afars et des Issas, accordant-une parcelle de terrain à l’Etat Francais (ministère de la Défense) en -concession provisoire.
