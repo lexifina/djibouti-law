@@ -1,0 +1,1 @@
+M. Perianayagassumv (Lourdes-Rock-Pierre), chef de bureau de 2 classe des secrétariats généraux, est nommé chef adjoint du service du personnel, des finances et de la comptabilité pour compter du août 1949,
