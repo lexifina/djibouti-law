@@ -1,0 +1,1 @@
+M. Cavaille (Marius François), administrateur de 1° classe des colonies, provenant de l’Afrique occidentale francaise, a été mis à la disposition du Gouverneur de la Côte francaise des Somalis à compter de la veille du jour de son embarquement à destination de la colonie.
