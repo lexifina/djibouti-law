@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 499/6°L du 10 juin 1966 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant organiation provisoire des Services de l’Enseignement dans le Territoire Français des Afars et des Issas.
