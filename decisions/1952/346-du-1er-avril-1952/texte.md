@@ -1,0 +1,2 @@
+M. Mallorga (René), rédacteur de 2e classe d’Administration générale de la France d’Outre-Mer, est affecté au Bureau des Affaires économiques, en remplacement numérique de M. Versini, rédacteur de lre classe d’Administration générale de la France d’Outre-Mer, en instance de départ en congé administratif.
+M. Mallorga sera chargé cumulativemént avec ses fonctions du Secrétariat administratif de l’Office des Anciens Combattants.
