@@ -1,0 +1,1 @@
+Est rendue exécutoir délibération n° 434/6eL du 26 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas fixant le montant annuel de l’indemnité des membres de la Chambre des Députés.
