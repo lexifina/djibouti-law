@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 125/8° L du 27 mai 1975 de la Chambre des Députés du Territoire français des Afars et des Issas, portant modification de la délibération n° 260/7°L du 12 mai 1972 relative à la conduite en mer des navires de plaisance à moteur.
