@@ -1,0 +1,2 @@
+Art. er, — Est aporouvée la résolution n° 80/15 ci-après approuvée par le conseil d’administration d’Aéroport de Djibouti: «Le conseil d’administration Conformément à l’article 11 de l’ordonnance du 26 octobre 1977 approuve les comptes prévisionnels d’Aéroport de Djibouti pour l’année 1981.»
+Art 2. — Le ministre du Commerce, des Transports et du Tourisme est chargé de l’exécution du présent arrêté, qui sera publié au «Journal officiel» de la République de Diibouti.
