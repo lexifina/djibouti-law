@@ -1,0 +1,2 @@
+Est rendue exécutoire l’article 1°” de la délibération n° 11-71 du 9 décembre 1971 du Conseil d’administration de l’Office des Postes et Télécommunications portant extension à certains personnels en service à l’Office des Postes et élécommunications de diverses indemnités instituées en faveur de fonctionnaires du cadre territorial des Postes et Télécommunications.
+Ne sont pas approuvés les articles 2 et 3 de cette même délibération.
