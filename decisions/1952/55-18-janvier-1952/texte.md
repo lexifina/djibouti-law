@@ -1,0 +1,1 @@
+Mne Deschamps (Odette), dame-employée auxiliaire lre catégorie au Service de l’’Enregistrement, des Domaines et du Timbre, est nommée dame-employée auxiliaire «après deux ans pour compter du 1er décembre 1951.
