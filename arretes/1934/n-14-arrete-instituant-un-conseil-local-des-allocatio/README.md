@@ -1,0 +1,24 @@
+# Arrêté n° n°14 Arrêté instituant un conseil local des allocations militaires à la Côte française des Somalis.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 447 du 28/02/1934 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-n14-arrete-instituant-un-conseil-local-des-allocations-militaires-a-la-cote-francaise-des-somalis/>
+
+En vigueur : 1934-02-28 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Gouverneur de la Côte francaise des Somalis et dépendances, officier de la légion d'honneur;
+Vu l'ordonnance organique du 18 septembre 1844, rendue applicable à la colonie par décret du 18 juin 1884;
+Vu l'article 24 de la loi du 31 mars 1924 sur le recrutement de l'armée ;
+Vu l'arrêté n° 60, en date du 31 janvier 1934, promuilgnant dans la colonie le décret interministériel du 27 mai 1928, déterminant les conditions d'application et de procédure de l'article 24 de Ja loi du 31 mars 1928;
+Vu l'instruction ministérielle du 27 mai 1928, relative À l'article 24 de la loi du 1 mars 1928
+
+## Signature
+
+chapon-baissac
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
