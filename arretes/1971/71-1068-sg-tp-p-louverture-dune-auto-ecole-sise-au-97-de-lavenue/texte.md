@@ -1,0 +1,1 @@
+L’établissement sis au 97 de l’avenue 13 à Djibouti aménagé par M. Lominique Canosi, en vue de l’enseignement de la conduite des véhicules à moteur sous la désignation de « Djibouti Auto-Ecole » est agréé.
