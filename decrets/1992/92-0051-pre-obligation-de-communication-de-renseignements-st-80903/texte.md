@@ -1,0 +1,8 @@
+Article Le premier 1 — a Banoue nationale de Diibouti est charadée de col!ecter les informations nécessaires à l’établissement des statistiques monetaire
+bancaires et financiers, des administrations et services publics des entreprises publiques et privées et plus généralement de tout personnes physique ou morale, publique ou privée, exerçant une activite
+en République de Djibouti, les renseignements et informations qu’elle iude utiles pour l’accombplissement des missions prescrites à l’article 1er.
+art 3 — La Banque nationale est autorisée à solliciter directementes missions diplomatiques, des organismes internationaux ou etranger représentés sur le territoire de la République les information nécessaires à la confection de la balance des paiements de la republique de djibouti.
+art 4- les etablissement bancaire et financiers soumis aus disposition du décret n° 85-027 / PR du 26 février 1985, sont tenus, tous pein des sanctions prévues par l’article 35 du décret n° 79-030/PR DU
+18 avril 1979, de fournir mensuellement à la Banque nationale une ventilation de leurs avoirs et leurs engagements enfonction du critère de résidence de leurs débiteurs et de leurs créanciers les modalités d’application du présent article seront définies par la banque nationale.
+art 5 — Les informations recueillies en application des articles 2,8 et ici-dessus ne peuvent être utilisées qu’aux fins de l’établissement les statistiques monétaires et de la balance des paiements de la republique de djibouti les ne peuvent être publiées que sous la forme anonyme.
+artc 6 — Le présent décret sera enregistré, communiqué et publié partout besoins sera il sera exécutoire des sa publication.
