@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 290/7° L du 13 octobre 1972 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas, envoyant en mission en Métropole le Président de la Chambre des députés.
