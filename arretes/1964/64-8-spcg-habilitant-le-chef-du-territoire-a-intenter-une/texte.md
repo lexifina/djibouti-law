@@ -1,0 +1,1 @@
+Le Chef du Territoire est habilité au nom du Territoire à intenter devant le Conseil du Contentieux Administratif une action contre l’entreprise Latini pour obtenir réparation du préjudice subi dans là construction de la villa ministérielle «E », située rue Pasteur.
