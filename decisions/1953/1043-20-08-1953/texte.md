@@ -1,0 +1,2 @@
+Un congé administratif de six mois (6), pour en jouir à Gabarret (Landes), est accordé à M. Lamarque (Roland), inspecteur adjoint de 1er classe if des Postes. et Télécommunications, détaché à la Côte Française des Somalis, qui aura accompli le 29 septembre prochain un séjour de deux ans dans le Territoire.
+M. Lamarque, qui appartient au groupe III, voyagera par voie maritime de Djibouti à Marseille et par voie ferrée de Marseills à Gabarret, aux frais du budget local de la Côte Francaise des Somalis.
