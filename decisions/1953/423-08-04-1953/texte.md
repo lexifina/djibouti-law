@@ -1,0 +1,1 @@
+MM. Abdi Elmi (dit Joseph Marie), Abdourahman Abdillahi, Mahmoud Abdallah Mohamed (dit Coubeche Mafoud) sont engagés à titre précaire et révocable, pour compter du 9 avril 1953, en qualité d’agents de contrôle, 6e échelon, et mis à la disposition de M. le Chef du Service des Contributions directes.
