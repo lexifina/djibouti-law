@@ -1,0 +1,26 @@
+# Loi n° 99/AN/84/1re L portant organisation du Ministère de la Fonction publique et des Réformes administratives.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-84-1re-l-portant-organisation-du-ministere-de-la-fonction-publique-et-des-reformes-administratives/>
+
+En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
+
+## Visas
+
+L’ASSEMBLÉE NATIONALE A ADOPTÉ
+LE PRÉSIDENT DE LA RÉPUBLIQUE PROMULGUE
+LA LOI DONT LA TENEUR SUIT :
+
+VU les lois constitutionnelles n°LR/77-001 et LR/77-002 du 27 Juin 1977 ;
+VU l’ordonnance n°LR/77-008 en date du 30 Juin 1977 ;
+VU le décret n°82-041/PRE du 5 juin 1982 portant nomination des membres du Gouvernement ;
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
+| [art-007.md](art-007.md) | Article 7 |
+| [art-008.md](art-008.md) | Article 8 |
