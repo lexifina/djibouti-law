@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 33/7e L du 20 mai 1969 de 1a Chambre des Députés du Territoire Français des Afars et des Issas portant création de postes budgétaires et ouverture de crédits suplémentaire au budget du service local pour l’exercice 1969.
