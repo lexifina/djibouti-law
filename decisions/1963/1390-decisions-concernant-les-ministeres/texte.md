@@ -1,0 +1,2 @@
+Le sergent-major Guillou (Emile), du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 1c novembre 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 2 novembre 1963, date de son arrivée dans le Territoires.
+Ce sous-officier est désigné pour occuper les fonctions de chef du Bureau Matériel à l’Hôpital Peltier pour compter de la même date, en remplacement de l’adjudant Lascourèges, rapatriable pour fin de séjour.
