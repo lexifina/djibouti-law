@@ -1,0 +1,1 @@
+M. Serge Thibaud, électronicien de phare M. E. 1, 7e échelon (indice nouveau 255), est mis à la disposition du Ministre des Travaux publics et du Port, pour compter du 22 août 1969, pour servir au Port de Commerce de Djibouti en remplacement numérique de M. Claude Lecointre, titulaire d’un congé de fin de séjour.
