@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 53/72/CPS du 20 septembre 1972 du conseil d’administration de la Caisse des Prestations sociales portant transfert des crédits prévus au budget 1972 de cet organisme pour la Maison des Jeunes d’Ambouli au bénéfice du Centre de Formation Hôtelière de l’Arta.
