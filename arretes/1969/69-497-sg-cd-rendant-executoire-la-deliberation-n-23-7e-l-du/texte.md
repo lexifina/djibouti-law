@@ -1,0 +1,1 @@
+Est rendant exécutoire la délibération n° 23/7e L du 11 mars 1969 de la Commission pemanente de la Chambre des Députés du territoires Français des Afars et des Issas portant déclassement du domaine public d’une parcelle de terrain de 915 m² environ, sise à Diibouti, quartier de la Plaine.
