@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 212/7°L du 7 octobre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas relative à l’apposition d’affiches et de dispositifs de publicité.
