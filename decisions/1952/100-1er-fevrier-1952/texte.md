@@ -1,0 +1,2 @@
+Une indemnité égale à un mois et demi de rémunération est accordée à M. Treuvey (André), chef d’atelier, dont le contrat arrive à expiration et n’est pas renouvelé.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie de terre Marseille-Vy lèsRupt, .par Vaugoncourt (Haute-Êàône), seront délivrées, à l’intéressé qui voyagera accompagné de son épouse. L’intéressé appartient au groupe IV.
