@@ -1,0 +1,2 @@
+Est rendue exécutoire la délibération n° 289 du 28 décembre 1973 du Conseil d’administration d’« Electricité de Djibouti ».
+portant modification de l’état des prévisions de recettes et de dépenses de l’établissement pour l’exercice 1973 et arrétant ledit état, en recettes et en dépenses, à la somme de: 1.254550.000 FD (un millard deux cent cinquante quatre millions cind cent cinquante mille francs Djibouti).
