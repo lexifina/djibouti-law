@@ -1,0 +1,1 @@
+Le milicien de 2° classe Eleye Elmi Mousse, mle 2676 de la 2e Compagnie de Milice à Tadjoura, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. en date du 26 mars 1964, est licencié pour «inaptitude à l’emploi à compter du 14 mai 1964.
