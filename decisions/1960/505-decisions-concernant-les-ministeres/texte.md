@@ -1,0 +1,1 @@
+Un congé de maternité de quatorze semaines, dont huit à solde entière et six à demi-solde, est accordé, pour compter du 16 mai 1960, à Mme Saurin (Liliane), secrétaire-dactylographe auxiliaire au Service de l’Enregistrement.
