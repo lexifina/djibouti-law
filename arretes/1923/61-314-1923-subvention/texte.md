@@ -1,0 +1,1 @@
+les subventions suivantes sont accorlées pour l’année 1923 : 19 à la société de l’histoire des colonies françaises : 100 francs 2e à la société des études coloniales et maritimes : 100 francs : 4e à la ligue maritime et coloniale francaise : 500 france
