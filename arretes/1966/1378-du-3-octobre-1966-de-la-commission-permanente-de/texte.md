@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 318/6e L du 3 octobre 1966 de la Commission permanente de la Côte Française des Somalis portant approbation de la résolution n° 44 en date du 28 juin 1966 du Comité directeur du F.ILD.ES. relative à la tranche 1966, chapitre 5020, article 7 «Centre de Formation pré-professionnelle ».
