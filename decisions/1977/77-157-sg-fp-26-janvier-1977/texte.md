@@ -1,0 +1,2 @@
+M. Mouhoumed Houssein Robert, assistant dentaire, en service à l’hôpital Peltier est autorisé à effectuer un stage de perfectionnement professionnel au groupe hospitalier Pitié-Salpêtrière à Paris.
+A la fin de son stage, M. Mouhoumed Houssein Robert devra servir dans l’Administration du Territoire et pendant une durée de cinq années, faute de quoi il devra rembourser au Territoire la totalité des frais engagés pour son stage.
