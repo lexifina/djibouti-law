@@ -1,0 +1,1 @@
+M. Bernard Warion, médecin-capitaine, en position hors cadre des Armées, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 9 janvier 1969. date de son arrivée au Territoire pour servir au Service de Prévention de la Tuberculose.
