@@ -1,0 +1,1 @@
+La Société Commerciale et Financière de Djibouti est autorisée à acquérir une parcelle de terrain bâtie, d’une superficie de 32.700 m2, sise à Djibouti – Salines-Ouest, et faisant partie d’un terrain plus vaste, immatriculé au Livre foncier du Territoire sous le n° 201 au nom de la Compagnie des Salins du Midi et des Salins de l’Est.
