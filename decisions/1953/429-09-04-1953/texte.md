@@ -1,0 +1,2 @@
+Un congé administratif de huit mois (8), à passer à Ambilobe (Diégo-Suarez)-Madagascar, est accordé à M. Daher Gouled, secrétaire comptable contractuel au Service Judiciaire.
+Une réquisition de passage par première occasion maritime Djibouti-Diégo-Suarez et une réquistion par voie de terre Diégo-Suarez-Ambilobe seront délivrées à l’intéressé qui voyagera accompagnée de son épouse et de ses quatre enfants âgés respectivement de 8, 6, 4 et 1 ans (groupe IV).
