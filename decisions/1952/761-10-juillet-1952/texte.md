@@ -1,0 +1,2 @@
+La décision n° 707 du 30 juin 1952 susvisé est rapportée. M. Doyen (André), Chef de bureau de 2e classe d’Adminis tration générale d’Outre-Mer, est mis à la disposition du Chef du bureau des Affaires administratives. Il sera chargé du Service de l’Information et des fonctions de Secrétaire du Conseil Représentatif.
+La présente décision aura effet pour compter du 23 juin 1952, date de l’arrivée à Djibouti de l’intéressé.
