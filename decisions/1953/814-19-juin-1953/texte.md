@@ -1,0 +1,3 @@
+M. Yves de la Hosseraye, mis à la disposition de l’Assemblée Représentative de la Côte Française des Somalis pour la durée de sa première session ordinaire de 1953 et chargé de la rédaction des procès-verbaux, percevra une allocation forfaitaire de 30.000 francs.
+M. Mohamed Abdoul Gamil, chargé de la dactylographie des procès-verbaux de la première session ordinaire de l’Assemblée Représentative, pour 1953, percevra une allocation forfaitaire de 4.000 francs.
+Les dépenses visées aux articles 1er et 2 ci-dessus seront imputées au chapitre III article 2, paragraphe 1 du budget de fonctionnement du Service local pour l’exercice 1953.
