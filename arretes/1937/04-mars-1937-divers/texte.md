@@ -1,0 +1,1 @@
+M. Blajan (Julien), adjoint des services civils de la Côte française des Soma lis, est placé dans la position de disponibilité pour une période d’une année, à compter du 11 octobre 1936, date d’expiration du congé de trois mois pour affaires personnelles sans solde dont il était titulaire.
