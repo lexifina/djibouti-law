@@ -1,0 +1,1 @@
+Est transférée de la 3e à la 1er classe. B, la licence de vente de boissons exploitée par M. Abdoul-Raouf Abdoul-Majid dans son bar Victoria à Djibouti en application de la décision n°76-1243/SG/IAM du 21 mai 1976.
