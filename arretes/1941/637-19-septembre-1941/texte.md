@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Soma lis et dépendances le décret du 16 septembre 1941 rendant applicables aux colonies les dispositions le la loi du 21 août 1941 relative à la mise sous séquestre des biens des associations dissoutes.
