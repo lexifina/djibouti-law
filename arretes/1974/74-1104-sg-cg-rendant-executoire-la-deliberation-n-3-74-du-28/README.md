@@ -1,0 +1,9 @@
+# Arrêté n° 74-1104/SG/CG rendant exécutoire la délibération n° 3/74 du 28 mai 1974 du Conseil d’administration de l’Office des postes et télécommunications portant approbation de la première décision modificative du budget de l’Office pour l’exercice 1974.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 10/07/1974 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-74-1104-sg-cg-rendant-executoire-la-deliberation-n-3-74-du-28-mai-1974-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premie/>
+
+En vigueur : 1974-07-10 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t rendue exécutoire la délibération n° 3-74 du 28 mai 1974 du Conseil d’administration de l’Office des postes et télécommunications portant approbation de la première décision modificative du budget de l’Office pour l’exercice 1974 et arrêtant ce budget en recettes et en dépenses aux montants bruts ci-après : |
