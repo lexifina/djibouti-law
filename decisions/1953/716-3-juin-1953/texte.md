@@ -1,0 +1,1 @@
+employée auxiliaire 2e catégorie à salaire Journalier et mise a la disposition du Chef du Service des Finances pour compter du 26 mai 1953, en remplacement numérique de Mme Dupeyron, autorisée à cesser son service.
