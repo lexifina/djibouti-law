@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 155/8e L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas envoyant en mission en métropole le Premier vice-président de la Chambre des Députés (régularisation).
