@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Abdou Hardda infirmier stagiaire du corps territorial de la Santé publique en service à l’Hôpital Peltier (pavillon Guibert-Germain, rez-de chaussée), pour absence non motivée de la matinée du 26 janvier 1974.
