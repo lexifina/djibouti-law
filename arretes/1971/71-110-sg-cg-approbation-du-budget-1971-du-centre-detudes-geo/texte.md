@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 1-70 du Centre d’Etudes Géologiques et de Développement arrêtant le budget du Centre pour 1971 à huit millions six cent quarante-quatre mille francs Djibouti (8.644.000 FD).
