@@ -1,0 +1,2 @@
+il est institué une regi d’avance auprès du projet «Centre de Formation agricole du PK 20 Projet CFA — PK 20).
+Le montant de la caisse d’avance est fixé à 1.200.000 FD, renouvelable dans les limites budgétaires telles que prévues dans le protocole d’accord passé entre le Gouvernement de la République de Djibouti et la délégation de la Commission des Communautés européennes en date du 19 janvier 19983.
