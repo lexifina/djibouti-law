@@ -1,0 +1,1 @@
+Le Sergent d’Infanterie de Marine Isaac Raymond précédemment en service à la 1° Compagnie de Milice (Chef de Poste à Yoboki) est affecté à la 2° Compagnie de Milice pour remplir les fonctions de Secrétaire à compter du 27 décembre 1961.
