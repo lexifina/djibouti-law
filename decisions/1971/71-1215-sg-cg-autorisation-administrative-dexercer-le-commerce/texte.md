@@ -1,0 +1,1 @@
+Dérogation est accordée à M. Ernest Corassadijian, de natiolité hellénique, autorisé à transférer l’exploitation d’une licence de 3° classe aux «Etablissement l’Europe», sis avenue Saint-Laurent-du-Var à Djibouti.
