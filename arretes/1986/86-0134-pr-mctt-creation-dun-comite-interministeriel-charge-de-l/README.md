@@ -1,0 +1,27 @@
+# Arrêté n° 86-0134/PR/MCTT portant création d’un comité interministériel chargé de l’application du traité créant la ZEP.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 16/02/1986 · <https://www.journalofficiel.dj/texte-juridique/arrete-n86-0134-pr-mctt-portant-creation-dun-comite-interministeriel-charge-de-lapplication-du-traite-creant-la-zep/>
+
+En vigueur : 1986-02-16 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU Les lois constitutionnelles n°s LR/77-001 et LR/77-002 du 27 juin 1977 ;
+VU L’ordonnance n°LR/77-008 en date du 30 juin 1977 ;
+VU Le décret n°82-041/PRE du 5 juin 1982 portant nomination des membres du gouvernement ;
+Sur proposition du ministre du Commerce, des Transports et du Tourisme ;
+Le conseil des Ministres entendu en sa séance du 28 janvier 1986.
+
+## Signature
+
+Par le Président de la République,
+HASSAN GOULED APTIDON.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
