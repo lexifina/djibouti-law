@@ -1,0 +1,28 @@
+# Arrêté n° 712 pris en Conseil d’administration et réglementant les vacances judiciaires pour l’année 1939.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-712-pris-en-conseil-dadministration-et-reglementant-les-vacances-judiciaires-pour-lannee-1939/>
+
+En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+Le Gouverneur de la Côte française des Somalis et dépendance,
+Vu l'ordonnance organique du 18 septembre, rendue applicable à la colonie par décret du 18 juin 1884,
+Vu l'article 29 du décret du 4 février 1904 :
+Vu l'article 8 du décret du 24 juillet 1914 créant un tribunal de 1re instance à la Côte française des Somalis :
+Vu le décret du 22 août 1928 déterminant le statut de la magistrature coloniale :
+Vu l'arrêté du 30 juin 1938 réglementant les vacances judiciaires :
+Vu les nécessités du service:
+Sur la proposition du chef du Service judiciaire :
+Le Conseil d'administration entendu dans sa séance du 13 juillet 1939.
+
+## Signature
+
+Hubert DESCHAMPS.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art.2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
