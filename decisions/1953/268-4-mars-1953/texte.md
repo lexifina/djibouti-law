@@ -1,0 +1,1 @@
+M. Henry (Henri) est engagé a titre précaire et révocable, en qualité de soudeur à l’arc à la solde mensuelle de quarante-cinq mille francs (45.000 fr.), exclusive de toute indemnité, y compris les charges de famille, pour compter du 19 Janvier 1953 et mis à la disposition du Directeur du Service des Travaux Publics.
