@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 222/7°L du 10. décembre 1971 de la Chambre des Députés portant création d’un Fonds spécial d’aide et de prévoyance dans le Territoire Français des Alurs Et des Issas.
