@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 151/8° L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas, portant modification du budget du Territoire pour l’exercice 1975.
