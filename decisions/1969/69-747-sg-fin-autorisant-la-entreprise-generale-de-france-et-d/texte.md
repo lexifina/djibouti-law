@@ -1,0 +1,1 @@
+La Société Entreprise Générale de France d’Outre-Mer Djibouti (S.E.G.E.F.O.M. – Djibouti) est autorisée à acquérir un immeuble sis à Diibouti, Plateau du Serpent, boulevard Maréchal-Lyautey, et immatriculé au Livre foncier du Territoire sous le n° 332 au nom de la S.A. Crédit Foncier et Immobilier.
