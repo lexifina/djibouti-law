@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 175/7° L du 23 avril 1971, de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas, constatant la nouvelle dénomination d’une compagnie d’assurances qui exerçait déjà son activité dans le Territoire et confirmant l’agrément de l’agent spécial de cette compagnie sous sa nouvelle dénomination.
