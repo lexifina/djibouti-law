@@ -1,0 +1,1 @@
+, est exonéré des taxes et surtaxes d’importation, un envoi de 400 tonnes de sucre d’une valeur de 16.000.000 FD, de 300 tonnes d’huile d’une valeur de 48.900.000 FD et de 300 tonnes de lait en poudre d’une valeur de 12.000.000 FD don du Gouvernement de la RFA a l’ONARS pour une distribution gratuite aux réfuaiés en République que de Djibouti.
