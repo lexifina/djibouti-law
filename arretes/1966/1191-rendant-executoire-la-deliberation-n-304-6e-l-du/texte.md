@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 304/6e/L du 8 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis relative aux règles spéciales d’immatriculation des véhieules automobiles ou remorqués dans les séries W et WW.
