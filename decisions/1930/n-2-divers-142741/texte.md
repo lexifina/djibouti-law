@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est interdit pendant cinq ans aux nommés Elmi Egal (Issa Fourlaba) et Abdillahi Ahmed (Issa Fourlaba), condamnés à six mois d’emprisonnement et cinq ans d’interdiction de séjour pour vol.
