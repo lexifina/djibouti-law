@@ -1,0 +1,1 @@
+Le séjour dans le Cercle de Djibouti et dans le Cercle d’Ali-Sabieh est interdit pendant 5 ans à compter du 18 juin 1962 à Aden Cheick Hassan, gadabourci makael ougasse, né vers 1934 à Djibouti, de Cheick Hassan et de Amina Hadji Osman, condamné à 3 ans de prison et 5 ans d’interdiction de séjour par jugement du 24-octobre 1960 du Tribunal Supérieur d’Appel de Djibouti.
