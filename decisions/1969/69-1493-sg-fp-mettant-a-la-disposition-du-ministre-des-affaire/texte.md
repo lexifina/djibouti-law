@@ -1,0 +1,1 @@
+M. Brunet Marc, volontaire de l’Aïide technique, est, pour compter du 9 septembre 1969, date de son arrivée au Territoire, mis à la disposition du Ministre des Affaires intérieures, pour servir à la Voirie (District de Djibouti) en qualité de technicien-mécancien auto, en remplacement numérique de M. Petraz rapatrié.
