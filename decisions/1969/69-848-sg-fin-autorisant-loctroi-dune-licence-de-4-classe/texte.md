@@ -1,0 +1,1 @@
+Le «Ball-Trap Club de Djibouti est autor.sé à exploiter une licence de 4° classe, au stand d’Hayabeleh, au kilomètre 6 de la route de l’Arta, pour la vente de boissons alcoolisées qu’à leurs adhérents.
