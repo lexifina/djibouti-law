@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 207/7° L du 7 octobre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français dés Afars et des Issas portant approbation du compte administratif de Office de Développement du Tourisme pour l’exercice 1970.
