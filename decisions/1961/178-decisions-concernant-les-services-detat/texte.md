@@ -1,0 +1,1 @@
+MM. Kassim Saïd et Mohamed Hersi Prosper, instituteurs adjoints stagiaires qui ont subi avec succès les épreuves du Certificat Elémentaire d’Aptitude Pédagogique sont titularisés instituteurs adjoints de 6° classé du Corps supérieur de l’Enseignement de lä Côte Française des Somlis et rangés à l’indice 160 pour compter du 1 janvier 1960.
