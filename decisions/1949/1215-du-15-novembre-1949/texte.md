@@ -1,0 +1,1 @@
+Le milicien de 1er classe Mabammad Hassan, matricule 737, de la 1er compagnie de milice à Dikhil, décédé à Dikhil le 27 septembre 1949, est rayé des contrôles de la milice indigène à compter du 28 septembre 1949.
