@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 366/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant modification du plan directeur d’urbanisme de Djibouti, concernant les emprises des voies: avenue de Brazzaville et rue des Issas.
