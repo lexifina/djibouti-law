@@ -1,0 +1,1 @@
+Le chef du Service de l’’Elevage du Ministère des Affaires économiques assurera l’expédition des affaires courantes du Service Hydraulique pendant l’absence du chef du Service de l’Hydraulique, titulaire d’un congé pour compter du 16 juin 1965.
