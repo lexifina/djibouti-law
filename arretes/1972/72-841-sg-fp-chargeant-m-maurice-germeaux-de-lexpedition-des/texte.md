@@ -1,0 +1,1 @@
+M. Maurice Germeaux, ingénieur divisionnaire des travaux agricoles, chef du Service de l’Agriculture et des Forêts, est, cumulativement avec ses fonctions actuelles, chargé de l’expédition des affaires courantes du Service de l’Elevage et des Pêches pendant la durée d’absence de M. Jean Keravec, titulaire d’un congé administratif à passer en métropole.
