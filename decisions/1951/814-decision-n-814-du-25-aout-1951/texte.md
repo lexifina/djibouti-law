@@ -1,0 +1,2 @@
+Un passage de retour par anticipation pour Madagascar est accordé à Mme Ravoavy Gilbert (Razanabahoaka Madeleine), épouse d’un ouvrier principal hors classe du cadre spécial de Madagascar, en service à la Côte Française des Somalis.
+Une réquisition de passage par voie maritime Djibouti-Tamsiave et une réquisition par voie de terre Tamatave-Analamohisty (canton d’Ambatomainty), Tananarive V.U.,.seront délivrées à l’intéressé (Groupe III).
