@@ -1,0 +1,2 @@
+Annulation de l’arrêté n° 412 en date du 22 mars 1966 de M. le Gouverneur, Chef du Territoire de la C.F.S. en ce qui
+concerne le sieur Djama Elmi Waberi, né vers 1940 à Djibouti, fils de Elmi Waberi et de Doha Eyeh, chauffeur, demeurant au quartier 6, n° 27, rue 36. L’intéressé est mis en demeure de se présenter à une session dé permis de conduire catégorie «D » courant juin 1966. A défaut de réussite, il lui sera interdit de se présenter à une nouvelle session de permis avant un an.
