@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 497/6L du 10 juin 1968 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant ouverture de crédits supplémentaires au budget annexe du port pour l’exercice 1968.
