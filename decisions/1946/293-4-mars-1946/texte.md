@@ -1,0 +1,1 @@
+Les nommés Ali Boble, Guelle Osman. Hassan Roble, Hassan Roulé. Abdillaï Tabeh ont été engagés en qualité de préposés stagiaires de 5e classe des douanes (assimilation 3e échelon) à compter du 1er mars 1946 en accroissement d’effectif.
