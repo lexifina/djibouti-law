@@ -1,0 +1,1 @@
+Mme Francine Massines, née Pafes, institutrice de 4° échelon de département de la Corse,-en sefvice détaché depuis le 15 octobre 1969, est mise à la-disposition dà Ministre de l’Enseignement, des Sports et de la Jeunesse.
