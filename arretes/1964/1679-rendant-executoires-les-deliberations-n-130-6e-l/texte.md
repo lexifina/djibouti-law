@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations n° 130/6eL et 131/6eL du 2 décembre 1964 de la Commission Permanente de l’Assemblée Territoriale portant autorisation de virement de crédits du budget du Service local, exercice 1964.
