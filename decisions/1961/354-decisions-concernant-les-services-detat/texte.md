@@ -1,0 +1,5 @@
+Le Sergent-chef Ganouck Ismaël, Mle 486, de la 1re Cie de Milice à Dikhil, lié par contrat jusqu’au 1er juillet 1962, est licencié pour inaptitude à l’emploi pour compter du 1er mars 1961.
+L’intéressé totalisant au 28 février 1961, 18 ans 7 mois et 28 jours de service “effectif dans la Milice et 3 ans 8 mois 25 jours de services «armée», soit au total 22 ans 4 mois 23 jours de
+service, est admis à faire valoir ses droits au bénéfice de l’allocation viagère annuelle en exécution des articles 6 et 19 de l’arrêté n° 105 du 3 février 1943, il sera libéré et rayé des contrôles de la Milice pour compter du ler mars 1961, il recevra le certificat de libération.
+Le Sergent-Chef Ganouk Ismaël, Mie 486, bénéficiera à compter du ler mars 1961 d’une allocation viagère annuelle de 54.333 francs Djibouti (cinquante quatre mille trois cent trente trois) payable trimestriellement et à terme échu sur le vu d’un certificat de vie délivré par les autorités compétentes.
+Les droits à solde, vivres-et permission de l’intéressé seront Jiquidés par les soins de l’agent spécial de la 1re Cie à Dikhil.
