@@ -1,0 +1,1 @@
+Est constatée, pour compter du 12 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Edgard Xiste, surveillant général (indice nouveau 416), en service au Lycée de Djibouti.
