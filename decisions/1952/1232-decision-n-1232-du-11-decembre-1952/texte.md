@@ -1,0 +1,2 @@
+Mme Asselefeche Afrassa est engagée pour compter du 10 décembre 1952, à titre essentiellement précaire et révocable, en qualité de lingère auxiliaire au salaire mensuel de 5.620 francs exclusif de toutes indemnités, y compris celles accordées pour charges de famille.
+L’intéressée est mise à la disposition du Directeur du Service de Santé, en remplacement numérique de M. Houssein Hassan,linger licencié.
