@@ -1,0 +1,1 @@
+M. Rabary (Gervais), secrétaire comptable, est mis à la disposition du Trésorier-Payeur en qualité de secrétaire comptable auxiliaire à la solde mensuelle de vingt et un mille francs, en remplacement numérique de Mme Bourdeau, pour compter du 16 juin 1951.
