@@ -1,0 +1,2 @@
+Un poste permanent de conseïller pédagogique est créé au Service de l’Enseignement du l‘’ degré pour l’année scolaire 1969-1970.
+Le titulaire de ce poste est désigné par le Ministre de l’Enseignement, des Sports et de la Jeunesse, sur proposition de l’I.D.E.N. Il doit remplir les conditions exigées par les textes en vigueur pour les maîtres d’application. Il est plus particulièrement chargé du Bureau pédagogique, de la formation qui personnel enseignant (cours normal, classe d’application) et du Bureau des examens.
