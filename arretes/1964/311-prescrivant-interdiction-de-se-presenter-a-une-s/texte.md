@@ -1,0 +1,1 @@
+L’arrêté n° 1551 en date du 27 décembre 1963. portant interdiction de se présenter à une session de permis de conduire en vue de l’obtention du permis de catégorie « À » est prorogé pour une durée de un an en ce qui concerne le sieur Enosy (Joseph), né vers 1928 à Masoarivo (République Malgache), fils de Rasoa Rehanvy. caporal-chef à Diibouti, détaché au Service de l’Intendance.
