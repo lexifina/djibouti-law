@@ -1,0 +1,1 @@
+MM. Saleh Ahmed Ghaleb Al Koubaty et Othman Ali Othman sont autorisés à acquérir une parcelle de terrain bâti, d’une surface de 268,95 m’, sis à Djibouti, avenue Georges-Clémenceau et immatriculée au Livre foncier du Territoire sous le n° 1111, au nom de M. Abdo Saleh AM. Kafou
