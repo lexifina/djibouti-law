@@ -1,0 +1,2 @@
+# Préambule
+Art 1er .les dispositions du nrésent arrêté aui visent les bénéficiaires des autorisations d’accès au port prévues par l’article ler de l’arrêté 63/104 du 30 août 1963 s’appliquent exclusivement à l’ensemble des Voies routières situées dans l’enceinte du Port de Djibouti, à l’exclusion des quais et terre-pleins sur lesquels le stationnement et la circulation sont réservés aux véhicules de service et de travail des professionnels du Port, sauf exception soumise à autorisation du Commandant du Port.
