@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, La détention ou a vente au publie de produits destinés à l’usage de la médecine et rangés aux tableaux A, B et C annexés au décret du 26 février 1923, l’exécution des ordonnances magistrales, la vente de médicaments dont l’emploi à forte dose. pourrait être. dangereux sont rigoureusement interdites à quiconque n’est pas muni du diplôme d’Etat de pharmacien, exception faite pour les formations sanitaires surveillées par le Service de santé.
