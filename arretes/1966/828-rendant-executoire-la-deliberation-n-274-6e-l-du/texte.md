@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 274/6e L du 24 mai 1966 de l’Assemblée Territoriale de la Côte Française des Somalis interdisant l’abandon de tout véhicule, remorque ou pièce détachée de véhicule ou de remorque sur le domaine public ou privé du Territoire.
