@@ -1,0 +1,1 @@
+Est publié à la Côte française des Somalis et dépendances le décret du 21 septembre 1941 relatif aux conditions d’accès dans le corps civil de l’inspection des colonies pour les anciens officiers des armées de terre, mer et air appartenant à des corps ou services devenus civils.
