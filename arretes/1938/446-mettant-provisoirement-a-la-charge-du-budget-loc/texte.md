@@ -1,0 +1,1 @@
+Est mis provisoirement à la charge du bud get local le montant du déficit de 22.433 fr. 07 (vingt deux mille quatre cent trente-trois francs sept centimes) constaté dans la caisse du rece veur de l’enregistrement d’après le procès-ver bal susvisé du 15 décembre 1937.
