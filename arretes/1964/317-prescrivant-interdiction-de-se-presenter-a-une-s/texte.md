@@ -1,0 +1,1 @@
+Il est interdit au sieur Abdillahi Houssein Warsama, somali issack abar-awal, né vers 1945 à Djibouti, fils de Houssein Warsama et de Aïcha Mohamed, aide-chauffeur, demeurant à Djibouti, sans domicile fixe, de se présenter à une session de permis de Conduire avant une durée de un an, en vue de l’obtention des permis de catégories « B-C-D-E».
