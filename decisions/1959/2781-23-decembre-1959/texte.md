@@ -1,0 +1,2 @@
+Mme Vigne (Odette). ek-secrétaire sténo-dactylographe auxiliaire; est réengagée en la même qualité et mise à la disposition du Ministre des Finances, des AffaireS économiques et du Plan pour servir au Bureau des Affaires économiques, pour compter du 15 décembre 1959.
+Mme Vigne (Odette) est rangée à la 1re catégorie, échelle XII, 2e échelon, avec effet au point de vue d’ancienneté à compter du 16 décembre 1959.
