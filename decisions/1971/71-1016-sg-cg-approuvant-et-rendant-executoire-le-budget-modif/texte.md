@@ -1,0 +1,1 @@
+Est approuvé et rendu exécutoire le budget modificatif de l’exercice 1971 de l’Office de Développement du Tourisme s’élevant en recettes et en dépenses à la somme de quatorze millions six cent quatre-vingt-quinze mille deux cent dix-huit francs, pour la section ordinaire, et à la somme de sept millions sept cent mille francs, pour la section extraordinaire.
