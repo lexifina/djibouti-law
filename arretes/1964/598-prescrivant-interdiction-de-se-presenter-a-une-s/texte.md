@@ -1,0 +1,2 @@
+L’arrêté n° 1550 en date du 27 décembre 1963 portant interdiction de se présenter à une session de permis de conduire en vue de l’obtention des permis de catégories «B » et au-dessus est prorogé pour une durée de cing ans en ce qui concerne le sieur Moussa Ismael Kipar, somali issack abar awal, né vers 1932 à Djibouti, de Ismael Kipar et dé Fatma Ali, mécanicien demeurant à Djibouti, quartier 3, rue 7, maison 44.
+L’intéressé ne pourra, en conséquence, se présenter à une session de permis de conduire avant le 6 juin 1973.
