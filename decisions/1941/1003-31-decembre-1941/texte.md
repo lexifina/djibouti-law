@@ -1,0 +1,1 @@
+M. Parthenay. administrateur de 2e classe des colonies, est nommé administrateur des biens du condamné Belonia Solon pour compter du 1er janvier 1942 en remplacement de M. l’administrateur adjoint Febreau.
