@@ -1,0 +1,1 @@
+Le M.d.l. Chef Jacquet André, est nommé Chef du service administratif et comptable billeteur de la Garde Territoriale, pour compter du le janvier 1961, en remplacement du Gendarme Guigo en instance de rapatriement.
