@@ -1,0 +1,1 @@
+M. Georges Meffre, contrôleur des impôts, est chargé de l’expédition des affaires courantes et urgentes du service des Contributions directes, pendant la durée d’absence de M. Jean Bruna, titulaire d’un congé administratif.
