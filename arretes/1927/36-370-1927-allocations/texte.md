@@ -1,0 +1,1 @@
+à compter du 7 août 1927, lendemain du décès du sukan de Tadjourah, et jusqu’à Fintronisetion de son successeur, l’allocation annuelle de 1.200 thalers inscrite au chapitre 4, article 3, paragraphe 9, du budget local, sera mandalée mensuellement au non de Houmed Mohamed, fils du sullan de Tadjourah.
