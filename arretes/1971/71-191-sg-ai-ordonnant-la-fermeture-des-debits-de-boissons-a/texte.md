@@ -1,0 +1,2 @@
+Les débits de boissons à consommer sur place, dancings, night-clubs, bars et autres établissements similaires seront fermés à partir du samedi 13 mars 1971 à 22 heures jusque lundi 15 mars 1971 à 7 heures.
+Les restaurants sont autorisés à rester ouverts maïs seulement aux heures normales des repas, c’est-à-dire, le samedi 13 mars jusqu’à 22 heures et le dimanche 14 mars de 7 h.30 à 8 h. 30, de 12 heures à 18 heures et dé 19 h. 80 à 21 heures.
