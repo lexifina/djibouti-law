@@ -1,0 +1,26 @@
+# Loi n° 183/AN/85/1ère L Accordant des parcelles de terrains domaniaux en concession provisoire
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-85-1ere-l-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+
+En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
+
+## Visas
+
+L'ASSEMBLEE NATIONALE A ADOPTE
+
+LE PRESIDENT DE LA REPUBLIQUE PROMULGUE LA LOI DONT LA TENEUR SUIT :
+
+VU Les Lois constitutionnelles n°s LR/77-001 et 77-002 au 27 JUIN 1977 ;
+
+VU l'Ordonnance n° 77-008 en date au 30 Juin 1977 ;
+
+VU le Décret n° 82-041/PRE au 5 JUIN 1982, Portant nomination des membres au Gouvernement ;
+
+VU le Décret du 29 JUILLET 1924 fixant et organisant le domaine privé dans le territoire dans son ensemble et son arrêté d'application, du 8 Décembre 1925.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
