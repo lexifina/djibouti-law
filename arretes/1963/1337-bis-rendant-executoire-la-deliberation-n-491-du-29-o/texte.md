@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 491 du 29 octobre 1963 de la Commission permanente de l’Assemblée Territoriale portant ouverture de crédits supplémentaires au Budget du service local, exercice 1963.
