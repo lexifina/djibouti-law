@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 190/7°L du 19 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à l’Etat Francais (Ministère de l’Education nationale) la concession définitive d’un terrain sis à Diibouti (titre foncier n° 1321).
