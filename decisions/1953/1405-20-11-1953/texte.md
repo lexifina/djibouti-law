@@ -1,0 +1,1 @@
+M. Castellani (Charles), inspecteur principal de 5e classe de police, de retour de congé, est mis à la disposition du Chef du Service de la Sûreté générale, pour compter du 13 octobre 1953, date de son débarquement sur le Territoire.
