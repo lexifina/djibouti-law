@@ -1,0 +1,1 @@
+M. Dochez Alain, brigadier CRS est pour compter du 2 juillet 1975 mis à la disposition du chef de District de Djibouti (ministère de l’Intérieur et des Affaires Musulmanes) pour servir à l’encadrement du détachement de sécurité publique.
