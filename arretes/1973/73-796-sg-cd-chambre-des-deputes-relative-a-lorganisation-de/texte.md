@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 346/7e L du 10 mai 1973 de la Chambre des Députés du Territoire français des Afars et des Issas relative à l’organisation de la profession et au statut professionnel des commissaires aux comptes de société en Territoire français des Afars et des Issa.
