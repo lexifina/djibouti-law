@@ -1,0 +1,2 @@
+# Préambule
+Art-1er–En cas de déplacement collectif de tout ou partie de la selection d’intervention de la Garde territoriale, l’alimentation personnel en déplacement sera assurée en nature sur base d’un crédit de 270 F.D. par jour pour chaque gradé ou garde Cette prestation en nature est exclusive de toute indemnité deplacement. Elle sera versée. au régisseur de la Caisse du Mess Garde territoriale.
