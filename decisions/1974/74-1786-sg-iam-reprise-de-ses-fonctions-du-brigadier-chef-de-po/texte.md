@@ -1,0 +1,1 @@
+M. Noël Rôchet, brigadier-chef de Police, de retour dans le Territoire le 30 octobre 1974 reprend, pour compter de cette date,les fonctions de chef du service Administratif et comptable-billteur de la Garde Territoriale.
