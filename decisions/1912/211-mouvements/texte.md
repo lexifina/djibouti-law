@@ -1,0 +1,1 @@
+une Commission composée de : MM. Carreau, administrateur des Colonies, : président ni Faucon, chef du Service des Travaux publics ; Bouet, Capitaine commandant la brigade ; est nommée pour procéder à l’examen et à la réception définitive des bâtiments des casernes.
