@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 223 du 12 décembre 1969 du Conseil d’administration d’Electricité de Djibouti arrétant l’état de prévisions de recettes et dépenses d’Electricité de Djibouti, pour l’année 1970, à la somme de 857.900.000 francs Djibouti (huit cent cinquante-sept millions neuf cent mille francs Djibouti).
