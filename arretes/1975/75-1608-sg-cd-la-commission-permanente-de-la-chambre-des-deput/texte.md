@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 147/8e L du 5 août 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du compte administratif de la Chambre de Commerce et d’Industrie de Djibout pour l »exercice 1972.
