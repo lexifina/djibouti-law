@@ -1,0 +1,1 @@
+L’Administrateur en Chef des Colonies ARLABOSSE, Commandant le Cercle de Djibouti, est nommé Président par délégation de l’Office Colonial des Anciens Combettants de la Côte Française des Somalis en remplacement du Chef de Bataillon CEDE, en instance de départ.
