@@ -1,0 +1,1 @@
+Mlle Besue (Marie-Antoinette), chiffreur de 1er classe, dont le séjour administratif arrive à expiration le 3 octobre 1960, est autorisée à prolonger son séjour de six mois à compter de la date précitée.
