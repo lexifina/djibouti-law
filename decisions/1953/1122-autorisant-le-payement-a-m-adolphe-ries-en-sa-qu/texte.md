@@ -1,0 +1,2 @@
+Est autorisé le payement à M. Adolphe Riès, agent special pour la Côte Française des Somalis du «Groupement Francais d’Assurances » de la somme de cinq mille francs Djibouti (5.000 fr. Dj.) représentant la moitié des frais de réparations effectuées sur le taxi n° 867 DI appartenant à M. Ahmed Moutana, à la suite de la collision survenue le 2 mars 1953 entre ce taxi et une motocyclette de l’Administration.
+La dépense visée à l’article ci-dessus est imputable au budget de fonctionnement du Service local pour l’exercice 1953, section XIII, Chapitre 27, article 9, $ 1er.
