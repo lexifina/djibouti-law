@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 16/7° L du 25 janvier 1969 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas envoyant en mission en métropole le Président de la Chambre des Députés.
