@@ -1,0 +1,1 @@
+Mme Kadidja Mohamed est engagée en qualité de femme de service pour servir à l’école des filles de Djibouti pour compter du 55 janvier 1953, au salaire mensuel de 4.025 francs exclusif de toutes indemnités.
