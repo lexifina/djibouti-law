@@ -1,0 +1,1 @@
+Est rendue-exécutoire la délibération n° 150/6e L du 21 janvier 1965 de l’Assemblée Terfitoriale de la Côte Française des Somalis complétant le barème des droits d’exploitation du Port de commerce de Djibouti en ce qui concerne les navires hors d’état de navigabilité.
