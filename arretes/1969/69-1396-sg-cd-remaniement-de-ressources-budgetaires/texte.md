@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 54/7° L du 13 septembre 1969 de la Commission permanente de la Chambre des Députés portant approbation du compte administratif du budget de la Caisse locale de retraites, exercice 1968.
