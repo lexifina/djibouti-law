@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 63/6e L du 14 avril 1964 de la Commission permanente de l’Assemblée Territoriale soumettant au droit fixe les marchés passés par l’Office des Postes et Télécommunications de la Côte Française des Somalis.
