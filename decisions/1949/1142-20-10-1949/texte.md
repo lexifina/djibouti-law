@@ -1,0 +1,1 @@
+M. Depouïlly (Roland) directeur du groupe scolaire de Djibouti, professeur pérennisé des cours complémentaires, est désigné ponr assurer la direction du cours complémentaire cumulativement avec celle du groupe scolaire à compter du 1er octobre 1949.
