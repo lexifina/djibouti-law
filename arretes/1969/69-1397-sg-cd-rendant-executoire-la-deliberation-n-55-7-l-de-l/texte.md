@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 55/7°L du 13 septembre 1969 de la Commission permanente de la Chambre des Députés accordant à l’Etat Français (Ministère de l’Economie et des Finances) un délai supplémentaire de trois ans pour réaliser la mise en valeur d’un terrain, sis à Djibouti, boulevard de la République, et immatriculé au livre -foncier du Territoire sous le n° 605.
