@@ -1,0 +1,1 @@
+M. Hamoudi Ali Mohamed est autorisé à exercer le commerce des boissons à Obock, licence de 1° classe (débitants, cafetiers, restaurateurs, vendant toutes boissons à consommer sur place ou à emporter).
