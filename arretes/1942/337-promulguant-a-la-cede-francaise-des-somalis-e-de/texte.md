@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 14 mars 1942 complétant, modifiant et codifiant le régime des prix dans les territoires dépendant du secrétariat d’Etat aux colonies.
