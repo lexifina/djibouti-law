@@ -1,0 +1,3 @@
+# Article unique
+— Le Président du Conseil de Gouvernement est habilité à passer, au nom du Territoire Français des Afars et des Issas, avec M. le Haut-Commissaire de la République dans le Territoire, agissant au nom et pour le compte de l’Etat Français, un acte de cession amiable d’une parcelle de terrain non bâti, d’une superficie de 1.369 mètres carrés environ, sis à Djibouti, en bordure de la rue des Aïfars, faisant partie du titre foncier n° 843 appartenant au Territoire.
+La parcelle de terrain à aliéner est destinée à la construction d’un bâtiment pour les besoins du service de la population et de l’état civil.
