@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est infligé à M. Abdillahi Miguil Guelleh, infirmier de 2° classe – 2° échelon du corps territorial de la Santé Publique, en service au dispensaire de Dikhil (ministère de la Santé Publique) pour refus d’assurer son tour de garde et absences non motivées du 22 et 23 janvier 1974.
