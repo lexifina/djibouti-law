@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 69/8e L, du 18 novembre 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des Afärs et des Issas, habilitant le Président du Conseil de Gouvernement à passer au nom et pour le compte du Territoire un acte d’acquisition amiable de terrain.
