@@ -1,0 +1,1 @@
+M. Decieux, trésorier-payreur de la colonie, inspecteur des colonies en tretraite, ancien administrateur de la marine, est chargé ad hoc des fonctions de chef de service de l’inscription maritime pour procéder à l’enquête réglementaire sur la perte en mer du paquebot Georges-Philippar.
