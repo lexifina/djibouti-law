@@ -1,0 +1,1 @@
+la somme de 9.418 fr. 32, perçue à titre de droit de quai, suivant liquidation de douane n° 12.312, sur l’expédition de 5.232 tonnes 400 de sel marin chargées sur le vapeur Baron-Graham, à destination de Calcutta, sera remboursée à la Société des Salines de Djibouti, à titre de contribution, exceptionnelle et gracieuse.
