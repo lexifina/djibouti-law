@@ -1,0 +1,1 @@
+M. Frantz (Georges-Félix), garde principal après cinq ans de la garde indigène de la Côte française des Somalis, est placé dans la position de disponibilité pour une période de deux années, à compter du 5 décembre 1931.
