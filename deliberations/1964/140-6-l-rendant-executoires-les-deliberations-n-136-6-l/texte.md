@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1686 du 5 décembre 1964, la Commission Permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère des Armées) la concession provisoire d’un terrain d’une superficie de neuf hectares dix-neuf ares environ, sise à Dikhil.
