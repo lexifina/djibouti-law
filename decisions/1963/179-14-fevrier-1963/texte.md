@@ -1,0 +1,1 @@
+M. Collomb Camille, comptable contractuel, catégorie C, 3e échelon, est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan, pour servir au Service des Contributions, pour compter du 27 janvier 1963, date de son retour dans le Territoire.
