@@ -1,0 +1,1 @@
+À titre d’essai, le café en transit en provenance d’Ethiopie ne sera pas assujeiti aux frais d’entreposage des marchandises dans les magasins administratifs et sur les terre-pleins du port, prévus au Code général des impôts indirects et droits d’usage perçus sur marchandises à l’entrée ou à la sortie du Territoire, dans son annexe 3, paragraphe II.
