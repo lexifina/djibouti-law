@@ -1,0 +1,1 @@
+M. Georges Laloux, représenté à Djibouti par M. Georges Grégoire, est au torisé à acquérir à titre définitif le lot n° 4 du plan de lotissement de Boulaos «pii lui fut accordé par acte du Gouvernement de la Côte française des Somalis, le 11 mai 1926.
