@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 324/7e L. du 20 mars 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas modifiant la délibération n° 102/7e L. du 5 mai 1970 portant Code de la Route du Territoire français des Afars et des Issas.
