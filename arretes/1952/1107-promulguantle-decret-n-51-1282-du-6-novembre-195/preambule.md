@@ -1,0 +1,2 @@
+# Préambule
+Art. — Est promulgué, dans le Territoire de la Côte Française des Somalis, le décret n » 51-1282 du 6 novembre 1951 complétant, en ce qui concerne le personnel servant dans les territoires relevant du Ministère de la France d’Outre-Mer, les disposiitons du décret du 3 juillet 1897, portant règlement sur les indemnités de route et de séjour, les concessions de passage et les frais de voyage à l’étranger des officiers, fonctionnaires, employés et agents civils et militaires des services coloniaux ou locaux.
