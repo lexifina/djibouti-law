@@ -1,0 +1,1 @@
+réndue exécutoire par arrêté n° 628 du 27 avril 1965, là Cofimission Permanente de l’Assemblée Territoriale à äccordé à M. Ali Mawell Dirié la concession provisoire d’une parcéllé de térraiñ d’une superficie de 300 m2, sise à Djibouti, quartier dé l’Ancien ÀAbattoir, au prix de 200 francs le mètre carré.
