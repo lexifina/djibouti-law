@@ -1,0 +1,4 @@
+Est rapporté l’article 2 de la décisionne 1244 du 21 septembre 1962 portant rengagement dans la Garde Territoriale, pour une durée de 6 mois, du Sergent-Chef Waïss Farah, mle 023.
+Le Sergent-Chef Waiss Färah, mle 023, de la Garde Territoriale, est admis à faire valoir ses droits à l’allocation viagère d’ancienneté, pour compter du 11 octobre 1962.
+Il sera rayé des contrôles de la Garde Territoriale ledit jour et recevra le certificat de bonne conduite.
+Ce gradé, totalisant à cette date 5 ans de service militaire et 16 ans, 7 mois et 22 jours de service dans les Forces Locales, soit un total de 21 äns, 7 mois et 22 jours de service, percevra une allocation viagère annuelle d’ancierfneté’de soixante-dix-huit mille francs (78.080), payable trimestriellement par le Service des Finances de Djibouti, sauf avis contraire de ce service.
