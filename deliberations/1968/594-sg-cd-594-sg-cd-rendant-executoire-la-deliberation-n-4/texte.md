@@ -1,0 +1,1 @@
+Est rendue’ exécutoire la délibération n° 465/6°L du 8 avril 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant organisätion dùu Centre de formation professionneile des adultes.
