@@ -1,0 +1,1 @@
+M. Ibrahim Ali Ahmed, arabe, citoyen français, gérant de la station-service dite «Le Cheval Rouge », demeurant à Djibouti, est autorisé à acquérir un terrain bâti, sis à Djibouti, plateau du Serpent, et faisant partie du titre foncier no 109 appartenant à la Compagnie Européenne Immobilière et Commerciale (C.E.I.C.), ancienne Compagnie de l’Afrique Orientale (C.A.0.).
