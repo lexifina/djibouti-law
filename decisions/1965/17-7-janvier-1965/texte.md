@@ -1,0 +1,1 @@
+M. Abdallah Mohamed Ragueh, chauffeur principal, 2e classe du Cadre territorial des chauffeurs-mécaniciens et chauffeurs, en service à l’Aviation civile (Service Météorologique) est déféré devant le Conseil de Discipline pour retards répétés dans le service et mauvaise manière générale de servir.
