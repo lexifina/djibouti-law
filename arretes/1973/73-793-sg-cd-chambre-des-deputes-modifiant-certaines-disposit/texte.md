@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 343/7e L du 10 mai 1973 de la Chambre des Députés du Territoire français des Afars et des Issas modifiant certaines dispositions du décret n° 67-236 du 23 mars 1967 sur les sociétés commerciales.
