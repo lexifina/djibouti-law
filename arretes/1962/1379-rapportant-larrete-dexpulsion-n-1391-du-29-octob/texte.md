@@ -1,0 +1,1 @@
+Est rapporté l’arrêté d’expulsion n° 1391 du 29 octobre 1955 en ce qui concerne : Abdillahi Galeb Ofieh, Somali Gadabourcy Mahadassé Rer Mohamed Rer Abdillahi, né à Zeila (République Somalie), vers 1938 de Galeb Ofieh et de Mako Sareyeh, pêcheur.
