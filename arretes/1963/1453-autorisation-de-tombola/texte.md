@@ -1,0 +1,1 @@
+M. Bertrou, président du Club Nautique de Djibouti est autorisé à organiser une tombola composée de 10.000 billets à deux cents francs l’un, dont le produit sera exclusivement destiné à favoriser la pratique des sports nautiques.
