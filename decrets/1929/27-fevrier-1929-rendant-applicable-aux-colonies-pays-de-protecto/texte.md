@@ -1,0 +1,1 @@
+rendant applicable aux Colonies, pays de protectorat et territoires sous mandat relevant du Ministère des Colonies, la loi du 26 mars 1924. relative aux énonciations du dispositif des jugements de divorce et de séparation de corps.
