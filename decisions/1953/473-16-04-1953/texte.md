@@ -1,0 +1,2 @@
+Une subvention d ecent auarante mille francs métropolitains (140.000 F.M.) est accordée à l’Institut d’élevage et de médecine vétérinaire des pays tropicaux, pour l’année 1953, au titre de contribution aux frais de fonctionnement de cet organisme.
+La dépense visée à l’article 1er est impuable à l’article 9, paragraphe 1 du chapitre XXXI (section XV) du budget de fonctionnement du service local pour l’exercice 1953.
