@@ -1,0 +1,2 @@
+M. Corre (Jean), président du tribunal de première instance p. i., est nommé président du tribunal supérieur d’appel ad hoc, pour juger l’affaire Hassan Couletti contre Zouain et dresser, en conformité de l’article 55 du décret du 22 août 1928 réorganisant le statut de la magistrature coloniale, la liste des can didats aptes à remplir les fonctions judiciaires pour l’année 1942.
+Avant l’entrer en fonctions M. Corre prê tera le serment requis par la loi.
