@@ -1,0 +1,1 @@
+M. Ali Daher Liban expéditionnaire d’Administration de 3‘ classe, 2° échelon du cadre local, occupant actuellement l’emploi spécial de secrétaire-archiviste au Ministère de la Fonction Publique (Indice net 160 du cadre supérieur), est mis à la disposition du Directeur de l’Office Territorial des Postes et Télécommunications, à compter du 1e décembre 1960.
