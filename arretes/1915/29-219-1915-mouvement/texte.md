@@ -1,0 +1,1 @@
+il a été donné main-levée à M. Mérignac du cautionnement de 50 frs. qu’il a constitué le 24 Décembre 1913 suivant récépissé n° 316 en garantie de l’éxécution de son contrat pour la fourniture, pendant l’année 1914, des denrées nécessaires pour l’alimentation des askaris et des okals.
