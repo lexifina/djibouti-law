@@ -1,0 +1,3 @@
+Un congé de sept mois à passer à Hardricourt (S.-et-O.) 79, rue du Vexin est accordé à M. Grossmann (Jacques), agent contractuel 1.018, classé à la 2e catégorie, 2e échelon indice net 314, qui aura accompli le 28 mars 1961 un séjour ininterrompu de 2 ans, 6 mois, 1 jour dans le Territoire.
+L’intéressé qui sera accompagné de son épouse et de ses trois enfants : Catherine, née le 25 avril 1947, Martine née le 5 novembre 1950 et Bernard né le 6 avril 1953, quittera le Territoire par première occasion maritime à compter du 28 mars 1961 (groupe III).
+La dépense est imputable au Budget de l’Etat (Ministere des Travaux Publics, des Transports et au lourisme):
