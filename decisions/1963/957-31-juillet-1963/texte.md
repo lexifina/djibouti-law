@@ -1,0 +1,3 @@
+Le milicien de 2e classe Hassan Rabe Farid, n° mle 2665, du Dépôt de la Miülice à Djibouti, arrivant en fin de contrat le 10 avril 1964, est licencié pour « raison disciplinaire » pour compter du 16 août 1963. L’intéressé, qui totalise 1 an 4 mois et 6 jours de services effectifs dans la Milice de la Côte Française des Somalis, étant licencié disciplinairement ne peut prétendre à aucune indemnité.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins du Gérant du Dépôt de la Milice à Djibouti.
+Le milicien de 2° classe Hassan Rabe Farid, n° mle 2665, sera rayé des contrôles de la Milice de la Côte Française des Somalis à compter du 16 août 1963 ; il recevra le certificat de libération.
