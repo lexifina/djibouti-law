@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 300/6e/L du 2 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant création d’un poste de médecin contractuel au Ministère de la Santé publique et des Affaires’ sociales.
