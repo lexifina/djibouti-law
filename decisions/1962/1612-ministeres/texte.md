@@ -1,0 +1,2 @@
+Il est attribuée à Mme Habibo Abdi Warsama, veuve et héritière du 1er classe Osman Souleiman, mle 178, de la Garde Territoriale, décédé suite de maladie à l’Hôpital Peltier à Djibouti le 13 novembre 1962, une indemnité égale à 3 mois de solde nette, soit : dix neuf mille neuf cent cinquante-neuf francs (19.959 fr.) payable en une seule et unique fois.
+Ce Garde totalisant à cette date 13 ans 3 mois et 13 jours de service dans les forces locales, aucune partie du pécule ne peut être attribué à l’héritière.
