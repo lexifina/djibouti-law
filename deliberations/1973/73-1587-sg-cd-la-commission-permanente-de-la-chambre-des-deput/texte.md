@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 384/7e L du 23 octobreb 1973 de la Commission Permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant agrément d’un Agent spécial de compagnie d’assurances.
