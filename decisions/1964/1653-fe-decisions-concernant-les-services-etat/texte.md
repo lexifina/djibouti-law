@@ -1,0 +1,1 @@
+M. Blin (Pierre), ingénieur de 1re classe du corps autonome des ingénieurs des Travaux publics, chef du Service de l’Aviation civile, est nommé ordonnateur délégué des dépenses et recettes du budget de l’Etat à compter du 1er janvier 1965.
