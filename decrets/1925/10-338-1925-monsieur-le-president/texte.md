@@ -1,0 +1,3 @@
+Deux décrets en date des 12 décembre 1905 et 8 août 1920 ont permis de réprimer en Afrique occidentale el en Afrique équatoriale francaises les faits de traite, coinplétant ainsi, dans ces deux colonies, le système de répression du trafic des esclaves, inslitué par les lois des 4 mars 1831 et 27 avril 1848.
+J’estime, avec les autorités locales, qu’il v aurait intérêt à prendre une mesure analogue pour la Côte française des Somalis, En conséquence, j’ai fait préparer le projet de décret ci-joint, que, d’accord avec M. le Garde des sceaux, Ministre de la justice, j’ai l’honneur de soumettre à votre haute sanction.
+Je vous prie d’agréer, Monsieur le Président, l’hommage de mon profond respect,
