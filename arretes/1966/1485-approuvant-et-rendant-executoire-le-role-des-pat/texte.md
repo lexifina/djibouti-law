@@ -1,0 +1,2 @@
+Est approuvé et rendu exécutoire le rôle des patentes payées par anticipation afférent au rôle primitif de la contribution des patentes de l’exercice 1966 comprenant neuf cent soixante et un (961) articles d’un montant de six millions deux cent vingt-quatre mille neuf cent soixante et onze francs (6.224.971 fr.).
+En est enjoint aux contribuables dénommés dans ledit rôle, leurs représentants ou ayants-cause d’acquitter les sommes y contenues à peine d’y être contraints par voie de droit.
