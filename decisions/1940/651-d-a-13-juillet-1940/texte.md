@@ -1,0 +1,1 @@
+M. Poisson, administrateur adjoint des colonies, est nommé cumulaiivement avec ses fonctions, syndic des gens de mer de Djibouti, en remplacement de M. Séniavine, mobilisé. M. Poisson recevra à rompter du 11 juin, date de la mobilisation de M. Séniavine, l’indemnité afférente à cet emploi.
