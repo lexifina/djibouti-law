@@ -1,0 +1,1 @@
+a été rendu exécutoire le 2e rôle supplémentaire des patentes B de l’exercice 1932, comprenant 554 articles et s’élevant à la somme de trente-deux mille sept cent soixante-douxze francs, centimes additionnels compris.
