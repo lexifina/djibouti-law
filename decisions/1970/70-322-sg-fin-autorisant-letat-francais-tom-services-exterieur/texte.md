@@ -1,0 +1,1 @@
+L’Etat Français (TOM, Services extérieurs) est autorise à acquérir une parcelle de terrain bâti, faisant partie d’un terrain plus vaste, sise à Djibouti, plateau du Serpent, et immaculé au Livre foncier du Territoire sous le n° 328 au nom de la Société « Crédit Foncier et Immobilier ».
