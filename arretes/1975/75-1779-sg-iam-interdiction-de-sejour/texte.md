@@ -1,0 +1,1 @@
+Le séjour dans le District de Djibouti et dans les cercles de Tadjoura et d’Obock est interdit à M. Kamil Mohamed Aden, né vers 1954 à Randa (TFAI) condamné le 10 octobre 1974 par le Tribunal Supérieur d’Appel de Djibouti à 1 an de prison et à 3 ans d’interdiction de séjour, pour vol, écroué le 27 août 1974, libéré le 27 août 1975.
