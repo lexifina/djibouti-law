@@ -1,0 +1,2 @@
+Fret autorisé la mise en circulation en Côte. Francaise des Somalis des pièces divisionnaires de 20, 5 et 2 francs dont les caractéristiques ont été fixées par les arrêtés interministériels du 2 novembre 1964.
+Ces pièces auront cours légal et pouvoir libératoire dans les conditions fixées par le décret du 17 mars 1949, concurremment avec les pièces de même montant émises au titre des arrêtés du 18 mai 1949 et 17 juillet 1959.
