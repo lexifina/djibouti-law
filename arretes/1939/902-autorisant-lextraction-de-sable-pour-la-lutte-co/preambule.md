@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, — Les habitants de Djibouti sont autorisés à extraire, transporter et mettre en dépôt en ville, tant en bordure des vo’es publiques qu’à l’intérieur des immeubles publics et particuliers, les quantités de sable nécessaires pour lutter efficacement contre l’incendie, Extraction transport, dépôts seront faits sans aucune demande ni autre formalité, et il ne sera prélevé aucune taxe d’extrction.
