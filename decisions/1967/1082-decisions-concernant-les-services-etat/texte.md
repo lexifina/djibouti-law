@@ -1,0 +1,3 @@
+Le sergent-chef Abdi Ali, mle 2000, de la 4 compagnie de Milice à Damerdjog, arrivant en fin de contrat le 8 juin 1967,est mis à la retraite à compter du 9 juin 1967, date à laquelle il sera rayé des contrôles du corps. Il recevra le certificat de bonne conduite.
+totalisant 20 ans de services effectifs à la Milice de la C.F.S., l’intéressé percevra une allocation viagère annuelle de soixante dix-huit mille francs Djibouti (78.000 FD) à compter du 9 juin 1967, payable trimestriellement à terme échu sur le vu d’un certificat de vie délivré par les autorités compétentes du Territoire.
+Les droits à solde, vivres et permissions de l’intéressé seront liquidés par les soins de la 4e compagnie de Milice.
