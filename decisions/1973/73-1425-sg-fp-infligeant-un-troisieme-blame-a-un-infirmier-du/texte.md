@@ -1,0 +1,1 @@
+Un troisième blâme est infligé à M. Voussouf Mohamed Houmed, infirmier de 2° classe, 1° échelon du corps territorial de la Santé Publique, en service à l’hôpital Peltier, pour absences non motivées des journées du 31 août, du 1° et 3 septembre 1973 et manque de conscience professionnelle .
