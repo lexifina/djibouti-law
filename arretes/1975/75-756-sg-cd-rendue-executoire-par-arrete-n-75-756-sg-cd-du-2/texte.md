@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n 107/8° L du 10 avril 1975 de la Chambre Ges députés du Territoire français des Afars et des Issas, habilitant le Président äu Conseil. de Gouvernement à souscrire au nom et pour le compte du Territoire une augmentation du capital de 10.000.000 F.D. de la Société immobilière de Djibouti et du T.FAI.
