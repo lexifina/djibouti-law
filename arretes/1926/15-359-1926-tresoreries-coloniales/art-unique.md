@@ -1,0 +1,2 @@
+# Article unique
+— Les dispositions du décret du 19 septembre 1926 accordant une allocation forfaitaire et une indemnité provisoire de 12 p. 100 aux fonctionnaires de certains cadres coloniaux sont étendues aux agents des trésoreries coloniales payeurs, commis principaux el commis), dont les traitements de présence ont été majorés des suppléments provisoires institués par le décret du 1er mai 1926.
