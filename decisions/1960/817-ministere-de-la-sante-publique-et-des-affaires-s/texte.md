@@ -1,0 +1,1 @@
+Un secours temporaire de quatre mille francs (4.000 fr.) est accordé au titre de l’année 1960 à Mme Aouah Abaneh Gahir, veuve de Abdo Kassan. ex-Milicien, demeurant au quartier n° 4 Ce secours ést payable en uüne seule fois sur bon de caisse et imputable sur le Budget local, exercice 1960.
