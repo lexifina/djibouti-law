@@ -1,0 +1,1 @@
+Un blame est infligé à M. Ali Mokbel Saleh. infirmier diplômé d’Etat de 2° classe, 2° échelon, du cadre territorial de la Santé publique, en service au dispensaire Farah-Had, pour négligence professionnelle grave.
