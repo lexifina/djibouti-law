@@ -1,0 +1,2 @@
+le terrain attribué, à titre provisoire, à M. Houssein Ali Noor, par procès-verbal d’adjudication du 16 août 1926 et avenant du 26 septembre 1926, est transféré, aux mêmes charges et conditions, à son fils Abdalla Houssein Ali Noor.
+Il est attribué, à titre définitif, à M. Abdalla Houssein Ali Noor, emploxé de commerce à Djibouti, un terrain de 186 m2 16 dm2, sis à Bender-Dijedid, limité au nord par l’avenue n° 1, à l’est par le boulevard n° 16, à l’ouest par le boulevard n° 19, au sud par l’avenue n° 2 et immatriculé au livre foncier de la colonie sous le n° 150.
