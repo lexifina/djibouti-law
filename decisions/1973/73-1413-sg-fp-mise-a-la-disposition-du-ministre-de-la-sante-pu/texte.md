@@ -1,0 +1,1 @@
+Le médecin en chef de 2° classe Rabier Michel en position «cadres hors budget des armées » est, pour compter du 4 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique et des Affaires Sociales pour servir en qualité de médecin en chef des services anti-tuberculeux.
