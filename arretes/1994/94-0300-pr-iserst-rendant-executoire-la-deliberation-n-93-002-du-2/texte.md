@@ -1,0 +1,1 @@
+est approuvé le budget de l’institut supérieur d’Etudes et de Recherches scientifiques ettechniques pour l’exercice 1994, arrêté en recettes et dépenses à la somme de deux cent quatre millions huit cent cina mille de francs Diibouti (204.805.000 FD).
