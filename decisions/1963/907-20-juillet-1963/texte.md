@@ -1,0 +1,1 @@
+M. Chauvet Pierre, Adjudant du Cadre des Infirmiers Militaires des Troupes de Marine, est nommé billeteur pour le paiement des Traitements du personnel de la Santé Publique pendant l’absence de l’Adjudant Fossey.
