@@ -1,0 +1,1 @@
+M Farah Weirah Ersueh. aide-magasinier auxiliaire, échelle HI, 2e échelon, indice local 260) en service à la Régie des Eaux, est déféré devant le Conseil de Discipline pour attitude insolente envers son chef direct.
