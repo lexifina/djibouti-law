@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 42/74 qu 2 septembre 1974, du conseil d’administration de la Caïsse des Prestations sociales, relative à l’achat d’une villa et portant à cet effet inscription d’un crédit de quinze millions cinq cent mille FD au budget de cet organisme pour 1974.
