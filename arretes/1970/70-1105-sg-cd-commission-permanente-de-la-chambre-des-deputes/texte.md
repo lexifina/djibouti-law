@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 130/7e L du 10 sentembre 1970 de la Commission permanente de la Chambre des Députés du Térritoiré Français des Afars et des Issas portant approbation du compte administratif de l’Office des Postes et Télécoemmunications pour l’exercice 1969.
