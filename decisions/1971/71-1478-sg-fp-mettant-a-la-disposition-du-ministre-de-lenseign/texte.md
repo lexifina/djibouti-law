@@ -1,0 +1,1 @@
+Est constatée, pour compter du 19 septembre 1971, date de son retour. dans le Territoire, la reprise de ses fonctions antérieures au Service de l’Enseignément public du 1er degré (Ministère de l’Enseignement, des Sports et de la Jeunesse) par Mme Mireille Pivetal, institutrice (7° échelon).
