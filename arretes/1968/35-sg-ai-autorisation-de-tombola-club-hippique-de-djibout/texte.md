@@ -1,0 +1,1 @@
+Le Colonel Calvet, Président du Club Hippique de Djibouti, est autorisé à organiser une tombola au profit du Club Hippique dans lé but de favoriser le développement des sports équestres dans le Territoire. Cette tombola sera composée de cinq mille billets de deux cents francs l’un, dont le produit sera exclusivement affecté aux œuvres du Club Hippique.
