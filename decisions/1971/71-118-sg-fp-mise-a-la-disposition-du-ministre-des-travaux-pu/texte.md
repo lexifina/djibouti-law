@@ -1,0 +1,1 @@
+M. Bernard Linares, assistant technique des Travaux publics de l’Etat, 2° échelon est, pour compter du 9 janvier 1971, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir aux Travaux publics (Subdivision Infrastructure). en remplacement numérique de M. Mondon.
