@@ -1,0 +1,1 @@
+Le gendarme Dupont est nommé régisseur de la Prison civile de Djibouti, à compter du 15 février 1963, en remplacement du gendarme Legros, titulaire actuél du poste, désigné à titre provisoire pour assurer l’intérim au départ du gendarme Filliatre, rapatrié le 24 décembre 1962.
