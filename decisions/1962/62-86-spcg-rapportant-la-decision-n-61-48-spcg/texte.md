@@ -1,0 +1,1 @@
+La décision n° 61/48/SPCG du 13 avril 1961 portant nomination de M. Aucouturier René, maître auxiliaire d’éducation physique, en qualité de Commissaire à la Jeunesse et aux Sports, est rapvortée pour combter du 10 octobre 1962.
