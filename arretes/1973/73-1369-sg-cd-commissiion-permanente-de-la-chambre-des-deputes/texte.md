@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 371/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas approuvant le rapport d’exploitation et les comptes d’Electricité de Djibouti pour l’année 1972.
