@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 92/8e L du 17 février 1975 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas portant organisation du service des Domaines et du Service de l’Enregistrement.
