@@ -1,0 +1,1 @@
+il est fait concession, à titre définitif, à la Société des sulines de Djibouti, de Sfax et de Madagaseur, du lot n° 164-3 du plateau de Djibouti, immatriculé au nom de l’Etat français, sous le n° 188 du Livre foncier de la colonie.
