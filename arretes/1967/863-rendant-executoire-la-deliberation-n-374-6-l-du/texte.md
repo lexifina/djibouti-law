@@ -1,0 +1,1 @@
+Est rendue exécutoire la ‘: délibération n° 374/6e° LL du 18 mai 1967 de l’Assemblée territoriale de la Côte Française des Somalis autorisant le Président de l’Assemblée Territoriale et le Président de la Commission permanente à se rendre en mission en métropole.
