@@ -1,0 +1,1 @@
+M. Yves Nadaud, intendant universitaire, 2° classe, 5 échelon (indice nouveau 507) est, pour compter du 23 septembre 1967, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour siservir aù lycee de Djibouti.
