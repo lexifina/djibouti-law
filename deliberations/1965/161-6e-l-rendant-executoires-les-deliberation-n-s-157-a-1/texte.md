@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 234 du 19 février 1965, la Commission permanente de l’Assemblée Territoriale a accordé à M. Mohamed Kamil, sénateur de la C.E.S., la concession provisoire d’une parcelle de terrain d’une superficie de 1.450 mètres carrés, à Djibouti, quartier de la Plaine (lot n° 28), au prix de 400 francs le mètre carré.
