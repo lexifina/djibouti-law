@@ -1,0 +1,1 @@
+M. Moal, vétérinaire adjoint, chef du service de l’élevage, est nommé cumulativement avec ses fonctions, chef d’exploitation technique du service de l’agriculture, en’ remplacement de M. Dienbach, qui ne rejoindra pas le territoire.
