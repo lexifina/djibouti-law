@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 12/7° L du 7 janvier 1969 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant declassement, du Domaine public de l’île Musha, d’une parcelle de terrain d’une superficie de 1 ha 1 a 25 ca.
