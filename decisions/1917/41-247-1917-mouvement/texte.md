@@ -1,0 +1,1 @@
+pour compter du même jour M. Vernier (Maurice) Commissaire de police a été désigné pour remplir les fonctions d’Huissier et de porteur de contraintes en remplacement de M. Blanchard nommé Commis greflier adjoint.
