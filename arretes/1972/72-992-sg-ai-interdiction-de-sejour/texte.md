@@ -1,0 +1,2 @@
+Le séjour dans le District de Djibouti et les cercles d’Obock et de Tadjourah est interdit pendant trois ans à Djama Ismaël
+Doualeh, né vers 1948 à Djibouti, fils d’Ismaël Doualeh et de Hawa Ibrahim, condamné le 4 octobre 1971 par le Tribunal supérieur d’appel de Djibouti à un an de prison et trois ans d’interdiction de séjour, pour vol et escroquerie (écroué le 14 juin 1971, libéré le 14 juin 1972).
