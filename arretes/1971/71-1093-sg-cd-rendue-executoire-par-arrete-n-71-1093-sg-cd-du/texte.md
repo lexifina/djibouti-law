@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 206/7° L du 27 juillet 1971 de la Commission permanente de la Chambre des Député 38 autorisant le Président du Conseil de Gouvernement à acquérir, au nom et pour le compte du Territoire Français des Afars et des Issas, deux immeubles, sis à Djibouti
