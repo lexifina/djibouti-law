@@ -1,0 +1,1 @@
+M. Mohamed Dahan, Expéditionnaire d’Administration de 2° clagse, 2° échelon du cadre local en service au Ministère de la Production, de l’Agriculture et de l’Elevage (Service de l’Elevage) est révoqué de son emploi avec suspension des droits à pension et rayé dés cadres à compter du 14 avril 1960, date à laquelle sa abandonné son poste.
