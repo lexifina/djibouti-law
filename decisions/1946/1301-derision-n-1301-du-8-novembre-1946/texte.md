@@ -1,0 +1,1 @@
+A titre exceptionnel une gratification de sept cent cinquante francs (750 francs) est accordée à M. Randrianasolo (Robert), com mis-comptable du cadre spécial de Madagas car en service au bureau des finances.
