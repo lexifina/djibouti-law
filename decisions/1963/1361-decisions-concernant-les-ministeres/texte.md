@@ -1,0 +1,1 @@
+MM. Issa Kahin Mahamoud, planton de 2e classe, 3e échelon, du Cadre territorial de l’Administration générale, en service à l’Electricité de Djibouti, est déféré devant le Conseil de discipline pour faute grave.
