@@ -1,0 +1,3 @@
+La décision n° 1105 du 30 juillet 1964 est suspendue pendant lindisponibilité de M. Huen (Bernard), comptable contractuel à la Subdivision des Eaux et ce pour compter du 16 novembre 1965.
+Mme Lentini (Josette), comptable contractuelle, catégorie E, 6e échelon, à la Subdivision des Eaux, est nommée agent intermédiaire, caissière des menues recettes de la Subdivision des Eaux, par intérim et pour compter du 16 novembre 1965.
+Les dispositions des articles 2, 3, 4 5 et 6 de la décision n° 1105 du 30 juillet 1964 définissant les charges, obligations, responsabilités et avantages de l’agent intermédiaire, caissier des menues recettes, sont applicables à Mme Lentin.
