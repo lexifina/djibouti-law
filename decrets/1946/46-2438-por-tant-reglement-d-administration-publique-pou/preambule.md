@@ -1,0 +1,8 @@
+# PrÃ©ambule
+« Art. 10. — Les personnels de l’Etat, des collectivités publiques, des services concédés ou assimilés, révoqués, licenciés, relevés de leurs fonctions ou. plus généralement, frappés d’une peine disciplinaire pour des motifs politiques ou des faits de grève, par application notamment des dispositions des décrets-lois des 20 septembre 1939 et 9 avril 1940 et de tous les textes complémentaires, pourront de mander la révision de la mesure prise à leur égard et le rétablissement de leur situation administrative. « Un décret en forme de règlement d’admi nistration publique fixera notamment les con ditions dans lesquelles les mesures de répara tion prévues par l’ordonnance du 29 novem bre 1944 seront appliquées aux personnels visés au présent article.
+« Art. 11. — Le bénéfice des articles 9 et 10 sera refusé si. entre la date à laquelle a été prononcée la sanction et celle de la demande de révision, l’intéressé s’est rendu coupable d’un fait entachant l’honneur ou la probité et ayant entraîné une condamnation judiciaire. « Il pourra l’être également si l’intéressé a par ses actes, ses écrits, ou son attitude personnelle depuis le 16 juin 1940 : «
+1° Soit favorisé des entreprises de toute nature de l’ennemi; «
+2° Soit contrarié l’effort de guerre de la France et de ses alliés; «
+3° Soit porté atteinte aux institutions constitutionnelles ou aux libertés publiques fondamentales ; «
+4° Soit sciemment tiré ou essayé de tirer un bénéfice matériel direct de l’application des règlements de l’autorité de fait contraires aux lois en vigueur le 16 juin 1940 » ;
+Le Conseil d’Etat entendu, Décrète :
