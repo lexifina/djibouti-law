@@ -1,0 +1,3 @@
+Arlicle unique. — Sont déclarées applicables aux colonies La loi du 20 décembre 1906, modifiant l’article 1er de la loi du 13 juillet 1905, décidant que, lorsque les fêtes légales tomberont un vendredi, aucun payement ne sera exigé, ni aucun protèt ne sera dressé le lendemain de ces fêles: lorsqu’elles Llomberont le mardi, aucun paye ment ne se era exigé niaucun prolèt ne sera dressé la veille de ces fétes:
+2 La loi du 29 oclobre 1909, prorogeant la dale des échéances lorsque la fêle légale du 1er novelbre tombera un lundi La présente loi, délibérée et adoptée par le Sénat et par la Chainbre des dépulés,
+sera exécutée comme loi de Etat.
