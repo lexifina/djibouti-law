@@ -1,0 +1,2 @@
+Un congé administratif de six mois, pour en jouir dans la Métropole, est accordé à M. Desmeules (Henry), vérificateur I.E.M. de 411 classe du Cadre métropolitain en service détaché à la Côte Française des Somalis (groupe IV).
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Grillon (Vau-Serein (Yonne) seront délivrées à l’intéressé qui voyagera accompagné de son épouse et de ses deux enfants âgés respectivement de quinze et neuf mois.
