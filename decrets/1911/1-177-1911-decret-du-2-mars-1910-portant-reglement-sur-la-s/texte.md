@@ -1,0 +1,27 @@
+Monsieur le Président,
+A la date du 2 mars 1910 est intervenu un décret portant règlement sur la solde et les allocations accessoires du personnel colonial.
+Poursuivant l’œuvre réalisée par les décrets des 127 novembre 1899 et 21 octobre 1903, cet acte a été conçu dans un large esprit de décentralisation.
+L’expérience a cependant démontré qu’il importait d’y effectuer certaines modifications qui, d’ailleurs, n’altèrent en rien l’économie générale du décret précité.
+Ces modifications sont relatives, d’une part à la durée du séjour colonial imposé au personnel pour pouvoir prétendre à un congé administratif, d’autre part au régime des allocations accessoires à la solde.
+L’article 35, paragraphe IV, du décret du 2 mars 1910 distingue les fonctionnaires en quatre catégories au point de vue de leurs droits à l’obtention d’un congé administratif.
+Le personnel de l’Afrique Equatoriale et celui de l’Afrique Occidentale, exception faite pour le Sénégal, ne sont soumis qu’à un séjour de vingt mois. Le personnel de l’Indochine, du Sénégal, de la Côte française des Somalis et de la Guyane française est astreint à un séjour de deux ans, le personnel de Madagascar et dépendances et celui de l’Inde française doit accomplir un séjour de trois ans.
+Enfin, un séjour de cinq ans est exigé pour le personnel en service dans les autres colonies.
+J’estime que la durée de ces séjours peut être augmentée.
+Tout d’abord, le séjour de vingt mois en Afrique Occidentale française et en Afrique Equatoriale française me semble insuffisant :
+le séjour compte du port de débarquement, au port d’embarquement.
+Comme il faut souvent plusieurs semaines à un fonctionnaire pour rejoindre sa destination, un séjour colonial de vingt mois correspond, en général, à une période de travail de dix-huit mois.
+Ce n’est certes point excessif quand on considère que ce travail de dix-huit mois est suivi d’un congé de six mois, durée de la traversée non comprise.
+J’ai la conviction qu’un séjour de deux ans peut être considéré comme normal, même dans nos possessions les plus malsaines. Je rappellerai à cette occasion que depuis le décret du 22 février 1910 les officiers de l’armée coloniale, en service à la côte d’Afrique et dans le Territoire militaire du Tchad, effectuent un séjour colonial de deux ans.
+Il est bon de remarquer, en outre, que les agents particulièrement éprouvés par le climat peuvent toujours se faire rapatrier en sollicitant un congé de convalescence.
+S’il me paraît possible de porter à deux ans le séjour normal du personnel en service en Afrique Occidentale et en Afrique Equatoriale, il me semble absolument indispensable de porter de deux à trois ans le séjour normal du personnel au Sénégal et en Indochine.
+L’une et l’autre de ces colonies, en effet, sont occupées depuis longtemps.
+Les installations y sont suffisantes, les formations sanitaires y sont nombreuses. Surtout elles comportent un certain nombre de postes salubres et confortables, où le personnel peut se reposer des fatigues éprouvées dans les zones moins favorisées.
+Il est à remarquer que lorsque le séjour normal sera fixé pour le personnel d’Indochine à trois ans (ce qui existait d’ailleurs avant 1910), il sera encore beaucoup inférieur à celui du personnel en séjour dans les colonies étrangères voisines. Telles sont les modifications au séjour colonial que j’ai l’honneur de vous proposer.
+Le texte qui est soumis à votre haute approbation modifie en outre le régime des allocations accessoires à la solde.
+Le décret du 2 mars 1910 réglemente avec détails les conditions dans lesquelles peuvent être attribués les suppléments de fonctions, les indemnités de résidence et de cherté de vivres, les indemnités de responsabilité, les indemnités pour frais de bureau, les indemnités pour perte d’effets, les indemnités représentatives de chauffage et d’éclairage et les conditions dans lesquelles peuvent être accordés les logements et ameublements en nature.
+Il suffit d’’énumérer ces matières pour se rendre compte qu’elles sont strictement d’intérêt local.
+Il semble dès lors qu’il soit possible de faire un nouveau pas dans la voie de décentralisation et, puisque les gouverneurs de la plupart de nos colonies ont la faculté d’arrêter des budgets et d’établir des taxes, il paraît bien possible de leur laisser le soin de déterminer les tarifs des indemnités de cherté de vivres ou ceux pour perte d’effets. Le rôle du ministère des colonies n’est pas d’administrer, et dans lespèce son intervention se justifie d’autant moins qu’il s’agit de régler des situations locales variant non seulement de colonie à colonie, mais encore d’année en année et sur lesquelles le Département est mal documenté.
+Mais si les colonies doivent avoir l’initiative qui est la conséquence de leur autonomie, le ministre doit exercer son droit de contrôle, aussi, tout en disposant que les gouverneurs généraux et gouverneurs chefs des colonies pourront régler les conditions dans lesquelles sont attribuées les allocations accessoires à la solde, j’ai prévu que les arrêtés de cette nature devront, préalablement à leur mise en vigueur, être approuvés par le ministre des colonies.
+Telles sont les considérations qui ont inspiré la préparation du texte qui vous est soumis.
+Au cas où vous croiriez pouvoir y donner votre approbation, je vous serais reconnaissant de vouloir bien revêtir de votre signature le décret ci-joint.
+Je vous prie d’agréer, monsieur le président, l’hommage de mes sentiments profondément
