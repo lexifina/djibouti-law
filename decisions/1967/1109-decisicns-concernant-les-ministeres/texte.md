@@ -1,0 +1,3 @@
+L’agent journalier de 3e catégorie Hawa Guirreh Bouraleh précédemment en service à l’Hôpital Peltier, en qualité de laveuse, est licenciée de son emploi à compter du 16 juin 1967 pour abandon de poste et mauvaise manière habituelle de servir.
+L’intéressée, qui comptait à cette date deux ans deux mois jours de service, ne pourra prétendre au bénéfice de l’indemnité de licenciement prévue en application des dispositions de l’article 13 de la Convention collective précitée.
+Il sera allouée à Mme Hawa Guirreh Bouraleh une indemnité égale à dix jours calendaires de salaire au titre de congé payé non pris.
