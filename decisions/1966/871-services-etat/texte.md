@@ -1,0 +1,1 @@
+Le milicien de 2e classe Hassan Ahmed Dirie, matricule 2859, du Dépôt de Milice à Djibouti, arrivant en fin de contrat le 6 juin 1966 et ne désirant pas rengager, est rayé des contrôles du corps le 7 juin 1966. Il recevra le certificat de bonne conduite.
