@@ -1,0 +1,1 @@
+Il est fait retour, au Domaine du Territoire, d’une parcelle de terrain sise à Ambouli, lot n° 6 du lotissement du boulevard d’’Ambouli, en application de l’article 5 de la délibération n° 9/6e L du 24 décembre 1963 de l’Assemblée Territoriale, la concessionraire, Mme Agnès Obsié Dirié n’ayant pas acquitté le prix fixé pour ladite parcelle.
