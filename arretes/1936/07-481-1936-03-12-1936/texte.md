@@ -1,0 +1,2 @@
+l’article 10 de l’arrêté du 24 octobre 1929 réglementant le fonctionnement de la bibliothèque publique de Djibouti, modifié en ses articles 2, 3, 6 et 13, par l’arrêté du 20 avril 1936, est complété comme suit :
+« Le chef des bureaux du secrétariat général délégué du gouverneur, est spécialement habilité pour effectuer des retraits sur les fonds déposés à la banque de l’Indochins au compte ouvert au nom de la Bibliothèque publique de Djibouti. »
