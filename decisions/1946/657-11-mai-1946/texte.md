@@ -1,0 +1,1 @@
+Une deuxième avance de quinze mille franes (15,000 fr.). à valoir sur ses émolum uts. a été accordée à titre exceptionnel à M. Horne beck, agent détaché de l’Imprimerie nationale, directeur de l’Imprimerie administrative de Djibouti.
