@@ -1,0 +1,1 @@
+MM. Abdou Abdulkader et Mohamed Abdou, demeurant à Djibouti, sont autorisés à acquérir uné parcelle de terrain bâti, d’une superficie de 1.200 mètres carrés environ, sise à Ambouli, route circulaire, et faisant partié d’un terrain plüs Vaste immatriculé au Livre foncier du Territoire sous le n° 345 au nom de M. Mohamed Hanif Abdoulkädér.
