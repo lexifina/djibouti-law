@@ -1,0 +1,1 @@
+Une permission d’absence de 40 ‘ours dont 30 jours à solde entière et 10 jours sans solde est accordée à compter du 25 mai 1960 à M. Mohamed Awade Mohamed, jardinier auxiliaire au service de l’Agriculture, pour en jouir à la Mecque.
