@@ -1,0 +1,1 @@
+M. Ahmed Hersi Youssouf, contrôleur stagiaire au Service des Contributions, est nommé agent intermédiaire près le contrôle des Contributions de la Gare de Djibouti, en remplacement de M. Ismaël Hersi Amin.
