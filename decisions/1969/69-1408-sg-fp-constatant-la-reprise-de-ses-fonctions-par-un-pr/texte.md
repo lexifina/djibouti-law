@@ -1,0 +1,1 @@
+Est constatée, pour compter du 15 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au Lycée de Djibouti par M. Fernand Mamo, proviseur licencié certifié 2° catégorie, 11° échelon (indice nouveau : 652).
