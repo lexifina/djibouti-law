@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 203/7° L du 27 juillet 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1970.
