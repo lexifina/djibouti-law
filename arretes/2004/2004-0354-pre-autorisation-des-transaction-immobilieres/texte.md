@@ -1,0 +1,1 @@
+Est autorisée la vente par Mr. Houssein Eldid Sigad a Mr. Abdallah Fouad Mohamed, représenté par Mr. Abdi Ibrahim Mohamed, d’un immeuble bati sis au Quartier 7 Sud, lot n°85, d’une superficie de 144 m2 et immatriculé au livre foncier sous len°2982.
