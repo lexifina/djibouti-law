@@ -1,0 +1,1 @@
+Le sergent-major infirmier de la S.M.I.M.T.C. Simon-Vermot (Gaston), est mis à la disposition du Directeur du Service de Santé pour servir en position hors cadres au Secrétariat de la Direction, a compter du 1 7 septembre 1953, date de son débarquement sur le Territoire.
