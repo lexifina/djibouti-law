@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est interdit pendant cinq ans aux nommés Abdi Elmi (Abervonnis) et Djama Mohamed (Abérional), condaimnis à 18 mois de prison pour cambriolage suivi de vol suivant jugement du tribunal indigène n° 73 du 12 décembre 1928.
