@@ -1,0 +1,1 @@
+le séjour de la ville de Djibouti est interdit aux nommés Ali Abdillahi(Abéraoual) pendant 10 ans (condamné pour vol) ; Mohamed Ali arabe: pendant 10 ans condamné pour escroquerie ; Ahmed Yeyia, Djama Guelle, et Abdillahi Ahmed, pendant 5 ans (condamnés pour vol).
