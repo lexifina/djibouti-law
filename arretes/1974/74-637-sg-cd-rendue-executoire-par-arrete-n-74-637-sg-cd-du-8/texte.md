@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 29/8e L du 29 mars 1974 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant octroi de l’aval du Territoire à un emprunt de 2936 000 Francs Français contracté par le Service Médical Interentreprises auprès de la Caisse centrale de Coopération Economique.
