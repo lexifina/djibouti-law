@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 24/ 7e L du 21 mars 1969 de la commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédit de chapitre à chapitre au budget du service local, exercice 1968.
