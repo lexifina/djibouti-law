@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif de la contribution exceptionnelle sur les de plus de S0.000 franes pour exercice 1936 du cercle Djibonti s’élevant à la somme de douze mille trois cent quatre-vingt-dix mille huit cent vingt-huit francs treize centimes.
