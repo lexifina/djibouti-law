@@ -1,0 +1,1 @@
+5 décembre 1932, est rendu exécutoire le ôle primitif dau oi achat des prestations pour l’année 1932. comprenant 1.234 articles e s’élevant à la somme de trente mille huit cent cinquante francs (30.550 fr.
