@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 211/7° L du 7 octobre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant agrément d’un agent spécial de compagnie d’assurances.
