@@ -1,0 +1,1 @@
+M. Ahmed Dini Ahmed, ministre de la Production, des Affaires économiques et du Plan, est chargé, pour une durée de un mois à compter du 10 mai 1964, de l’expédition des affaires courantes du Ministère de la Fonction publique pendant l’absence de M. Omar Mohamed Bourhan, ministre titulaire.
