@@ -1,0 +1,1 @@
+L’arrêté n° 691 en date du 6 juin 1963 portant interdiction de se présenter à une session de permis de conduire est prorogé pour une durée de un an, en ce qui concerne le sieur Moussa Ismaël Kipar, né vers 1932 à Djibouti, fils de Ismaël Kipar et de Fatma Ali, chauffeur demeurant à Djibouti, quartier n° 3.
