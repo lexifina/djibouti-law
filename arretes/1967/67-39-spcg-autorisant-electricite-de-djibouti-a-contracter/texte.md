@@ -1,0 +1,1 @@
+Est adoptée et rendue exécutoire la délibération n° 171 du 15 février 1967 annexée, adoptée par le Conseil d’administratior ’«Electricité de Djibouti» et autorisant le Président du Conseil d’administration à contracter un. découvert bancaire de 80 millions de francs Djibouti auprès des organismes bancaires de la place, pour permettre Ia reconstruction de son réseau électrique.
