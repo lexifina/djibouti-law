@@ -1,0 +1,1 @@
+Un blâme avec inscription au dossier est infligé à M. Bernadant Issa Ali, dit Jean Pierre, contrôleur sanitaire de 2° classe, 3° échelon, du Cadre territorial du Service d’Hygiène pour absénces répétées, malgré avertissements, à son poste de contrôleur sanitaire au Port de Commerce de Djibouti.
