@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 128/7°L du 13 août 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant virement de crédit au budget annexe du Port de Commerce de Djibouti.
