@@ -1,0 +1,1 @@
+M. Pizivin Claude, adjudant en position « cadre hors budget des Armées », est, pour compter du 21 juin 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir au Centre de pneumo-phtisiologie Paul-Faure, en remplacement numérique de l’adjudant-chef Arnold, rapatriable.
