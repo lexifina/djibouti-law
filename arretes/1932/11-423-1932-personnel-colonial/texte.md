@@ -1,0 +1,1 @@
+M. Delcros (Rémy) , ingénieur-adjoint de lasse du cadre général des travaux publics des colonies, actuellement chargé 3e assurer, à titre provisoire, les fonctions de contrôleur technique adjoint du contrôle du chemin de fer franco- éthiopien, a été nommé contrôleur technique adjoint de 4e classe, en remplacement de M. de Mazérieux, décédé.
