@@ -1,0 +1,2 @@
+L’article 2, dernier alinéa, de l’arrêté no 65/8/SPCG du 27 janvier 1965, portant la création d’un Bureau de main-d’œuvre du Port de Djibouti est complété comme suit :
+« Toutefois, les. deux représentants de la main-d’œuvre dockers percevront un jeton de présence dont le montant sera équivalent à la rémunération d’une vacation ordinaire. La dépense correspondante sera supportée par le Bureau de main-d’oeuvre.
