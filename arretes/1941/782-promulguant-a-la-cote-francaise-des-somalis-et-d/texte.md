@@ -1,0 +1,1 @@
+Est promulguée à la Côte française des Somalis et dépendances la loi du 30 septembre 1941 prorogeant la période d’application de la loi du 27 septembre 1940 modifiée par les lois du 14 novembre 1940 et du 11 avril 1911.
