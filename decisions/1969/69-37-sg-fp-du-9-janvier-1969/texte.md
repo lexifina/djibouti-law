@@ -1,0 +1,1 @@
+M. Vincata Mantchala, sergent-chef en position cadre – hors cadre des Armées, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 2 janvier 1969 pour servir au Service de Prévention de la tuberculose.
