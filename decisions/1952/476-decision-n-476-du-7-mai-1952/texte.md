@@ -1,0 +1,1 @@
+L’adjudant Le Clech (Yves), de l’Infanterie coloniale, désigné pour servir « hors cadres » en Côte Française des Somalis, et arrivé à Djibouti le 4 mai 1952, est affecté à la Milice de la C.F.S. (1er Cie) pour compter du jour de son débarquement. Il prendra, à compter de cette même date, les fonctions de chef de poste Par décision d’Afambo.
