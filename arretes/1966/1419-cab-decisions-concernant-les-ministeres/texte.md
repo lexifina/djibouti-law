@@ -1,0 +1,1 @@
+Est constaté, pour compter du 1er octobre 1966, l’avancement au 3° échelon du grade d’administrateur adjoint (indice 1000) de M. Mohamed Aden Ahmed Dini, administrateur adjoint de 2e échelon du cadre territorial.
