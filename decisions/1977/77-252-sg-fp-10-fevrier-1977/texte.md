@@ -1,0 +1,1 @@
+M. Saïd Moussa Osman, titulaire du diplôme de maîtrise ès sciences techniques délivré par le doyen de la faculté de Moscou, le qualifiant comme ingénieur en construction des aéroports, est recruté en qualité d’ingénieur pour servir à la direction des Travaux publics — subdivision routes — et nommé ingénieur ,1er échelon pour compter du 1er octobre 1976.
