@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Abdoulkader Houmed Abdoulkarim, infirmier de 2e classe, 1er échelon du corps territorial de la Santé Publique, en service au Centre Paul Faure (ministère de la Santé Publique) pour refus d’obéissance avec impertinence et paresse et mauvaise volonté.
