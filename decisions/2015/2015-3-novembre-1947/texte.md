@@ -1,0 +1,1 @@
+Est engagé comme agent technique auxi liaire 10e échelon et affecté au service des P. T. T., pour compter du 1er novembre 1947. le nommé Guelly Aoualle, sous réserve de la production ultérieure des pièces manquant à son dossier.
