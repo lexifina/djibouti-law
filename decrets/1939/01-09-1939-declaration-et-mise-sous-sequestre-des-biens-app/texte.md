@@ -1,0 +1,2 @@
+Page 11092, 1re colonne, 4e alinéa, 12e ligne, au lieu de : « de la loi du 1er septembre 1939 », lire : « du décret-oi du 1° septembre 1939 » ; même page, 2e colonne, 13e et 14e lignes, au lieu de : « cette proposition », lire : « cette proportion ».
+Page 11093, art. 4, 3e ligne, au lien de : « de au loi du 1re septembre 1939 », lire : « du décret-oi du 1er septembre 1939 »: même page, art. 3, 4e ligne, même correction: même page, art. 15, 2e ligne, lire : «le décret-loi du 1er septembre 1939 ».
