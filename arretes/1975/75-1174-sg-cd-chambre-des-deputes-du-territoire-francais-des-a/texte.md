@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 132/8e L du 11 juin 1975 de la Chambre des Députés du Territoire français des Afars et des Issas portant constitution d’une mission d’information en métropole, dans les pays d’Afrique et du Moyent-Orient.
