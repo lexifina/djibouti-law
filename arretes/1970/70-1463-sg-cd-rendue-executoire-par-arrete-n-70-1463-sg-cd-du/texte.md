@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 141/7e L du 19 novembre 1970 de la Commission permanente de la Chambre des Députés portant octroi de laval du Territoire à un emprunt de 140 millions de francs de Djibouti contracté par «Electricité de Djibouti» auprès de la Caisse centrale de Coopération économique.
