@@ -1,0 +1,1 @@
+Par arrété. en date du 5 août 1912. une allocation de 200 francs est accordée à la Ligue Coloniale française. Cette somme représente le montant de la cotisatiou unique versée par la colonie en qualité de membre sociétaire de ladite association
