@@ -1,0 +1,1 @@
+Le milicien de 2e classe Hassan Daher Rialeh, mle 2823, de la 4 Compagnie de Milice à Damerdjog, est licencié pour «raison disciplinaire» pour compter du 2 janvier 1964. L’intéressé qui totalise au 2 janvier 1964 1 an 4 mois 4 jours de services effectifs dans la Milice de la CF.S. ne peut prétendre à aucune indemnité.
