@@ -1,0 +1,4 @@
+sont promulgué à la Côte Française des Somalis et Dépendances :
+— le décret n° 45-1651 du 20 juillet 1945 portant application à la Guadeloupe, à la Martinique, à la Réunion, à Madagascar et Dépendances, à la Côte Française des Somalis, à la Guyane et à Saint-Pierre et Miquelon de l’ordonnance du 21 avril 1945 portant deuxième application de l’ordonnance du 12 novembre 1943 sur la nullité des actes de spoliation accomplis par l’ennemi ou sous son
+contrôle et édictant la restitution aux victimes de ces actes, de ceux de leurs biens qui ont fait l’objet d’actes de disposition.
+— le déert du 13 décembre 1944 complétant les dispositions du décret du 13 juin 1912 portant règlement des indemnités allouées aux fonctionnaires, employés et agents civils des services coloniaux ou locaux voyageant isolément dans les colonies et pays de protectorat.
