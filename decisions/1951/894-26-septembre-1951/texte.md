@@ -1,0 +1,1 @@
+Mme Bonadona (Gisèle), institutrice de 6e classe du cadre métropolitain, est engagée comme institutrice auxiliaire de 1er catégorie pour compter du 1er octobre 1951, en remplacement numérique de M. Terrisse, parti en congé. Elle est affectée à l’Ecole professionnelle.
