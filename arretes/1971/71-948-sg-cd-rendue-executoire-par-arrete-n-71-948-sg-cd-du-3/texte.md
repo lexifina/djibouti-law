@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 189/7° L du 19 juin 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas fixant les conditions à remplir par les réservoirs souterrains dans lesquels sont emmagasinés les liquides inflammables.
