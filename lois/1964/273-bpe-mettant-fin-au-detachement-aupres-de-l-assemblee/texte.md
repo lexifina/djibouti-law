@@ -1,0 +1,1 @@
+Il est mis fin pour compter du 23 novembre 1963 au détachement auprès de l’Assemblée Territoriale de la Côte Française des Somalis de M. Ibrahim Mohamed Sultan, aide-opérateur principal de 1er échelon du Cadre Territorial du Service Météorologique, réintégré dans son cadre d’origine.
