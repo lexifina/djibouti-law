@@ -1,0 +1,1 @@
+Par décision du Gouverneur en date du 24 juin 1907 M. de Nas de Tourris, Chef du Bureau des Finances est chargé de la vérification de la caisse du portefeuille du Trésorier-Payeur dans les formes indiquées par le décret du 20 Novembre 1882.
