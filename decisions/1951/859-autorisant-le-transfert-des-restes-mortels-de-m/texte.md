@@ -1,0 +1,2 @@
+Les restes mortels de M. Bruno (Paul), ex-employé à la Compagnie des Messageries Maritimes, décédé en mer le 28 juin 1951, et se trouvant actuellement dans le dépositoire du cimetière de Djibouti, seront transférés au cimetière du Canet, ville de Marseille.
+Les dépenses afférentes au transfert des restes mortels du défunt jusqu’au lieu de l’inhumation seront supportées par la Compagnie des Messageries Maritimes.
