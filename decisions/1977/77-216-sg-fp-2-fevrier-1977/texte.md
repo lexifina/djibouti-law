@@ -1,0 +1,1 @@
+La date d’admission à la retraite de M. Youssouf Moussa Youssouf, contrôleur sanitaire de 1re classe, 3e échelon du cadre territorial de la Santé publique prévue pour le 1er janvier 1977 est reportée, à titre exceptionnel, au 1er janvier 1978.
