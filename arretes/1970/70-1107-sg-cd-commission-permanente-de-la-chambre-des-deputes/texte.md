@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 132/7e L du 10 septembre 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant approbation des comptes administratifs du budget du service local et du budget annexe du port (exercice 1969).
