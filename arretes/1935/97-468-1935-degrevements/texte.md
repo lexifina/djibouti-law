@@ -1,0 +1,1 @@
+la somme de deux cent soixante-neuf france soixante quatre centimes, perçue à titre de taxe contributive et de droits accessoires sur une expédition de deux caisses de papiers peints, effectuée le 3 novembre 1954,suivant liquidation , de douane n° 19212 et récépissé du Trésor n° 37 78, sera remboursée à la Compagnie des Messageries maritimes.
