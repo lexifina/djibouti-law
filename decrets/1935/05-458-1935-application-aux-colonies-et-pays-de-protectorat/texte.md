@@ -1,0 +1,2 @@
+Art 1 — Est rendue applicable aux colonies et purs de protectorat relevant du minitère des colonies et aux territoires sous mandat du Togo et du C’ameroun, la loi du 26 juillet 1925 ayant pour but de garantir l’appellation d’origine du fromage de Roquefort,
+Art, 2, — Le Ministre des colonies est chargé de l’exécution du présent décret, qui sera publié au Journal offic iel de la République francaise, ainsi qu’aux Journaux officiels des colonies et des territoires du Togo et du Cameroun, et inséré au Pulletin officiel du ministére des colonie .
