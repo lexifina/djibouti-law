@@ -1,0 +1,1 @@
+Un passage de retour par anticipation pour Madagascar par voie maritime est accordé à Mme Rabibizaka, épouse d’un commis greffier principal du cadre local des- commis greffiers de la Côte Française des Somalis (groupe III)
