@@ -1,0 +1,1 @@
+Est approuvée lä délibération n° 213 du 26 août 1969 du Conseil d’administration d’Electricité de Djibouti arrêtant l’état de prévisions de recettes et de dépenses d’Electricité de Djibouti pour l’année 1968, à la somme de 811.150.000 francs Djibouti (huit Cent onze millions cent cinquante mille francs Djibouti).
