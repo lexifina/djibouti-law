@@ -1,0 +1,1 @@
+Le séjour dans le district de Djibouti et les cercles de Tadjourah et d’Obock est interdit pendant cinq ans à Mohamed Abdillahi Kamil, né vers 1948 à Djibouti, condamné le 1er juin 1972 par le Tribunal correctionnel de Djibouti, à deux ans de prison et cinq ans d’interdiction de séjour, pour vol écroué le 27 mars 1972, libérable le 27 mars 1974.
