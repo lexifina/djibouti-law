@@ -1,0 +1,1 @@
+— Par décision du Gouverneur en date du 1° » Avril, la démission du sieur Sultan Farah, planton du Secrétariat Général est a ceptée. Il est remplacé par le sieur Hassein Guerré, nommé par la même décision.
