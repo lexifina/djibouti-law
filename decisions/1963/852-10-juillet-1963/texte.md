@@ -1,0 +1,3 @@
+Le milicien de 2e classe Mohamed Kassim Saïd, n° mle 2552, du Dépôt de la Milice à Djibouti, arrivant en fin de contrat le 21 juin 1964, est licencié pour « raison disciplinaire » pour compter du 18 juillet 1963. L’’intéressé, qui totalise 2 ans et 27 jours de services effectifs dans la Milice de la C.F.S., étant licencié disciplinairement ne peut prétendre à aucune indemnité.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins du Gérant du Dépôt de la Milice à Djibouti.
+Le Milicien de 2e classe Mohamed Kassim Saïd, n° mle 2552, sera rayé des contrôles de la Milice de la C.F.S. à compter du 18 juillet 1963 ; il recevra le certificat de libération.
