@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 504/6°L, du 6 juillet 1968 de la Commission permanente de la Chambre des Députés relative à la réorganisation et aux attributions de la Direction des Travaux publics.
