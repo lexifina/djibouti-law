@@ -1,0 +1,1 @@
+Le décret n° 45-1.608 du 18 juillet 1945 portant fixation du maximum du montant des mandats d’articles d’argent échangés dans les relations entre la France et l’Algérie, d’une part, le Maroc et les Colonies françaises d’autre part.
