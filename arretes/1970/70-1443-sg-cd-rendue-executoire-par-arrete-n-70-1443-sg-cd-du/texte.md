@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 143/7e L du 19 novembre 1970 de la Commission permanente de la Chambre des Députés portant ouverture de crédits supplémentaires au budget annexe du Port de Commerce de Djibouti (report des crédits d’équipement inutilisés en 1969).
