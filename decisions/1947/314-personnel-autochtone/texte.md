@@ -1,0 +1,1 @@
+Le nommé Omar Mohamed est agréé en qualité d’infirmier vétérinaire auxiliaire de 3e classe (6 échelon), pour compter du 1er mars 1917, en remplacement de Mohamed Omar, infirmier vétérinaire stagiaire démissionnaire.
