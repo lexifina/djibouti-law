@@ -1,0 +1,9 @@
+# Décision n° 1142 Décisions concernant les Ministères
+
+Décision · Journal officiel de la République de Djibouti, n° 8 du 31/08/1962 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1142-decisions-concernant-les-ministeres/>
+
+En vigueur : 1962-08-31 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  médecin-lieutenant des Troupes de Marine Lantrade Philippe, désigné pour continuer ses services en Côte Française des Somalis embarqué le 28 juillet 1962 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 29 juillet 1962, date de son arrivée sur le Territoire. |

@@ -1,0 +1,2 @@
+Le médecin-lieutenant des Troupes de Marine Lantrade Philippe, désigné pour continuer ses services en Côte Française des Somalis embarqué le 28 juillet 1962 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 29 juillet 1962, date de son arrivée sur le Territoire.
+Cet officier est désigné pour occuper les fonctions de médecin chef du Dispensaire Farah-Had pour compter du 1er août 1962, en remplacement du médecin-commandant Fabre-Teste, rapatrié pour fin de séjour.
