@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Andrianarifetra, observateur météorologiste, est porté de dix-sept miille francs (17.000 francs.) a vingt et un mille francs 21.000 francs), exclusif de toutes indemnités pour compter du 1er avril 1949.
