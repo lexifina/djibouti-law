@@ -1,0 +1,1 @@
+M. Gérard Valty, directeur des services techniques titulaire, 4 échelon, est, pour compter du 15 novembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir au District de Djibouti, en qualité d’agent voyer.
