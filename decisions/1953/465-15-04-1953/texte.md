@@ -1,0 +1,2 @@
+Un pasage de retour par anticipation est accordé à Mme Pellois, épouse d’un inspecteur-adjoint des Postes et Télécommunications en service à la Côte Française des Somalis.
+Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Guitte (Côtes-du-Nord) seront délivrées à l’intéressée qui voyagera accompagnée de son fils âgé de 10 mois (groupe III).
