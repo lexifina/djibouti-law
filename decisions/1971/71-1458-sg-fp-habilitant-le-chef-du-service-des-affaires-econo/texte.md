@@ -1,0 +1,2 @@
+M. Houméd Aboubaker Houmed, administrateur, 2° échelon,du cadre territorial, chef du Service des Affaires économiques, est, cumulativementavec ses fonctions actuelles, habilité à constater par procès-verbaux les infractions à la réglementation du commerce dans le Territoire Français des Afars et des Issas.
+Avant d’entréé en fonction, M. Houmed Aboubaker Houmed prêtera le serment prescrit par la loi devant le président du tribunal de première instance de Diibouti.
