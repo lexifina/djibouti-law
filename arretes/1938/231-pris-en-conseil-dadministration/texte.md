@@ -1,0 +1,2 @@
+Le paragraphe 1er de l’article P de l’arrêté 356 du 8 avril 1937, portant autorisation de construire, par la Compagnie maritime de l’Afrique-Orientale, un dépôt d’hydrocarbures d’une contenance totale de 31.000 mètres cubes, est modifié comme suit :
+« Au cas où la Compagnie permissionnaire n’aurait pas installé le dépôt dans le délai de deux ans, à compter du jour de l’entrée en vîgueur du présent arrêté, celui-ci sera considerr comme nul et de non effet à son égard, sauf cas de force majeure dûment justifié et dont le Gouverneur seul sera juge. »
