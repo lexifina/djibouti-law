@@ -1,0 +1,2 @@
+M. Bonneau (Robert), administrateur en chef de 2° échelon des affaires d’Outre-Mer affecté au Cabinet du Chef de Territoire pour compter du 16 mars 1961 est nommé Chef de Cabinet du Chef de Territoire pour compter du 12 avril 1961 en remplacement de M. Bluzat (Roger), administrateur de 7° échelon de la France d’Outre-Mer, titulaire d’un congé administratif.
+M. Bonneau (Robert) procèdera par délégation du Chef de Territoire, à la légalisation des signatures apposées sur toutes les pièces susceptibles de servir hors du Territoire.
