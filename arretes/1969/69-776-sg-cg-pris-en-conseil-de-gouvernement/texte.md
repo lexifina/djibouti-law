@@ -1,0 +1,1 @@
+M. Jean Larré, attaché de classe exceptionnelle du cadre autonome de la France d’outre-mer, adjoint au Directeur des Finances territoriales, est, pour compter du 21 mai 1969, nommé à titre intérimaire Directeur des Finances et du Plan, en remplacement de M. Jean Montel, titulaire d’un congé administratif à passer en Métropole.
