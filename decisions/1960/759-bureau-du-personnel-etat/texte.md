@@ -1,0 +1,2 @@
+M. Sauvageot (Henri), Attaché de la France d’Outre-Mer, 3° classe, 3° échelon (Cadre autonome), affecté au Service des Affaires Administratives d’Etat est mis à la disposition du Ministre de l’Intérieur pour remplir cumulativement avec les fonctions précédentes, celles d’Adjoint au Chef du Service Territorial de l’Administration Générale.
+M. Sauvageot (Henri) assurera l’intérim du Service territorial de l’Administration Générale pendant l’absence de M. Fénard,chef titulaire de ce Service actuellement en congé annuel
