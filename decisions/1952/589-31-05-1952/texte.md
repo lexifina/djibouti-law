@@ -1,0 +1,1 @@
+Le salaire mensuel de M. Rabehaja (Martin), agent de pour suites pour le recouvrement des Contributions directes, au Trésor, est porté à vingt-quatre mille cent cinquante francs (24.150 fr.) pour compter du 1er janvier 1952.
