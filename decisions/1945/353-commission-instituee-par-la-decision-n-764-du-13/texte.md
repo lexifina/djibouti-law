@@ -1,0 +1,1 @@
+Hassan Saleh, chauffeur au Cercle de Djibouti, reclassé au 10° échelon par la Commission instituée par la décision n° 764 du 13 décenfbre 1944, est nommé à solde mensuelle pour compter du 1er janvier 1945.
