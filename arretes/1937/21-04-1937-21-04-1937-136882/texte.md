@@ -1,0 +1,1 @@
+est rendu exécutoire le premier ; rôle supplémentaire patentes du premier trimestre 1937, du cercle des Adaëls, compreant quarante-neuf articles et s’élevant à la somme de deux mille trois cent quatre-vingt-cinq francs.
