@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 156/7°L du 26 janvier 1971 de la Commission permanente de la Chambre des Députés du Territoire Francais des Afars et des Issas permettant la pratique des greffes de la cornée ou kératoplastie
