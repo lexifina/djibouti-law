@@ -1,0 +1,1 @@
+M. Lafoux Michel, ingénieur-adjoint de 3° classe des Travaux Publics de l’Etat, est nommé Chef du Service de l’Infrastructure (aviation civile) à titre intérimaire et pour la durée de l’absence de M. Blin Pierre, titulaire, à compter du 14 juin 1962, d’un congé annuel de deux mois à passer en Métropole.
