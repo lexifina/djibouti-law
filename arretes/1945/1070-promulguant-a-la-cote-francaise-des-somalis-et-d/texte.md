@@ -1,0 +1,1 @@
+Le décret n° 45 1962 du 30 août 1945 fixant dans les territoires d’Outre-Mer relevant du Ministère des Colonies, les modalités des opérations relatives aux élections prevues par l’ordonnance du 22 août 1945.
