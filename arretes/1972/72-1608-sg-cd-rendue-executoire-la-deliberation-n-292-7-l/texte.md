@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 292/7°L, du 16 novembre 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant des parcelles de terrains domaniaux.
