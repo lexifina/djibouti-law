@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 306/6e L du 8 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis modifiant le paragraphe 23° de l’article 2 du Code général des Impôts indirects.
