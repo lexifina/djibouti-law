@@ -1,0 +1,1 @@
+est autorisée au profit du trésor, la vente des objets saisis chez le nommé Abdoui Kayoum, tailleur, tiers détenteur des deniers de son employé Abdobaker Youunis, redevable de ses impôts de l’exercice 1932.
