@@ -1,0 +1,2 @@
+Est autorisé le remboursement à M. Collet, commissaire de police, de la somme de (1.388 NF) mille trois cent quatre-vingt-huit nouveaux francs, représentant les frais qu’il a avancés pour le passage, par voie aérienne, en classe touriste, Paris-Djibouti, de Mlle Guérin (Denise), sa fiancée, dont le mariage a été célébré à Djibouti le 11 juin 1958.
+La présente dépense est imputable au Budget de l’Etat, chapitre 41-95, article 2.
