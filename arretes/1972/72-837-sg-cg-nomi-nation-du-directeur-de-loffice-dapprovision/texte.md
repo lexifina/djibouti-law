@@ -1,0 +1,1 @@
+M. Houmed Aboubaker, administrateur, 2e échelon, du cadre territorial, chef du Service des affaires économiques, est, cumulativement avec ses fonctions actuelles, nommé directeur de l’Office d’Approvisionnement des magasins témoins.
