@@ -1,0 +1,1 @@
+M. Pierront (Roger), commerçant, demeurant à Djibouti, est autorisé à acquérir une parcelle de terrain bâti, d’une superficie de 1.445 mètres carrés, sur laquelle est édifiée une villa à usage d’habitation, sise à Ambouli et immatriculée au Livre foncier du Territoire sous le n°;,927 au nom de M. Roger Radeau.
