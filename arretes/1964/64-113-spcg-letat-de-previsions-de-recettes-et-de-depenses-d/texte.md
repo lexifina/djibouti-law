@@ -1,0 +1,1 @@
+Est adoptée et rendue exécutoire la délibération adoptée le Conseil d’administration d’« Electricité de Djibouti», portant modifications de l’état de prévisions de dépenses et de Èërecettes d’« Electricité de Djibouti» pour l’année 1963.
