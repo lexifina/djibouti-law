@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Ali Mahmoud Elmi, infirmier de 2e classe, 3e échelon du cadre territorial de la Santé publique, en service au dispensaire de Dikhil, pour absence non motivée du 30 août 1975 au 2 septembre 1975.
