@@ -1,0 +1,1 @@
+Le milicien de 2e classe Ouaberi Mohamed, matricule 2685, de la 4 Compagnie de Milice à Damerdijog, arrivant en fin de contrat le 29 avril 1966 et ne désirant pas rengager, est rayé des contrôles du corps le 30 avril 1966.
