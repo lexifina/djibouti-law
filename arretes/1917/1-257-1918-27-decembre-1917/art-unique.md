@@ -1,0 +1,2 @@
+# Article unique
+— Sont abrogées, en ce qui concerne les lissus de Jjute autres que ceux écrus, armure toile, pesant plus de 30 kilogs les 100 mètres carrés, les dispositions de l’arrêté susvisé qui avaient permis l’exportation ou la réexportation sans autorisation préalable des envois ayant pour destination l’Angleterre, les dominions, les Javs de protectorat et colonies britanniques, la Belgique le Japon, la Russie ou les états de l’Amérique.
