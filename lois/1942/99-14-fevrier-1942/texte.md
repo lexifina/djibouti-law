@@ -1,0 +1,1 @@
+Le nommé Abdou Mohamed, Arabe, est engagé en qualité de planton au salaire journalier de douze francs pour compter du 6 février 1942. en remplacement numérique de Omar Saulé, planton au Bureau des finances, licencié à compter du 1 er février 1942 pour aban don de poste.
