@@ -1,0 +1,24 @@
+# Arrêté n° 122 de l’Assemblée Territoriale de la CFS.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 29/02/1960 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-122-de-lassemblee-territoriale-de-la-cfs/>
+
+En vigueur : 1960-02-29 (date du Journal officiel qui le publie).
+
+## Signature
+
+Le Président de l’Assemblée Territoriale,
+Albert SAHATDJIAN.
+Le Secrétaire de l’Assemblée Territoriale,
+
+ABDOULLAHI HASSAN DEMBIL.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
+| [art-006.md](art-006.md) | Art. 6 |
+| [art-007.md](art-007.md) | Art. 7 |
+| [art-008.md](art-008.md) | Art. 8 |
