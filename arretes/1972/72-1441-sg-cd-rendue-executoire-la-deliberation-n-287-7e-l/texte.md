@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 287/7e L du 29 septembre 1972 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1971.
