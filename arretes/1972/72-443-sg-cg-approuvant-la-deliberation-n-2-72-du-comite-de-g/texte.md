@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 2/72 du Comité de gestion à Fonds d’aide et de prévoyance proposant l’affectation d’une somme maximale de 3.540.000 F.D. à l’achat de trois moto- pompes et 1.000 mètres de tuyau de refoulement destinés à la lutte Contre les inondations à Diibouti.
