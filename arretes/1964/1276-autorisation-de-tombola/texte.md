@@ -1,0 +1,1 @@
+Le Lieutenant-Colonel Bonzon est autorisé, en tant que président du Comité des Fêtes de Bazeilles, à organiser une tombola composée de 10.000 billets à deux cents francs l’un, dont le produit sera exclusivement destiné à la Caisse de secours des Trôupes de Marine.
