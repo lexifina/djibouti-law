@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 23/8° L du 23 mars 1974 de la Commission Permanente de la Chambre des Députés du Territoire Français des Afars et des Issäs portant ouverture de crédits supplémentaires au budget du service local, büdget de fonctionnement, de l’exercice 1973.
