@@ -1,0 +1,1 @@
+L’article 2 de la décision n° 266 du 28 février 1950 est modifié ainsi qu’il suit : « Pour compter du 11) janvier 1050, date d’expiration de son contrat, Mlle Bague (Cinette) est classée dame employée auxiliaire 1er catégorie, salaire mensuel, et: mise à la disposition du directeur du service de santé.
