@@ -1,0 +1,1 @@
+Mme Giustiniani (Marie-Antoinette), dame-employée auxiliaire 2° catégorie, en service à la Direction des Postes et Télécommunications, est a utorisée à cesser son service pour compter du 27 septembre 1953.
