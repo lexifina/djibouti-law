@@ -1,0 +1,1 @@
+Artucie unique.— l’avance remboursable de trols million (3.000.000) de francs Djibouti consentie à l’Association des Consommateurs de Djibouti (ASSOCOMA) doit être considérée comme avant été faite a titre de subvention.
