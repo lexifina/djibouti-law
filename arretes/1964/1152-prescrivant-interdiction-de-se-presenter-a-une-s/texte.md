@@ -1,0 +1,2 @@
+L’arrêté n° 617 en date du 27 mai 1963 portant interdiction de se présenter à une session de permis de conduire, est prorogé pour une durée de deux ans en ce qui concerne le sieur Voussouf Rayaleh Diraneh, somali issa fourlaba, né en 1943 à Bayadleh (Cercle d’Ali-Sabieh) de Rayaleh Diraneh et de Kadidja Mead, chauffeur, demeurant au quartier 6 .
+L’intéressé ne pourra. en conséquence, se présenter à une session de permis de conduire avant le 25 juin 1968.
