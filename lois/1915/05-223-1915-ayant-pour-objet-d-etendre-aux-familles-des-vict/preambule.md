@@ -1,0 +1,3 @@
+# PrÃ©ambule
+Le Sénat et la Chambre des Député ont adopté…
+Le Président de la Hépublique promuloue la loi dont la teneur suit :
