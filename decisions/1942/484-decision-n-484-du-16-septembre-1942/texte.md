@@ -1,0 +1,1 @@
+M. Rouillère, inspecteur des contributions directes, chef du Service des contributions de la Côte française des Somalis, est chargé cumulativement des fonctions de receveur de l’enregistrement, des domaines et du timbre pendant l’indisponibilité le M. Lacour.
