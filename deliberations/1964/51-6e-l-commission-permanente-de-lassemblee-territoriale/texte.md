@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 460 du ler avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère des Armées, Direction des Services d’Outre-Mer) la cession, à titre gratuit et définitif, d’un terrain d’une superficie de quatre-vingt un hectares vingt-cinq ares sis à Ambouli.
