@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 50/7°L du 12 août 1969 de la Commission permanente de la Chambre des Députés ‘ portant octroi de l’aval du Territoire à un emprunt de 70 millions de francs Djibouti contracté par «l’Electricité de Dji bouti» auprès de la Caisse centrale de Coopération économique.
