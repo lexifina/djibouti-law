@@ -1,0 +1,2 @@
+# Préambule
+Art, 1, — Il sera versé aux ayants droit à la succession de M. KR, Donard décédée à Djibouti le 16 décembre 1941, une somme de trois cent vingt mille francs C. F,. A. (520.000 francs €. F. A.) à titre de valeur de remplacement des biens meubles dépendant de cette succession et vendus aux enchères publiques ou réquisitionnés par l’administration locale du 6 septembre MI au 2 décembre 1943,
