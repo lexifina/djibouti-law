@@ -1,0 +1,1 @@
+sont exonérés des taxes et surtaxes d’importation ainsi que des frais de port, les marchandises et matériels offerts par la communauté internationale à la République de Djibouti dans le cadre de l’aide aux populations victimes des inondations.
