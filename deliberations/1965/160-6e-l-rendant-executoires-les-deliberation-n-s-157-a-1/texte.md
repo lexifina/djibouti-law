@@ -1,0 +1,1 @@
+réndue exécutoire par arrêté n° 234 du 19 février 1965, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère dés Armées) la concession provisoire d’un terrain d’une superficie de 1.500 mètres carrés environ, sis à Obock, à titre gratuit.
