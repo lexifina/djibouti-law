@@ -1,0 +1,1 @@
+M. Assowe Ali, infirmier de 1° classe, 2° échelon, indice 122 du cadre local du Service de Santé, en stage de perfectionnement professionnel à l’Institut Pasteur de Paris, est autorisé à prolonger son stage pour la période du 15 juillet au 20 octobre 1960.
