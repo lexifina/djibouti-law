@@ -1,0 +1,1 @@
+Les agents du Service Judiciaire dont les noms suivent sont autorisés à accomplir des travaux supplémentaires pendant l’année 1963 : MM. Joseph, Le Van Ky, Rattina Emile, Mouttou, Mohamed Issack Saban, Mme Millon, MM. Abdourahim Ahmed One, Ahmed Abdillahi, Hassan Brek, Hassan Guedi, Ahmed Haddi Moula, Mahaämoud Ahmed Hersi,: Saleh Houssein.
