@@ -1,0 +1,1 @@
+Mme Agostini, dame-employée auxiliaire 3e catéggorie, en service à la Direction du Service de Santé, est affectée à la Direction du Service des Travaux publics, en remplacement numérique de Mme Millet, pour compter du 15 juin 1953.
