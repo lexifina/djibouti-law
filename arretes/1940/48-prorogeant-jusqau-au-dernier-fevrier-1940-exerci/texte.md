@@ -1,0 +1,3 @@
+ART 1° — L’exercice 1999 Ou puaget special des grands travaux sur fonds d’emprunt est prorogé jusqu’au dernier février 1940 pour permettre d’achever les travaux ci-après, qui ne pourront être terminés avant le 21 décembre 1939 pour cas de force majeure :
+Port de Djibouti (section II. chapitre IV, article III, parag. 1 d ). — T MUNIE d’ aménagement on de 418 quatre hanGars de 44 x 12 et aménagement de deux hangars de 132 x 12.
+Art2 — Le chef du Bureau des finances et le chef du Service des travaux publics sont chargés, chacun en. ce qui le concerne, de L exécution du pr ésent arrêté qui sera enregistre, publie et communique partout où besoin sera et inséré au Journal afticre de La colonie.
