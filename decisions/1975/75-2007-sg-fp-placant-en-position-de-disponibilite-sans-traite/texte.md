@@ -1,0 +1,1 @@
+M. Ismael Waiss Sigad, contrôleur de 2e classe, 1er échelon du cadre territorial des Contributions, en service aux Contributions indirectes, est, sur sa demande, placé en position de disponibilité sans traitement pour une durée de deux ans, à compter du ler octobre 1975, en vue de poursuivre des études supérieures en métropole, PB n° 14 CT.
