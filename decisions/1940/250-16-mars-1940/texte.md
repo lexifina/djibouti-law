@@ -1,0 +1,1 @@
+Le sergent Fulbert (Germain), qu régiment de tirailleurs sénégalais de la Côte francaise des Somalis, est placé hors cadres et mis à la disposition du capitaine commandant la milice indigène pour compter du 20 mars 1940.
