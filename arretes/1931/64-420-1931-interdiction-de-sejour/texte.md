@@ -1,0 +1,1 @@
+Le séjour à la Côte francaise des Somalis est interdit, pendant une durée de cinq ans, à compter du 8 mai 1932 date de sa libération, au nommé Youssouf Mahmoud, de la tribu Darot. coolie, sans domicile, né à Aden.
