@@ -1,0 +1,1 @@
+M. Ries est autorisé à mettre en service les réservoirs souterrains devant contenir des liquides inflammables et les installations de délivrance implantés à la station-service à l’enseigne «Total», route de l’Aviation, Djibouti.
