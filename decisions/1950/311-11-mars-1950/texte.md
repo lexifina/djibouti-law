@@ -1,0 +1,1 @@
+Mle. Economidès (Vivi), dactylographe, secrétaire auxiliaire de 2° catégorie en service au secrétariat général. est classée secrétaire dactylo auxiliaire de 1er catégorie, pour comp ter du 1er novembre 1949
