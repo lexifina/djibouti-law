@@ -1,0 +1,2 @@
+M. Francis Delmotte, attaché principal d’administration centrale, commandant le cercle de Tadjourah, nommé cumulativement avec ses fonctions actuelles, commandant du cercle d’Obock par intérim, pendant la durée de congé de M. André
+Datchary, commandant de cercle titulaire, est, pour compter du 1 septembre 1971, chargé de l’expédition des affaires urgentes at pourantes de la eomnétence de l’Etat dans le ressort dudit cercle.
