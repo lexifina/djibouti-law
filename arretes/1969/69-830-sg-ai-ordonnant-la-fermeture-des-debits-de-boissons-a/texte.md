@@ -1,0 +1,3 @@
+Les débits de boissons et tous autres établissements similaires servant des boissons alcoolisées seront fermés à partir du samedi 31 mai 1969 à 22 heures jusqu’au lundi 2 juin 1969 à 7 heures.
+Toutefois les restaurants sont autorisés à rester ouverts Seulement aux heures normales des repas, c’est-à-dire le samedi 31 mai jusqu à 22 heures et le dimanche 1er juin de 7 h. 30 à 8 h. 30, de 12 heures à 13 heures et de 19 h. 30 à 21 heures.
+Au cas où il y aurait lieu à un deuxième tour de scrutin, les mêmes interdictions sont valables pour la période du Samedi 14 juin au lundi 16 juin, et pour le même horaire.
