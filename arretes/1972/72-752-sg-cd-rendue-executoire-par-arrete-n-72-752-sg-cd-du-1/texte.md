@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 256/7e L du 12 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création d’un établissement public territorial dénommé «Office d’approvisionnement des magasins-témoins ».
