@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 460 du 1er avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Abdallah Djoumaï la concession provisoire d’un terrain d’une Superficie de sept cent cinquante mètres carrés sise à Ambouli, au prix de cent frants le mètre carré.
