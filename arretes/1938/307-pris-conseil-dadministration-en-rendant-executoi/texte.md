@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle primitif des voitures publiques et particulières, tombereaux arabes et embarcations à rames (exercice 1938) comprenant cent dix articles et s’élevant à la somme de : trois mille sept cent dix francs (3.719 francs).
