@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à la Société «Anciens Comptoirs Riès», à Djibouti, la concession provisoire d’un terrain d’une superficie de trois mille huit cent cinquante mètres carrés environ, sis au plateau du Marabout, Djibouti (lots n°° 547, 548, 549), au prix de un franc le mêtre carré.
