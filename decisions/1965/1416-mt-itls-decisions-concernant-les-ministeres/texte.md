@@ -1,0 +1,1 @@
+Pour compter du 1er octobre 1965, la S.A.M.E.R. est autorisée à assurer elle-même le service de toutes les prestations consécutives aux accidents du travail ou aux maladies professionnelles survenues à son personnel.
