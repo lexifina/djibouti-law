@@ -1,0 +1,2 @@
+Est rendue immédiatement exécutoire la délibération n 0695/0° L du 1 juillet 1964 de l’Assemblée Territoriale modifiant la délibération n° 37 du 19 mai 1959 fixant les conditions dans lesquelles la couverture des risques définis par le décret
+modifié du 24 février 1957 sur la réparation et la prévention des accidents du travail et des maladies professionnelles est confiée aux entreprises d’assurances.
