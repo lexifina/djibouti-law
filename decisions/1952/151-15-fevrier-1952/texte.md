@@ -1,0 +1,1 @@
+Le sergent-chef infirmier des T.C. Zafari (Alphonse) est mis à la disposition du Directeur du Service de Santé, en qualité de sous-officier manipulateur radio à l’Hôpital Principal de Djibouti, à compter du 11 février 1952, date de son débarquement sur le territoire.
