@@ -1,0 +1,1 @@
+Sont rendues exécutoires la délibération n° 486/6L du 24 mai 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas portant organisation du Service des Affaires Administratives et la délibération n° 501/6-L de la Commission permanente modifiant la précédente.
