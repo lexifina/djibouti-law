@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 367/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire français des Afars et des Issas habilitant le Président du Conseil de Gouvernement à passer, au nom et pour le compte du Territoire français des Afars et des Issas, quatre actes d’acquisition amiable de terrains.
