@@ -1,0 +1,1 @@
+Est accordée au Directeur du Service des Travaux publics de là Côte Françaiséldes Somalis l’autorisation préalable de construire les bâtiments deMla nouvelle base dupService des Travaux publics sur les lots,n° 2, 3, 7 et 8 du Lotissement des Abattoirs.
