@@ -1,0 +1,1 @@
+Une prolongation de séjour dé quatre mois sept jours est, accordée, pour compter du 24 janvier: 1969, à M. Raymond Sandjivy, agent de constatation, 8° échelon, des Services extérieurs de la Direction générale des Impôts, en service aux Contributions.
