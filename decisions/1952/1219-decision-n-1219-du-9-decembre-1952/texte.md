@@ -1,0 +1,2 @@
+M. Omar Farah, moniteur stagiaire à Ali-Sabieh, est titularise dans ses fonctions de moniteur du 10° échelon du cadre local des moniteurs de l’enseignement pour compter du 1er octobre 1951.
+MM. Houmed Aboubaker, Aden Osman et Ahmed Abdi, moniteurs stagiaires, sont titularisés dans leurs fonctions de moniteurs du 10° échelon du cadre local des moniteurs de l’enseignement pour compter du 1er octobre 1952.
