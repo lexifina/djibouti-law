@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du 1er janvier 1968 la délibération n° 445/6eL du 30 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas, portant virement et ouverture de crédits supplémentaires au budget du Service local 1967.
