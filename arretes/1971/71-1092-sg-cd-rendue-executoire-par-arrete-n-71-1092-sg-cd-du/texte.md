@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 209/7° L du 27 juillet 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas, accordant à M. Hassan Mohamed Moyale la concession provisoire d’une parcelle de terrain, sise à Dikhil.
