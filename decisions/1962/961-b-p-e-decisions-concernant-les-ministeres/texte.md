@@ -1,0 +1,2 @@
+M. Poinsot Jean-Paul, Attaché de 3° classe, 4 échelon, du Cadre Autonome de la F.O.M., Chef du Service Territorial de l’Information et du Tourisme, est, cumulativement avec ses fonctions eîd et à titre intérimaire, nommé Secrétaire Administratif de l’Assemblée Territoriale en remplacement de M. Desanti Jean, Chef de Division de classe normale de 3° échelon du Corps Autonome de la F.O.M., Directeur de l’Office Territorial de la Main-d’Œuvre.
+La présente décision prendra effet du jour de la passation de service entre les intéressés.
