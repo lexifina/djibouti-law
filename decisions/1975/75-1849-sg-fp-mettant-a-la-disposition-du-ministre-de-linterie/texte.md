@@ -1,0 +1,1 @@
+M. Masiero Jean-Louis chef de poste administratif contractuel, est pour compter du 29 août 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir en qualité de chef de poste Administratif de Malaho.
