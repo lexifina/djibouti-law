@@ -1,0 +1,2 @@
+L’adjudant Noël Aubin, du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 12 janvier 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 21 janvier 1963, date de son arrivée dans le Territoire.
+Ce sous-officier est désigné pour occuper les fonctions d’anesthésiste-réanimateur à l’Hôpital Peltier pour compter de la même date, en remplacement du sergent-major Alonzo, rapatrié.
