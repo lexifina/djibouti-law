@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 83/8e L du 21 janavier 1975 de la Chambre des Députés du Territoire francais des Afars et des Issas portant approbation du compte administratif de la Chambre de Commerce et d’Industrie de Djibouti, pour l’excercice 1973.
