@@ -1,0 +1,2 @@
+M, Gauthier (Jacques), précédemment en service à l’Imprimerie Administrative, est mis à la disposition du Chef du Service de l’Enregistrement, des Domaines et du Timbre. M. Garrigue (Paul) est engagé à titre précaire et révocable, en qualité de compositeur typographe auxiliaire, au salaire mensuel de vingt mille francs (20.000 fr.).
+L’intéressé est affecté à l’Imprimerie Administrative en remplacement numérique de M. Gauthier, qui a reçu une autre affectation pour compter du 9 avril 1952.
