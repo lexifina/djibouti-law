@@ -1,0 +1,1 @@
+rendu exécutoire le rôle primitif de la contribution foncière (zone suburbaine, constructions en pierres et en planches) poiir l’année 1982. comprenant 888 articles et s’élevant il la somme dé soixante deux mille soixante-sept fraffes et soixante-huit centimes (62.067 fr. (60).
