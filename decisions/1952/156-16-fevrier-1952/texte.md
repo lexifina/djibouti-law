@@ -1,0 +1,2 @@
+Un passage de retour par anticipation pour Madagascar est accordé à Mme Andrianaivoravelona, épouse d’un secrétaire comptable contractuel employé au Service des Finances.
+Une réquisition de passage par voie maritime Djibouti-Tamatave et une réquisition par voie ferrée Tamatave-Tananarive seront délivrées à l’intéressée qui voyagera accompagnée de ses cinq enfants âgés respectivement de 13, 11, 9, 7 et 5 ans (groupe V).
