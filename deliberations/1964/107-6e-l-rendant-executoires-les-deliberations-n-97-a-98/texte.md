@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Sayed Abdallah Abdoulkader Alguelany, la concession provisoire d’une parcelle de terrain d’une superficie de soixante-seize mètres carrés environ sise à Djibouti, quartier 3, au prix de cent francs le mètre carré.
