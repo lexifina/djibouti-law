@@ -1,0 +1,1 @@
+Une gratification de 200 francs est accordée au détachement de marine de la 11° escadrille, actuellement en rade de Djibouti, qui a participé aux cérémonies officielles et à la revue qui ont en lien à l’occasion de la Fête de la Victoire.
