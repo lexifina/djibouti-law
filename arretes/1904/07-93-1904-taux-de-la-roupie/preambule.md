@@ -1,0 +1,2 @@
+# Préambule
+ART. I. — Le taux de la roupie, fixé autrefois à 1 fr. 7, est ramené à 1 fr. 68, La perte résultant de ce changement de cours sera compensée par un mandat de deux mille cent cinquante trois francs quatre vingt dix centimes (perte eu change sur 90,770 roupies existant au Trésor au 25 Juillet 1904 (à 0 fr. 07 l’une) établi au nom du Trésorier Payeur et imputé au Budget Local, chapitre 8, art. 2 de l’exercice 1904 ;
