@@ -1,0 +1,1 @@
+Le milicien de 2° classe Ibrahim Ali Yabeh, matricule 2429, de la 2e Compagnie de Milice à Tadjourah, arrivant en fin de contrat le 11 octobre 1966, ne sera pas rengagé et sera licencié pour inaptitude à l’emploi à compter du 12 octobre 1966, date de sa radiation des contrôles du Corps. Il recevra le certificat de bonne Corduite .
