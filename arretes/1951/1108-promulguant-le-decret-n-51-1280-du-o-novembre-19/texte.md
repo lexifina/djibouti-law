@@ -1,0 +1,1 @@
+Art. ler. — Est promulgué, dans le Territoire de la Côte Française des Somalis, le décret n° 51-1280 du 6 novembre 1351 portant révision du régime indemnitaire des personnels des cadres régis par le décret n » 50-1348 du 27 octobre 1950 autres que ceux visés à l’article 1«’ de la loi. n » 48-488 du 21 mars 1948.
