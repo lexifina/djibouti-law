@@ -1,0 +1,1 @@
+L’Assemblée Territoriale de la Côte Française des Somalis est convoquée en session extraordinaire en son siège, le mardi 9 février 1965 à 9 heures pour délibérer sur les questions qui n’ont pu être examinées avant la clôture de sa session budgétaire.
