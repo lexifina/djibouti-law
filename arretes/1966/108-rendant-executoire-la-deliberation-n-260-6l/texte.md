@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 260/6e I, du 28 janvier 1966 de la Commission Permanente de l’Assemblée Territoriale de la Côte Francaise des Somalis portant orsanisation de la profession de docker dans le Port de Djibouti.
