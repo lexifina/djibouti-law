@@ -1,0 +1,1 @@
+Mme Jocelyne Scandola, institutrice, 7° échelon, est, pour compter du 8 octobre 1972, date de son arrivée dans le Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir à l’Enseignement.
