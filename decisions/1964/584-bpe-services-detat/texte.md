@@ -1,0 +1,2 @@
+M. Suzzoni (Jean), attaché de 1re classe, 1er échelon de la France d’outre-mer (indice net 410) est mis, pour compter du
+2 avril 1964, date de son arrivée au Territoire, à la disposition du Ministre des Finances de la Côte Française des Somalis, pour servir aux Finances territoriales en remplacement de M. Silva (René), chef de division de classé normale, 2e échelon, titulaire d’un congé administratif.
