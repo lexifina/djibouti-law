@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 230 du 30 avril 1970 du Conseil d’administration d’ «Electricité de Djibouti» arrêtant l’état de prévisions de recettes et de dépenses pour l’année 1969 (3° et dernier modificatif) à la somme de 824048.000 francs Djibouti (huit cent vingt-quatre millions quarante-huit mille francs jibouti).
