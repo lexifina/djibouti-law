@@ -1,0 +1,1 @@
+M. Dominique Gomart, médecin-commandant, en position hors cadre des Armées (indice brut 677), est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 20 mars 1969, date de son arrivée au Territoire, pour servir en qualité de médecin-chef des Services antituberculeux, en remplacement numérique du Médecin-Colonel Constant, rapatrié.
