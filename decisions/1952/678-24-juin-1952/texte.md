@@ -1,0 +1,1 @@
+Un congé administratif de sept (7) mois, à passer dans la Métropole, est accordé à Mme.Langenier (France), institutrice du cadre métropolitain en cours de détachement en Côte Française des Somalis. Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Sedan (Ardennes) seront délivrées à l’intéressée (groupe III).
