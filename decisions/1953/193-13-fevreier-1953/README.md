@@ -1,0 +1,9 @@
+# Décision n° 193 13 févreier 1953
+
+Décision · Journal officiel de la République de Djibouti, n° 4 du 01/03/1953 · <https://www.journalofficiel.dj/texte-juridique/decision-n-193-13-fevreier-1953/>
+
+En vigueur : 1953-03-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) |  Giustiniani (Jean), Surveillant Principal de 2° classe du Cadre local des Travaux Publics, est nommé Régisseur comptable de la Caisse d’avance des Travaux Publics en remplacement de M. Beltrame (Edouard). bénéficiaire d’un congé administratif M.G1ustrmam (Jean}cette qualité à l’indemité réglementaire prévue par l’arrêté n° 338 du 26 mars 1949. |
