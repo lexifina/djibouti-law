@@ -1,0 +1,4 @@
+M. Jeah-Louis Rouvin, secrétaire général du Gouvernement du Territoire Français des Afars et des Issas est autorisé à signer par délégation du Président du Conseil de Gouvernement, toutes correspondances, Transmissions ou circulaires adressées aux ministres, aux directeurs et chefs des Services térriforiaux et aux directeurs des Offices et Etablissements publics territoriaux relatives aux affaires de sa compétence.
+M. Rouvin est autorisé à signer dans les mêmes formes les ampliations conformes de tous textes territoriaux.
+En cas d’absence ou d’empêchement de M. Rouvin, M. Henri Sauvageot,
+secrétaire permanent du Conseil de Gouvernement, est autorisé à signer, dans les mêmes formes, les correspondances et transmissions relevant de ses attributions particulières, ainsi que les ampliations de tous textes territoriaux.
