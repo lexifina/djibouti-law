@@ -1,0 +1,1 @@
+M. Raymond Reyle, ingénieur des travaux ruraux, 4 échelon, chef du Service de l’Hydraulique est, cumulativement avec ses fonctions actuelles, nommé à titre intérimaire chef du Service de l’Agriculture (Ministère des Affaires économiques) pendant la durée du congé de convalescence de M. Maurice Germeaux.
