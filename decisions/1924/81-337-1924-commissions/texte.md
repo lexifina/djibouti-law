@@ -1,0 +1,1 @@
+la commission de classement prévue à l’arrêté du 26 décembre 1924, se réunira le 29 décembre 1924, à l’heure et au lieu fixés par son président, pour établir les différents tableaux d’avancement à soumettre à l’approbation du gouverneur.
