@@ -1,0 +1,2 @@
+M. Ahmed Dini Ahmed, Ministre des Affaires intérieures, est chargé, à compter du 3 janvier 1969, cumulativement avec ses fonctions actuelles; de l’intérim du Président du Conseil de Gouvernement, pendant la durée de l’absence de M. Ali Aref Bourhan, en mission
+M. Omar Mohamed Kamil, Ministre de l’Enseignement des Sports et de la Jeunesse, est chargé, à compter du 3 janvier 1969, cumulativement avec ses fonctions actuelles, de l’intérim du Ministre des Travaux publics et du Port, pendant la durée de l’absence de M. Ali Aref Bourhan, en mission.
