@@ -1,0 +1,2 @@
+L’adjudant du S.M.B.T.D.M. Piot (Charles), débarqué à Djibouti le 6 janvier 1966, servant en position «dans les cadres» et détaché pour l’emploi à la Milice de la CES, est mis à la disposition du Commandant de Cercle d’Obock en qualité de surveillant de travaux du Cercle et du Détachement autonome de Milice, en remplacement du maréchal des logis Cabon (Jean),rapatrié sur la métropole.
+Ce sous-officier prendra ses fonctions à compter du 15 janviér 1966.
