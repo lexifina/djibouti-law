@@ -1,0 +1,2 @@
+Le Sergent-Major Desbrosses Claude, du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 28 juin 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 6 juillet 1963, date de son arrivée dans le Territoire.
+Ce Sous-Officier, titulaire du Brevet Technique n° 1 d’Infirmier est affecté à l’Hôpital Peltier pour y servir en qualité d’Infirmier-Major des Services Médicaux.
