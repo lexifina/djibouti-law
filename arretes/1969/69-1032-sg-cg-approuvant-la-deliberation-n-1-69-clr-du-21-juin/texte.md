@@ -1,0 +1,2 @@
+Est approuvée la délibération n° 1/69/CLR du 21 juin 1969 du Conseil d’administration de la Caisse locale de Retraïtes habilitant son président à passer au nom de ladite Caisse avec le Territoire Français des Afars et des Issas une con-
+vention, portant Sur un emprunt d’un montant global de trente et un millions (31.000.000) francs Djibouti affecté à lachat de matériel lourd destiné au, port de Djibouti.
