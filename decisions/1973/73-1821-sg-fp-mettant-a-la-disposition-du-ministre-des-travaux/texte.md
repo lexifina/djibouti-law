@@ -1,0 +1,1 @@
+M. Jean-Claude Didelot, conducteur principal des Travaux Publics de l’Etat, 4 échelon (indice nouvéau majoré 275) est pour compter du 10 décembre 1973, date de son arrivée dans les Territoire, mis à la disposition du ministre des Travaux Publique des Transports et du Tourisme, pour servir à la subdivisions infrastructure des Travaux Publics.
