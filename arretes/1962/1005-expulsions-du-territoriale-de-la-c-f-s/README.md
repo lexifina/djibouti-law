@@ -1,0 +1,9 @@
+# Arrêté n° 1005 portant expulsions du Territoriale de la C.F.S.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 31/07/1962 · <https://www.journalofficiel.dj/texte-juridique/arrete-n-1005-portant-expulsions-du-territoriale-de-la-c-f-s/>
+
+En vigueur : 1962-07-31 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | nt expulsés du Territoire de la Côte Française des Somalis : |
