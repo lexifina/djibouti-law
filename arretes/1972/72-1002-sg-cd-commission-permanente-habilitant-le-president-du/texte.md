@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 278/7e L du 15 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas habilitant le Président du Conseil de Gouvernement à céder, au nom du Territoire Français des Afars et des Issas, une parcelle de terrain non bâti, faisant partie du titre foncier n° 845.
