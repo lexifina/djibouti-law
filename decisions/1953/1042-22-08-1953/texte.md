@@ -1,0 +1,1 @@
+Le sergent infirmier Faber (Francois), est mis à la disposition du Directeur du Service de Santé pour servir provisoirement au Service d’Hygiène, à compter du 12 août 1953, date de son débarquement sur le Territoire.
