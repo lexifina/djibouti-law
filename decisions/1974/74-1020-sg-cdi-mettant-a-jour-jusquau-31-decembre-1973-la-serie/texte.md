@@ -1,0 +1,135 @@
+Les valeurs des indices de prix et de salaires à prendre en compte pour l’application des clauses de variation de prix dans les marchés de construction et de travaux publics passés pour le compte du Territoire, sont ainsi fixées :
+Valeurs des indices en 1973 (Base 100 : juillet 1968)
+|
+| Indices
+| Oct. 73
+| Nov. 73
+| Déc. 73
+| A — Indices locaux
+| S1
+| 157
+| 157
+| 157
+| S2
+| 116
+| 116
+| 116
+| S3
+| 111
+| 111
+| 111
+| S4
+| 110
+| 110
+| 110
+| S5
+| 110
+| 110
+| 110
+| S6
+| 110
+| 110
+| 110
+| S7
+| 110
+| 110
+| 110
+| S8
+| 110
+| 110
+| 110
+| Cs
+| 110
+| 110
+| 110
+| A
+| 162
+| 180
+| 254
+| B
+| 186
+| 187
+| 140
+| C
+| 149
+| 161
+| 161
+| Amc
+| 139
+| 139
+| 153
+| F
+| 141
+| 141
+| 153
+| H
+| 111
+| 118
+| 113
+| G
+| 87
+| 93
+| 103
+| Bi
+| 75
+| 75
+| 75
+| E
+| 93
+| 93
+| 93
+| T
+| 100
+| 100
+| 100
+| EG
+| 114
+| 114
+| 132
+| B — Indices métropolitains
+raccordés
+| I
+| 155
+|
+|
+| Lma
+| 175
+| 179
+| 179
+| Lmc
+| 172
+| 172
+| 180
+| AP
+| 105
+| 105
+| 105
+| Cf
+| 129
+| 139
+| 179
+| Cm
+| 115
+| 117
+| 120
+| Sa
+| 178
+| 200
+| 210
+| Sc
+| 195
+| 222
+| 226
+| Sm
+| 207
+| 220
+| 223
+| Aps
+| 117
+| 117
+| 117
+| C — Indice général du coût de la construction
+| Icc
+| 135,8
+| 137,9
+| 144,7
