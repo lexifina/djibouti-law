@@ -1,0 +1,1 @@
+Est constatée, pour compter du 18 mai 1970, date de son retour dans le Territoire, la mise à la disposition êu Ministre des Affaires intérieures de M. Henri Naudo, brigadier de police, 3er échelon, pour servir au Commissariat central de Djbouti.
