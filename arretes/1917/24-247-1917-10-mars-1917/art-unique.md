@@ -1,0 +1,2 @@
+# Article unique
+- Par dérogation aux dispositions du décret du 19 février 1917 sus visé, les pelleteries brutes et les pelleteries préparées non ouvrées, ni confectionnées peuvent être exportées ou réexportées sans autorisation spéciale lorsque l’envoi a pour destination l’Angleterre, les dominions, les pays de protectorat et colonies britanniques,la Belgique,le Japon, la Russie (1) ou les États de l’Amérique.
