@@ -1,0 +1,1 @@
+Est expulsé du Territoire de la Côte Française des Somalis le nommé Alworki Hailé Oklou, de nationalité éthiopienne, né en 1939 à Asmara (Ethiopie), de Hailé Oklou et de Aminazad Nanguecha, sans profession
