@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 212/6°L du 1er septembre 1965 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis autorisant le Chef du Territoire, Président du Conseil de Gouvernement, à accepter, un don de la Communauté Hindoue.
