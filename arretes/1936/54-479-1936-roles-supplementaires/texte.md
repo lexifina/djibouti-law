@@ -1,0 +1,3 @@
+sont rendus exécutoires :
+1° le premier rôle supplémentaire de la contribution exceptionnelle sur les revenus de plus de 80.000 francs (exercice 1936), comprenant un article et s’élevant à la somme de deux cents francs cinq centimes: 2e le deuxième rôle supplémentaire des patentes, tableau A, du cercle de Djibouti, comprenant dix-sept articles et s’élevant à la somme de six mille quatre vingt-dix francs: 3e le deuxième rôle supplémentaire des licences, exercice 1936, du cevcle de Djibouti, comprenant six articles et s’élevant à la somme de mille neuf cent cinquante francs: 4e le troisième rôle supplémentaire de la taxe personnelle et impôt locatif,
+exercice 1936, du cercle de Djibouti, comprenant d‘un article et S’élevant à la somme de cent vingt-cinq franes.
