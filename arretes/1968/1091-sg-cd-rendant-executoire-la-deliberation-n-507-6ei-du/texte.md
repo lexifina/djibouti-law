@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 507/6° L du 6 juillet 1968 de la Commission permanente de la Chambre des Députés réglant les rapports entre bailleurs et locataires en ce qui concerne le renouvellement des baux à loyer d’immeubles ou de locaux à usage commercial où industriel.
