@@ -1,0 +1,1 @@
+M Bourgois (Renée) est engagée en qualité de dame-auxiliaire 3e catégorie et mise à la disposition du Directeur du Service de santé, en remplacement numérique de Me Agez, pour compter du 15 mars 1953.
