@@ -1,0 +1,3 @@
+Le milicien de 2° classe Omar Adaba, Mle 1050, décédé à la suite d’une blessure reçue à l’occasion du service, est radié des controles de la Milice le 6 septembre 1993.
+Conformément aux. dispositions de l’article 68 de l’arrêté n° 105 du 3 février 1943 et ses modificatifs, la veuve de ce milicien, Asena Mohamed, résidant à Randa, percevra une pension annuelle égale à la moitié de la pension d’ancienneté à laquelle aurait eu droit l’intéressé s’il avait accompli vingt années de service.
+La dépense visée au paragraphe 2 est imputable au chapitre 2,article 1er, $ 1er, du budget de fonctionnement pour l’exercice 1953.
