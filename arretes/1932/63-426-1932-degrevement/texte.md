@@ -1,0 +1,1 @@
+il est accordé à M . Omar Saïd Chaari, recruteur de passagers, demeurant à Djibouti, le remboursement de la somme de 450 francs, représentant le montant du 1er trimestre de sa patente indûment au titre de 1 exercice 1930 (article 19 du rôle primitif).
