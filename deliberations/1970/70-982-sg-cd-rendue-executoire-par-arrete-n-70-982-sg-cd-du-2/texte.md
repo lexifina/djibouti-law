@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 126/7° L du 13 août 1970 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars ef des Issas accordant des parcelles de terrains domaniaux en concession provisoire.
