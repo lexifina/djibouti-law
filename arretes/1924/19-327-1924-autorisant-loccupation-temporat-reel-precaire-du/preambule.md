@@ -1,0 +1,4 @@
+# Préambule
+Art, 1er. — Le concessionneire du lot 176 du Plateau du Serpent est autorisi à occuper à litre temporaire et précaire la portion du domaine public zone des cinquanle pas géométriques) joignant cette concession à l’est et délimitée ainsi qu’il suit : au nord une longueur de 11 m, 15 frisant suite au mur nord de la concession, d’une longueur de 56 m, 85: à l’est une longueur de 8 mm. 20 perpendiculaire à la précédente au sud le rivage de la mer : à l’ouest une ligne pertant de l’angle N. E. de la concession et aboutissant au rivage de la mer sun la perpendiculaire à la limite nord et,à une distance de 8 m. 85 à l’ouest du terminus est de la concession 176.
+Cette portion du domaine publie à au niveau de la route circulaire une superficie de 202 m2 63.
+Art, 2 — Le concessionnaire du lot 176 ne pourra élever aucune construction ni effectuer aucun travail appelé à conforter la berge.
