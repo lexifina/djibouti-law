@@ -1,0 +1,2 @@
+M. Pau (Gabriel), administrateur adjoint des colonies est nommé, à titre provisoire, président p. i. du tribunal de 1er instance de Djibouti, pendant la durée de l’absence de M. Guiot. M. Pau cumulera, avec ses fonctions actuel les au cercle de Djibouti, celles auxquelles il vient d’être nommé.
+Avant d’entrer en fonctions, M. Pau prêtera le serment prescrit par la loi M. Pau percevra l’allocation proscrite par l’article 2 du décret du 26 novembre 1946 susvisé.
