@@ -1,0 +1,1 @@
+la Commission permanente de l’Assemblée Territoriale. a accordé à M. Mohamed Odoua Hared la concession provisoire d’une parcelle de terrain d’une superficie de 1.000 mètres carrés, sise à Djibouti, plateau du Marabout (lot n° 580), au prix de 1 franc le mètre carré.
