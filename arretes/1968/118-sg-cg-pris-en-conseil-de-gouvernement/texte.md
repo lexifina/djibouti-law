@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 192 du 15 décembre 1967 du Conseil d’Administration d’ « Electricité de Djibouti » approuvant l’état de prévisions de recettes et de dépenses d” « Electricité de Djibouti» pour l’année 1968, arrêtée à 747.708.000 F. D. (Sept cent quarante-sept millions sept cent huit mille francs Djibouti).
