@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 453/6°L du 10 février 1968 de la Commission permanente de la Chambre des Députés portant autorisation de virement de crédits de chapitre à chapitre au budget annexe du port, exercice 1967.
