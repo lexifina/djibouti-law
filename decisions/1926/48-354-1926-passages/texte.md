@@ -1,0 +1,1 @@
+un passage de retour par anticipation est accorde à Mme Guezennec, femme d’un garde principal de 2e classe. Mme Guezennec prendra passage sur le paquebot de la Compagnie des Messageries Maritimes, attendu à Djibouti vers le 2 juin 1926.
