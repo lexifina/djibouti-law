@@ -1,0 +1,2 @@
+# Préambule
+Art, 1er, — Les gradés et miliciens totalisant plus de quinze ans de services dans l’administration locale, sans à voir passé à la milice indigène un temps suffisant pour avoir droit au pécule où à une pension d’ancienneté, et qui, en raison de leur erand âge ou de maladies, ne seront plus en etat de continuer leurs services, pourront, au moment de leur libération, être admis à bénéficier des dispositions de l’arrété n° 971 du 6 octobre 1958.
