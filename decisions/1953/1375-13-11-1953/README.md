@@ -1,0 +1,9 @@
+# Décision n° 1375 13/11/1953
+
+Décision · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1375-13-11-1953/>
+
+En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t constaté, à compter du 1er octobre 1953, tant au point de vue de la solde que de l’ancienneté, le passage de M. Rabibizaka (Marcel), commis-greffier principal avant deux ans, à l’échelon « après deux ans » de son grade. |
