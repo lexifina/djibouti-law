@@ -1,0 +1,1 @@
+Dérogation est accordée à Mme Athede Guanshi, de nationalité éthiopienne, autorisée à exploiter en gérance libre la licence de 1″ classe pour la vente de toutes boissons à consommer sur place ou à emporter au bar-restaurant «Chez Walla»,sis 47, avenue Georges-Clemenceau à Djibouti, dont la propriétaire est Mme Walla Omar.
