@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 7/7°L du 19 décembre 1968 de la Chambre des Députés du Territoire Français des Afars et des Issas complétant la délibération n° 471/6°L, du 24 mai 1868 portant organisation du port de commerce de djibouti.
