@@ -1,0 +1,1 @@
+La retenue de logement prévue par le deuxième alinéa de l’article 8 de l’arrêté n° 282/SG/CG du 28 février 1968, modifié par arrêté n° 71-1461/SG/CG du 27 octobre 1971, est portée au taux de 25% à compter du 1° janvier 1972.
