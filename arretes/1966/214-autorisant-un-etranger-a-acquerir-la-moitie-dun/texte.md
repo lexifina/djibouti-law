@@ -1,0 +1,1 @@
+Le M. Abdällah Kassim Nour Mohamed, sujet britannique, tailleur,sest autorisé à acquérir la moitié d’un immeuble sis à Djibouti, avenue de Brazzaville, et immatriculé au Livre foncier sous le n° 821, au nom de M. Ahmed Ramadan.
