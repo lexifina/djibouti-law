@@ -1,0 +1,1 @@
+MM. Filippi (Septuagésime-Antoine-Joseph), contrôleur principal du trafie à la Compagnie du Chemin de fer franco-éthiopien, et Bournelle (Louis-Adolphe), chef de la comptabilité à la Compagnie du Chemin de fer franco-éthiopion, ont été nommés chevaiiers de l’ordre de l’Etoile noire.
