@@ -1,0 +1,1 @@
+Par arrêté du Ministre des colonies, en date du 17 mai 1930. M. Félix (Alfred-Pierre), Donnée administrateur-adjoint de 2e classe des colonies, par décret du 18 avril 1930, et précédemment affecté à l’Afrique équatoriale française, à été mis à la disposition du Gouverneur de la Côte française des Somalis, Pour compter de la veille du jour de son embarquement.
