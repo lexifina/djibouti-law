@@ -1,0 +1,2 @@
+L’adjudant d’Infanterie de Marine Monsimer (Maurice), débarqué à Djibouti le 27 novembre 1966, servant en position « dans les cadres » et détaché des Forces armées à la Milice de la C.F.S. est mis à la disposition du Commandant de Cercle de Tadjourah, en qualité d’agent spécial, en remplacemeñt de l’’adjudant d’Infanterie de Marine Gaze (André). prochainement rapatriable.
+Ce sous-officier prendra ses fonctions à compter du 10 janvier 1967.
