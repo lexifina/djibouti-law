@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 452/6° L du 13 janvier 1968 de la Commission permanente de la Chambre des Députés portant abrogation de la délibération n° 307/6e L du 28 juillet 1966 portant modification de l’arrêté n° 719 du 92 suillet 1951 réslementant l’enseignement privé dans le Territoire.
