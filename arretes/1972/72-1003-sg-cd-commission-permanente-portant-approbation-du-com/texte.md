@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 275/7e L du 15 juin 1972 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas portant approbation du compte administratif de l’Office de Développement du Tourisme pour l’exercice 1971.
