@@ -1,0 +1,1 @@
+Est rendu exécutoire le rôle supplémentaire des patentes « B ». du 4e trimestre, exercice 1937, comprenant six cent cinquante-huit arti cles et s’élevant à la somme de trente-six mille sept cent soixante-dix-sept francs.
