@@ -1,0 +1,1 @@
+Mlle Mathieu (Huguette L’infirmière coloniale de 4e classe, débarquée en Côte Française des Somalis le 12 août 1953, est mise a la disposition du Directeur du Service de Santé pour compter du jour de son débarquement, pour servir en qualité d’infirmière a l’Hôpital Principal de Djibouti.
