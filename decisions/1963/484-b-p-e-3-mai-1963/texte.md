@@ -1,0 +1,1 @@
+M. Gabirault Pierre, Administrateur en Chef de classe exceptionnelle de la France d’Outre-Mer est chargé, cumulativement avec ses fonctions actuelles, de l’expédition des Affaires courantes du Secrétariat Général du Territoire, du 28 avril 1963 au 3 mai 1963.
