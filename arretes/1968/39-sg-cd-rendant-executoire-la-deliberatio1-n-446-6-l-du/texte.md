@@ -1,0 +1,1 @@
+Est rendue exécutoire à compter du 1er janvier 1968 la délibération n° 446/6° L du 30 décembre 1967 de la Chambre des Députés du Territoire Français des Afars et des Issas relative à la profession de docker et au bureau de main-d’œuvre docker de Djibouti.
