@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 9/74/SMI du 5 mars 1974 du conseil d’administration du Service médical interentreprises concernant l’acceptation du budget 1974 de démarrage de l’extension du SMI pour un montant de 15 000 000 FD et une dépense en capital pour la construction couverte par un emprunt de 140 000 000 de francs Djibouti.
