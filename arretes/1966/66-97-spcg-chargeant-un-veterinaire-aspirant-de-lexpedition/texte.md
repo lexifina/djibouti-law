@@ -1,0 +1,1 @@
+M. Peleèton (Henri), Métérinaire-aspirant, est chargé de l’expédition des’affaires courantes du Service territorial de l’Agriculture, .de l’Elevage, des Industries animales et de l’’Hydraulique rurale, pour Compter du 5 août 1966 et pendant la durée de Pabsence de M. Grateau (Jean), titulaire d’un congé à passer en métropole.
