@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 305/6e/L du 8 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis autorisant quatre membres de l’Assemblée Territoriale à se rendre en voyage d’information en métropole.
