@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 59/7° L du 16 octobre 1969 de la Commission permanente de la Chambre des Députés approuvant le rapport d’exploitation et les comptes d’ «Electricité de Djibouti» pour l’année 1968.
