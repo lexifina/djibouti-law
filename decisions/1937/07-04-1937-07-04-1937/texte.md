@@ -1,0 +1,1 @@
+le sergent infirmier Pic holon (Yves), débarqué à la colonie le 4 avril 1937, est mis à la disposition du médecin-chef du Service de santé de la Côte française des Somalis. directeur comptable de l’hôpital de Djibouti.
