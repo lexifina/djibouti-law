@@ -1,0 +1,1 @@
+Le garde territorial de 2° classe Moussa Farah, n° MIe 757,en service ah Commissariat central de Djibouti, est licencié de la Garde territoriale par mesure disciplinaire pour compter du 1er février 1966.
