@@ -1,0 +1,1 @@
+Me Boucheix (Berthe) est engagée, à titre essentiellement précaire et révocable, en qualité de dame-employée auxiliaire 3e catégorie et mise à la disposition du Chef du Service des Postes et Télécommunications, en remplacement numérique de Mme Croise, démissionnaire, pour compter du 20 août 1953.
