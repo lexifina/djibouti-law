@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 213/7°L du 7 octobre 1971 de la Commission permanente de la Chambre des Députés modifiant la délibération n° 102/7*L du 5 mai 1970 portant Code de la Route du Territoire Français des Afars et des Issas.
