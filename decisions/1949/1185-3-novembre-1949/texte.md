@@ -1,0 +1,1 @@
+La décision n° 1066 du 30 septembre 1919 nommant M. Paul (Gabriel), administrateur adjoint des colonies, chef du cabinet civil par intérim, est et demeure rapportée. M. Benazet (Léopold), sons-chef de section de l’agence économique des colonies, de retour de mission, reprend ses fonctions de chef de cabinet civile pour compter du 24 octobre 1949.
