@@ -1,0 +1,2 @@
+Le sieur Farah Abdi Robleh, somali issa odagob, rer galan, né en 1921 à Arta, fils de Abdi Robleh et de Kodhin Guedi, chauffeur, demeurant à Loyada, devra passer le permis de conduire catégorie D dans un délai de un mois.
+Le sieur : Areh Bock Doualeh, somali issa mamassan bah gourgourah, né vers 1926 à Loyada, fils de Bock Doualeh et de Dahbo Robleh, entrepreneur, demeurant au quartier 5, rué de Zeïla, devra passer le permis de conduire catégorie D dans un délai de deux mois.
