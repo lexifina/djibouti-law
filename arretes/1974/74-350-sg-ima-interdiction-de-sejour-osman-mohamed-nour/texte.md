@@ -1,0 +1,1 @@
+Le séjour dans le TFAI est interdit pendant trois ans à Osman Mohamed Nour, né vers 1949 à Carine (Ethiopie), condamné le 5 février 1974 par le Tribunal correctionnel de Djibouti, à six mois de prison avec sursis et trois ans d’interdiction de séjour, pour vol, écroué le 4 février 1974, libéré le 5 février 1974 en vertu du sursis d’audience.
