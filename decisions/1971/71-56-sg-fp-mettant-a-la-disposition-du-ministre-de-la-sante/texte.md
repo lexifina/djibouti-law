@@ -1,0 +1,1 @@
+M. Jacqueson, adjudant-chef en position cadre hors budget des Armées, est, pour compter du 21 décembre 1970, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir au Service de prévention de la tuberculose, en remplacement numérique de l’adjudant-chef Speno, rapatriable.
