@@ -1,0 +1,1 @@
+Est promulgué à la Côte française des Somalis et dépendances, le décret du 29 décembre 1941 portant application aux territoires relevant du Secrétariat d’Etat aux colonies autres que les Antilles, la Réunion, l’Inde et l’Indochine, des dispositions de la loi du 26 juillet 1941 fixant le taux des amendes pénales.
