@@ -1,0 +1,1 @@
+.Un deuxième blâme avec inscription au dossier est infligé a M. Aouled Waberi Bouh, technicien de 2e classe, 1er échelon du cadre territorial de la Santé publique, en service à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales), pour négligences répétées dans l’exécution de son service.
