@@ -1,0 +1,1 @@
+Le sergent-major Cuilleminot (André), de la D.S.M.B., est placé dans la position « hors-cadres » et affecté à la Milice de la Côte Française des Somalis (Dépôt de la Milice) à compter du 1er février 1951.
