@@ -1,0 +1,1 @@
+Mlle. Folacci ( Marguerite), dame employée auxiliaire de 1er catégorie, en service à l’enre gistrement, est classée dame employée auxi liaire de 1er catégorie, après deux ans de ser vice, pour compter du 1er janvier 1950.
