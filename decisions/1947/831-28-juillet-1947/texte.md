@@ -1,0 +1,1 @@
+M. Berridot Baurelly, chef de bureau de l’administration générale des colonies, est mis à la disposition de M, l’administrateur commandant le cercle de Djibouti, pour compter de la date de son débarquement à Djibouti.
