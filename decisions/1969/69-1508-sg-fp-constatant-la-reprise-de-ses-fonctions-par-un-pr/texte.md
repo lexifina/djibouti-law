@@ -1,0 +1,1 @@
+Est constatée, pour compter du 24 septembre 1969, la reprise de ses fonctions antérieures de professeur de C.E.G. au lycée mixte de Djibouti (Ministère de l’Enseignement, des Sports et de la Jeunesse) par Mme Odette Rioux, professeur de collège d’enseignement général, 9% échelon.
