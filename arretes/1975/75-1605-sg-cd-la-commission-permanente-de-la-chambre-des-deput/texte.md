@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 144/8°L du 5 août 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas portant approbation du compte financier pour l’exercice 1974 du Service Médical Interentreprises.
