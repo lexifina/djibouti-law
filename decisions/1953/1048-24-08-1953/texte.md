@@ -1,0 +1,1 @@
+Me Cerny (O.), titulaire du brevet élémentaire, engagée comme institutrice auxiliaire pour la période comprise entire 1er 20 et le 31 mai 1952 inclus, percevra le salaire prévu en faveur des auxiliaires européens de 2e catégorie.
