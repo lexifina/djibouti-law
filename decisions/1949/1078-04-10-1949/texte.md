@@ -1,0 +1,1 @@
+Ibrahim Taher, commis administratif, 12e échelon, précédemment en service à l’inscripton maritime qui fait l’objet de poursuites judiciaires depuis le 1er février 1949, percevra la moitié de sa solde de présence, sans accessoires, pour la période de six mois s’étendant du 1er février 1949 au 1er août 1949, date à laquelle il a été suspendu de ses fonctions.
