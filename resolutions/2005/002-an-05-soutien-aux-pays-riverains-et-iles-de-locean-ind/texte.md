@@ -1,0 +1,18 @@
+L’Assemblée nationale,
+– Réunie en séance plénière le samedi 29 janvier 2005 ;
+a- Profondément affectée par les ravages du cataclysme sans précédent causés par le tsunami dans les pays riverains et les îles baignées par l’Océan Indien qui a fait plus de 280 000 morts et disparus ;
+b- Vivement préoccupée par le sort des populations qui ont tout perdu et qui se retrouvent aujourd’hui démunies devant les conséquences catastrophiques de ce raz-de-marée lequel vient de détruire en même temps sur son passage les principales infrastructures économiques et de communication des pays touchés, rendant ainsi difficile tout acheminement d’aide et toute assistance médicale ;
+c- Consciente du fait que la plupart des pays touchés sont constitués d’États insulaires peuplés de populations essentiellement de pêcheurs aux revenus modestes ;
+d- Saluant avec satisfaction l’élan de générosité sans précédent ainsi que la forte mobilisation internationale pour venir en aide à ces victimes et rendant hommage aux efforts considérables pour reconstruire les zones dévastées ;
+e- Saluant également au passage l’appel lancé à la population djiboutienne, notamment par le Croissant rouge national, pour récolter les dons destinés aux victimes de ce raz-de-marée ;
+f- Inquiète des risques de prolifération d’épidémies auxquelles seront confrontées les survivants ;
+g- Préoccupée particulièrement par le sort des milliers d’orphelins désemparés et qui vivent actuellement dans la précarité ;
+——————————
+1- Exprime sa compassion et sa solidarité avec les pays et les peuples touchés ;
+2- Se félicite de l’aide d’urgence et de la forte mobilisation de la communauté internationale en temps très court pour venir en aide aux populations sinistrées ;
+3- Soutient les efforts pour reconstruire les zones dévastées et pour un retour aussi rapide que possible de ces populations gravement touchées à des conditions de vie décentes ;
+4- Exhorte la communauté internationale à tirer les leçons de ce cataclysme qui a pris au dépourvu des milliers de personnes et à coordonner les activités de recherche sismologiques notamment sous-marines dans le but de la mise en place de mécanismes d’alerte précoce et rapide à grande échelle pour pouvoir sauver le maximum de vies humaines ;
+5- Invite la communauté internationale à penser sérieusement à la création, sous l’égide des Nations unies, d’un corps international d’intervention rapide doté de moyens logistiques adéquats à ce genre de catastrophes auxquelles l’humanité risque à faire face dans l’avenir ;
+6- Lance un appel aux pays nantis à concrétiser leurs promesses de dons afin de reconstruire les structures sanitaires, d’hôpitaux de campagne et d’orphelinats avec un encadrement approprié ;
+7- Prie la communauté internationale à ne pas délaisser les autres populations, surtout africaines, qui endurent quasi quotidiennement dans le dénuement les conséquences des famines récurrentes et cycliques principalement dues aux sécheresses causées par le réchauffement climatique consécutif aux rejets de gaz toxiques polluants des pays industrialisés qui ont gravement affecté l’équilibre climatique mondial avec l’effet de serre et la destruction de la couche d’ozone de notre planète, sans oublier ceux qui sont victimes des guerres civiles incessantes dans certaines régions d’Afrique ;
+8- Charge le Président de l’Assemblée nationale de transmettre la présente résolution au Chef de l’État, Président de la République, aux parlements des pays touchés par le tsunami, aux organisations internationales auxquelles est affiliée l’Assemblée nationale de Djibouti, ainsi que l’Organisation des Nations unies et ses représentants dans notre pays.
