@@ -1,0 +1,9 @@
+# Décision n° 1154 Décisions concernant les Ministères
+
+Décision · Journal officiel de la République de Djibouti, n° 11 du 30/11/1960 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1154-decisions-concernant-les-ministeres/>
+
+En vigueur : 1960-11-30 (date du Journal officiel qui le publie).
+
+| Fichier | Disposition |
+| --- | --- |
+| [texte.md](texte.md) | t constatée pour compter du 27 septembre 1960, date de son retour dans le Territoire la reprise par M. Muzotte, instituteur de 10° échelon du cadre métropolitain, de ses fonctions de Chef du Service de l’Enseignement par intérim. |
