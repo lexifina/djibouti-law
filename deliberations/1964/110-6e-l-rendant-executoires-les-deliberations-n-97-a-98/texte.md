@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 1202 du 14 août 1964, la Commission permanente de l’Assemblée Territoriale a accordé, à Mme Leïla Mohamed Saleh, la concession provisoire d’une parcelle de terrain d’une superficie de trois cent treize mètres carrés environ, sise à Djibouti, quartier 4 au prix de cent francs le mêtre carré.
