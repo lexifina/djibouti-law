@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 348/7e L du 10 maï 1973 de la Chambre des députés du Territoire français des Afars et des Issas, modifiant et complétant la délibération n° 487/6e L du 24 mai 1968 portant création d’un cahier des charges applicable aux aliénations de gré à gré de parcelles de terrains du Domaine privé du Territoire.
