@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 222 du 12 décembre 1969 du Conseil d’administration d’Electricité de Djibouti arrêtant l’état de prévisions de recettes et’de dépenses pour l’année 1969 à la somme de 772.000.000 de francs Djibouti (sept cent soixante-douze millions de franès Djibouti) (2° modificatif).
