@@ -1,0 +1,1 @@
+M. Roussan (Jacques-Paul-Henri), ingénieur de l’Ecole centrale des arts et manufactures, est nommé, à titre provisoire, ingénieur principal de 4e classe, 2e échelon, du cadre général des travaux publics des colonies, pour servir à la Côte française des Somalis.
