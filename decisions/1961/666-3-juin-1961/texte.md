@@ -1,0 +1,1 @@
+M. Mahmoud Youssouf, expéditionnaire d’Administration de 1er classe, 3e échelon, précédemment en service au Cercle de Ali-Sabieh et remis à la disposition du Ministre de la Fonction publique, pour compter du 1er mai 1961, est affecté, en surnombre d’effectif au Ministère des Affaires intérieures.
