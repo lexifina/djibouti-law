@@ -1,0 +1,1 @@
+Est rendue immédiatement exécutoire la délibération n° 34/ 6° L. du 22 février 1964 de l’Assemblée Territoriale de la Côte Française des Somalis modifiant le nombre des centimes additionnels dont la perception est autorisée au profit de la Chambre de Commerce.
