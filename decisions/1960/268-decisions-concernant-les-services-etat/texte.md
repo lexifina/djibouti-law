@@ -1,0 +1,1 @@
+Le Milicien de 2e Classe Houssein Egueh, Mle 2367, de la 2e Compagnie, qui a déclaré ne plus vouloir rengager, sera libéré et rayé des contrôles de la Milice sur sa demande le 21 mars 1960, date dexpiration de son contrat en cours ; il recevra le certificat de bonne conduite.
