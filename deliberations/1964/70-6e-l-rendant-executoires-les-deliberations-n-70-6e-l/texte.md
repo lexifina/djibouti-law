@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 767 du 1er juin 1964, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Secrétariat général à l’Aviation civile), la cession à titre gratuit et définitive d’un terrain d’une superficie de trois hectares environ, sis à Ambouli, extrémité Est de l’aérodrome.
