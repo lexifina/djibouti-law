@@ -1,0 +1,2 @@
+# Préambule
+Art, 1°, — Est promulgué, dans le Territoire de la Côte Française des Somalis, le décret n° 53-265 du 28 mars 1953 portant modification au décret n° 51-1523 du 31 décembre 1951, modifiant le décret n° 49-1364 du 2 août 1949, fixant le statut particulier des auxiliaires de gendarmerie des territoires relevant du Ministre de la France d’Outre-Mer autres que l’Indochine (J.O.R.F. du 2 avril 1953, p. 3157)
