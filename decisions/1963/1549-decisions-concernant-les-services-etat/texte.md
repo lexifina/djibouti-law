@@ -1,0 +1,2 @@
+La sanction de rétrogradation d’une classe est inflisée à M. Issa Kahin Mahamoud, planton de 2° classe, 3° échelon du Cadre Territorial de l’Administration Générale en service à l’Electricité de Djibouti, pour faute grave.
+M. Issa Kahin Mahamoud sera rangé planton de 3° classe 3° échelon du Cadre Territorial de l’Administration Générale pour compter de la date de signature de la présente décision.
