@@ -1,0 +1,1 @@
+M. Jean Bernier. médecin-généraliste, volontaire de l’Aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique, pour servir en qualité de médecin-adjoint au médecinchef du cercle de Dikhil, service comptant pour compter du 1 avril 1974.
