@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 628 du 27 avril 1965, la Commission Permanente de l’Assemblée Territoriale à accordé à Mme Amoun Mohamed Hassan la concession provisoire d’une parcelle de terrain, d’une superficie de 27:50 m2 environ, sise à Djibouti, quartier 1, avenue 8, au prix de 100 francs le mètre cärré.
