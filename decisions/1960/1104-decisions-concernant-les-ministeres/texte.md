@@ -1,0 +1,1 @@
+M. Claire (Alexandre), instituteur du 8e échelon détaché du cadre métropolitain, précédemment en service en qualité d’adjoint au Cours Complémentaire, est affecté, à titre provisoire, au Lycée de Djibouti, pour compter du 1er octobre 1960.
