@@ -1,0 +1,1 @@
+Une mission d’information, composée de six membres de l’Assemblée Territoriale désignés par la Commission permanente et dont les noms figurent en annexe à la présente délibération,se rendra en France.
