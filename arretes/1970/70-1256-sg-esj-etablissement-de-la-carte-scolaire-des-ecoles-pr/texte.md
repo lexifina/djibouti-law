@@ -1,0 +1,2 @@
+En application de l’article 13 de la délibération n° 104/7° L portant réglementation générale de l’Enseignement du Premier degré, une carte scolaire, précisant le lieu et la nature des écoles publiques du Territoire, est dressée pour l’année scolaire 1970- 1971 ; elle s’établit ainsi qu’il est précisé aux articles ci-dessous.
+Les écoles primaires publiques déjà ouvertes dans le Territoire pendant les précédentes années scolaires se répartissent d’après le tableau-suivant:
