@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 21/7°L du 11 mars 1969 de là Commission permanente de la Chambre des Députés instituant des mesurées conservatoires en matière de procédure civile dans le Territoire Français des Afars et des Issas.
