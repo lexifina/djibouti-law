@@ -1,0 +1,1 @@
+M. Arnaud-Thuillier Dominique, volontaire de l’aide technique, est pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics, des Transports et du Tourisme, pour servir au bureau d’Etudes des Travaux Publics, en qualité d’architecte DPLG, service comptant pour compter du 1° avril 1974.
