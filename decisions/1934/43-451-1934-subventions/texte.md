@@ -1,0 +1,1 @@
+une subvention de cent cinquante francs (150 francs) à été allouée pour l’année 1934 à la « Société belge d’études et d’expansion » à titre de participation de la colonie pour le service de publication de cette société,
