@@ -1,0 +1,1 @@
+Une permission d’absence à solde entière de vingt et un jours pour en jouir à Zeilah est accordée à M. Ali Mahmoud, chauffeur 11e échelon, du Cadre local, employé au Service des Finances. Les frais de déplacement sont à la charge de l’intéressé.
