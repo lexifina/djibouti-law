@@ -1,0 +1,1 @@
+M. Mallorga (Ttené), rédacteur de lro classe des bureaux d’Administration générale des colonies, est. mis à la disposition de-M. le chef eo du service du personnel, des finances et de la comptabilité, pour compter du 3 mai 1050, date de son arrivée à Djibouti.
