@@ -1,0 +1,1 @@
+M. Checko Hassan Abdallah, commis principal 2e échelon du cadre territorial de l’Administration générale au service de la Main-d’Oeuvre, est intégré, à titre exceptionnel, dans le cadre des rédacteurs, et nommé rédacteur de 1er classe, 2e échelon pour compter du 1er novembre 1975.
