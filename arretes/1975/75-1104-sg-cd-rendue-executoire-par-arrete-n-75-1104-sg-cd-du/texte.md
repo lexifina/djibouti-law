@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 120/8°L du 27 mai 1975 de la Chambre des députés du Territoire français des Afars et des Issas, créant le Service du Génie rural et en fixant les attributions et l’organisation.
