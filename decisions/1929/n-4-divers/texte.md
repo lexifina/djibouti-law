@@ -1,0 +1,1 @@
+le nommé dine Haron, sujet anglais, sera, à l’expiration de la peine d’emprisonnement qu’il purge, expulsé de la colonie et reconduit à la frontière du Somaliland, les territoires de la Côte francaise des Somalis et dépendances lui restant interdits,
