@@ -1,0 +1,1 @@
+M. Antoine Arnold, adjudant, en position « cadre hors budget des armées est, pour compter du 26 mai 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir au Centre pneumo-phtisiologie Paul Faure, en remplacement numérique de l’adjudant-chef Lemouel, rapatriable.
