@@ -1,0 +1,1 @@
+1° M. Perrenof (André), ouvrier d’art contractuel, est mis à la disposition du chef du service de l’enseignement pour servir à l’Ecole professionnelle, pour comoter du 17 ianvier 1951, date de son arrivée à Djibouti.
