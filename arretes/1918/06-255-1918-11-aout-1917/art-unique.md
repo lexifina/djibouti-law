@@ -1,0 +1,2 @@
+# Article unique
+Par dérogation aux dispositions du décret du 7 août 1917 sus-visé, les soies ouvrées où moulinées non teintes et les confections en tissus de soie peuvent être exportées où réexportées sans autorisation spéciale, lorsque l’envoi a pour de deination l’Angleterre, les dorminions, les pays de protectoral et colonies britanniques, la Belgique, le Japon, la Russie (* )ou les Etats de l’Amérique,
