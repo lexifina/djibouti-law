@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 362/7e L, du 28 juin 1973 de la Commission permanente de la Chambre des députés du Terirtoire français des Afars et des Issas portant approbation du compte administratif de l’Office de développément du tourisme pour l’exercice 1972.
