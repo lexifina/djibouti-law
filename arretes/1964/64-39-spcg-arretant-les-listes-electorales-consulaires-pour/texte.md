@@ -1,0 +1,1 @@
+Sont définitivement arrêtées, sous toutes réserves de droit, et telles qu’elles figurent aux documents joints les listes électorales consulaires établies par la Commission compétente en vue du prochain renouvellement de la Chambre de Commerce.
