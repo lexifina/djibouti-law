@@ -1,0 +1,1 @@
+à l’article 1er de l’arrêté n° 647, du 30 août 1932: M. Cfezet a été nommé procureur de la Ré publique ad hoc pour recevoir le serinent de M. Collombet désigné pour remplir par intérim les fonctions de procureur de la République:
