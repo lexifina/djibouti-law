@@ -1,0 +1,2 @@
+la commission prévue à l’art. 6 du décret du 25 mai 1912 et composée de : MM. le Secrétaire général, Fréau, Administrateur, Marill commerçant français, Kalos commerçant étranger, Belvind chef du bureau, Vassaujec Hirjee et Vanmali Virjee
+commuoreogtse indiens, Salem Mots commercant arabe el Hague Maussa commercant somalis, ces à deroicrs à etre consultatif, se réunira sur la convocalion de son président à l’effet de dresser la liste cleclorale de Ta Chambre de commerce.
