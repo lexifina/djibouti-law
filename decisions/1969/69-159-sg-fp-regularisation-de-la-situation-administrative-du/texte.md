@@ -1,0 +1,3 @@
+Le Est constaté, pour compter du 1° janvier 1967, le: passage 2 échelon dans le grade des aïde-ouvriers principaux, de M. Abdi Rabileh Soubagleh, aide-ouvrier principal, 1° échelon, en service au Port de Commerce de Djibouti.
+La sanction d’abaissement d’un échelon est infligé à M. Abdi Rabileh Soubagleh, pour absence injustifiée, obstacle À la liberté du travail et agitation du personnel dans un but subversit.
+Abdi Rabileh Soubagleh, aide-ouvrier principal, 4° echelon du cadre territorial des Travaux publics et du Port, sera rangé aide-ouvrier principal, 1° échelon, pour compter de la date de signature dès la présente décision.
