@@ -1,0 +1,1 @@
+M. Morin (Maurice), inspecteur adioint de 1er classe des Transmissions de la France d’Outre-Mer, de retour de conge, est mis à la disposition du Chef du Service des Postes et Télécommunications pour compter du 11 novembre 1953, date de son débarquement sur le Territoire.
