@@ -1,0 +1,4 @@
+Le Milicien de 1re classe Hachi Abdillahi, mle 2045 de la 1re Compagnie de Milice à Dikhil, totalisant 15 ans de services effectifs dans la Milice de la C.FS,, plus 2 ans 8 mois et 14 jours de services effectifs dans l’Armée Française, est admis à faire valoir ses droits à l’allocation viagère annuelle en exécution de l’article
+n° 6 de l’arrêté n° 1252 du 16 novembre 1961, il sera libéré et rayé des contrôles de la Milice pour compter du 10 août 1962, il recevra le certificat de bonne conduite.
+Le Milicien de 1re classe Hachi Abdillahi, mle 2045, bénéficiera à compter du 10 août 1962 d’une allocation viagère annuelle de quarante et un mille trois cent soixante franes Djibouti (41.360 FD) payable trimestriellement et à terme échu et sur vu d’un certificat de vie détivré par les autorités compétentes.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent Spécial de la 1re Compagnie de, Milice à Dikhil.
