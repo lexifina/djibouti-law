@@ -1,0 +1,4 @@
+Le contrat de engouement du Miüilicien de 1’° Classe Bile Iftin, Mle 1775, ‘de’la 2° Compagnie de Milice, n’est pas renouvelé pour mauvaise manière habituelle de servir, l’intéressé, sera libéré et rayé des contrôles de la Milice le 17 janvier 1960, date d’expiration de son contrat en cours ; il recevra le Certificat de libération.
+L’intéressé, qui totalise 13 ans et 1 mois de services effectifs dans la Milice, percevra en exécution des prescriptions de l’article 65 de l’arrêté n° 105 du 3 février 1943, un pécule dont le montant est fixé à vingt-six mille sept cent francs Djibouti (26.700 F.D.).
+Les droits à solde, pécule, vivres et permission, seront liquidés par les soins de l’Agent spécial de la 2° Compagnie.
+La présenté décision annule et remplace la décision n° 75 du Chef de Territoire, en date du 20 janvier 1960.
