@@ -1,0 +1,1 @@
+Le Médecin-Commandant des Troupes coloniales hors cadres Pontich Guy, débarqué le 6 février 1953, est mis à la disposition du Médecin-Colonel, Directeur du Service de Santé, et affecté à l’Hôpital Principal de la Côte Francaise des Somalis à Djibouti, én qualité de Médecin Résident.
