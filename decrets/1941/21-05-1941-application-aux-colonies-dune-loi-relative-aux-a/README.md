@@ -1,0 +1,27 @@
+# Décret n° 21/05/1941 portant application aux colonies d’une loi relative aux administrateurs de certaines Sociétés d’intérêt public.
+
+DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-05-1941-portant-application-aux-colonies-dune-loi-relative-aux-administrateurs-de-certaines-societes-dinteret-public/>
+
+En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+Vu le sénatus-consulte du 3 mai 1854;
+Vu la loi du 9 novembre 1940 relative aux administrateurs de certaines sociétés d’intérêt public ;
+
+## Signature
+
+PH. PÉTAIN.
+Par le Maréchal de France, Chef de l’Etat
+français :
+Le Général d'armée commandant en chef
+des forces terrestre, Ministre Secrétaire d'Etat à la guerre,
+HUNTZIGER.
+Le Secrétaire d'Etat aux colonies.
+Platon.
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
