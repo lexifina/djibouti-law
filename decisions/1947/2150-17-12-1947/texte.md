@@ -1,0 +1,1 @@
+Les sergents-chefs Briand (Marcel) et Tournois (Denis), désignés pour servir hors cadres à la Côte francaise des Somalis, sont affectés à la 2e compagnie de milice indigène pour compter du 7 décembre 1947, date de leur débarquement.
