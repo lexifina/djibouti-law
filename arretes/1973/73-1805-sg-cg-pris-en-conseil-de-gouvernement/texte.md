@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 12-73/SMI du 14 novembre 1973 du Conseil d’administration du Service Médical Interentreprises portant adoption pour 1974 d’une part, du budget de fonctionnement s’élevant à 162859 630 FD, des dépenses en capital pour un montant de 13679370 FD, d’autre part, des recettes pour un total de 176 530 000 FD.
