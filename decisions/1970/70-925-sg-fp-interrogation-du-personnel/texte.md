@@ -1,0 +1,1 @@
+M. Ibrahim Gabasse AlI, ouvrier principal, 2 echelon au cadre territorial, en service à la Voirie de Djibouti, est, à titre exceptionnel, intégré dans le cadre des contremaîtres de travaux et nommé contremaître de 2e classe, 2° échelon, pour compter du 1°° mars 1969.
