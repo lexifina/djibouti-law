@@ -1,0 +1,1 @@
+12 Septembre 1933 a été rendu exécutoire le rôle primitif de l’exercice 1933 des Faimres publiques et Qu trticulières à traction animale, des charreîttes de bédanis et des tombereaux prenant 79 articles et s’élevant à somme le de vingt-cinq mille trois cent francs.
