@@ -1,0 +1,2 @@
+Art, 1er, — Est promulgué dans la colonie, pour y êlre exécuté selon ses forme et leneur, le décret du 26 août 1925, portant ralification, pour les colonies françaises, les protectorats de l’Indo-Chine et les territoires sous mandat du Togo et du Cameroun, de la convention postale universelle et des arrangements de Stockholm.
+Art, 2. Le présent arrêté sera enregistré, publié et communiqué parlout où besoin sera et inséré au Journal officiel de la colonie.
