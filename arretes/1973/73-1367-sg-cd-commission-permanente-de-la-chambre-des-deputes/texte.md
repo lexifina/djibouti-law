@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 369/7e L du 1er septembre 1973 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas portant création et remaniement de ressources budgétaires.
