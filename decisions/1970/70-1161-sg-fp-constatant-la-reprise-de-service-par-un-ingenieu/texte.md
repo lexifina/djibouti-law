@@ -1,0 +1,1 @@
+Est constatée, pour compter du 22 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures de chef du Service de l’’Hydraulique (Ministère des Affaires économiques) par M. Raymond Reyle, ingénieur des Travaux ruraux, 5e échelon.
