@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 129/6L du 7 octobre 1964 de la Commission permanente de l’Assemblée Territoriale portant modification des tarifs appliqués aux Services administratifs civils et militaires.
