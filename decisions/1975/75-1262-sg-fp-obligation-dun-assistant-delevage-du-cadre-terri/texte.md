@@ -1,0 +1,1 @@
+M. Mohamed Moussa Chehem assistant d’Elevage de 2e classe, 1er échelon du cadre territorial du service de l’Elevage qui a commis un accident pendant les heures de service avec un véhicule administratif est tenu de supporter toutes les dépenses et dommages résultant de l’accident qu’il a causé.
