@@ -1,0 +1,1 @@
+Un deuxième blâme est infligé à M. Youssouf Mohamed Houmed, infirmier de 2° classe – 1er échelon du corps territorial de la Santé publique, en service à l’hopital Peltier, (Ministère de la Santé publique et des Affaires Sociales), pour avoir frappé une malade hospitalisée dans son service.
