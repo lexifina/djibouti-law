@@ -1,0 +1,1 @@
+Sont rendues exécutoires les délibérations n° 503/6L et n° 510/6-L du 6 juillet 1968 de la Commission permanente de la Chambre des Députés portant ouverture de crédits supplémentaires au budget du Service local.
