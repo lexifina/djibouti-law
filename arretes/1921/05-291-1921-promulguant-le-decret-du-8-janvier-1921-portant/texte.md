@@ -1,0 +1,2 @@
+Art 1— . Est promualgué dans la Colonie, pour v êlre exécuté selon sa forme et teneur, le décret du S janvier 1921, portant à af» probation d’un avenant à la convention de concession du chemin de fer Franco-Ethiopien de Djibouti à Adis-Abeba.
+Art 2 — Le Secrélaire général du Gouverneme ni est chargé de P exécution du présent arrèté, qui sera enregistré, pub lié et communipué partout où besoin sera et inséré au Journal officiel de la Colonie.
