@@ -1,0 +1,1 @@
+M. Jean-Pierre Arniaud, volontaire de l’aide technique, est, pour compter du 14 décembre 1970, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir en qualité de médecin phtisiologue en remplacement numérique du docteur Pierre Tournier, rapatrié.
