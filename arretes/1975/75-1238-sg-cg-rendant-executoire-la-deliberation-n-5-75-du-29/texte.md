@@ -1,0 +1,2 @@
+Est rendue exécutoire la délibération n° 5-75 du 29 mai 1975 du Conseil d’administration de l’Office des postes et télécommunications portant approbation de la première décision modificative du budget de l’Office pour l’exercice 1975 et arrêtant ce budget, en recettes et en dépenses, aux montants bruts ci-après ;
+Fonctionnement : Cinq cent quarante millions trois cent mille francs de Djibouti. (540 300 000 FD); à Opérations en capital: Deux cent trente-sept millions deux cent cinquante mille francs de Djibouti (237 250 000 FD).
