@@ -1,0 +1,1 @@
+Une permission d’absence de quinze jours, pour en jouir à Addis-Abeba (Ethiopie), est accordée à M. Fromentin (Robert), chef ouvrier d’art au service des travaux publics, pour compter du 16 octobre 1948.
