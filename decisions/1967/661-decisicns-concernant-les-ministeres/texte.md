@@ -1,0 +1,2 @@
+M. Djama Bilaleh, manœuvre, catégorie 5, en service aux Finances, réunissant 15 ans de services effectifs et ininterrompus au le avril 1967, est admis, pour compter de cette date, au bénéfice d’une allocation viagère, d’ancienneté, de cinquantequatre mille franes (54000 FD) par an, payable trimestriellement et à terme échu.
+M. Djama Bilaleh, qui cessera son service le 1er avril 1967,aura droit à une indemnité de congés payés égale à huit jours de salaire pour les congés non pris dans la période du 1er janvier 1967 au 31 mars 1967.
