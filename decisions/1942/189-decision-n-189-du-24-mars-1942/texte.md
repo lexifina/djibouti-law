@@ -1,0 +1,1 @@
+Le gendarme Guilbaud est nommé régisseur comptable des prisons de Djibouti, en remplacernent du gendarme Carot, lequel est chargé des fonctions d’agent de police des mœurs et d’agent du service d’hygiène.
