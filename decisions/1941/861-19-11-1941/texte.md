@@ -1,0 +1,1 @@
+Le sergent radiotélégraphiste Vencell, de la Compagnie des télégraphistes coloniaux, est placé dans la position hors cadres pour compter du 16 novembre 1941 et mis à la disposition du capitaine inspecteur des pelotons mé haristes.
