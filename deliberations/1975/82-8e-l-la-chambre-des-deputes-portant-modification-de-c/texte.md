@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 82/8e L du 7 janvier la Chambre des Députés du Territoire francais des Afars et des Issas, portant modification de certains articles du Code travail dans les territoires d’outre-mer.
