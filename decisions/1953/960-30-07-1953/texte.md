@@ -1,0 +1,1 @@
+M. Ahmed Omar est engagé, à titre essentiellement précaire et révocable, en qualité de cuisinier auxiliaire, 6e échelon, et mis à la disposition du Directeur du Service de Santé, pour compter du 16 juillet 1953, en remplacement numérique de Ismail Ahmed, licencié.
