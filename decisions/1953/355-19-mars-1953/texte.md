@@ -1,0 +1,1 @@
+M. Moussa Hassan est engagé à titre essentiellement précaire et révocable en qualité d’observateur auxiliaire au salaire mensuel de 10.000 francs, exclusif de toute indemnité, pour compter du 13 mars 1953 , et mis à la disposition du Chef du Service Météorologique, en remplacement de M. Mohamed Coubèche, démissionnaire.
