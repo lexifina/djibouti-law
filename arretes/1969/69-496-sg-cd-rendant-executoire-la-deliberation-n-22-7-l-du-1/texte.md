@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 22/7e L du 11 mars 1969 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars ef des Issas portant ouverture de crédits supplémentaires au budget du Service local, exercice 1969.
