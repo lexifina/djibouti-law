@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 215/6°L du ler septembre 1965 de la Commission permanente de l’Assemblée Territoriale portant réglementation des tarifs d’hospitalisation et des conditions de cessions dans les formations sanitaires de la Côte Française des Somalis.
