@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 69/7°L du 23 décembre 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas abrogeant la délibération n° 7/7°L du 19 décembre 1968 et complétant la délibération n° 471/6L du 24 mai 1668 portant organisation du Port de Commerse de Djibouti.
