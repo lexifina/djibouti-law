@@ -1,0 +1,1 @@
+Est rendue executoire la délibération n° 6-74 du 25 revembre 1974 du conseil d’administration de l’Office des Postes et Télécommunications habilitant son président A contracter, au nom de l’Office, un prét a long terme de 8400000 francs frangais auprés de la Caisse centrale de Coopération économique ét solliciter ’aval du Territoire pour la garantie de ce pret.
