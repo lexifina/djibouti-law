@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 318 du 17 décembre1974 du Conseil d’Administration d’Electricité de Djibouti pour portarrete laditedit etat, en recettes et en depenses a la somme de 1 51500 000 FD ( un milliarde cinq cent uinze millons trois cent mile francs Djibout).
