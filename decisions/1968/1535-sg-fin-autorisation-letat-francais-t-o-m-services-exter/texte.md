@@ -1,0 +1,1 @@
+Etat Français (T.O.M. – Services extérieurs) est outorisé à acquérir, de la Société Djiboutienne de Constructions, un terrain urbain bâti, sis à Ambouli, d’une superficie totale de 7.946 mètres carrés (soit le titre foncier n° 994 de 2.212,50 mètres carrés et 5.733,50 mètres carrés correspondant à la partie Est du titre foncier n°1000).
