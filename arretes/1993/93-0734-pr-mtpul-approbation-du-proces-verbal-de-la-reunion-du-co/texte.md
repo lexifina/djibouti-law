@@ -1,0 +1,1 @@
+sont approuvées les propositions du comité de gestion du fonds d’investissement routier contenues dans le procès-verbal de la réunion du 26 avril 1993 ainsi que le projet de budget de l’exercice 1993 annexé au présent arrêté.
