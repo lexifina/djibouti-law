@@ -1,0 +1,2 @@
+# Préambule
+CONSTITUTION DE CADRE.
