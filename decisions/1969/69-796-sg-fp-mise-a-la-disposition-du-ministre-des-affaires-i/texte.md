@@ -1,0 +1,1 @@
+M. André Auzeine, officier de 1° classe des Equipages de la Flotte, en position «Cadre hors budget des Armées», est ‘à pour compter du 7 mars 1969, date de son arrivée au Territoire, a la disposition du Ministre des Affaires intérieures. :
