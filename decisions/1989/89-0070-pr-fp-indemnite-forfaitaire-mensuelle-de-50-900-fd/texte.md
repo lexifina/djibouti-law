@@ -1,0 +1,1 @@
+Monsieur Mohamed Goumaneh Guirreh, inspecteur des impôts Îre cl — 1er éch, nommé chef de service des Contributions directes, percevra l’indemnité forfaitaire mensuelle de 50.000 FD prévue par le décret n° 81-034/PRE/SG du 5 mars 1981, à compter du 30 novembre 1988 date de sa nomination.
