@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 96/8e L du 17 fevrier 1975 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas envoyant en mission en métropole le Président de la Chambre des Députés.
