@@ -1,0 +1,2 @@
+Article Premierr — Est promulguée dans le Protectorat de la Côte Française des Somalis et Dépendances, le décret du 27 Janvier 1859, portant règlement d’Administration publique sur les curatelles aux successions et biens vacants.
+Art, 2, — Le Secrétaire Général est chargé de l’exécution du présent arrêté, qui sera enregistré, communiqué partout où besoin sera et inséré au Journal Officiel de la Colonie.
