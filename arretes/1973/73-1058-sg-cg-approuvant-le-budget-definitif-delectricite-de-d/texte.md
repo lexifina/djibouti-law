@@ -1,0 +1,1 @@
+Est approuvée la délibération n° 279 du 16 juin 1973 du Conseil d’administration d’e Electricité de Djibouti » arrêtant l’état de prévisions de recettes et de dépenses pour l’année 1972 (budget définitif) à la somme de: 1.003.248.000 francs Djibouti (un milliard trois millions deux cent quarante huit mille francs Djibouti).
