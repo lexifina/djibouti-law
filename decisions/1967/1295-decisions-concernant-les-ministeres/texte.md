@@ -1,0 +1,1 @@
+M. Jean Douguet, adjoint technique de 2° classe du autonome des Travaux publics, chef de subdivision administràtive et comptable des Travaux publics est nommé régisseur des recettes de la Régie créée par l’arrêté n° 65/148/SPCG du 28 décembre 1965 susvisé, pour lencaissement des frais de remboursement des dossiers d’appels d’offres.
