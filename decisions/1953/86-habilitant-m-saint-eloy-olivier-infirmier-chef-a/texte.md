@@ -1,0 +1,1 @@
+M. Saint-Eloy (Olivier), infirmier-chef en service à Tadjoura, est habilitée a donner des avertissements et à constater par des procès-verbaux les infractions à la réglementation de l’hygiène et la voirie dans le Cercle de Tadjoura.
