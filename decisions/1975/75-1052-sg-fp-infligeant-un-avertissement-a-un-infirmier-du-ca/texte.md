@@ -1,0 +1,1 @@
+Un avertissement est infligé à M. Mohamed Adawa Omar, infirmier de 2° classe, 2° échelon, du cadre territorial de la Santé publique en service à l’hôpital Peltier, pour absence irrégulière non motivée le 6 mai 1975.
