@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 32/8e L, du 29 mars 1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas portant organisation d’un examen d’entrée dans les établissements d’enseignement technique publics du territoire.
