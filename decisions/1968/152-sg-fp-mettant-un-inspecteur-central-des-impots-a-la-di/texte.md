@@ -1,0 +1,1 @@
+M. Henri Borderes, inspecteur central des impôts, 3° échelon, (indice net 495) est, pour compter du 24 janvier 1968, date de son arrivée au Territoire, mis à la disposition du Ministre des Finances pour servir aux Contributions.
