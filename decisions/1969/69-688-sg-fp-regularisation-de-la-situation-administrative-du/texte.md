@@ -1,0 +1,1 @@
+Est constate, pour compter au 1er janvier 1269, le passage au 3e échelon de la 2e classe du cadre des agents d’exploitation qualifiés de M. Moussa Kassim Moussa, agent d’exploitation qualifié de 2e classe – 2e échelon, en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales).
