@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 104/8° L du 21 mars 1975 de la Territoire Commission Permanente de la Chambre des Députésdu teritoire français des Afars et des Issas modifiant la délibér ation n° 28/7°L du 8 mai 1969 portant création d’un fonds d’investissement routier du Territoire français des Afars et des Issas.
