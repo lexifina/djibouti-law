@@ -1,0 +1,1 @@
+Un blâme est infligé à M. Farah Voussouf Moussa, ouvrier de 1er classe, 3e échelon, du corps territorial des Travaux publies et du Port, pour manque de conscience professionnelle dans Fexécution du travail qui lui a été confié.
