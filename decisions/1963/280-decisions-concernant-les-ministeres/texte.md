@@ -1,0 +1,2 @@
+Pour raison de santé « non imputable » au Service, le Garde de 1° classe Omar Iltireh, mle 535, est licencié de la Garde Territoriale et ravé des contrôles pour compter du 1er mars 1963.
+Ce Garde totalisant à cétte date 3 ans 1 moiïs de service dans les Forces locales, percevra une indemnité de licenciement égale à 2 mois de’solde nette, soit : douze mille quatre cent soixante quatorze francs (12.474 fr.).
