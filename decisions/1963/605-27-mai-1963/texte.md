@@ -1,0 +1,3 @@
+Le Miülicien de 2e Classe Hassan Hersi, mle 2828, de la 4 Compagnie de Milice à Damerdjog arrivant en fin de contrat le 15 mars 1965, est licencié pour « inaptitude à l’emploi » pour compter du 25 mai 1963. L’intéressé qui totalise 2 mois et 10 jours de services effectifs dans la Milice de la C.F.E.S. ne peut prétendre à aucune indemnité.
+Le Milicien de 2e Classe Hassan Hersi, mle 2828 sera rayé des contrôles de la Milice de la C.F.S. à compter du 25 mai 1963, il recevra le certificat de libération.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins du billeteur de la 4 Compagnie de Milice à Damerd;jog.
