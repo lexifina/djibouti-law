@@ -1,0 +1,1 @@
+12 septembre 1633. à été rendu exécutoire de rôle primitif des patentes (tableau B) de l’execice 1933, comprenant 919 articles et s’élevant à la somme de vingt-neuf mille sept cent soixante francs, centimes additionnels conpris.
