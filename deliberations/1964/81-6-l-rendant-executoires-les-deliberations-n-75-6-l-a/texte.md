@@ -1,0 +1,1 @@
+rendue exécutoire par arrêté n° 983 du 3 juillet 1964, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère des Armées, Direction des Services d’Outre-Mer), la concession définitive d’un terrain d’une superficie de quinze mille mètres carrés, sis à Obock, à titre gratuit.
