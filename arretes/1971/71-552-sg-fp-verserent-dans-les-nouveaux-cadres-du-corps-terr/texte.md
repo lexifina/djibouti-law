@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 168/7eL du 3 avril 1971 de la Chambre des Députés du Territoire Francais des Afars et des Issas portant interdiction totale de da chatte un toute l’étendue du Territoire pendant une période de cinq ans.
