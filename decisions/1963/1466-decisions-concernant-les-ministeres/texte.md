@@ -1,0 +1,3 @@
+L’article premier de la décision n° 1195 du 25 septembre 1963 est modifié comme suit :
+M ‘Idle Awale Dabe chauffeur auxiliaire (échelle III 3° échelon, indice 285) en service au Cercle de Tadjourah, déclaré physiquement inapte à la conduite des véhicules pour une durée ‘emporaire de six mois, à compter du 16 juillet 1963, a tenu un emploi d’aide-mécanicien (emploi sédentaire) au garage du Cercle de Tadjourah, pendant la période du 16 juillet au 31 ocotbre 1962 ot norcevra à cet effet l’intéoralité de son salaire.
+M. Idle Awale Dabe est placé en position de congé sans traitement pour la période du 1er novembre 1963 au 15 janvier 1964.
