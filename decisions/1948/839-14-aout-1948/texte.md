@@ -1,0 +1,1 @@
+Est engagé à la sûreté générale le nomme Ali Youssouf, en qualité de commis adminis tratif auxiliaire de 10e échelon, à compter du 5 août 1918, en remplacement numérique d’Abdoul Rtahman Ahmed, démissionnaire de son emploi depuis le 31 juillet 1948.
