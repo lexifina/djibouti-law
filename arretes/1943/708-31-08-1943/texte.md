@@ -1,0 +1,1 @@
+Est autorisée l’ouverture au Comptable gestionnaire du Magasin Administratif de la Côte Française des Somalis d’une avance pouvant atteindre 40.000 francs et sont précisées les conditions d’attribution et de justification.
