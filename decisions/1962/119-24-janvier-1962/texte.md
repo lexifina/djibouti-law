@@ -1,0 +1,3 @@
+Le 2e Classe Abdallah Mohamed, Mle 2516, de la 2e Compagnie de Milice à Tadjoura (Poste d’Obock) arrivant en fin de contrat le 8 février 1963 est licencié pour raisons disciplinaires pour compter du 1re février 1962, l’intéressé qui totalise 10 moïs et 22 jours de services effectifs dans la Milice de la C.F.S. ne peut prétendre à aucune indemnité.
+Les droits à solde et vivres de l’intéressé seront liquidés par les soins de l’Agent spécial de la 2e Compagnie de Milice à Tadjoura.
+Le 2e Classe Abdallah Mohamed, Mle 2516, sera rayé des contrôles de la Milicé à compter du 1er février 1962, il recevra le certificat de libération.
