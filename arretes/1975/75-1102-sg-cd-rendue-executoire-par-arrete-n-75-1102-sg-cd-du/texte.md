@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 118/8° L du 27 mai 1975 de la Chambre des députés du Territoire français des Afars at des Issas portant création du régime de$ magasins généraux en zone franche portuaire.
