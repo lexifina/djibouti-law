@@ -1,0 +1,1 @@
+M. Abdourahman Osman est nommé à titre provisoire billeteur pour le paiement de la solde et des accessoires des personnels mensuels et journaliers des Services de l’Agriculture, de l’Elevage et de l’Abattoir.
