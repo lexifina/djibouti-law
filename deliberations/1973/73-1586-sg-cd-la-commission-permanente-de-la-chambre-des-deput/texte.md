@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 383/7e L du 23 octobre 1973 de la Commission Permanente de la Chambre des Députés du Territoire Français des Afars et des Issas, portant approbation du compte administratif de l’Office d’approvisionnement des Magasins Témoins pour l’exercice 1972.
