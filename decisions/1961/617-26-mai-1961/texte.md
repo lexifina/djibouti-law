@@ -1,0 +1,4 @@
+Le 2e classe Hassan Youssouf, mle 1283 de la Première Compagnie à Dikhil, maintenu par tacite reconduction de son contrat du 1-10-60 au 1-6-61 totalisant 17 ans et 8 mois de services effectifs dans la Milice, est admis à faire valoir ses droits à l’Allocation viagère annuelle en exécution de l’article n° 6 de l’arrêté n° 105 du 3 février 1943 il sera libéré et rayé des contrôles de la Milice pour compter du 1-6-61.
+Il récevra le certificat de bonne conduite.
+Le 2e classe Hassan Youssouf, mle 1283, bénéficiera à compter du 1er juin 1961 d’une Allocation viagère annuelle de trente quatre mille six cents francs Djibouti (34.600 F.D.) payable trimestriellement et à terme échu et sur vu d’un certificat de vie délivré par les autorités compétentes.
+Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent spécial de la Première Compagnie à Dikhil.
