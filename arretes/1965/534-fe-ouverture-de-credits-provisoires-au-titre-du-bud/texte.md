@@ -1,0 +1,3 @@
+En l’absence de crédits réguliers et conformément aux dispositions de l’article 5 du décret du 30 décembre 1912 sur le régime financier des Territoires d’Outre-Mer, sont ouvert des crédits provisoires s’élevant à la somme de:
+— sept cent huit mille cinq cent soixante francs métropolitains (708.560), dont le détail par ministère, chapitre et article, est donné dans l’état annexé au présent arrêté, en vue du règlement des dépenses à effectuer durant le second trimestre 1965.
+Ces crédits provisoires seront annulés d’office dès réception aux Territoires des ordonnances de délégation portant ouverture de crédits définitifs suffisants pour ouvrir les crédits provisoires.
