@@ -1,0 +1,3 @@
+le franchissement de la frontière terrestre entre la République de Djibouti, la République d’Ethiopie et la République de Somalie est interdit entre le 26 juin 1995 à 18 tière terrestre entre la République de Djibouti, la République d’Ethiopie et la République de Somalie est interdit entre le 26 juin 1995 à 18 heures et le 28 juin 1995 à 6 heures.
+Les mouvements de boutres et de bâteaux de plaisance sont strictements interdits durant la période du 26 juin 1995 à 18 heures au 28 juin 1995 à 6 heures.
+Les infractions aux dispositions du présent arrêté sont passible de peine prévues par la législation en vigueur.
