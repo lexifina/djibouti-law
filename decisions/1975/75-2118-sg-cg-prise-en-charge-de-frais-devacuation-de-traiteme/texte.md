@@ -1,0 +1,1 @@
+Sont pris en charge par le budget du Territoire les frais d’évacuation de traitement et de séjour de l’enfant Moussa Gouda Nouho, né le 18 janvier 1975, évacué sanitaire le jeudi 14 août 1975 sur l’hôpital la Timone (Service du professeur Appaix), boulevard Jean-Moulin, 13385 Marseille.
