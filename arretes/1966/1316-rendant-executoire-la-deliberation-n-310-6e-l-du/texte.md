@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 310/6e L du 28 juillet 1966 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis complétant les articles 5 et 7 de l’annexe 4 du Code général des Impôts indirects.
