@@ -1,0 +1,1 @@
+Est constatée, pour compter du 16 avril 1971. date de son retour au Territoire, la reprise de ses fonctions antérieures à la Subdivision « des Travaux publics (Ministère des Travaux publics et du Port), par M. Jean Douguet, adjoint technique principal du corps autonome des Travaux publics de classe exceptionnelle.
