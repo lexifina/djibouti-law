@@ -1,0 +1,2 @@
+M. Hassan Moussa Aden, opérateur-radio auxiliaire au Service Météorologique (échelle V, échelon III) est licencié de son emploi pour mauvaise conduite et absences répétées dans le service (faute lourde) .
+M. Hassan Moussa Aden aura droit à une indemnité compensatrice de congé payé non pris égale à 13 jours de salaire La présente décision aura effet pour compter du lendemain de sa notification à l’intéressé.
