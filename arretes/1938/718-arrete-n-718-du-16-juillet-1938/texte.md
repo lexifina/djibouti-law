@@ -1,0 +1,1 @@
+M. Ropagnol (André), juge suppléant titulaire, est nommé président par intérim du tribunal de 1re instance de Djibouti, en remplacernent de M. classe, appelé aux fonctions du président du tribunal supérieur d’appel.
