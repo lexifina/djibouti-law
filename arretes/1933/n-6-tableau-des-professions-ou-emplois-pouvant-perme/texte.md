@@ -1,0 +1,5 @@
+La proportion des réservistes placés danscette situation ne peut dépasser 7 p. 100 des mobilisables (affectés spéciaux déduits). Elle ne saurait jamais être dépassée.
+Tout réserviste doit. pour pouvoir être placé dans la position d’ « appel différé », appartenir à une catégorie et à une classe indiquée à un des tableaux annexés à l’arrêté du 7 juin 1929, comme pouvant comporter son classement dans l’affectation spéciale ou à une des catégories ou classes indiquées au tableau ci-après, En ce qui concerne les fonctionnaires et agents. ils doivent appartenir à des cadres réguliers, à l’exclusion des contractuels.
+La mise en appel différé est prononcée par décision individuelle du Gouverneur de la Côte française des Somalis, sur avis conforme du général commandant supérieur des troupes.
+Elle ne peut dépasser quarante jours pourles cinq et demi plus jeunes classes de la première réserve du service armé et soixante (60) jours pour les autres classes
+Les hommes appartenant à Ia disponibilité du service armé ne peuvent jamais bénéficier de l’appel différé.
