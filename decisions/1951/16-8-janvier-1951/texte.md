@@ -1,0 +1,1 @@
+M. Gaine (Jacques), instituteur de 5e classe, en service dans les classes primaires du Groupe scolaire de Djibouti, est affecté au Cours complémentaire en qualité d’adjoint pour compter du 1er octobre 1950.
