@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 153/8° L du 6 novembre 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas régularisant le déplacement du Président de la Chambre des Députés Paris-Djibouti-Paris dans le courant du mois de septembre.
