@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 380/6° L du 30 mai1967 de la Commission permanente de l’Assemblée Territoriale de la Côte Française des Somalis portant autorisation de virements de crédits au budget du Service local, exercice 1966.
