@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 27/8e L du 23 mars1974 de la Commission permanente de la Chambre des députés du Territoire français des Afars et des Issas, portant création et organisation du Service de la Main-d’œuvre.
