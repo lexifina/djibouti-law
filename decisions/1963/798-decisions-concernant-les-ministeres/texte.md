@@ -1,0 +1,2 @@
+la sanction de rétrosradation avec abaissement d’un échelon est infligée à M. Ahmed Cavalier Wais, agent technique principal, ler échelon du Cadre Territorial des Travaux Publics (indice local 420) pour désobéissance à un ordre de l’Autorité Supérieure.
+M. Ahmed Cavalier Waiïs est rangé au grade d’agent technique de 1° classe, 3° échelon (indice local 380) pour compter de la Aote de la signature de la presente décision.
