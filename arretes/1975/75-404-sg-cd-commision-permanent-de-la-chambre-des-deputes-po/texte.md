@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 91/8e L du 17 février 1975 de la Commission permanente de la Chambre des Députés du Territoire francais des Afars et des Issas portant modification ‘a du budget du Territoire pour l’exercice 1974.
