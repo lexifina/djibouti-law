@@ -1,0 +1,1 @@
+Est rendue exécutoire la délibération n° 251/7° L du 12 mai 1972 de la Chambre des Députés du Territoire Français des Afars et des Issas portant création et organisation d’un Service territoirial des affaires marritines.
