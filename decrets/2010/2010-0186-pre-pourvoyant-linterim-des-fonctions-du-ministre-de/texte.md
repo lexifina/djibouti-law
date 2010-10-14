@@ -1,0 +1,1 @@
+pendant la durée de l’absence de Mr. Yacin Elmi Bouh, Ministre de l’intérieur et de la Décentralisation, l’intérim de ses fonctions sera assuré par Abdoulkader Kamil Mohamed, Ministre de l’Agriculture, de l’Elevage de la Mer, cumulativement avec ses fonctions.
