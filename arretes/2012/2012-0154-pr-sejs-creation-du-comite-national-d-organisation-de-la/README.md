@@ -1,0 +1,40 @@
+# Arrêté n° 2012-0154/PR/SEJS portant création du Comité National d’Organisation de la seizièmes édition du Semi Marathon International de Djibouti.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0154-pr-sejs-portant-creation-du-comite-national-dorganisation-de-la-seiziemes-edition-du-semi-marathon-international-de-djibouti/>
+
+En vigueur : 2012-02-29 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+
+VU Le Décret n°2011-066/PRE du 11 mai 2011 portant nomination du Premier Ministre ;
+
+VU Le Déeret 2011-067/PRE du 12 mai 2011 portant nomination des membres du Gouvernement ;
+
+VU La Loi n°177/AN/07/5ème L du 23 Avril 2007 portant Organisation du Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme ;
+
+VU La Loi n°178/AN/07/5ème L du 03 mai 2007 portant organisation et promotion des Activités Physiques et Sportives ;
+
+SUR Proposition du Secrétariat d’Etat à la Jeunesse et aux Sports.
+
+## Signature
+
+Le Président de la République,
+
+chef du Gouvernement
+
+Pour Ampliation Conforme
+
+Le Secrétaire Général du Gouvernement
+
+MOHAMED HASSAN ABDILLAHI
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
