@@ -1,0 +1,32 @@
+# Arrêté n° 2012-0380/PR/MBW portant composition des membres du Conseil d’Administration des Biens Waqfs.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0380-pr-mbw-portant-composition-des-membres-du-conseil-dadministration-des-biens-waqfs/>
+
+En vigueur : 2012-06-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+
+VU La Loi n°19/AN/08/6ème L portant définition et organisation du Ministère des Affaires Musulmanes et des Biens Waqfs ;
+
+VU Le Décret n°2011-0066/PRE du 11mai 2011 portant nomination du Premier Ministre ;
+
+VU Le Décret n°2011-067/PRE du 12 mai 2011 portant nomination des membres du gouvernement ;
+
+VU Le Décret n°0242-2007/PRE/MBWAM portant organisation de la Direction des Biens Waqfs ;
+
+SUR Proposition du Ministre des Affaires Musulmanes et des Biens Waqfs.
+
+## Signature
+
+Le Président de la République,
+
+chef du Gouvernement
+
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
+| [art-002.md](art-002.md) | Article 2 |
