@@ -1,0 +1,29 @@
+# Arrêté n° 2013-818/PR/MS approuvant et rendant exécutoire le budget prévisionnel 2014 de la CAMME.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-818-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2014-de-la-camme/>
+
+En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+VU La Loi n°2/AN/98/4ème L portant sur la définition et la gestion des Etablissement public a caractère administratif ;
+VU Le Décret n°2007-0140/PR/MS du 20 juin 2007 portant organisation de Etablissement Public dénommé CAMME ;
+VU Le Décret n°2001-211/PR/PM relatif aux Etablissement Public à caractère administratif et réglementant la période transitoire des entreprises publiques ;
+VU Le Décret n°2013-0044/PRE du 31 mars 2013 portant nomination du Premier Ministre ;
+VU Le Décret n° 2013-0045/PRE du 31 mars 2013 portant nomination des membres du Gouvernement Djiboutien ;
+VU Le Décret n° 2013-0048/PRE du 14 avril 2013 fixant les attributions des Ministres;
+VU Le Procès-verbal de la réunion du dimanche 17 Novembre 2013 du conseil de gestion de la CAMME ;
+SUR Proposition du Ministre de la Santé ;
+Le Conseil des Ministres entendu en sa séance du 24 Décembre 2013.
+
+## Signature
+
+Le Président de la République,
+chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
+| [art-002.md](art-002.md) | Article 2 |
