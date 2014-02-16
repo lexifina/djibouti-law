@@ -1,0 +1,46 @@
+# Arrêté n° 2014-181/PRE/MET portant composition des membres du Conseil d’Administration de l’Agence Djiboutienne des routes (ADR).
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-181-pre-met-portant-composition-des-membres-du-conseil-dadministration-de-lagence-djiboutienne-des-routes-adr/>
+
+En vigueur : 2014-02-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+
+VU La Loi n°2/AN/98/4ème L portant sur la définition et la gestion des établissements publics ;
+
+VU La Loi n°12/AN/98/4ème L portant reforme des Sociétés d’Etat, des Sociétés d’Economie Mixte et des Etablissements à caractère Industriel et Commercial ;
+
+VU La Loi n°108/AN/10/6ème L portant réorganisation du Ministère de l’Equipement et des Transports et fixant leurs attributions ;
+
+VU Le Décret n°99-0077/PR/MFEN portant reforme des Sociétés d’Etat, des Sociétés d’Economie Mixte et des Etablissements à caractère Industriel et Commercial ;
+
+VU Le Décret n°99-0128/PR/MET portant création du Fonds d’Entretien Routier ;
+
+VU Le Décret n°2001-0134/PR/PM modifiant le Décret n°99-0077/PR/MFEN des Sociétés d’Etat, des Sociétés d’Economie Mixte et des Etablissements à caractère Industriel et Commercial ;
+
+VU Le Décret n°2013-0044/PRE du 31 mars 2013 portant nomination du Premier Ministre ;
+
+VU Le Décret n°2013-0045/PRE du 31 mars 2013 portant nomination des membres du Gouvernement ;
+
+VU Le Décret n°2013-0058/PRE du 14 avril 2013 fixant les attributions des Ministères ;
+
+VU Le Décret n°2013-355/PR du 26 décembre 2013 portant organisation et fonctionnement de l’Agence Djiboutienne des Routes (ADR).
+
+SUR Proposition du Ministre de l’Equipement et des Transports ;
+Le Conseil des Ministres entendu en sa séance du 11 février 2014.
+
+## Signature
+
+Le Président de la République,
+
+chef du Gouvernement
+
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
