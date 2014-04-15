@@ -1,0 +1,1 @@
+pendant la durée de l’absence de S.E.M. Dr Djama Elmi Okieh, l’intérim des fonctions du Ministre de l’Education Nationale et de la Formation Professionnelle, sera assuré par S.E.M. Dr Kassim Issak Osman, Ministre de la Santé cumulativement avec ses fonctions.
