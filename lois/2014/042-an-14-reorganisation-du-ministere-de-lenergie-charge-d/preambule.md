@@ -1,0 +1,5 @@
+# PrÃ©ambule
+TITRE I : LES MISSIONS ET ATTRIBUTIONS
+DU MINISTERE DE L’ENERGIE CHARGE
+DES RESSOURCES NATURELLES.
+Chapitre1 : Missions et attributions du Ministère
