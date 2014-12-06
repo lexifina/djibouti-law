@@ -1,0 +1,2 @@
+# PrÃ©ambule
+Articlè 1er : Conformément à l’article n°3 du Décret n°2014-258/PR/MTRA du 21 septembre 2014, portant adoption de la politique nationale de l’emploi 2014-2024 et son plan d’action opérationnel 2014-2018, il est institué au sein du Ministère du Travail chargé de la Réforme de l’Administration, une unité de coordination et d’animation, chargée de la mise en oeuvre du plan d’action opérationnel, de la Politique Nationale de l’Emploi.
