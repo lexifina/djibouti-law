@@ -1,0 +1,1 @@
+pendant la durée de l’absence de S. E. M. Ali Hassan Bahdon, l’intérim des fonctions du Ministre de la Communication, chargé des Postes et des Télécommunications, sera assuré par S.E.M. Abdoulkader Kamil Mohamed, Premier Ministre cumulativement avec ses fonctions.
