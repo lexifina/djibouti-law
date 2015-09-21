@@ -1,0 +1,2 @@
+# Article 13 bis
+Comme instrument technique d’appui à la prise de décision, l’observatoire de l’emploi et des qualifications est également chargé d’élaborer des indicateurs statistiques fiables sur le marché du travail, selon les standards internationaux. Les données statistiques publiées (trimestriellement ou annuellement) par l’ONEQ, seront disponibles sur le site internet de l’ANEFIP et du Ministère du Travail, elles vont favoriser l’amélioration du suivi de la politique nationale de l’emploi.
