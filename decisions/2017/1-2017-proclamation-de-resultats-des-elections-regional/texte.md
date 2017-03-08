@@ -1,0 +1,3 @@
+Que les élections régionales et communales qui se sont déroulées le 24 février 2017 dans notre pays ont été remportées dès le 1er tour par le groupement politique UMP dans toutes les circonscriptions et régions où ses listes étaient en lice.
+Les résultats des élections régionales et communales seront publiés au Journal Officiel de la République de Djibouti.
+Délibéré par le Conseil Constitutionnel dans ses séances du 28 Février, 1er, 2, 5 et 07 Mars 2017 où siégeaient : M. ABDI IBRAHIM ABSIEH, Président, M.M AHMED ADEN YOUSSOUF, IBRAHIM IDRISS DJIBRIL, ALI SOUBANEH FARAH, MOUSTAPHA HACHI ABDI et ABDOULKADER ABDALLAH HASSAN, membres.
