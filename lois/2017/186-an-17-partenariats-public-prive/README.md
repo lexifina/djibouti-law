@@ -1,0 +1,122 @@
+# Loi n° 186/AN/17/7ème L relatif aux Partenariats Public-Privé.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-17-7eme-l-relatif-aux-partenariats-public-prive/>
+
+En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+
+
+VU La Loi constitutionnelle n°92/AN/10/6ème L du 21 avril 2010 portant révision de la Constitution ;
+
+
+VU La Loi n°107/AN/00/4ème L du 29 octobre 2000 relative aux finances publiques
+
+
+VU La Loi n° 53/AN/09/6ème L du 1er juillet 2009 portant nouveau code des marchés publics ;
+
+
+VU La Loi n°160/AN/12/6ème L du 09 juin 2012 portant réorganisation du Ministère de l’Economie et des Finances chargé de l’Industrie ;
+
+
+VU La Loi n°58/AN/14/7ème L du 06 décembre 2014 portant adoption de la “Vision Djibouti 2035” et ses plans d’actions opérationnelles ;
+
+
+VU Le Décret n°201-0083/PRE du 08 mai 2010 fixant les attributions, la composition, les modalités d’organisation et de fonctionnement de la Commission Nationale des Marchés Publics ;
+
+
+VU Le Décret n°20016-109 /PRE/ du 11 mai 2016 portant nomination du Premier Ministre ;
+
+
+VU Le Décret n° 2016-110/PRE du 12 mai 2016 portant nomination des membres du Gouvernement ;
+
+
+VU Le Décret n°20016-148/PRE du 16 juin 2016 fixant les attributions des Ministères ;
+
+
+VU L’Arrêté n°2016-045/PR/MEFI du 13 janvier 2016 portant création du Comité d’élaboration du cadre juridique et institutionnel des Partenariats Public-Privé ;
+
+
+VU La Circulaire n°164/PAN du 24/05/2017 portant convocation de la 3ème Séance publique de la 1ère Session de l’An 2017 ;
+
+
+
+
+
+Le Conseil des Ministres entendu en sa séance du 07/02/2017.
+
+## Signature
+
+Le Président de la République,
+
+chef du Gouvernement
+
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | ARTICLE 1 |
+| [art-002.md](art-002.md) | ARTICLE 2 |
+| [art-003.md](art-003.md) | ARTICLE 3 |
+| [art-004.md](art-004.md) | ARTICLE 4 |
+| [art-005.md](art-005.md) | ARTICLE 5 |
+| [art-006.md](art-006.md) | ARTICLE 6 |
+| [art-007.md](art-007.md) | ARTICLE 7 |
+| [art-008.md](art-008.md) | ARTICLE 8 |
+| [art-009.md](art-009.md) | ARTICLE 9 |
+| [art-010.md](art-010.md) | ARTICLE 10 |
+| [art-011.md](art-011.md) | ARTICLE 11 |
+| [art-012.md](art-012.md) | ARTICLE 12 |
+| [art-013.md](art-013.md) | ARTICLE 13 |
+| [art-014.md](art-014.md) | ARTICLE 14 |
+| [art-015.md](art-015.md) | ARTICLE 15 |
+| [art-016.md](art-016.md) | ARTICLE 16 |
+| [art-017.md](art-017.md) | ARTICLE 17 |
+| [art-018.md](art-018.md) | ARTICLE 18 |
+| [art-019.md](art-019.md) | ARTICLE 19 |
+| [art-020.md](art-020.md) | ARTICLE 20 |
+| [art-021.md](art-021.md) | ARTICLE 21 |
+| [art-022.md](art-022.md) | ARTICLE 22 |
+| [art-023.md](art-023.md) | ARTICLE 23 |
+| [art-024.md](art-024.md) | ARTICLE 24 |
+| [art-025.md](art-025.md) | ARTICLE 25 |
+| [art-026.md](art-026.md) | ARTICLE 26 |
+| [art-027.md](art-027.md) | ARTICLE 27 |
+| [art-028.md](art-028.md) | ARTICLE 28 |
+| [art-029.md](art-029.md) | ARTICLE 29 |
+| [art-030.md](art-030.md) | ARTICLE 30 |
+| [art-031.md](art-031.md) | ARTICLE 31 |
+| [art-032.md](art-032.md) | ARTICLE 32 |
+| [art-033.md](art-033.md) | ARTICLE 33 |
+| [art-034.md](art-034.md) | ARTICLE 34 |
+| [art-035.md](art-035.md) | ARTICLE 35 |
+| [art-036.md](art-036.md) | ARTICLE 36 |
+| [art-037.md](art-037.md) | ARTICLE 37 |
+| [art-038.md](art-038.md) | ARTICLE 38 |
+| [art-039.md](art-039.md) | ARTICLE 39 |
+| [art-040.md](art-040.md) | ARTICLE 40 |
+| [art-041.md](art-041.md) | ARTICLE 41 |
+| [art-042.md](art-042.md) | ARTICLE 42 |
+| [art-043.md](art-043.md) | ARTICLE 43 |
+| [art-044.md](art-044.md) | ARTICLE 44 |
+| [art-045.md](art-045.md) | ARTICLE 45 |
+| [art-046.md](art-046.md) | ARTICLE 46 |
+| [art-047.md](art-047.md) | ARTICLE 47 |
+| [art-048.md](art-048.md) | ARTICLE 48 |
+| [art-049.md](art-049.md) | ARTICLE 49 |
+| [art-050.md](art-050.md) | ARTICLE 50 |
+| [art-051.md](art-051.md) | ARTICLE 51 |
+| [art-052.md](art-052.md) | ARTICLE 52 |
+| [art-053.md](art-053.md) | ARTICLE 53 |
+| [art-054.md](art-054.md) | ARTICLE 54 |
+| [art-055.md](art-055.md) | ARTICLE 55 |
+| [art-056.md](art-056.md) | ARTICLE 56 |
+| [art-057.md](art-057.md) | ARTICLE 57 |
+| [art-058.md](art-058.md) | ARTICLE 58 |
+| [art-059.md](art-059.md) | ARTICLE 59 |
+| [art-060.md](art-060.md) | ARTICLE 60 |
+| [art-061.md](art-061.md) | ARTICLE 61 |
+| [art-062.md](art-062.md) | ARTICLE 62 |
+| [preambule.md](preambule.md) | PrÃ©ambule |
