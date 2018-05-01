@@ -1,0 +1,32 @@
+# Arrêté n° 2018-079/PR/MB portant indemnisation d’un bien immobilier transféré.
+
+ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-079-pr-mb-portant-indemnisation-dun-bien-immobilier-transfere/>
+
+En vigueur : 2018-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+VU Loi Constitutionnelle n°134/AN/06/5ème L du 02 février 2006 portant révision de la Constitution ;
+VU Loi Constitutionnelle n°215/AN/08/5ème L du 19 janvier 2008 portant révision de la Constitution ;
+VU Loi Constitutionnelle n°92/AN/10/5ème L du 21 avril 2010 portant révision de la Constitution ;
+VU La Loi n°171/AN/91/2ème L 10 octobre 1991 portant organisation du Domaine Public de l’Etat ;
+VU La Loi n°173/AN/91/2ème L du 10 octobre 1991 portant organisation du Domaine Privé de l’Etat ;
+VU La Loi n°177/AN/91/2ème L du 10 octobre 1991 portant organisation de la Propriété Foncière ;
+VU Le Décret n°2016-109/PRE du 11 mai 2016 portant nomination du Premier Ministre ;
+VU Le Décret n°2016-110/PRE du 12 mai 2016 portant nomination des membres du Gouvernement ;
+VU Le Décret n°2016-148/PRE du 16 juin 2016 fixant les attributions des Ministères ;
+
+SUR Proposition du Ministre du Budget.
+
+## Signature
+
+P. Le Président de la République,
+Chef du Gouvernement
+Pour Ampliation Conforme
+Le Directeur de Cabinet du Président
+MOHAMED SADEK SALEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1 |
