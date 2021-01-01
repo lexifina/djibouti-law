@@ -1,0 +1,64 @@
+# Arrêté n° 2020-164/PR/MERN approbation du Budget Prévisionnel d’Electricité Djibouti pour l’exercice 2021.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-164-pr-mern-approbation-du-budget-previsionnel-delectricite-djibouti-pour-lexercice-2021/>
+
+En vigueur : 2021-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+VU La Constitution en date du 15 septembre 1992 ;
+
+
+VU La Loi Constitutionnelle n°92/AN/10/6ème L du 21 Avril 2010 portant révision de la Constitution ;
+
+
+VU La Délibération n°115 du 21 Janvier 1960 créant l’Electricité de Djibouti ;
+
+
+VU La Loi n°2/AN/98/4ème L du 21 Janvier 1998 portant sur la définition et la gestion des établissements publics ;
+
+
+VU La Loi n°12/AN/98/4ème L du 11 Mars 1998 portant réforme des sociétés d’Etat, des sociétés d’économie mixte et des établissements publics à caractère industriel et commercial ;
+
+
+VU Le Décret n°77-079/PR/MRI du 20 Décembre 1977 portant réorganisation des statuts de l’ELECTRICITE DE DJIBOUTI ;
+
+
+VU Le Décret n°99-0077/PR/MFEN du 08 Juin 1999 portant réforme des sociétés d’Etat, des sociétés d’économie mixte et des établissements publics à caractère industriel et Commercial ;
+
+
+VU Le Décret n°99-0078/PR/MFEN du 08 Juin 1999 portant sur la définition et la gestion des établissements publics ;
+
+
+VU Le Décret n°2019-095/PRE du 05 Mai 2019 portant nomination du Premier Ministre ;
+
+
+VU Le Décret n°2019-096/PRE du 05 Mai 2019 portant nomination des membres du Gouvernement ;
+
+
+VU Le Décret n°2019-116/PRE du 26 Mai 2019 fixant les attributions des ministères;
+
+
+VU Les Articles 4 et 6 de Statuts d’ELECTRICITE DE DJIBOUTI ;
+
+
+VU La Délibération n°630 du 22 Novembre 2020 et le Procès-verbal du 150ème Conseil d’Administration d’Electricité de Djibouti portant approbation du Budget Prévisionnel de l’exercice 2021 ;
+
+
+SUR Proposition du Ministre de l’Energie, Chargé des Ressources Naturelles.
+
+
+Le Conseil des Ministres entendu en sa séance du 08 décembre 2020.
+
+## Signature
+
+Le Président de la République,
+
+chef du Gouvernement
+
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | ARTICLE 1 |
+| [art-002.md](art-002.md) | ARTICLE 2 |
