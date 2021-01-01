@@ -1,0 +1,35 @@
+# Arrêté n° 2020-177/PR/MCPT portant adoption du projet du Budget prévisionnel de la RTD pour l’exercice 2021.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-177-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-de-la-rtd-pour-lexercice-2021/>
+
+En vigueur : 2021-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+VU La Loi Constitutionnelle n°92/AN/10/6ème L portant révision de la Constitution ;
+VU La Loi n°2/AN/98/4ème L du 21 janvier 1998 portant sur la définition et la gestion des établissements publics ;
+VU La Loi n°42/AN/99/4ème L du 8 juin 1999 portant création de l’établissement public dénommé : “Radio Télévision de Djibouti” ;
+VU La Loi n°187/AN/07/5ème L portant Statut du Personnel de la Presse et de l’Audiovisuel ;
+VU La Loi n°212/AN/17/7ème L du 24 décembre 2017 portant réorganisation du Ministère de la Communication, chargé des Postes et des Télécommunications ;
+VU La Loi n°56/AN/19/8ème L du 23 juillet 2019 portant régime juridique des Etablissements Publics Administratifs ;
+VU Le Décret n°99-0170/PR/MCC du 16 septembre 1999 portant statuts et cahier des charges de la RTD ;
+VU Le Décret n°200-0256/PR/MCCPT modifiant le décret n°99-0170/PR/MCCPT portant statuts et cahier des charges de la Radiodiffusion Télévision de Djibouti ;
+VU Le Décret n°2019-095/PRE du 05 mai 2019 portant nomination du Premier Ministre ;
+VU Le Décret n°2019-096/PRE du 05 mai 2019 portant nomination des membres du gouvernement ;
+VU Le Décret n°2019-116/PRE du 26 mai 2019 fixant les attributions des Ministères;
+VU Le Procès-Verbal de la réunion du Conseil d’Administration du 26 novembre 2020
+VU La Délibération n°2020-001/RTD du 26 novembre 2020 ;
+SUR Proposition du Ministre de la Communication, chargé des Postes et des Télécommunications.
+Le Conseil des Ministres entendu en sa séance du 15 Décembre 2020.
+
+## Signature
+
+Le Président de la République,
+chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
