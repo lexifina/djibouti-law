@@ -1,0 +1,5 @@
+Par décret n°2023-143/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 05 juin 2023, M. BOUH ADEN AHMED, administrateur civil de 2°classe-1°échelon du Corps de l’Administration Générale, nommé Directeur Administratif et Financier par intérim, est confirmé dans ses fonctions actuelles de Directeur Administratif et Financier.
+– Mme. ZAM-ZAM MOHAMED YOUSSOUF, nommée Directrice la Planification et du Suivi-Evaluation par intérim, est confirmée dans ses fonctions actuelles de Directrice la Planification et du Suivi Evaluation.
+– M. FAHIM IBRAHIM ALI, classe-senior A1, nommé Directeur de la publication du Journal la Nation par intérim, est confirmé dans ses fonctions actuelles de Directeur de la publication du Journal la Nation.
+– M. ABDIRAZAK ALI DIRANEH, classe-senior b2, nommé Directeur de l’Agence Djiboutienne de l’Information (ADI) par intérim, est confirmé dans ses fonctions actuelles de Directeur de l’Agence Djiboutienne de l’Information.
+Le présent décret qui prendra effet à compter du 04 avril 2022, sera enregistré, communiqué et exécuté partout où besoin sera.
