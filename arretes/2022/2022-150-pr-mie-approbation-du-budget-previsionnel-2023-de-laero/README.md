@@ -1,0 +1,30 @@
+# Arrêté n° 2022-150/PR/MIE portant approbation du Budget Prévisionnel 2023 de l’Aéroport International de Djibouti.
+
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2022 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2022-150-pr-mie-portant-approbation-du-budget-previsionnel-2023-de-laeroport-international-de-djibouti/>
+
+En vigueur : 2022-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+VU La Loi n°12/AN/98/4ème du 11 mars 1998 portant réforme des sociétés d’Etat des sociétés d’Economies mixtes et des établissements publics à caractère Industriels ;
+VU La Loi n°92/AN/10/6ème L du 21 avril 2010 portant révision de la Constitution;
+VU La Loi n°74/AN/14/7ème L du 18 janvier 2014, portant réorganisation du Ministère de l’Equipement et des Transports ;
+VU Le Décret n°99-007/PR/MEFEN du 08 juin 1999 portant reforme des sociétés d’économie mixte et des établissements publics Industriels et Commerciales ;
+VU L’Ordonnance n°077-048 du 26 octobre 1977 portant création de l’Etablissement public de l’Aéroport de Djibouti notamment dans ses articles 5 et 6;
+VU Le Décret n°2021-105/PRE du 24 mai 2021 portant nomination du Premier Ministre ;
+VU Le Décret n°2021-106/PRE du 24 mai 2021 portant nomination des membres du Gouvernement ;
+VU Le Décret n°2021-114/PRE du 31 mai 2021 fixant les attributions des Ministères ;
+VU Le Procès-Verbal du Conseil d’Administration du 07/11/2022 ;
+SUR Proposition du Ministre des Infrastructures et de l’Equipement
+
+## Signature
+
+Le Président de la République,
+Chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | ARTICLE 1 |
+| [art-002.md](art-002.md) | ARTICLE 2 |
