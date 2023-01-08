@@ -1,0 +1,2 @@
+M. MOUSSA MOHAMED MOUSSA, titulaire du diplôme de Baccalauréat Gestion et Finance Marketing, est recruté dans le cadre des Secrétaires d’Administration du Corps de l’Administration Générale, à la position de Secrétaire d’administration stagiaire (B1), pour servir à la Primature, en remplacement numérique du défunt. MOHAMED MOUSSA ABOKAR, décédé.
+La présente décision prend effet à compter du 08 janvier 2023.
