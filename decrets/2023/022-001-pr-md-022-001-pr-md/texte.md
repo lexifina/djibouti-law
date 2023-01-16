@@ -1,0 +1,1 @@
+EOM AMIN WAHIB ISMAEL MLE 22/1173/T en service au RQG/DCSSA, actuellement en 5e année de formation en médecine à la Faculté de Médecine de Djibouti est nommé à titre exceptionnel au grade de Médecin-Aspirant à compter 1er Juillet 2022.
