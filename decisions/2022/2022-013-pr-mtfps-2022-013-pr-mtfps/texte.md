@@ -1,0 +1,1 @@
+M. CHIRDON GUIRREH IGUEH, Conseiller stagiaire du Cadre des Affaires Etrangères, en service au Ministère des Affaires Etrangères et de la Coopération Internationale, est titularisé au grade de Conseiller de 2°classe-1°échelon, à compter du 29 juillet 2019 et y conserve une ancienneté d’une année.
