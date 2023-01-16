@@ -1,0 +1,1 @@
+pendant la durée de l’absence de S.E.DR. HIBO MOUMIN ASSOWEH, l’intérim des fonctions de la Ministre de la Jeunesse et de la Culture sera assuré par S.E.M. KASSIM HAROUN ALI, Ministre Délégué chargé de la Décentralisation, cumulativement avec ses fonctions.
