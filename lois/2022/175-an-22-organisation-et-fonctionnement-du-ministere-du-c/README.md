@@ -1,0 +1,53 @@
+# Loi n° 175/AN/22/8ème L portant organisation et fonctionnement du Ministère du Commerce et du Tourisme.
+
+Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-22-8eme-l-portant-organisation-et-fonctionnement-du-ministere-du-commerce-et-du-tourisme/>
+
+En vigueur : 2023-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+VU La Constitution du 15 septembre 1992 ;
+VU La Loi Constitutionnelle n°92/AN/10/6ème L du 21 avril 2010 portant révision de la Constitution ;
+VU La Loi n°174/AN/02/4ème L portant Décentralisation et Statut des Régions ;
+VU La Loi n°72/AN/09/6ème L du 21 février 2010 portant adoption de la Stratégie Nationale du Développement du Commerce ; et l’étude d’évaluation de la Stratégie
+Nationale du Développement du Commerce (EDIC) de 2015 ;
+VU La Loi n°134/AN/11/6ème L du 1er août 2012 portant adoption du Code de Commerce de Djibouti ;
+VU La Loi n°21/AN/13/7ème L du 14 décembre 2013 portant création, missions et organisation de l’Inspection de la concurrence, de la consommation et de la répression des fraudes ;
+VU La Loi n°55/AN/14/7ème L du 25 juin 2014 portant organisation du Ministère Délégué auprès du Ministre de l’économie et des finances chargé du commerce, des PME, de l’artisanat, du tourisme et de la formalisation ;
+VU La Loi n°33/AN/18/8ème L portant adoption du système national de normalisation et de promotion de la qualité ;
+VU La Loi n°100/AN/20/8ème L du 07 janvier 2021 portant création de l’agence Djiboutienne des Normes et de la Qualité ;
+VU Le Décret n°2021-105/PRE du 24 mai 2021 portant nomination du Premier Ministre ;
+VU Le Décret n°2021-106/PRE du 24 mai 2021 portant nomination des membres du Gouvernement ;
+VU Le Décret n°2021-114/PRE du 31 mai 2021 fixant les attributions des Ministères ;
+VU Le Décret n°2022-001/PRE du 02 janvier 2022 portant remaniement Ministériel;
+VU La Circulaire n°205/PAN du 18/12/2022 portant convocation de l’Assemblée Nationale en séance publique.
+Le Conseil des Ministres entendu en sa séance du 06 septembre 2022.
+A ADOPTÉ, EN SA TROISIEME SEANCE PUBLIQUE DU 21/12/2022, LA LOI DONT LA TENEUR SUIT :
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
+| [art-007.md](art-007.md) | Article 7 |
+| [art-008.md](art-008.md) | Article 8 |
+| [art-009.md](art-009.md) | Article 9 |
+| [art-010.md](art-010.md) | Article 10 |
+| [art-011.md](art-011.md) | Article 11 |
+| [art-012.md](art-012.md) | Article 12 |
+| [art-013.md](art-013.md) | Article 13 |
+| [art-014.md](art-014.md) | Article 14 |
+| [art-015.md](art-015.md) | Article 15 |
+| [art-016.md](art-016.md) | Article 16 |
+| [art-017.md](art-017.md) | Article 17 |
+| [art-018.md](art-018.md) | Article 18 |
+| [art-019.md](art-019.md) | Article 19 |
+| [art-020.md](art-020.md) | Article 20 |
+| [art-021.md](art-021.md) | Article 21 |
+| [art-022.md](art-022.md) | Article 22 |
+| [art-023.md](art-023.md) | Article 23 |
+| [art-024.md](art-024.md) | Article 24 |
+| [preambule.md](preambule.md) | PrÃ©ambule |
