@@ -1,0 +1,1 @@
+une mise en disponibilité sans traitement d’une (1) année est accordée à Mme. DEGAN ISMAEL AWALEH, attaché d’administration de 2°classe-3°échelon du Corps de l’administration générale, en service au Ministère de la Femme et de la Famille, pour convenance personnelle, à compter du 09 Août 2022.
