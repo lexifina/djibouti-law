@@ -1,0 +1,1 @@
+est acceptée à compter du 01 décembre 2022, la démission de son emploi présentée par Mme. HASNA BARKAT DAOUD, administrateur civil de 1°classe-2°échelon, du Corps de l’Administration Générale, en service à la Primature.
