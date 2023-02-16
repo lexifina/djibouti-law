@@ -1,0 +1,2 @@
+Par décret n°2023-029/PRE, du Président de la République, chef du Gouvernement, en date du 07 février 2023, pendant la durée de l’absence de S.E. Mme. MARIAM HAMADOU ALI, l’intérim des fonctions de la Ministre Déléguée chargé de l’Economie Numérique et de l’Innovation sera assuré par S.E.M.
+ILYASS MOUSSA DAWALEH, Ministre de l’Economie et des Finances chargé de l’Industrie cumulativement avec ses fonctions.
