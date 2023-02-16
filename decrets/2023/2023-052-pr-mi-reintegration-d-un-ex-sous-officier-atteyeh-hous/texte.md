@@ -1,0 +1,1 @@
+Par décision n°2023-052/PR/MI, du Président de la République, chef du Gouvernement, en date du 07 février 2023, est réintégré dans son corps et service d’origine avec conservation de son grade, l’ex-sergent/chef ATTEYEH HOUSSEIN HAISSAMA, Mle 5169, du corps de la Police Nationale.
