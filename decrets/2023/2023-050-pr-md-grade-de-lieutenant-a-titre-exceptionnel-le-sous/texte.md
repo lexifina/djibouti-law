@@ -1,0 +1,1 @@
+Par décret n°2023-050/PR/MD, du Président de la République, chef du Gouvernement, en date du 16 février 2023, le Sous-Lieutenant DOUALEH MERANEH GUEDI MLE 02/1782/T en service au RQG est nommé au grade de Lieutenant à titre exceptionnel à compter du 1er Avril 2022.
