@@ -1,0 +1,1 @@
+Par décret n°2023-048/PRE, du Président de la République, chef du Gouvernement, en date du 16 février 2023, pendant la durée de l’absence de S.E.M. Dr. AHMED ROBLEH, l’intérim des fonctions du Ministre de la Santé sera assuré par S.E.M. MOUSTAPHA MOHAMED MAHAMOUD, Ministre de l’Education Nationale et de la Formation Professionnelle cumulativement avec ses fonctions.
