@@ -1,0 +1,2 @@
+Par décision n°2023-116/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 19 mars 2023, M. ABDOURAHMAN AWAD GUIRREH, est engagé à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de Gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de AWAD GUIRREH AFI (PB : 200/CC).
+La présente décision prend effet à compter du 19 mars 2023.
