@@ -1,0 +1,2 @@
+Par décision n°2023-121/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 20 mars 2023, M. MOHAMED DARAR ADEN, est engagé à la 2ème Catégorie A, de la Convention Collective du 26 décembre 2011, en qualité de jardinier, pour servir à la résidence du Ministre de la Jeunesse et de la Culture, en remplacement numérique de M. MOHAMED ALI ABDALLAH, licencié.
+La présente décision prend effet à compter du 20 mars 2023.
