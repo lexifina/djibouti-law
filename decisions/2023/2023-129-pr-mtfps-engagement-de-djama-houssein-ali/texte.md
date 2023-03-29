@@ -1,0 +1,2 @@
+Par décision n°2023-129/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 29 mars 2023, M. DJAMA HOUSSEIN ALI, est engagé dans la Convention Collective du 26 décembre 2011, à la 2ème catégorie B, en qualité de gardien pour servir au Ministère de la Justice, des Affaires Pénitentiaires chargé des Droits de l’Homme, en remplacement numérique de Mme. AMINA AHMED BOCK.
+La présente décision prend effet à compter du 29 mars 2023.
