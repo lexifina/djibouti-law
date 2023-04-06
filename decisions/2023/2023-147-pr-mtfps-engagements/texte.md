@@ -1,0 +1,3 @@
+Par décision n°2023-147/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 06 avril 2023, Mme. ZEINABA IBRAHIM OSMAN, est engagée à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de Femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de RAHO IBRAHIM OUSMAN, décédée (PB : 349/CC).
+Mme. FATMA ADEN MOUSSA, est engagée à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de Femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de MOHAMED ADEN MOUSSA, décédé (PB : 1295/CC).
+La présente décision prend effet à compter du 06 avril 2023.
