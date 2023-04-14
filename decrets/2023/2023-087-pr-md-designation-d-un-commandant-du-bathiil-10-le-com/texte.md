@@ -1,0 +1,1 @@
+Par décret n°2023-087/PR/MD, du Président de la République, chef du Gouvernement, en date du 02 avril 2023, le Commandant MOHAMED YOUSSOUF KAYAD MLE 97/0034/T est nommé Commandant du BATHIIL10 à compter du 1er Janvier 2023.
