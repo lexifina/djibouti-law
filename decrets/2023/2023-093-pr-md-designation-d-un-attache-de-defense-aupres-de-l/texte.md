@@ -1,0 +1,3 @@
+Par décret n°2023-093/PR/MD, du Président de la République, chef du Gouvernement, en date du 04 avril 2023, le Colonel-Major ADEN DOUALEH WARSAMA MLE 90/0001/S est désigné en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti en Chine est reconduit dans sa fonction pour une durée d’une année à compter du 1er Avril 2023 jusqu’au 31 Mars 2024.
+L’intéresse bénéficiera des indemnités et avantages au même titre que le 1er conseiller de l’Ambassade de la République de Djibouti en Chine.
+Le Ministre de la Défense, Chargé des Relations avec le Parlement, le Ministre du Budget et le Ministre des Affaires Etrangères sont chargés de veiller à l’application du présent décret.
