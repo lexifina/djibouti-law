@@ -1,0 +1,2 @@
+Par arrêté n°2023-069/PR/MD, du Président de la République, chef du Gouvernement, en date du 10 avril 2023, le Médecin-capitaine MOHAMED HOUSSEIN IBRAHIM entamera sa 3ème année du DIU de Cardiologie interventionnelle en France du 1er février au 30 décembre 2023.
+Une somme forfaitaire équivalente à 130.000 FDJ (cent trente mille francs Djibouti) lui sera attribuée mensuellement du 1er février au 30 décembre 2023 afin de subvenir aux dépenses afférentes à cette formations. Cette somme sera imputable au chapitre N°05.02.00.00.02.1.0.2.7.3.00.10.11 du budget des Forces Armées.
