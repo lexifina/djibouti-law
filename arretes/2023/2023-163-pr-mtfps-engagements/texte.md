@@ -1,0 +1,2 @@
+Par décision n°2023-163/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 18 avril 2023, Mme. KADRA HASSAN ISMAIL, est engagée dans la Convention Collective du 26 décembre 2011 à la 1ère Catégorie C, en qualité de Femme de Ménage, pour servir à la résidence de la Ministre, en remplacement numérique de Mme. MAYRAM ABDOULKADER DAOUD, licenciée.
+La présente décision prend effet à compter du 18 avril 2023.
