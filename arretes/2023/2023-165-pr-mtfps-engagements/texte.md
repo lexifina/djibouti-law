@@ -1,0 +1,2 @@
+Par décision n°2023-165/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 18 avril 2023, M. IBRAHIM MOUSSA GUEDI, est engagé à la 4ème catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de Chauffeur, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de M. AHMED IBRAHIM OSMAN, (PB : 3569/CC).
+La présente décision prend effet à compter du 18 avril 2023.
