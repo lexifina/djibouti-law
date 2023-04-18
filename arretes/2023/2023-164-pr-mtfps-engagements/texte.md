@@ -1,0 +1,2 @@
+Par décision n°2023-164/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 18 avril 2023, Mme. FARDOUSSA HASSAN BOUH, est engagé à la 2ème Catégorie B, de la convention collective du 26 décembre 2011, en qualité de Femme de Ménage, pour servir à la résidence du Ministre de l’Intérieur, en remplacement numérique de Mme. AMINA MOHAMED OMAR, licenciée.
+La présente décision prend effet à compter du 18 avril 2023.
