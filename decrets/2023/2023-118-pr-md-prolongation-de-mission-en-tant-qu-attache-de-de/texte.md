@@ -1,0 +1,3 @@
+Par décret n°2023-118/PR/MD, du Président de la République, chef du Gouvernement, en date du 11 mai 2023, le Colonel OSMAN DOUBAD SOUGOULEH MLE 87/0011/S est reconduit dans sa mission en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti en Egypte à compter du 1er Avril 2023 pour une durée supplémentaire d’une année jusqu’au 31 Mars 2024.
+L’intéresse bénéficiera des indemnités et avantages au même titre que le 1er conseiller de l’Ambassade de la République de Djibouti en Egypte.
+Le Ministre de la Défense, Chargé des Relations avec le Parlement, le Ministre du Budget et le Ministre des Affaires Etrangères sont chargés de veiller à l’application du présent décret.
