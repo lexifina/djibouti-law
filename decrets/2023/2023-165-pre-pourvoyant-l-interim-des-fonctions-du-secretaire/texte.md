@@ -1,0 +1,1 @@
+Par décret n°2023-165/PRE, du Président de la République, chef du Gouvernement, en date du 21 juin 2023, pendant la durée de l’absence de S.E.M. HASSAN MOHAMED KAMIL, l’intérim des fonctions du Secrétaire d’Etat chargé des Sports, sera assuré par S.E.DR. HIBO MOUMIN ASSOWEH, Ministre de la Jeunesse et de la Culture, cumulativement avec ses fonctions.
