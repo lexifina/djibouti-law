@@ -1,0 +1,3 @@
+Par décret n°2023-137/PR/DEF, du Président de la République, chef du Gouvernement, en date du 01 juin 2023, le Commissaire-Colonel-major MOHAMED IBRAHIM MOUSSA MLE 85/0067/T est reconduit dans sa mission en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti au Maroc à compter du 1er Avril 2023 pour une durée supplémentaire d’une année jusqu’au 31 Mars 2024.
+L’intéresse bénéficiera des indemnités et avantages au même titre que le 1er conseiller de l’Ambassade de la République de Djibouti au Maroc.
+Le Ministre de la Défense, Chargé des Relations avec le Parlement, le Ministre du Budget et le Ministre des Affaires Etrangères sont chargés de veiller à l’application du présent décret.
