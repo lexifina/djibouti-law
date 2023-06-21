@@ -1,0 +1,3 @@
+Par décision n°2023-225/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 21 juin 2023, M. ABDILLAHI OSMAN FATAH, est engagée à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de M. IBRAHIM FATAH AHMED, admis à la retraite (PB. n°119/CC).
+M. ABDOULFATAH AHMED ALI, est engagé à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt HASSAN AHMED ALI, décédé (PB. n°212/CC).
+La présente décision prend effet à compter du 21 juin 2023.
