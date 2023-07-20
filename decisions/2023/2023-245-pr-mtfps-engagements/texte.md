@@ -1,0 +1,2 @@
+Par décision n°2023-245/PR/MTFPS, du Président de la République, Chef du Gouvernement, en date du 20 juillet 2023, Mme. FATOUMA MOHAMED ABDOU,est engagé à la 4ème Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de Secrétaire, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt, ABDOU MOHAMED ABDOU, décédé (PB : n°572 CN).
+La présente décision prend effet à compter du 20 juillet 2023.
