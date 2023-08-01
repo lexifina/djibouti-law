@@ -1,0 +1,1 @@
+Par décret n°2023-206/PRE, du Président de la République, Chef du Gouvernement, en date du 24 juillet 2023, pendant la durée de l’absence de S.E.M. RADWAN ABDILLAHI BAHDON, l’intérim des fonctions du Ministre de la Communication, chargé des Postes et des Télécommunications sera assuré par S.E.M. ISMAN IBRAHIM ROBLEH, Ministre du Budget cumulativement avec ses fonctions.
