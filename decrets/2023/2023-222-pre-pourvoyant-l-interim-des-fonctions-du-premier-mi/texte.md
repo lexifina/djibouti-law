@@ -1,0 +1,1 @@
+Par décret n°2023-222/PRE, du Président de la République, Chef du Gouvernement, en date du 25 juillet 2023, pendant la durée de l’absence de S.E.M. ABDOULKADER KAMIL MOHAMED, l’intérim des fonctions du Premier Ministre sera assuré par S.E.M. HASSAN OMAR MOHAMED, Ministre de la Défense cumulativement avec ses fonctions.
