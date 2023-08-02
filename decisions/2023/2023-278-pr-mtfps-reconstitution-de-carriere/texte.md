@@ -1,0 +1,2 @@
+Par décision n°2023-278/PR/MTFPS, du Président de la République, Chef du Gouvernement, en date du 02 août 2023, Mme. AICHA GARAD ALI, administrateur civil classe-exceptionnelle chevron B-2°échelon, du Corps de l’Administration Générale, en service au Secretariat d’Etat chargé des Sports, est versée à titre exceptionnel dans le cadre des administrateurs civils, au grade d’administrateur civil de classe-exceptionnelle chèvron A-2°échelon.
+La présente décision prend effet à compter du 02 août 2023.
