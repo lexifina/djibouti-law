@@ -1,0 +1,2 @@
+Par décision n°2023-289/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 03 août 2023, M. MOHAMED ABDOULKADER KAMIL, Administrateur civil de 2°classe-1°échelon, du Corps de l’Administration Générale, en service au Ministère des Affaires Etrangères Coopération et Internationale, est versé, dans le Cadre des Administrateurs civils, au grade d’administrateur civil de 1°classe-4°échelon.
+La présente décision prend effet à compter du 03 août 2023.
