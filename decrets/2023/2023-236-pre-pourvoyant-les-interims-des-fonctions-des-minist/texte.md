@@ -1,0 +1,1 @@
+Par décret n°2023-236/PRE, du Président de la République, Chef du Gouvernement, en date du 02 août 2023, pendant la durée de l’absence de S.E.M. SAID NOUH HASSAN, l’intérim des fonctions du Ministre de l’Intérieur sera assuré par S.E.M. HASSAN OMAR MOHAMED, Ministre de la Défense cumulativement avec ses fonctions.
