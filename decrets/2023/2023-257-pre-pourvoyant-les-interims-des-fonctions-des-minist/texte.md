@@ -1,0 +1,1 @@
+Par décret n°2023-257/PRE, du Président de la République, Chef du Gouvernement, en date du 10 août 2023, pendant la durée de l’absence de S.E.M. MOHAMED WARSAMA DIRIEH, l’intérim des fonctions du Ministre du Commerce et du Tourisme sera assuré par S.E.M. ILYAS MOUSSA DAWALEH, Ministre de l’Economie et des Finances, chargé de l’Industrie cumulativement avec ses fonctions.
