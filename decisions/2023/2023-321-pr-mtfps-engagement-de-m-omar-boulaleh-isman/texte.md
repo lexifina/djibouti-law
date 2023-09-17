@@ -1,0 +1,2 @@
+Par décision n°2023-321/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 17 septembre 2023, M. OMAR BOULALEH ISMAN, est engagé dans la Convention Collective du 26 décembre 2011, à la 2ème catégorie C, en qualité d’électricien, pour servir au Ministère de la Justice, des Affaires Pénitentiaires chargé des Droits de l’Homme, en remplacement numérique de M. ABDI-NASSER YOUSSOUF HOUFFANEH, licencié.
+La présente décision prend effet à compter du 17 septembre 2023.
