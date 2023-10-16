@@ -1,0 +1,1 @@
+Par décret n°2023-300/PRE, du Président de la République, chef du Gouvernement, en date du 09 octobre 2023, pendant la durée de l’absence de S.E.Dr. AHMED ROBLEH ABDILLEH, l’intérim des fonctions du Ministre de la Santé sera assuré par S.E.Dr. NABIL MOHAMED AHMED, Ministre de l’Enseignement Supérieur et de la Recherche cumulativement avec ses fonctions.
