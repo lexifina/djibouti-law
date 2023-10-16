@@ -1,0 +1,2 @@
+Par décret n°2023-290/PR/MD, du Président de la République, chef du Gouvernement, en date du 1er octobre 2023, le Lieutenant WANIS WAHIB MAHAMOUD MLE 13/0168/T du RQG/DGRI est rétrogradé au grade de Sous-lieutenant à compter du 23 Septembre 2023 pour comportement d’agression physique et indigne d’un officier envers un officier supérieur.
+La DGAF et 1er Bureau sont chargés de l’exécution du présent décret chacun en ce qui concerne.
