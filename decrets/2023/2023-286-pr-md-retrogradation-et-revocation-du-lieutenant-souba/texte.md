@@ -1,0 +1,2 @@
+Par décret n°2023-286/PR/MD, du Président de la République, chef du Gouvernement, en date du 1er octobre 2023, le lieutenant SOUBANEH OMAR HOUSSEIN MLE 10/0865/T de la Marine Nationale est rétrogradé au grade de Sous-lieutenant et révoqué des Forces Armées Djiboutiennes à compter du 8 Août 2023 pour comportement d’indiscipline et indigne d’un officier.
+La DGAF et 1er Bureau sont chargés de l’exécution du présent décret chacun en ce qui le concerne.
