@@ -1,0 +1,1 @@
+Par décret n°2023-288/PR/MD, du Président de la République, chef du Gouvernement, en date du 1er octobre 2023, le LT/Colonel ROBLEH MOHAMED ABDALLAH MLE 95/0241/S du RQG est nommé Chef de Corps du Bataillon Interarmes d’Ali-Sabieh (BIAAS) à compter du 24 Février 2022.
