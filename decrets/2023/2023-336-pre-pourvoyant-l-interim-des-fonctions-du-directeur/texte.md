@@ -1,0 +1,1 @@
+Par décret n°2023-336/PRE, du Président de la République, chef du Gouvernement, en date du 09 novembre 2023, durant l’absence de M. Mohamed Sadek Saleh, Directeur de Cabinet du Président, du 09 au 23 novembre 2023, l’intérim des fonctions sera assuré par M. Mohamed Abdillahi Wais, Secrétaire Général de la Présidence cumulativement avec ses fonctions.
