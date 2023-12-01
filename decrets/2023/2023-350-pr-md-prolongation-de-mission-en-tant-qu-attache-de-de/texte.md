@@ -1,0 +1,4 @@
+Par décret n°2023-350/PR/MD, du Président de la République, chef du Gouvernement, en date du 27 novembre 2023, le Colonel DAHER ADEN ABRAR MLE 77/0889/T des Forces Armées Djiboutiennes attaché de défense auprès de l’Ambassade de la République de Djibouti en Russie est reconduit dans sa fonction à compter du 1er Octobre 2023 pour une durée de deux ans jusqu’au 30 Septembre 2025.
+L’intéressé bénéficiera des indemnités et avantages au même titre que le 1er Conseiller de l’Ambassade de la République de Djibouti en Russie.
+Le Ministre de la Défense, chargé des Relations avec le Parlement, le Ministre du Budget et le Ministre des Affaires Etrangères sont chargés de veiller à l’application du présent décret.
+Le présent décret sera enregistré et publié au Journal Officiel de la République de Djibouti.
