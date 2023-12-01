@@ -1,0 +1,2 @@
+Par décret n°2023-353/PRE, du Président de la République, chef du Gouvernement, en date du 30 novembre 2023, pendant la durée de l’absence de S.E.M. MOUSTAPHA MOHAMED MAHAMOUD, l’intérim des fonctions du Ministre de l’Education Nationale et de la Formation Professionnelle sera assuré par S.E. Dr. NABIL MOHAMED AHMED, Ministre de l’Enseignement Supérieur et de la Recherche cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
