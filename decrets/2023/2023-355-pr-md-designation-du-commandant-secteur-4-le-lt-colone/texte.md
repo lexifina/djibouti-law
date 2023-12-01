@@ -1,0 +1,2 @@
+Par décret n°2023-355/PR/MD, du Président de la République, chef du Gouvernement, en date du 30 novembre 2023, le LT/Colonel SAID WABERIE HAROUR MLE 88/0006/T est désigné Commandant du Secteur 4 HIRAN Somalie dans le cadre de PATMIS, à compter du 1er Septembre 2023 en remplacement du Colonel HASSAN DJAMA FARAH MLE 85/0066/T, appelé à d’autres fonctions.
+Le présent décret sera enregistré et publié au Journal Officiel de la République de Djibouti.
