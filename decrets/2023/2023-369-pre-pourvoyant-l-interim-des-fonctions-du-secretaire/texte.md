@@ -1,0 +1,2 @@
+Par décret n°2023-369/PRE, du Président de la République, chef du Gouvernement, en date du 13 décembre 2023, pendant la durée de l’absence de M. ALMIS MOHAMED ABDILLAHI, l’intérim des fonctions du Secrétaire Général du Gouvernement sera assuré par M. MOHAMED SADEK SALEH, Directeur de Cabinet cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
