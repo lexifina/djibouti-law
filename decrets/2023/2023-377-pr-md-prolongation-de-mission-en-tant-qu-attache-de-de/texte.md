@@ -1,0 +1,4 @@
+Par décret n°2023-377/PR/MD, du Président de la République, chef du Gouvernement, en date du 27 décembre 2023, le Colonel ADEN FOUAD DAHER MLE 77/9017/T des Forces Armées Djiboutiennes attaché de défense près de l’Ambassade de la République de Djibouti à Nairobi est reconduit dans sa fonction à compter du 1er Janvier 2024 pour une durée de deux ans jusqu’au 31 Décembre 2025.
+L’intéressé bénéficiera des indemnités et avantages au même titre que le 1er Conseiller de l’Ambassade de la République de Djibouti à Nairobi.
+Le Ministre de la Défense, chargé des Relations avec le Parlement, le Ministre du Budget et le Ministre des Affaires Etrangères sont chargés de veiller à l’application du présent décret.
+Le présent décret sera enregistré et publié au Journal Officiel de la République de Djibouti.
