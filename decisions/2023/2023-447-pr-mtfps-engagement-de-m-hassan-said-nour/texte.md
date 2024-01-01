@@ -1,0 +1,2 @@
+Par décision n°2023-447/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 24 décembre 2023, M. HASSAN SAID NOUR, est engagé à la 5ème catégorie B, de la convention collective du 26 décembre 2011, en qualité de Surveillant, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de M. SAID NOUR HASSA, décédé (PB : 217CN).
+La présente décision qui prendra effet à compter de la date de signature sera enregistrée, communiquée et exécutée partout où besoin sera.
