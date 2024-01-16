@@ -1,0 +1,2 @@
+Par décret n°2024-002/PRE, du Président de la République, chef du Gouvernement, en date du 08 janvier 2024, pendant la durée de l’absence de S.E.M. MOUMIN HASSAN BARREH, l’intérim des fonctions du Ministre des Affaires Musulmanes et des Biens Waqfs, sera assuré par S.E.M. MOHAMED ABDOULKADER MOUSSA HELEM, Ministre de l’Environnement et du Développement Durable cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
