@@ -1,0 +1,2 @@
+Par décret n°2024-032/PRE, du Président de la République, chef du Gouvernement, en date du 15 février 2024, pendant la durée de l’absence de S.E.M. MAHAMOUD ALI YOUSSOUF, l’intérim des fonctions du Ministre des Affaires Etrangères et de la Coopération Internationale, Porte-Parole du Gouvernement sera assuré par S.E.M. ALI HASSAN BAHDON, Ministre de la Justice, des Affaires Pénitentiaires, chargé des droits de l’Homme cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
