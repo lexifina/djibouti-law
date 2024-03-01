@@ -1,0 +1,2 @@
+Par décret n°2024-038/PRE, du Président de la République, chef du Gouvernement, en date du 25 février 2024, pendant la durée de l’absence de S.E.Dr. NABIL MOHAMED AHMED, l’intérim des fonctions du Ministre de l’Enseignement Supérieur et de la Recherche sera assuré par S.E.M. MOUSTAPHA MOHAMED MAHAMOUD, Ministre de l’Education Nationale et de la Formation Professionnelle cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
