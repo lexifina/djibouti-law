@@ -1,0 +1,2 @@
+Par décret n°2024-043/PRE, du Président de la République, chef du Gouvernement, en date du 26 février 2024, pendant la durée de l’absence de S.E.M. MOHAMED ABDOULKADER MOUSSA HELEM, l’intérim des fonctions du Ministre de l’Environnement et du Développement Durable sera assuré par S.E.M. MOUMIN HASSAN BARREH, Ministre des Affaires Musulmanes et des Biens Waqfs cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
