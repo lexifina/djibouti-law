@@ -1,0 +1,2 @@
+Par décret n°2024-050/PRE, du Président de la République, chef du Gouvernement, en date du 05 mars 2024, pendant la durée de l’absence de S.E.M. HASSAN MOHAMED KAMIL, l’intérim des fonctions du Secrétaire d’Etat chargé des Sports, sera assuré par S.E.M MOHAMED WARSAMA DIRIEH, Ministre du Commerce et du Tourisme cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
