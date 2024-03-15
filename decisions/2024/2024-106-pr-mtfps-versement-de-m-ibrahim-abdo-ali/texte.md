@@ -1,0 +1,2 @@
+Par décision n°2024-106/PR/MTFPS, du Président de la République, Chef du Gouvernement, en date du 12 mars 2024, M. IBRAHIM ABDO ALI, magistrat de 2°grade-1°échelon du Corps de la Magistrature, en service au Ministère de la Justice chargé des Droits de l’Homme, qui a obtenu le Diplôme de Doctorat, est versé dans le Cadre des magistrats, au grade de magistrat de magistrat de 2°grade-6°échelon.
+La présente Décision sera enregistrée, communiquée, exécutée partout où besoin sera et publiée au Journal Officiel de la République de Djibouti.
