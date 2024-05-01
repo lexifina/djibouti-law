@@ -1,0 +1,2 @@
+Par décret n°2024-085/PRE, du Président de la République, chef du Gouvernement, en date du 23 avril 2024, pendant la durée de l’absence de S.E.M. ALI HASSAN BAHDON, l’intérim des fonctions du Ministre de la Justice, des Affaires Pénitentiaires, chargé des droits de l’Homme sera assuré par S.E.M. MAHAMOUD ALI YOUSSOUF, Ministre des Affaires Etrangères et de la Coopération Internationale, Porte-Parole du Gouvernement cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
