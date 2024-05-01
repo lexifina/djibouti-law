@@ -1,0 +1,2 @@
+Par décret n°2024-080/PR/MD, du Président de la République, chef du Gouvernement, en date du 21 avril 2024, le Commandant ELEYEH ABDI OMAR MLE 02/0088/T est nommé Chef de Corps par intérim de l’Ecole Militaire “PRESIDENT GOULED” de Holl- Holl à compter du 20 mars 2024 en remplacement du Lieutenant-Colonel MOHAMED DJAMA KAYAD appelé à d’autres fonctions.
+Le présent Décret sera enregistré et publié au Journal Officiel de la République de Djibouti.
