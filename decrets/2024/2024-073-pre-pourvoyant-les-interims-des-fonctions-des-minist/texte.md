@@ -1,0 +1,2 @@
+Par décret n°2024-073/PRE, du Président de la République, chef du Gouvernement, en date du 14 avril 2024, pendant la durée de l’absence de S.E.M. ILYAS MOUSSA DAWALEH, l’intérim des fonctions du Ministre de l’Economie et des Finances, chargé de l’Industrie sera assuré par S.E. Mme. MARIAM HAMADOU ALI, Ministre Déléguée chargé de l’Economie Numérique et de l’Innovation cumulativement avec ses fonctions.
+Le présent Décret sera publié au Journal Officiel de la République de Djibouti.
