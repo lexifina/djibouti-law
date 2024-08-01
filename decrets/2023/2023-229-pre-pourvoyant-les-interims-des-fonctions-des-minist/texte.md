@@ -1,0 +1,1 @@
+Par décret n°2023-229/PRE, du Président de la République, Chef du Gouvernement, en date du 02 août 2023, pendant la durée de l’absence de S.E.Mme. MARIAM HAMADOU ALI, l’intérim des fonctions de la Ministre Déléguée chargé de l’Economie Numérique et de l’Innovation sera assuré par S.E.M. HASSAN MOHAMED KAMIL, Secrétaire d’Etat chargé des Sports, cumulativement avec ses fonctions.
