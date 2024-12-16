@@ -1,0 +1,37 @@
+# Arrêté n° 2024-130/PR/MCPT portant création, organisation et fonctionnement du comité de pilotage du projet régional d’intégration numérique en Afrique de l’Est (EARDIP).
+
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2024 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2024-130-pr-mcpt-portant-creation-organisation-et-fonctionnement-du-comite-de-pilotage-du-projet-regional-dintegration-numerique-en-afrique-de-lest-eardip/>
+
+En vigueur : 2024-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
+
+## Visas
+
+LE PRESIDENT DE LA REPUBLIQUE, CHEF DU GOUVERNEMENT
+VU La Constitution du 15 septembre 1992 ;
+VU La Loi Constitutionnelle n°92/AN/10/6ème L du 21 avril 2010 portant révision de la Constitution ;
+VU Loi n°212/AN/17/7ème L du 24 décembre 2017 portant réorganisation du Ministère de la Communication chargé des Postes et des Télécommunications ;
+VU Le Décret n°2021-105/PRE du 24 mai 2021 portant nomintion du Premier Ministre ;
+VU Le Décret n°2021-106/PRE du 24 mai 2021 portant nomination des membres du Gouvernement ;
+VU Le Décret n°2021-114/PRE du 31 mai 2021 fixant les attributions des Ministères ;
+VU Le Décret n°2022-001/PRE du 02 janvier 2022 portant remaniement Ministériel;
+SUR Proposition du Ministre de la Communication chargé des Postes et des Télécommunications.
+Le Conseil des Ministre entendu en sa séance du 29 Octobre 2024.
+
+## Signature
+
+Le Président de la République,
+Chef du Gouvernement
+ISMAÏL OMAR GUELLEH
+
+| Fichier | Disposition |
+| --- | --- |
+| [art-001.md](art-001.md) | Article 1er |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |
+| [art-005.md](art-005.md) | Article 5 |
+| [art-006.md](art-006.md) | Article 6 |
+| [art-007.md](art-007.md) | Article 7 |
+| [art-008.md](art-008.md) | Article 8 |
+| [art-009.md](art-009.md) | Article 9 |
+| [art-010.md](art-010.md) | Article 10 |
