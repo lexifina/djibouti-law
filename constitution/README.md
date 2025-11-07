@@ -1,6 +1,6 @@
 # Constitution de la République de Djibouti
 
-Constitution · 1 versions, from 2026-10-29 (latest in force: 2026-10-29) · <https://www.presidence.dj/page/constitution>
+Constitution · le texte en vigueur depuis le 2025-11-07 (révision de la loi constitutionnelle n° 192/AN/25/9ème L du 6 novembre 2025, Journal officiel n° 05 du 6 novembre 2025) · <https://www.presidence.dj/page/constitution>
 
 | Provision | File | Changes | Last changed |
 | --- | --- | ---: | --- |
