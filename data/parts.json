@@ -1,0 +1,48 @@
+{
+ "parts": {
+  "10-code-penal.json": {
+   "acts": [
+    "code-penal"
+   ],
+   "sha256": "4ac2709027ab6b6dd81b746899c8f4bd860a83b4769c28ffc50d1e673d4669e4"
+  },
+  "20-code-civil.json": {
+   "acts": [
+    "code-civil"
+   ],
+   "sha256": "cb6140cd8d3e30b1ae993a011fe34e609fe524cf24d2f3510fd570cc4f0a64ff"
+  },
+  "30-code-de-commerce.json": {
+   "acts": [
+    "code-de-commerce"
+   ],
+   "sha256": "0c3a0ab4a4c198158ff2f8d93057190969aedac5d013fe950b407dbb568ac477"
+  },
+  "40-code-du-travail.json": {
+   "acts": [
+    "code-du-travail"
+   ],
+   "sha256": "6b216b8aeed1bd42873b2079323c7ef8b4806d2d28a017a2dc7a9c808241ccef"
+  },
+  "50-code-de-la-famille.json": {
+   "acts": [
+    "code-de-la-famille"
+   ],
+   "sha256": "306e79b6280e3b73cd8af82768113b58b8953ab3d54415922100e783e5838737"
+  },
+  "60-code-protection-mineurs.json": {
+   "acts": [
+    "code-protection-mineurs"
+   ],
+   "sha256": "ca9cf3a0107620a2b999faf9ecdd81314cea9438fc637c88301a7de78109195b"
+  },
+  "70-travail-amending-acts.json": {
+   "acts": [
+    "loi-109-an-10",
+    "loi-61-an-09"
+   ],
+   "sha256": "75849d8fe388648e8a7683ed8764b7c64a0e7ab630f3899786651568660e4561"
+  }
+ },
+ "schema": 1
+}
