@@ -13,6 +13,8 @@ This file is written by the build on 2026-10-30, the day the source data was ret
 | Journal officiel de la République de Djibouti: Loi n° 133/AN/05/5ème L portant Code du Travail | <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-05-5eme-l-portant-code-du-travail/> | 2026-10-30 | official text of law published by the Secrétariat général du Gouvernement in the Journal officiel; no licence stated |
 | Journal officiel de la République de Djibouti: Loi n° 152/AN/02/4ème L portant Code de la Famille | <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-02-4eme-l-portant-code-de-la-famille/> | 2026-10-30 | official text of law published by the Secrétariat général du Gouvernement in the Journal officiel; no licence stated |
 | Journal officiel de la République de Djibouti: Loi n° 95/AN/15/7ème L portant Code de protection juridique des mineurs | <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-15-7eme-l-portant-code-de-protection-juridique-des-mineurs/> | 2026-10-30 | official text of law published by the Secrétariat général du Gouvernement in the Journal officiel; no licence stated |
+| Journal officiel: Loi n° 61/AN/09/6ème L | <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-09-6eme-l-portant-modification-partielle-des-dispositions-de-larticle-295-de-la-loi-n133-an-05-seme-l-du-28-janvier-2006-portant-code-du-travail/> | 2026-10-30 | Official law text published by the Journal officiel; no specific licence stated. |
+| Journal officiel: Loi n° 109/AN/10/6ème L | <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-10-6eme-l-portant-modification-partielle-des-dispositions-des-articles-41214-et-215-de-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/> | 2026-10-30 | Official law text published by the Journal officiel; no specific licence stated. |
 
 Every word of law in this repository comes from these sources. Lexifina reads them and records each act's dated versions, and the laws that made each change, in one corpus file. This repository is built from that file.
 
@@ -27,20 +29,22 @@ Every word of law in this repository comes from these sources. Lexifina reads th
 | `code-du-travail` | Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du travail) | 1 | 2006-01-28 to 2006-01-28 |
 | `code-de-la-famille` | Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002 portant Code de la famille) | 1 | 2002-01-31 to 2002-01-31 |
 | `code-protection-mineurs` | Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015) | 1 | 2015-05-18 to 2015-05-18 |
+| `loi-61-an-09` | Loi n° 61/AN/09/6ème L portant modification partielle des dispositions de l’article 295 de la loi n° 133/AN/05/Sème L  du 28 janvier 2006 portant Code du Travail. | 1 | 2009-01-29 to 2009-01-29 |
+| `loi-109-an-10` | Loi n° 109/AN/10/6ème L  portant modification partielle des dispositions des articles 41,214 et 215 de la Loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail. | 1 | 2011-02-16 to 2011-02-16 |
 
-The build made 7 commits:
+The build made 9 commits:
 
 | Commits | Kind |
 | ---: | --- |
-| 7 | first version of an act |
+| 9 | first version of an act |
 | 0 | one law on its in-force day |
 | 0 | changes no amendment note explains, credited to the publisher |
 
 Other counts:
 - 0 commits on the branch `future`: laws not yet in force on 2026-10-30.
 - 0 commits dated 1 January 1970: in force before 1970, with the real day in their `In-force` trailer.
-- 3 laws in the record.
-- 10 tags.
+- 5 laws in the record.
+- 14 tags.
 
 ## Dates
 
@@ -52,15 +56,15 @@ When a law gives no date of its own, the default rule applies: The Presidency's 
 
 `tools/build.py` turns the corpus into this history in one pass: one commit per law, on the day it took effect. The same corpus always gives the same commit hashes. `tools/check_repo.py` reads every version back from git and compares it with the corpus. `tools/on.py` shows the law as it stood on any date. The corpus format is described in `tools/SCHEMA.md`.
 
-- Corpus: sha256 `b920a544fda41d383476612adc449938af9c03bab9d97c5fd4f020b4d0f13a93` (3452494 bytes).
+- Corpus: sha256 `daf045dca4b45a7e8ee888b79ac3148c99aadacc1cea2b9b78deb4e8cf448d52` (3464787 bytes).
 - Builder blob hashes (`git hash-object`): `build.py` `900da0d33bfd1ef455267fb4dcef7961fd5acc9c`, `check.py` `5d719354ea4c62d240c93d2cae446307d81d9e81`, `on.py` `aff48cf1b68d50c7ba8f399ca32261871c301824`.
 - Python 3.14.4; git version 2.53.0.
 
 ## Checks
 
-7 versions of 7 acts read back from git on the day each took effect and on the day before: 0 mismatches. Trailers: 0 commits whose trailers git cannot parse. Health: 0 merge commits on main, 0 commit dates that go backwards, 0 commits dated after the build.
+Not yet run for this build.
 
-A second build from the same corpus into an empty folder gave identical hashes for all 7 history commits and 10 tags (history tip `8723b8e3d292ab3cab18ca7f30f40aeab19293aa`).
+No second build of this corpus has been compared yet.
 
 ## Decisions made by hand
 
@@ -83,6 +87,12 @@ A second build from the same corpus into an empty folder gave identical hashes f
 - Code de la famille units: one per article (art-001 to art-222), each paragraph or line break of the Journal officiel text on its own line; the centred headings, the visas and the signature are left out.
 - Code de protection juridique des mineurs: one version, the law as enacted (first_law loi n° 95/AN/15/7ème L), dated 2015-05-18, the date the Journal officiel gives the law. Its article 90 orders publication in the Journal officiel on promulgation; under the Code civil article 1 then in force a law was executory by virtue of its promulgation. The Journal officiel edition carrying it is n° 10 of 31 May 2015.
 - Code de protection juridique des mineurs units: one per article (art-001 to art-090), each paragraph or line break of the Journal officiel text on its own line; the centred headings, the visas and the signature are left out.
+- Loi n° 61/AN/09/6ème L: standalone original amending act, effective 2009-01-29 under article 2 ("29 janvier 2009"); law date 2009-08-11, Gazette issue 2009-08-15. This records the amending instrument without consolidating the Code du travail.
+- Loi n° 61/AN/09/6ème L: single-file act containing the entire operative content block, retaining nested article labels and source typographical errors. Visas and any separate signature block are excluded; a signature inside the content block is retained.
+- Loi n° 109/AN/10/6ème L: standalone original amending act, effective 2011-02-16 under article 2 ("16 février 2011"); law date 2011-02-16, Gazette issue 2011-02-28. This records the amending instrument without consolidating the Code du travail.
+- Loi n° 109/AN/10/6ème L: single-file act containing the entire operative content block, retaining nested article labels and source typographical errors. Visas and any separate signature block are excluded; a signature inside the content block is retained.
+- Loi 61 has retroactive effect from 29 January 2009, before its signature on 11 August 2009; its express commencement clause is retained.
+- Loi 109 retains the source numbering of replacement article 41, including lines numbered 12 to 16 that divide sentences; no editorial repair is applied.
 
 ## What AI did and did not do
 
@@ -100,3 +110,4 @@ Model use at data-build time:
 - Claude Code wrote the code and chose the source; it did not write or alter any legal text. The code is deterministic and runs no model.
 - Claude Code wrote the code and chose the source; it did not write or alter any legal text. The code is deterministic and runs no model.
 - Claude Code wrote the code and chose the source; it did not write or alter any legal text. The code is deterministic and runs no model.
+- OpenAI Codex (GPT-6) selected the two source-supported dates and wrote deterministic parsing and verification code; no model generated legal text.

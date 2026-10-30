@@ -98,6 +98,34 @@
      "sha256": "658b69ffe13f8de9e5b0846cf32e3914c3bd38f172ffcf450bc8ff0b005bfb3c"
     }
    ]
+  },
+  {
+   "slug": "loi-61-an-09",
+   "short": "Loi n° 61/AN/09/6ème L",
+   "title": "Loi n° 61/AN/09/6ème L portant modification partielle des dispositions de l’article 295 de la loi n° 133/AN/05/Sème L  du 28 janvier 2006 portant Code du Travail.",
+   "url": "https://www.journalofficiel.dj/texte-juridique/loi-n61-an-09-6eme-l-portant-modification-partielle-des-dispositions-de-larticle-295-de-la-loi-n133-an-05-seme-l-du-28-janvier-2006-portant-code-du-travail/",
+   "versions": [
+    {
+     "from": "2009-01-29",
+     "units": 1,
+     "source_url": "https://www.journalofficiel.dj/texte-juridique/loi-n61-an-09-6eme-l-portant-modification-partielle-des-dispositions-de-larticle-295-de-la-loi-n133-an-05-seme-l-du-28-janvier-2006-portant-code-du-travail/",
+     "sha256": "483d1b9d0f7a06904a348cfc5ed14d1d9b12478abfb6a9588f8a24b8f0dff0e3"
+    }
+   ]
+  },
+  {
+   "slug": "loi-109-an-10",
+   "short": "Loi n° 109/AN/10/6ème L",
+   "title": "Loi n° 109/AN/10/6ème L  portant modification partielle des dispositions des articles 41,214 et 215 de la Loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail.",
+   "url": "https://www.journalofficiel.dj/texte-juridique/loi-n109-an-10-6eme-l-portant-modification-partielle-des-dispositions-des-articles-41214-et-215-de-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/",
+   "versions": [
+    {
+     "from": "2011-02-16",
+     "units": 1,
+     "source_url": "https://www.journalofficiel.dj/texte-juridique/loi-n109-an-10-6eme-l-portant-modification-partielle-des-dispositions-des-articles-41214-et-215-de-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/",
+     "sha256": "4069eddf3ec64be6740fcff7e1adb2d1a33c436590fc895ef4d5a58ea3edde23"
+    }
+   ]
   }
  ]
 }
