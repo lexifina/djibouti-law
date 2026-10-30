@@ -1,0 +1,103 @@
+{
+ "country": "DJ",
+ "acts": [
+  {
+   "slug": "constitution",
+   "short": "Constitution",
+   "title": "Constitution de la République de Djibouti",
+   "url": "https://www.presidence.dj/page/constitution",
+   "versions": [
+    {
+     "from": "2026-10-29",
+     "units": 111,
+     "source_url": "https://www.presidence.dj/page/constitution",
+     "sha256": "d0bf93f45ab1bbfeb2fab227241d319b9e56aaa93d7547a6770d115d8a1ec78e"
+    }
+   ]
+  },
+  {
+   "slug": "code-penal",
+   "short": "Code pénal",
+   "title": "Code pénal (loi n° 59/AN/94 du 5 janvier 1995 portant Code pénal)",
+   "url": "https://faolex.fao.org/docs/pdf/dji244285.pdf",
+   "versions": [
+    {
+     "from": "1995-01-05",
+     "units": 555,
+     "source_url": "https://faolex.fao.org/docs/pdf/dji244285.pdf",
+     "sha256": "6ee4de366714e564edfae12c4c1461d593f4ea6ce24b79cadf150e3669a64627"
+    }
+   ]
+  },
+  {
+   "slug": "code-civil",
+   "short": "Code civil",
+   "title": "Code civil de la République de Djibouti (adopté par la loi n° 003/AN/18/8ème L du 12 avril 2018)",
+   "url": "https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj026fr.pdf",
+   "versions": [
+    {
+     "from": "2018-04-12",
+     "units": 2411,
+     "source_url": "https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj026fr.pdf",
+     "sha256": "ecfae4fc0e9704ead5947153f31d2c6c6e4f0307ff22181e8d3f2213ab005285"
+    }
+   ]
+  },
+  {
+   "slug": "code-de-commerce",
+   "short": "Code de commerce",
+   "title": "Code de commerce de la République de Djibouti (loi n° 134/AN/11/6ème L du 1er août 2012)",
+   "url": "https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj023fr.pdf",
+   "versions": [
+    {
+     "from": "2012-08-01",
+     "units": 2152,
+     "source_url": "https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj023fr.pdf",
+     "sha256": "0681352d31ce930d4609e9f8c1953b85d7d1be3359a97e9ece568d1fa674dd3f"
+    }
+   ]
+  },
+  {
+   "slug": "code-du-travail",
+   "short": "Code du travail",
+   "title": "Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du travail)",
+   "url": "https://www.journalofficiel.dj/texte-juridique/loi-n133-an-05-5eme-l-portant-code-du-travail/",
+   "versions": [
+    {
+     "from": "2006-01-28",
+     "units": 299,
+     "source_url": "https://www.journalofficiel.dj/texte-juridique/loi-n133-an-05-5eme-l-portant-code-du-travail/",
+     "sha256": "3ccefb6a780ac63c0f3c11489cf9dc08e0f5a05f6f5e103f09aad5b7fe2694b4"
+    }
+   ]
+  },
+  {
+   "slug": "code-de-la-famille",
+   "short": "Code de la famille",
+   "title": "Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002 portant Code de la famille)",
+   "url": "https://www.journalofficiel.dj/texte-juridique/loi-n152-an-02-4eme-l-portant-code-de-la-famille/",
+   "versions": [
+    {
+     "from": "2002-01-31",
+     "units": 222,
+     "source_url": "https://www.journalofficiel.dj/texte-juridique/loi-n152-an-02-4eme-l-portant-code-de-la-famille/",
+     "sha256": "52ba7d2d1a29fba4e151b02fc6550408fb1ad9402cb447fb5d1032973849fe0d"
+    }
+   ]
+  },
+  {
+   "slug": "code-protection-mineurs",
+   "short": "Code de protection juridique des mineurs",
+   "title": "Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015)",
+   "url": "https://www.journalofficiel.dj/texte-juridique/loi-n95-an-15-7eme-l-portant-code-de-protection-juridique-des-mineurs/",
+   "versions": [
+    {
+     "from": "2015-05-18",
+     "units": 90,
+     "source_url": "https://www.journalofficiel.dj/texte-juridique/loi-n95-an-15-7eme-l-portant-code-de-protection-juridique-des-mineurs/",
+     "sha256": "658b69ffe13f8de9e5b0846cf32e3914c3bd38f172ffcf450bc8ff0b005bfb3c"
+    }
+   ]
+  }
+ ]
+}
