@@ -13,6 +13,8 @@ The law of Djibouti as a git history: one file per provision, with the source cr
 | `code-du-travail/` | Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006) | 1 | As enacted, dated 28 January 2006, from the Journal officiel; later amendments not applied (299 articles) |
 | `code-de-la-famille/` | Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002) | 1 | As enacted, dated 31 January 2002, from the Journal officiel; the 2014 amendment is not applied (222 articles) |
 | `code-protection-mineurs/` | Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015) | 1 | As enacted, dated 18 May 2015, from the Journal officiel (90 articles) |
+| `loi-61-an-09/` | Loi 61/AN/09/6ème L: Code du travail article 295 amendment | 1 | Original amending act, effective 29 January 2009; single-file act |
+| `loi-109-an-10/` | Loi 109/AN/10/6ème L: Code du travail articles 41, 214 and 215 amendments | 1 | Original amending act, effective 16 February 2011; single-file act |
 
 Language: French, the text that prevails under article 93 of the Constitution. The Arabic text is not included.
 
@@ -36,6 +38,8 @@ Language: French, the text that prevails under article 93 of the Constitution. T
 
 - The Code de protection juridique des mineurs is the text as enacted by loi n° 95/AN/15/7ème L (Journal officiel n° 10 of 31 May 2015). Headings are left out.
 
+- Two labour-code amending instruments are included independently in single files. The Code du travail remains the 2006 text; these instruments do not constitute a consolidated labour code. Law 109 retains the replacement article 41 numbering exactly as published. Law 61 expressly takes effect before its signature date.
+
 **Source**
 
 Presidency of the Republic of Djibouti, La Constitution: <https://www.presidence.dj/page/constitution>, read on 29 October 2026.
@@ -51,6 +55,10 @@ Code du travail: Journal officiel de la République de Djibouti, <https://www.jo
 Code de la famille: Journal officiel de la République de Djibouti, <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-02-4eme-l-portant-code-de-la-famille/>, read on 30 October 2026.
 
 Code de protection juridique des mineurs: Journal officiel de la République de Djibouti, <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-15-7eme-l-portant-code-de-protection-juridique-des-mineurs/>, read on 30 October 2026.
+
+Journal officiel: Loi n° 61/AN/09/6ème L: <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-09-6eme-l-portant-modification-partielle-des-dispositions-de-larticle-295-de-la-loi-n133-an-05-seme-l-du-28-janvier-2006-portant-code-du-travail/>, original amending instrument.
+
+Journal officiel: Loi n° 109/AN/10/6ème L: <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-10-6eme-l-portant-modification-partielle-des-dispositions-des-articles-41214-et-215-de-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>, original amending instrument.
 
 Nothing here is legal advice; for anything that matters, read the original. How the files were made is in [REPRODUCE.md](REPRODUCE.md).
 

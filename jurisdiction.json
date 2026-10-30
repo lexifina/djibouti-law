@@ -4,8 +4,8 @@
   "name": "Djibouti",
   "level": "country",
   "repo": "https://github.com/lexifina/djibouti-law",
-  "build": "Constitution (current text as read 29 October 2026), Code pénal (1995), Code civil (2018), Code de commerce (2012), Code du travail (2006), Code de la famille (2002) and Code de protection juridique des mineurs (2015), French text",
+  "build": "Constitution (current text as read 29 October 2026), Code pénal (1995), Code civil (2018), Code de commerce (2012), Code du travail (2006), Code de la famille (2002) and Code de protection juridique des mineurs (2015), French text; two standalone Code du travail amending acts (2009 and 2011), with express commencement dates",
   "register": "https://claude.ai/artifact/DdS9F6yqpPZtV2i7FGQhYZ",
   "register_date": "2026-10-28",
-  "sources": 7
+  "sources": 9
 }
