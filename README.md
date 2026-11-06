@@ -1,5 +1,7 @@
 # Djibouti: law history in git
 
+Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Djibouti's national law, which global-law reads at `djibouti/national/acts/`.
+
 The law of Djibouti as a git history: one file per provision, with the source credited as the author. `git blame` names the source of every paragraph. It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law), which places it at `dj/`.
 
 **What is in it now**
