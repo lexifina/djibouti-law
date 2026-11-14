@@ -1,69 +1,92 @@
 # Djibouti: law history in git
 
+
+The law of Djibouti as a git history: one file per article, one commit per version on the day it took effect, and the law that made each change as the commit's author. `git blame` names the law behind every article; `git log` lists every change to an article; picking a date gives the text in force that day.
+
 Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Djibouti's national law, which global-law reads at `djibouti/national/acts/`.
 
-The law of Djibouti as a git history: one file per provision, with the source credited as the author. `git blame` names the source of every paragraph. It follows the shared design of [lexifina/global-law](https://github.com/lexifina/global-law), which places it at `dj/`.
+**What is in it now:** 9 acts, each in one version: the Constitution, as the Presidency's website showed it on 29 October 2026; six codes as adopted or enacted, the Code civil (2018, 2,411 articles), Code de commerce (2012, 2,152), Code pénal (1995, 555), Code du travail (2006, 299), Code de la famille (2002, 222) and Code de protection juridique des mineurs (2015, 90); and two laws amending the Code du travail (2009 and 2011), kept as their own files and not applied to it. [`REPRODUCE.md`](REPRODUCE.md) lists every act with its version and says how the files were made; each act's folder has a README listing its articles.
 
-**What is in it now**
+Each act is a folder, one file per article: `code-du-travail/art-041.md` is Article 41 of the Code du travail. The Code de commerce's files carry its L. numbers (`code-de-commerce/art-l-0214-006.md` is Art. L.214-6), the Constitution's Preamble and Titres have their own files (`constitution/preamble.md`, `constitution/titre-01.md`), and each amending law is one file (`loi-61-an-09/texte.md`).
 
-| Folder | Act | Versions | History |
-| --- | --- | ---: | --- |
-| `constitution/` | The Constitution of the Republic of Djibouti: the Preamble, Titles I to XIII and Articles 1 to 97 | 1 | One version: the text the Presidency of the Republic's website showed on 29 October 2026 |
-| `code-civil/` | Code civil (loi n° 003/AN/18/8ème L du 12 avril 2018) | 1 | Oldest version available: the Code as adopted, dated 12 April 2018, with no later amendments (2411 articles) |
-| `code-de-commerce/` | Code de commerce (loi n° 134/AN/11/6ème L du 1er août 2012) | 1 | Oldest version available: the Code as adopted, dated 1 August 2012, with no later amendments (2152 articles) |
-| `code-penal/` | Code pénal (loi n° 59/AN/94 du 5 janvier 1995), Livres I to IV | 1 | Oldest version available, dated 5 January 1995 by the law; the PDF gives no consolidation date (555 articles) |
-| `code-du-travail/` | Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006) | 1 | As enacted, dated 28 January 2006, from the Journal officiel; later amendments not applied (299 articles) |
-| `code-de-la-famille/` | Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002) | 1 | As enacted, dated 31 January 2002, from the Journal officiel; the 2014 amendment is not applied (222 articles) |
-| `code-protection-mineurs/` | Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015) | 1 | As enacted, dated 18 May 2015, from the Journal officiel (90 articles) |
-| `loi-61-an-09/` | Loi 61/AN/09/6ème L: Code du travail article 295 amendment | 1 | Original amending act, effective 29 January 2009; single-file act |
-| `loi-109-an-10/` | Loi 109/AN/10/6ème L: Code du travail articles 41, 214 and 215 amendments | 1 | Original amending act, effective 16 February 2011; single-file act |
+The text is in French, as the sources print it; under article 93 of the Constitution the French text prevails. The Arabic text is not part of this record, and neither is an English translation.
 
-Language: French, the text that prevails under article 93 of the Constitution. The Arabic text is not included.
+## Questions as git commands
 
-**What it does not show**
+| Question | Command |
+| --- | --- |
+| Every change to Article 1 of the Code du travail | `git log -p --word-diff -- code-du-travail/art-001.md` |
+| Which law wrote each line of Article 1? | `git blame code-du-travail/art-001.md` |
+| Every version of the Code du travail, with the day each took effect | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- "code-du-travail/art-*"` |
+| Article 1 as in force on 1 January 2020 | `python tools/on.py 2020-01-01 code-du-travail art-001` |
 
-- Only one version exists here. The Presidency's page gives the current consolidated text with no date and no list of the revisions it includes, so the repository is dated from the day the page was read (29 October 2026). It is the oldest version available, not the Constitution as adopted in 1992, and the revisions are not replayed.
-- Statutes: only those listed above. Other statutes and decrees are not included yet: the Journal Officiel publishes acts as enacted, with no consolidated text.
-- The page's table of contents and analytical index are left out.
+**Outside git**, we also host this record publicly, for free:
 
-- The Code civil is the text as adopted on 12 April 2018; the amending law of 30 April 2019 (n° 47/AN/19/8ème L) is not applied. Headings are left out and paragraph breaks are rebuilt from a PDF line layout.
+- **[Ask Claude about Djiboutian law](https://global-law.lexifina.com/v1/try_claude?country=djibouti)**: opens Claude with a first question ready.
+- **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=djibouti)**: the same question in ChatGPT.
+- **[Call the API in your browser](https://global-law.lexifina.com/v1/search_law?query=cong%C3%A9+pay%C3%A9&jurisdictions=djibouti)**: a search of Djiboutian law for "congé payé", returned as JSON. See the [documentation here](https://lexifina.com/api/global-law).
 
-- The Code de commerce is the text as adopted on 1 August 2012; the amending laws of 2018 (n° 001/AN/18/8ème L) and 2019 (n° 49/AN/19/8ème L) are not applied. Article numbers are kept as printed, including a few misprints in the PDF; headings are left out.
+Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in French or in English.
 
-- The Code pénal is the FAOLEX copy of loi n° 59/AN/94, dated by the law (5 January 1995); the PDF states no consolidation date, so later amendments may be in it. Livre V (contraventions) is left out. Headings are left out.
+**Host it yourself easily.** All it takes is git and Python, and the tools run on your machine:
 
-- The Code du travail is the text as enacted by loi n° 133/AN/05/5ème L (Journal officiel n° 3 of 28 February 2006); the laws that amended it later (2010, 2017, 2019, 2020, 2025) are not applied. Headings are left out.
+```sh
+git clone --depth 1 https://github.com/lexifina/global-law && cd global-law
+python3 tools/countries.py add djibouti/national/acts
+python3 tools/law.py show 2026-01-01 djibouti/national/acts/code-du-travail/art-001.md
+```
 
-- The Code du travail is the text as enacted by loi n° 133/AN/05/5ème L (Journal officiel n° 3 of 28 February 2006); the laws that amended it later (2009 to 2025) are not applied. Headings are left out.
+Opened in Claude Code, Cursor, VS Code or Codex, the clone also starts a local MCP server with the same tools ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
 
-- The Code de la famille is the French text as enacted by loi n° 152/AN/02/4ème L (Journal officiel n° 1 of 31 January 2002); under its article 220 the Arabic text prevails, and it is not included. The 2014 amending law (n° 56/AN/14/7ème L, Titres 6 and 7) is not applied, because its published text is incomplete. Headings are left out.
+## Dates
 
-- The Code de protection juridique des mineurs is the text as enacted by loi n° 95/AN/15/7ème L (Journal officiel n° 10 of 31 May 2015). Headings are left out.
+Each commit is dated at noon, Africa/Djibouti, on the day the version took effect, and carries it in its `In-force:` trailer:
 
-- Two labour-code amending instruments are included independently in single files. The Code du travail remains the 2006 text; these instruments do not constitute a consolidated labour code. Law 109 retains the replacement article 41 numbering exactly as published. Law 61 expressly takes effect before its signature date.
+- the Code du travail, the Code de la famille and the Code de protection juridique des mineurs, by the date the Journal officiel gives the law, its promulgation (a law was then executory on promulgation, under article 1 of the Code civil in force at the time); the Journal officiel edition's date is the `Published:` trailer;
+- the Code civil by its promulgation (12 April 2018), the Code de commerce by its promulgation and entry into force (1 August 2012), and the Code pénal by the date of the law it is cited by (5 January 1995);
+- the two amending laws by the day their article 2 gives (29 January 2009, before law 61/AN/09 was signed, and 16 February 2011);
+- the Constitution, whose page gives no date, by the day it was read (29 October 2026).
 
-**Source**
+The Code du travail, the Code de la famille, the Code de protection juridique des mineurs and the two amending laws are credited to the law that enacted them (`Loi n° 133/AN/05/5ème L`). The Constitution and the Codes civil, de commerce and pénal are the oldest versions available and are credited to the publisher, `Presidency of the Republic of Djibouti (presidence.dj)` (`Kind: publisher`), whichever site the text came from. The committer is Lexifina.
 
-Presidency of the Republic of Djibouti, La Constitution: <https://www.presidence.dj/page/constitution>, read on 29 October 2026.
+## How it is checked
 
-Code civil: WIPO Lex, DJ026, <https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj026fr.pdf>, read on 30 October 2026.
+- `tools/check_repo.py` reads every version back from git on the day it took effect and on the day before and compares it with the corpus, whose hash is in `data/corpus.sha256`; it also checks that every commit's trailers parse, that `main` has no merge commits and that no commit is dated in the future. [`REPRODUCE.md`](REPRODUCE.md) records 9 versions of 9 acts read back with no mismatch.
+- `tools/build.py` writes the history from that one corpus file, and the same corpus gives the same commit hashes; no second build has been compared yet.
+- Nothing in the text is repaired: misprinted article numbers in the Code de commerce, and law 109/AN/10's own numbering, are kept as printed.
+- History is append-only: the two amending laws were added as new commits after the first build, not written into it.
 
-Code de commerce: WIPO Lex, DJ023, <https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj023fr.pdf>, read on 30 October 2026.
+## What it does not show
 
-Code pénal: FAOLEX (FAO), <https://faolex.fao.org/docs/pdf/dji244285.pdf>, read on 30 October 2026.
+- **Later amendments.** None is applied: not the laws amending the Code du travail from 2009 to 2025 (two of them are here as their own files only), the Code civil (2019), the Code de commerce (2018 and 2019) or the Code de la famille (2014, whose published text is incomplete).
+- **The Constitution as adopted in 1992**, or its revisions: the Presidency's page gives the current text with no date and no list of the revisions it includes.
+- **When the Code pénal was consolidated.** The FAOLEX PDF does not say, so later amendments may be in it; its Livre V (contraventions) is left out.
+- **Other statutes and decrees.** The Journal officiel publishes acts as enacted, with no consolidated text.
+- **The Arabic text**, which prevails for the Code de la famille (its article 220).
+- **The codes' headings** (Livres, Titres, Chapitres, Sections), tables of contents and the Constitution's index; in the Codes civil, de commerce and pénal, paragraph breaks are rebuilt from the PDF's line layout.
 
-Code du travail: Journal officiel de la République de Djibouti, <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-05-5eme-l-portant-code-du-travail/>, read on 30 October 2026.
+## Sources
 
-Code de la famille: Journal officiel de la République de Djibouti, <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-02-4eme-l-portant-code-de-la-famille/>, read on 30 October 2026.
-
-Code de protection juridique des mineurs: Journal officiel de la République de Djibouti, <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-15-7eme-l-portant-code-de-protection-juridique-des-mineurs/>, read on 30 October 2026.
-
-Journal officiel: Loi n° 61/AN/09/6ème L: <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-09-6eme-l-portant-modification-partielle-des-dispositions-de-larticle-295-de-la-loi-n133-an-05-seme-l-du-28-janvier-2006-portant-code-du-travail/>, original amending instrument.
-
-Journal officiel: Loi n° 109/AN/10/6ème L: <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-10-6eme-l-portant-modification-partielle-des-dispositions-des-articles-41214-et-215-de-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>, original amending instrument.
-
-Nothing here is legal advice; for anything that matters, read the original. How the files were made is in [REPRODUCE.md](REPRODUCE.md).
+| Source | Kind | Past versions | Notes |
+| --- | --- | --- | --- |
+| [Journal officiel de la République de Djibouti](https://www.journalofficiel.dj) (Secrétariat général du Gouvernement) | Official gazette | no, each law as enacted | Code du travail, Code de la famille, Code de protection juridique des mineurs, laws 61/AN/09 and 109/AN/10; read on 30 October 2026 |
+| [Presidency of the Republic](https://www.presidence.dj/page/constitution) | The Constitution, current text | no, one undated text | Read on 29 October 2026 |
+| [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/DJ) | Official texts republished as PDF | no, the text as adopted | Code civil (DJ026), Code de commerce (DJ023); read on 30 October 2026 |
+| [FAOLEX](https://faolex.fao.org/docs/pdf/dji244285.pdf) (FAO) | Text republished as PDF | no, one undated text | Code pénal; read on 30 October 2026 |
 
 ## Licence
 
-See [LICENSE](LICENSE).
+See [`LICENSE`](LICENSE). The Constitution is published by the Presidency for public use, and this repository makes no claim over it; the codes and the two laws are copied from the Journal officiel, WIPO Lex and FAOLEX, whose pages state no licence.
+
+No AI model wrote, translated or corrected legal text; the scripts were written by AI models, and no model runs when the history is built (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## More
+
+From [lexifina/global-law](https://github.com/lexifina/global-law):
+
+- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md): every feature, and what every corpus must support (`git blame`, `law.py`, the MCP tools)
+- [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md): questions and answers · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md): proposing changes · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md): the MCP server · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md): how it was built · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
+- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md): how current each corpus is · [Monitoring](https://github.com/lexifina/global-law/tree/main/monitoring): whether updates are running · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md): how each official source is watched for changes
+- [performance/](https://github.com/lexifina/global-law/tree/main/performance): how fast the tools are, measured
+- [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations): charts and bridges across the world's law
+- [Vulnerabilities](https://github.com/lexifina/global-law/tree/main/vulnerabilities): mistakes in legislation as published
