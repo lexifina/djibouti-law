@@ -62,6 +62,7 @@ The Code du travail, the Code de la famille, the Code de protection juridique de
 - `tools/build.py` writes the history from that one corpus file, and the same corpus gives the same commit hashes; no second build has been compared yet.
 - Nothing in the text is repaired: misprinted article numbers in the Code de commerce, and law 109/AN/10's own numbering, are kept as printed.
 - History is append-only: the two amending laws were added as new commits after the first build, not written into it.
+- [vulnerabilities/](vulnerabilities/README.en.md): possible drafting mistakes in this law, found by global-law's detectors and checked by hand. Not run yet.
 
 ## What it does not show
 
@@ -86,6 +87,10 @@ The Code du travail, the Code de la famille, the Code de protection juridique de
 See [`LICENSE`](LICENSE). The Constitution is published by the Presidency for public use, and this repository makes no claim over it; the codes and the two laws are copied from the Journal officiel, WIPO Lex and FAOLEX, whose pages state no licence.
 
 No AI model wrote, translated or corrected legal text; the scripts were written by AI models, and no model runs when the history is built (see [`REPRODUCE.md`](REPRODUCE.md)).
+
+## Visualisations
+
+- [visualisations/](visualisations/README.en.md): charts drawn from this repository. Not drawn yet.
 
 ## More
 

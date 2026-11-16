@@ -62,6 +62,7 @@ Le Code du travail, le Code de la famille, le Code de protection juridique des m
 - `tools/build.py` écrit l’historique à partir de ce seul fichier de corpus, et le même corpus donne les mêmes empreintes de commit ; aucune seconde construction n’a encore été comparée.
 - Rien n’est corrigé dans le texte : les numéros d’articles erronés du Code de commerce, ainsi que la numérotation propre de la loi 109/AN/10, sont conservés tels qu’imprimés.
 - L’historique ne fait l’objet que d’ajouts : les deux lois modificatives ont été ajoutées sous forme de nouveaux commits après la première construction, et non intégrées à celle-ci.
+- [vulnerabilities/](vulnerabilities/): erreurs de rédaction possibles dans ce droit, trouvées par les détecteurs de global-law et vérifiées à la main. Pas encore lancé.
 
 ## Ce qu’il ne montre pas
 
@@ -88,6 +89,10 @@ Voir [`LICENSE`](LICENSE). La Constitution est publiée par la Présidence pour 
 Aucun modèle d’IA n’a écrit, traduit ou corrigé de texte juridique ; les scripts ont été écrits par des modèles d’IA, et aucun modèle n’est exécuté lors de la construction de l’historique (voir [`REPRODUCE.md`](REPRODUCE.md)).
 
 Ceci est une traduction de la version anglaise ([README.en.md](README.en.md)) ; en cas de divergence, la version anglaise fait foi.
+
+## Visualisations
+
+- [visualisations/](visualisations/): graphiques tirés de ce dépôt. Pas encore dessinés.
 
 ## En savoir plus
 
