@@ -1,35 +1,41 @@
-# Djibouti: law history in git
+# Djibouti : l’historique du droit dans git
 
+**Français** · [English](README.en.md)
 
-The law of Djibouti as a git history: one file per article, one commit per version on the day it took effect, and the law that made each change as the commit's author. `git blame` names the law behind every article; `git log` lists every change to an article; picking a date gives the text in force that day.
+<picture>
+<source media="(prefers-color-scheme: dark)" srcset="data/fr/effort-dark.svg">
+<img alt="Le droit djiboutien dans ce dépôt : ce qu’il contient, les modifications par année d’entrée en vigueur, l’exhaustivité au regard des sources officielles et l’exactitude de son contenu" src="data/fr/effort-light.svg" width="880">
+</picture>
 
-Part of [lexifina/global-law](https://github.com/lexifina/global-law), one git history for every country's law: this is Djibouti's national law, which global-law reads at `djibouti/national/acts/`.
+Le droit djiboutien sous forme d’historique git : un fichier par article, un commit par version au jour de son entrée en vigueur, et pour auteur de chaque commit la loi qui a apporté la modification. `git blame` désigne la loi à l’origine de chaque article ; `git log` énumère toutes les modifications d’un article ; le choix d’une date donne le texte en vigueur ce jour-là.
 
-**What is in it now:** 9 acts, each in one version: the Constitution, as the Presidency's website showed it on 29 October 2026; six codes as adopted or enacted, the Code civil (2018, 2,411 articles), Code de commerce (2012, 2,152), Code pénal (1995, 555), Code du travail (2006, 299), Code de la famille (2002, 222) and Code de protection juridique des mineurs (2015, 90); and two laws amending the Code du travail (2009 and 2011), kept as their own files and not applied to it. [`REPRODUCE.md`](REPRODUCE.md) lists every act with its version and says how the files were made; each act's folder has a README listing its articles.
+Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un historique git unique pour le droit de chaque pays : ce dépôt contient le droit national djiboutien, que global-law lit dans `djibouti/national/acts/`.
 
-Each act is a folder, one file per article: `code-du-travail/art-041.md` is Article 41 of the Code du travail. The Code de commerce's files carry its L. numbers (`code-de-commerce/art-l-0214-006.md` is Art. L.214-6), the Constitution's Preamble and Titres have their own files (`constitution/preamble.md`, `constitution/titre-01.md`), and each amending law is one file (`loi-61-an-09/texte.md`).
+**Contenu actuel :** 9 textes, en une version chacun : la Constitution, telle que le site de la Présidence la présentait le 29 octobre 2026 ; six codes tels qu’adoptés ou promulgués, le Code civil (2018, 2 411 articles), le Code de commerce (2012, 2 152), le Code pénal (1995, 555), le Code du travail (2006, 299), le Code de la famille (2002, 222) et le Code de protection juridique des mineurs (2015, 90) ; et deux lois modifiant le Code du travail (2009 et 2011), conservées dans leurs propres fichiers et non appliquées à celui-ci. [`REPRODUCE.md`](REPRODUCE.md) énumère chaque texte avec sa version et indique comment les fichiers ont été produits ; le dossier de chaque texte contient un README qui en énumère les articles.
 
-The text is in French, as the sources print it; under article 93 of the Constitution the French text prevails. The Arabic text is not part of this record, and neither is an English translation.
+Chaque texte est un dossier, avec un fichier par article : `code-du-travail/art-041.md` est l’article 41 du Code du travail. Les fichiers du Code de commerce portent ses numéros en L. (`code-de-commerce/art-l-0214-006.md` est l’art. L.214-6), le préambule et les titres de la Constitution ont leurs propres fichiers (`constitution/preamble.md`, `constitution/titre-01.md`), et chaque loi modificative forme un fichier (`loi-61-an-09/texte.md`).
 
-## Questions as git commands
+Le texte est en français, tel que l’impriment les sources ; aux termes de l’article 93 de la Constitution, le texte français fait foi. Le texte arabe ne fait pas partie de ce registre, pas plus qu’une traduction anglaise.
 
-| Question | Command |
+## Questions sous forme de commandes git
+
+| Question | Commande |
 | --- | --- |
-| Every change to Article 1 of the Code du travail | `git log -p --word-diff -- code-du-travail/art-001.md` |
-| Which law wrote each line of Article 1? | `git blame code-du-travail/art-001.md` |
-| Every version of the Code du travail, with the day each took effect | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- "code-du-travail/art-*"` |
-| Article 1 as in force on 1 January 2020 | `python tools/on.py 2020-01-01 code-du-travail art-001` |
+| Toutes les modifications de l’article 1er du Code du travail | `git log -p --word-diff -- code-du-travail/art-001.md` |
+| Quelle loi a écrit chaque ligne de l’article 1er ? | `git blame code-du-travail/art-001.md` |
+| Toutes les versions du Code du travail, avec le jour d’entrée en vigueur de chacune | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- "code-du-travail/art-*"` |
+| L’article 1er tel qu’en vigueur le 1er janvier 2020 | `python tools/on.py 2020-01-01 code-du-travail art-001` |
 
-**Outside git**, we also host this record publicly, for free:
+**En dehors de git**, nous hébergeons aussi ce registre publiquement, gratuitement :
 
-- **[Ask Claude about Djiboutian law](https://global-law.lexifina.com/v1/try_claude?country=djibouti)**: opens Claude with a first question ready.
-- **[Ask ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=djibouti)**: the same question in ChatGPT.
-- **[Search Djiboutian law on our site](https://lexifina.com/law?country=djibouti&q=cong%C3%A9+pay%C3%A9)**: a search for "congé payé", with each provision's text and its versions, no account needed.
-- **[Developer REST API](https://global-law.lexifina.com/v1/search_law?query=cong%C3%A9+pay%C3%A9&jurisdiction=djibouti)**: the same search as JSON, with no key. See the [documentation here](https://lexifina.com/api/global-law).
+- **[Interroger Claude sur le droit djiboutien](https://global-law.lexifina.com/v1/try_claude?country=djibouti)** : ouvre Claude avec une première question prête.
+- **[Interroger ChatGPT](https://global-law.lexifina.com/v1/try_chatgpt?country=djibouti)** : la même question dans ChatGPT.
+- **[Rechercher dans le droit djiboutien sur notre site](https://lexifina.com/law?country=djibouti&q=cong%C3%A9+pay%C3%A9)** : une recherche de « congé payé », avec le texte de chaque disposition et ses versions, sans compte.
+- **[API REST pour les développeurs](https://global-law.lexifina.com/v1/search_law?query=cong%C3%A9+pay%C3%A9&jurisdiction=djibouti)** : la même recherche en JSON, sans clé. Voir la [documentation ici](https://lexifina.com/api/global-law).
 
-Both assistants read the record through the free Global law connector (MCP, `https://global-law.lexifina.com/mcp`); the first time, the chat gives you the link that adds it. Ask in French or in English.
+Les deux assistants lisent le registre au moyen du connecteur gratuit Global law (MCP, `https://global-law.lexifina.com/mcp`) ; la première fois, la conversation vous donne le lien qui l’ajoute. Posez vos questions en français ou en anglais.
 
-**Host it yourself easily.** All it takes is git and Python, and the tools run on your machine:
+**L’héberger vous-même, simplement.** Il suffit de git et de Python, et les outils s’exécutent sur votre machine :
 
 ```sh
 git clone --depth 1 https://github.com/lexifina/global-law && cd global-law
@@ -37,57 +43,59 @@ python3 tools/countries.py add djibouti/national/acts
 python3 tools/law.py show 2026-01-01 djibouti/national/acts/code-du-travail/art-001.md
 ```
 
-Opened in Claude Code, Cursor, VS Code or Codex, the clone also starts a local MCP server with the same tools ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
+Ouvert dans Claude Code, Cursor, VS Code ou Codex, le clone lance aussi un serveur MCP local doté des mêmes outils ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
 
 ## Dates
 
-Each commit is dated at noon, Africa/Djibouti, on the day the version took effect, and carries it in its `In-force:` trailer:
+Chaque commit est daté à midi, heure de Djibouti (Africa/Djibouti), du jour où la version est entrée en vigueur, et porte ce jour dans son trailer `In-force:` :
 
-- the Code du travail, the Code de la famille and the Code de protection juridique des mineurs, by the date the Journal officiel gives the law, its promulgation (a law was then executory on promulgation, under article 1 of the Code civil in force at the time); the Journal officiel edition's date is the `Published:` trailer;
-- the Code civil by its promulgation (12 April 2018), the Code de commerce by its promulgation and entry into force (1 August 2012), and the Code pénal by the date of the law it is cited by (5 January 1995);
-- the two amending laws by the day their article 2 gives (29 January 2009, before law 61/AN/09 was signed, and 16 February 2011);
-- the Constitution, whose page gives no date, by the day it was read (29 October 2026).
+- le Code du travail, le Code de la famille et le Code de protection juridique des mineurs, à la date que le Journal officiel attribue à la loi, celle de sa promulgation (une loi était alors exécutoire dès sa promulgation, en vertu de l’article 1er du Code civil alors en vigueur) ; la date de l’édition du Journal officiel figure dans le trailer `Published:` ;
+- le Code civil à sa promulgation (12 avril 2018), le Code de commerce à sa promulgation et à son entrée en vigueur (1er août 2012), et le Code pénal à la date de la loi par laquelle il est cité (5 janvier 1995) ;
+- les deux lois modificatives au jour qu’indique leur article 2 (le 29 janvier 2009, avant la signature de la loi 61/AN/09, et le 16 février 2011) ;
+- la Constitution, dont la page n’indique aucune date, au jour de sa lecture (29 octobre 2026).
 
-The Code du travail, the Code de la famille, the Code de protection juridique des mineurs and the two amending laws are credited to the law that enacted them (`Loi n° 133/AN/05/5ème L`). The Constitution and the Codes civil, de commerce and pénal are the oldest versions available and are credited to the publisher, `Presidency of the Republic of Djibouti (presidence.dj)` (`Kind: publisher`), whichever site the text came from. The committer is Lexifina.
+Le Code du travail, le Code de la famille, le Code de protection juridique des mineurs et les deux lois modificatives sont attribués à la loi qui les a adoptés (`Loi n° 133/AN/05/5ème L`). La Constitution et les Codes civil, de commerce et pénal sont les plus anciennes versions disponibles et sont attribués à l’éditeur, `Presidency of the Republic of Djibouti (presidence.dj)` (`Kind: publisher`), quel que soit le site dont provient le texte. Le committer est Lexifina.
 
-## How it is checked
+## Comment il est vérifié
 
-- `tools/check_repo.py` reads every version back from git on the day it took effect and on the day before and compares it with the corpus, whose hash is in `data/corpus.sha256`; it also checks that every commit's trailers parse, that `main` has no merge commits and that no commit is dated in the future. [`REPRODUCE.md`](REPRODUCE.md) records 9 versions of 9 acts read back with no mismatch.
-- `tools/build.py` writes the history from that one corpus file, and the same corpus gives the same commit hashes; no second build has been compared yet.
-- Nothing in the text is repaired: misprinted article numbers in the Code de commerce, and law 109/AN/10's own numbering, are kept as printed.
-- History is append-only: the two amending laws were added as new commits after the first build, not written into it.
+- `tools/check_repo.py` relit chaque version depuis git au jour de son entrée en vigueur et la veille, et la compare au corpus, dont l’empreinte figure dans `data/corpus.sha256` ; il vérifie aussi que les trailers de chaque commit se lisent sans erreur, que `main` ne comporte aucun commit de fusion et qu’aucun commit n’est daté dans le futur. [`REPRODUCE.md`](REPRODUCE.md) consigne 9 versions de 9 textes relues sans aucune divergence.
+- `tools/build.py` écrit l’historique à partir de ce seul fichier de corpus, et le même corpus donne les mêmes empreintes de commit ; aucune seconde construction n’a encore été comparée.
+- Rien n’est corrigé dans le texte : les numéros d’articles erronés du Code de commerce, ainsi que la numérotation propre de la loi 109/AN/10, sont conservés tels qu’imprimés.
+- L’historique ne fait l’objet que d’ajouts : les deux lois modificatives ont été ajoutées sous forme de nouveaux commits après la première construction, et non intégrées à celle-ci.
 
-## What it does not show
+## Ce qu’il ne montre pas
 
-- **Later amendments.** None is applied: not the laws amending the Code du travail from 2009 to 2025 (two of them are here as their own files only), the Code civil (2019), the Code de commerce (2018 and 2019) or the Code de la famille (2014, whose published text is incomplete).
-- **The Constitution as adopted in 1992**, or its revisions: the Presidency's page gives the current text with no date and no list of the revisions it includes.
-- **When the Code pénal was consolidated.** The FAOLEX PDF does not say, so later amendments may be in it; its Livre V (contraventions) is left out.
-- **Other statutes and decrees.** The Journal officiel publishes acts as enacted, with no consolidated text.
-- **The Arabic text**, which prevails for the Code de la famille (its article 220).
-- **The codes' headings** (Livres, Titres, Chapitres, Sections), tables of contents and the Constitution's index; in the Codes civil, de commerce and pénal, paragraph breaks are rebuilt from the PDF's line layout.
+- **Les modifications ultérieures.** Aucune n’est appliquée : ni les lois modifiant le Code du travail de 2009 à 2025 (deux d’entre elles figurent ici, dans leurs seuls fichiers propres), ni celles du Code civil (2019), du Code de commerce (2018 et 2019) ou du Code de la famille (2014, dont le texte publié est incomplet).
+- **La Constitution telle qu’adoptée en 1992**, ni ses révisions : la page de la Présidence donne le texte actuel sans date ni liste des révisions qu’il intègre.
+- **La date de consolidation du Code pénal.** Le PDF de FAOLEX ne l’indique pas, de sorte que des modifications ultérieures peuvent y figurer ; son Livre V (contraventions) est omis.
+- **Les autres lois et décrets.** Le Journal officiel publie les textes tels qu’adoptés, sans texte consolidé.
+- **Le texte arabe**, qui fait foi pour le Code de la famille (son article 220).
+- **Les intitulés des codes** (Livres, Titres, Chapitres, Sections), les tables des matières et l’index de la Constitution ; dans les Codes civil, de commerce et pénal, les sauts d’alinéa sont reconstitués à partir de la disposition des lignes du PDF.
 
 ## Sources
 
-| Source | Kind | Past versions | Notes |
+| Source | Nature | Versions antérieures | Remarques |
 | --- | --- | --- | --- |
-| [Journal officiel de la République de Djibouti](https://www.journalofficiel.dj) (Secrétariat général du Gouvernement) | Official gazette | no, each law as enacted | Code du travail, Code de la famille, Code de protection juridique des mineurs, laws 61/AN/09 and 109/AN/10; read on 30 October 2026 |
-| [Presidency of the Republic](https://www.presidence.dj/page/constitution) | The Constitution, current text | no, one undated text | Read on 29 October 2026 |
-| [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/DJ) | Official texts republished as PDF | no, the text as adopted | Code civil (DJ026), Code de commerce (DJ023); read on 30 October 2026 |
-| [FAOLEX](https://faolex.fao.org/docs/pdf/dji244285.pdf) (FAO) | Text republished as PDF | no, one undated text | Code pénal; read on 30 October 2026 |
+| [Journal officiel de la République de Djibouti](https://www.journalofficiel.dj) (Secrétariat général du Gouvernement) | Journal officiel | non, chaque loi telle qu’adoptée | Code du travail, Code de la famille, Code de protection juridique des mineurs, lois 61/AN/09 et 109/AN/10 ; consulté le 30 octobre 2026 |
+| [Présidence de la République](https://www.presidence.dj/page/constitution) | La Constitution, texte actuel | non, un seul texte non daté | Consultée le 29 octobre 2026 |
+| [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/DJ) | Textes officiels republiés en PDF | non, le texte tel qu’adopté | Code civil (DJ026), Code de commerce (DJ023) ; consulté le 30 octobre 2026 |
+| [FAOLEX](https://faolex.fao.org/docs/pdf/dji244285.pdf) (FAO) | Texte republié en PDF | non, un seul texte non daté | Code pénal ; consulté le 30 octobre 2026 |
 
 ## Licence
 
-See [`LICENSE`](LICENSE). The Constitution is published by the Presidency for public use, and this repository makes no claim over it; the codes and the two laws are copied from the Journal officiel, WIPO Lex and FAOLEX, whose pages state no licence.
+Voir [`LICENSE`](LICENSE). La Constitution est publiée par la Présidence pour l’usage du public, et ce dépôt ne revendique aucun droit sur elle ; les codes et les deux lois sont copiés du Journal officiel, de WIPO Lex et de FAOLEX, dont les pages n’indiquent aucune licence.
 
-No AI model wrote, translated or corrected legal text; the scripts were written by AI models, and no model runs when the history is built (see [`REPRODUCE.md`](REPRODUCE.md)).
+Aucun modèle d’IA n’a écrit, traduit ou corrigé de texte juridique ; les scripts ont été écrits par des modèles d’IA, et aucun modèle n’est exécuté lors de la construction de l’historique (voir [`REPRODUCE.md`](REPRODUCE.md)).
 
-## More
+Ceci est une traduction de la version anglaise ([README.en.md](README.en.md)) ; en cas de divergence, la version anglaise fait foi.
 
-From [lexifina/global-law](https://github.com/lexifina/global-law):
+## En savoir plus
 
-- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md): every feature, and what every corpus must support (`git blame`, `law.py`, the MCP tools)
-- [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md): questions and answers · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md): proposing changes · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md): the MCP server · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md): how it was built · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
-- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md): how current each corpus is · [Monitoring](https://github.com/lexifina/global-law/tree/main/monitoring): whether updates are running · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md): how each official source is watched for changes
-- [performance/](https://github.com/lexifina/global-law/tree/main/performance): how fast the tools are, measured
-- [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations): charts and bridges across the world's law
-- [Vulnerabilities](https://github.com/lexifina/global-law/tree/main/vulnerabilities): mistakes in legislation as published
+Dans le dépôt [lexifina/global-law](https://github.com/lexifina/global-law) (pages en anglais) :
+
+- [FEATURES.md](https://github.com/lexifina/global-law/blob/main/FEATURES.md): toutes les fonctionnalités et ce que chaque corpus doit prendre en charge (`git blame`, `law.py`, outils MCP)
+- [FAQ.md](https://github.com/lexifina/global-law/blob/main/FAQ.md): questions et réponses · [CONTRIBUTING.md](https://github.com/lexifina/global-law/blob/main/CONTRIBUTING.md): proposer une modification · [MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md): serveur MCP · [REPRODUCE.md](https://github.com/lexifina/global-law/blob/main/REPRODUCE.md): comment il a été construit · [CHANGELOG.md](https://github.com/lexifina/global-law/blob/main/CHANGELOG.md)
+- [FRESHNESS.md](https://github.com/lexifina/global-law/blob/main/FRESHNESS.md): à quel point chaque corpus est à jour · [Surveillance](https://github.com/lexifina/global-law/tree/main/monitoring): si les mises à jour fonctionnent · [WATCHING.md](https://github.com/lexifina/global-law/blob/main/WATCHING.md): comment chaque source officielle est surveillée pour repérer les modifications
+- [performance/](https://github.com/lexifina/global-law/tree/main/performance): la rapidité des outils, mesurée
+- [visualisations/](https://github.com/lexifina/global-law/tree/main/visualisations): graphiques et liens à travers le droit du monde entier
+- [Vulnérabilités](https://github.com/lexifina/global-law/tree/main/vulnerabilities): erreurs dans les textes tels qu’ils ont été publiés
