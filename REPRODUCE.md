@@ -1,11 +1,14 @@
 # How this repository was made (Djibouti)
 
-This file is written by the build on 2026-10-30, the day the source data was retrieved.
+The first nine acts below were built on 2026-10-30 from one corpus file (`tools/build.py`). Since 2026-11-27 the Journal officiel texts (lois, ordonnances, décrets, arrêtés, décisions, délibérations, accords, rectificatifs), the Code de procédure pénale and the 1992 Constitution are appended by a second builder that reads the Journal officiel's public WordPress REST API (`/wp-json/wp/v2/texte-juridique` and `/wp-json/wp/v2/journal-officiel`, one request at a time), splits each text into one file per article and writes one commit per text dated by the rules in [`STRUCTURE.md`](STRUCTURE.md). At this update the history holds 39,393 commits and 24,476 Journal officiel texts. Individual measures, circulars, duplicates and pages with no text are left out. The first codes were moved to `codes/` and the two amending laws to `lois/` by one pure-rename commit; history is otherwise only appended to (see the `Kind: correction` commit of 2026-11-27).
 
 ## Sources
 
 | Source | Address | Retrieved | Licence |
 | --- | --- | --- | --- |
+| Journal officiel de la République de Djibouti: REST API (texte-juridique, journal-officiel) | <https://www.journalofficiel.dj/wp-json/wp/v2/> | 2026-11-27 | official texts of law; the site states "Tous droits réservés" and no licence for the texts |
+| MENA Rights: Code de procédure pénale (secondary copy, PDF with its maker's OCR text layer) | <http://menarights.org/wp-content/uploads/2026/05/DJI-Code-of-Criminal-Procedure.pdf> | 2026-11-27 | no licence stated |
+| MENA Rights: Constitution du 15 septembre 1992 (secondary copy) | <http://menarights.org/sites/default/files/2016-11/DJI_Constitution1992_FR.pdf> | 2026-11-27 | no licence stated |
 | Presidency of the Republic of Djibouti: La Constitution | <https://www.presidence.dj/page/constitution> | 2026-10-29 | Official publication of the Presidency of the Republic of Djibouti |
 | FAOLEX (FAO): Code pénal de Djibouti (loi n° 59/AN/94 du 5 janvier 1995) | <https://faolex.fao.org/docs/pdf/dji244285.pdf> | 2026-10-30 | text of law republished by FAOLEX; no licence stated on the PDF |
 | WIPO Lex: Code civil (adopté par la loi n° 003/AN/18/8ème L du 12 avril 2018) (DJ026) | <https://wipolex-res.wipo.int/edocs/lexdocs/laws/fr/dj/dj026fr.pdf> | 2026-10-30 | official text of law republished by WIPO Lex; no licence stated on the PDF |
@@ -23,14 +26,14 @@ Every word of law in this repository comes from these sources. Lexifina reads th
 | Act | Title | Versions | Span |
 | --- | --- | ---: | --- |
 | `constitution` | Constitution de la République de Djibouti | 1 | 2026-10-29 to 2026-10-29 |
-| `code-penal` | Code pénal (loi n° 59/AN/94 du 5 janvier 1995 portant Code pénal) | 1 | 1995-01-05 to 1995-01-05 |
-| `code-civil` | Code civil de la République de Djibouti (adopté par la loi n° 003/AN/18/8ème L du 12 avril 2018) | 1 | 2018-04-12 to 2018-04-12 |
-| `code-de-commerce` | Code de commerce de la République de Djibouti (loi n° 134/AN/11/6ème L du 1er août 2012) | 1 | 2012-08-01 to 2012-08-01 |
-| `code-du-travail` | Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du travail) | 1 | 2006-01-28 to 2006-01-28 |
-| `code-de-la-famille` | Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002 portant Code de la famille) | 1 | 2002-01-31 to 2002-01-31 |
-| `code-protection-mineurs` | Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015) | 1 | 2015-05-18 to 2015-05-18 |
-| `loi-61-an-09` | Loi n° 61/AN/09/6ème L portant modification partielle des dispositions de l’article 295 de la loi n° 133/AN/05/Sème L  du 28 janvier 2006 portant Code du Travail. | 1 | 2009-01-29 to 2009-01-29 |
-| `loi-109-an-10` | Loi n° 109/AN/10/6ème L  portant modification partielle des dispositions des articles 41,214 et 215 de la Loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail. | 1 | 2011-02-16 to 2011-02-16 |
+| `codes/code-penal` | Code pénal (loi n° 59/AN/94 du 5 janvier 1995 portant Code pénal) | 1 | 1995-01-05 to 1995-01-05 |
+| `codes/code-civil` | Code civil de la République de Djibouti (adopté par la loi n° 003/AN/18/8ème L du 12 avril 2018) | 1 | 2018-04-12 to 2018-04-12 |
+| `codes/code-de-commerce` | Code de commerce de la République de Djibouti (loi n° 134/AN/11/6ème L du 1er août 2012) | 1 | 2012-08-01 to 2012-08-01 |
+| `codes/code-du-travail` | Code du travail (loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du travail) | 1 | 2006-01-28 to 2006-01-28 |
+| `codes/code-de-la-famille` | Code de la famille (loi n° 152/AN/02/4ème L du 31 janvier 2002 portant Code de la famille) | 1 | 2002-01-31 to 2002-01-31 |
+| `codes/code-protection-mineurs` | Code de protection juridique des mineurs (loi n° 95/AN/15/7ème L du 18 mai 2015) | 1 | 2015-05-18 to 2015-05-18 |
+| `lois/2009/061-an-09-modification-partielle-article-295-code-du-travail` | Loi n° 61/AN/09/6ème L portant modification partielle des dispositions de l’article 295 de la loi n° 133/AN/05/Sème L  du 28 janvier 2006 portant Code du Travail. | 1 | 2009-01-29 to 2009-01-29 |
+| `lois/2010/109-an-10-modification-partielle-code-du-travail` | Loi n° 109/AN/10/6ème L  portant modification partielle des dispositions des articles 41,214 et 215 de la Loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail. | 1 | 2011-02-16 to 2011-02-16 |
 
 The build made 9 commits:
 

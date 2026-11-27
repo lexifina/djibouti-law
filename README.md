@@ -11,9 +11,9 @@ Le droit djiboutien sous forme d’historique git : un fichier par article, un c
 
 Fait partie de [lexifina/global-law](https://github.com/lexifina/global-law), un historique git unique pour le droit de chaque pays : ce dépôt contient le droit national djiboutien, que global-law lit dans `djibouti/national/acts/`.
 
-**Contenu actuel :** 9 textes, en une version chacun : la Constitution, telle que le site de la Présidence la présentait le 29 octobre 2026 ; six codes tels qu’adoptés ou promulgués, le Code civil (2018, 2 411 articles), le Code de commerce (2012, 2 152), le Code pénal (1995, 555), le Code du travail (2006, 299), le Code de la famille (2002, 222) et le Code de protection juridique des mineurs (2015, 90) ; et deux lois modifiant le Code du travail (2009 et 2011), conservées dans leurs propres fichiers et non appliquées à celui-ci. [`REPRODUCE.md`](REPRODUCE.md) énumère chaque texte avec sa version et indique comment les fichiers ont été produits ; le dossier de chaque texte contient un README qui en énumère les articles.
+**Contenu actuel :** la Constitution (texte actuel, et celle de 1992 telle que promulguée) ; sept codes (civil, commerce, pénal, procédure pénale, travail, famille, protection des mineurs) ; et 24 476 textes du Journal officiel tels que publiés : 2 522 lois, 211 ordonnances, 4 594 décrets, 15 230 arrêtés, 1 422 décisions et délibérations, et 497 autres textes (accords, rectificatifs, déclarations, résolutions). [`STRUCTURE.md`](STRUCTURE.md) décrit l’arborescence et les règles de date ; le dossier de chaque texte contient un README.
 
-Chaque texte est un dossier, avec un fichier par article : `code-du-travail/art-041.md` est l’article 41 du Code du travail. Les fichiers du Code de commerce portent ses numéros en L. (`code-de-commerce/art-l-0214-006.md` est l’art. L.214-6), le préambule et les titres de la Constitution ont leurs propres fichiers (`constitution/preamble.md`, `constitution/titre-01.md`), et chaque loi modificative forme un fichier (`loi-61-an-09/texte.md`).
+Chaque texte est un dossier, avec un fichier par article : `codes/code-du-travail/art-041.md` est l’article 41 du Code du travail ; les lois sont rangées par année (`lois/2024/130-an-24-organisation-et-fonctionnement-des-associations/`), de même que les ordonnances, décrets et arrêtés. Les fichiers du Code de commerce portent ses numéros en L. (`codes/code-de-commerce/art-l-0214-006.md` est l’art. L.214-6), le préambule et les titres de la Constitution ont leurs propres fichiers (`constitution/preamble.md`, `constitution/titre-01.md`), et une loi sans articles forme un seul fichier (`lois/2009/061-an-09-modification-partielle-article-295-code-du-travail/texte.md`).
 
 Le texte est en français, tel que l’impriment les sources ; aux termes de l’article 93 de la Constitution, le texte français fait foi. Le texte arabe ne fait pas partie de ce registre, pas plus qu’une traduction anglaise.
 
@@ -21,10 +21,10 @@ Le texte est en français, tel que l’impriment les sources ; aux termes de l�
 
 | Question | Commande |
 | --- | --- |
-| Toutes les modifications de l’article 1er du Code du travail | `git log -p --word-diff -- code-du-travail/art-001.md` |
-| Quelle loi a écrit chaque ligne de l’article 1er ? | `git blame code-du-travail/art-001.md` |
-| Toutes les versions du Code du travail, avec le jour d’entrée en vigueur de chacune | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- "code-du-travail/art-*"` |
-| L’article 1er tel qu’en vigueur le 1er janvier 2020 | `python tools/on.py 2020-01-01 code-du-travail art-001` |
+| Toutes les modifications de l’article 1er du Code du travail | `git log -p --word-diff -- codes/code-du-travail/art-001.md` |
+| Quelle loi a écrit chaque ligne de l’article 1er ? | `git blame codes/code-du-travail/art-001.md` |
+| Toutes les versions du Code du travail, avec le jour d’entrée en vigueur de chacune | `git log --format="%h %(trailers:key=In-force,valueonly,separator=) %an" -- "codes/code-du-travail/art-*"` |
+| L’article 1er tel qu’en vigueur le 1er janvier 2020 | `python tools/on.py 2020-01-01 codes/code-du-travail art-001` |
 
 **En dehors de git**, nous hébergeons aussi ce registre publiquement, gratuitement :
 
@@ -40,7 +40,7 @@ Les deux assistants lisent le registre au moyen du connecteur gratuit Global law
 ```sh
 git clone --depth 1 https://github.com/lexifina/global-law && cd global-law
 python3 tools/countries.py add djibouti/national/acts
-python3 tools/law.py show 2026-01-01 djibouti/national/acts/code-du-travail/art-001.md
+python3 tools/law.py show 2026-01-01 djibouti/national/acts/codes/code-du-travail/art-001.md
 ```
 
 Ouvert dans Claude Code, Cursor, VS Code ou Codex, le clone lance aussi un serveur MCP local doté des mêmes outils ([MCP.md](https://github.com/lexifina/global-law/blob/main/MCP.md)).
@@ -52,7 +52,9 @@ Chaque commit est daté à midi, heure de Djibouti (Africa/Djibouti), du jour o�
 - le Code du travail, le Code de la famille et le Code de protection juridique des mineurs, à la date que le Journal officiel attribue à la loi, celle de sa promulgation (une loi était alors exécutoire dès sa promulgation, en vertu de l’article 1er du Code civil alors en vigueur) ; la date de l’édition du Journal officiel figure dans le trailer `Published:` ;
 - le Code civil à sa promulgation (12 avril 2018), le Code de commerce à sa promulgation et à son entrée en vigueur (1er août 2012), et le Code pénal à la date de la loi par laquelle il est cité (5 janvier 1995) ;
 - les deux lois modificatives au jour qu’indique leur article 2 (le 29 janvier 2009, avant la signature de la loi 61/AN/09, et le 16 février 2011) ;
-- la Constitution, dont la page n’indique aucune date, au jour de sa lecture (29 octobre 2026).
+- la Constitution, dont la page n’indique aucune date, au jour de sa lecture (29 octobre 2026) ; celle de 1992 au jour de sa promulgation (15 septembre 1992) ;
+- le Code de procédure pénale, comme le Code pénal, à la date de la loi qui l’a fait (5 janvier 1995), la copie ne donnant pas de date de consolidation ;
+- les textes du Journal officiel au jour que le texte fixe, au jour de sa signature s’il entre en vigueur dès sa signature ou promulgation, sinon au jour du numéro du Journal officiel qui le publie (au lendemain pour les numéros postérieurs au Code civil de 2018, article 1er) ; le trailer `In-force-basis:` dit laquelle de ces règles s’applique (voir [`STRUCTURE.md`](STRUCTURE.md)).
 
 Le Code du travail, le Code de la famille, le Code de protection juridique des mineurs et les deux lois modificatives sont attribués à la loi qui les a adoptés (`Loi n° 133/AN/05/5ème L`). La Constitution et les Codes civil, de commerce et pénal sont les plus anciennes versions disponibles et sont attribués à l’éditeur, `Presidency of the Republic of Djibouti (presidence.dj)` (`Kind: publisher`), quel que soit le site dont provient le texte. Le committer est Lexifina.
 
@@ -67,9 +69,10 @@ Le Code du travail, le Code de la famille, le Code de protection juridique des m
 ## Ce qu’il ne montre pas
 
 - **Les modifications ultérieures.** Aucune n’est appliquée : ni les lois modifiant le Code du travail de 2009 à 2025 (deux d’entre elles figurent ici, dans leurs seuls fichiers propres), ni celles du Code civil (2019), du Code de commerce (2018 et 2019) ou du Code de la famille (2014, dont le texte publié est incomplet).
-- **La Constitution telle qu’adoptée en 1992**, ni ses révisions : la page de la Présidence donne le texte actuel sans date ni liste des révisions qu’il intègre.
+- **La Constitution consolidée après chaque révision** : la Constitution de 1992 (`constitutions-anterieures/1992/`) et le texte actuel (`constitution/`) y figurent, et les lois de révision de 2006, 2008, 2010 et 2025 dans `lois/`, mais les états intermédiaires ne sont pas reconstitués.
 - **La date de consolidation du Code pénal.** Le PDF de FAOLEX ne l’indique pas, de sorte que des modifications ultérieures peuvent y figurer ; son Livre V (contraventions) est omis.
-- **Les autres lois et décrets.** Le Journal officiel publie les textes tels qu’adoptés, sans texte consolidé.
+- **Des textes consolidés.** Le Journal officiel publie les textes tels qu’adoptés : chaque loi, ordonnance ou décret est ici tel que publié, sans que ses modifications ultérieures lui soient appliquées.
+- **Les mesures individuelles** (nominations, carrières, congés, décorations, attributions nominatives) et les circulaires, qui ne sont pas des règles de droit ; ni les textes dont la page n’a pas de texte (fichier joint seulement).
 - **Le texte arabe**, qui fait foi pour le Code de la famille (son article 220).
 - **Les intitulés des codes** (Livres, Titres, Chapitres, Sections), les tables des matières et l’index de la Constitution ; dans les Codes civil, de commerce et pénal, les sauts d’alinéa sont reconstitués à partir de la disposition des lignes du PDF.
 
@@ -79,12 +82,14 @@ Le Code du travail, le Code de la famille, le Code de protection juridique des m
 | --- | --- | --- | --- |
 | [Journal officiel de la République de Djibouti](https://www.journalofficiel.dj) (Secrétariat général du Gouvernement) | Journal officiel | non, chaque loi telle qu’adoptée | Code du travail, Code de la famille, Code de protection juridique des mineurs, lois 61/AN/09 et 109/AN/10 ; consulté le 30 octobre 2026 |
 | [Présidence de la République](https://www.presidence.dj/page/constitution) | La Constitution, texte actuel | non, un seul texte non daté | Consultée le 29 octobre 2026 |
+| [Journal officiel de la République de Djibouti](https://www.journalofficiel.dj), API REST du site | Journal officiel | non, chaque texte tel que publié | Lois, ordonnances, décrets, arrêtés, décisions, délibérations, accords et rectificatifs ; consulté le 27 novembre 2026 |
+| [MENA Rights](https://menarights.org/country/djibouti) | Copies secondaires en PDF | non | Code de procédure pénale (couche texte OCR de l’éditeur du PDF), Constitution de 1992 ; consulté le 27 novembre 2026 (`Source-status: secondary copy`) |
 | [WIPO Lex](https://www.wipo.int/wipolex/en/members/profile/DJ) | Textes officiels republiés en PDF | non, le texte tel qu’adopté | Code civil (DJ026), Code de commerce (DJ023) ; consulté le 30 octobre 2026 |
 | [FAOLEX](https://faolex.fao.org/docs/pdf/dji244285.pdf) (FAO) | Texte republié en PDF | non, un seul texte non daté | Code pénal ; consulté le 30 octobre 2026 |
 
 ## Licence
 
-Voir [`LICENSE`](LICENSE). La Constitution est publiée par la Présidence pour l’usage du public, et ce dépôt ne revendique aucun droit sur elle ; les codes et les deux lois sont copiés du Journal officiel, de WIPO Lex et de FAOLEX, dont les pages n’indiquent aucune licence.
+Voir [`LICENSE`](LICENSE). La Constitution est publiée par la Présidence pour l’usage du public, et ce dépôt ne revendique aucun droit sur elle ; les codes et les textes sont copiés du Journal officiel, de WIPO Lex, de FAOLEX et de MENA Rights, dont les pages n’indiquent aucune licence. Le travail de Lexifina (structure, métadonnées, scripts) est placé sous CC0.
 
 Aucun modèle d’IA n’a écrit, traduit ou corrigé de texte juridique ; les scripts ont été écrits par des modèles d’IA, et aucun modèle n’est exécuté lors de la construction de l’historique (voir [`REPRODUCE.md`](REPRODUCE.md)).
 
