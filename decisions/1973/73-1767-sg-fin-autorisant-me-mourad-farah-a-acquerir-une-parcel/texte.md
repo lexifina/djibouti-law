@@ -1,1 +1,0 @@
-Maître Mourad Farah est autorisé à acquérir une parcelle de terrain bâtie, sise à Djibouti, rue Pasteur, plateau du serpent et immatriculée au Livre foncier du Territoire sous le n° 329 au nom de la Société Crédit Foncier et Immobilier.

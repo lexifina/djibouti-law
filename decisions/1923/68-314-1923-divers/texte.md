@@ -1,2 +1,0 @@
-pour le mois de février 1923 le cours moyen du thaler en janvier 1923 ayant été de 7,95, le taux du thaler prévu par l’arrêté du 25 octobre 1920, est fixé à 5 fr. – 2.50 ( cours normal), soit 2,50.
-En ce qui concerne les indemnités acressoires correspondant à des dépenses effectuées sur place, fixées par arrété du 1er décembre 1920 (art 1, K a et bet art. 2) et l’arrêté du 7 septembre 1921, elles seront décomptées sur le taux de à francs.

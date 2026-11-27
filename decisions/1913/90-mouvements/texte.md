@@ -1,1 +1,0 @@
-il est donné main-levée à M. Nocéto, adjudicataire des travaux de construction des communs et dépendances de l’annexe du Gouvernement au plateau du Serpent, du cautionnement de garantie de 750 fr. qu’il a constitué le 9 mai 1912.

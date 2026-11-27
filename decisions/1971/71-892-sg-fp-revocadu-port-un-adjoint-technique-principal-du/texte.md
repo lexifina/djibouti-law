@@ -1,3 +1,0 @@
-M. Abdallah Adoua Hared, agent de contrôle de 3e classe, 3° échelon, du cadre territorial des Contributions, en service au Bureau des Statistiques et de Documentation (Ministère des Affaires économiques), déféré devant le Conseil de discipline pour absences irrégulières, répétées et injustifiées, est révoqué de son emploi sans suspension de ses droits à pension éte rayé du contrôle du personnel des cadres territoriaux.
-M. Abdallah Adoua Hared aura droit à une indemnité compensatrice de congé payé non pris égale à 73 jours de rémunération.
-La présente décision prendra effet pour compter du lendemain de sa notification à l’intéressé.

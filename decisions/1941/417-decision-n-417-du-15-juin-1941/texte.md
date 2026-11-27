@@ -1,2 +1,0 @@
-Le sergent -chef Derouard (Lucien) et le sergent Courte (Aimé), de la section nomade du Henlé, sont replacés dans les cadres et mis à la disposition du général commandant supérieur pour compter du 16 juin 1941.
-Le sergent-chef Millol. du B. T. S. 4, et le sergent Champémont, du B. T. S. de la Côte francaise des Somalis, sont placé dans la position hors cadres, pour compter du 16 juin 1941, et mis à la disposition du capitaine inspecteur des pelotons méharistes, en remplacement du sergent-chef Derouard et du sergent Courte, remis dans les cadres.

@@ -1,3 +1,0 @@
-Est constaté, pour compter du 1 janvier 1967, le passage au 2° échelon dans le grade des agents techniques de 1° classe du cadre territorial des Travaux publics et du Port, de M. Djama Guedi Afdeb. agent technique de 1’° classe, 1e échelon, en service au Port de Commerce de Djibouti sanction d’abaissement d’un échelon est infligé à M. Djama Guedi Afdeb, pour absence injustifiée, obstacle à la liberté du travail et agitation du personnel dans un but subversif.
-M. Djama Guedi Afdeb, agent technique de 1’° classe, 2° échelon du cadre territorial des Travaux publics et du Port, sera rangé au grade d’agent technique de 1° classe, ler échelon.
-La présente décision prendra effet pour compter de la date de signature

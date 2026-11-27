@@ -1,1 +1,0 @@
-M. Roger Gilles; sous brigadier de police est pour compter du 17 juin 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, et affecté à la Portion centrale de la Garde Territoriale pour -assurer le commandement de la section d’intervention.

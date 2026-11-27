@@ -1,3 +1,0 @@
-Le Lieutenant d’Infanterie de Marine Louisin (Michel), désigné par le Colonel Commandant Supérieur des Forces Armées de la Côte Francaise des Somalis pour prendre le Commandement de la Section de Pionniers de Holl-Hoil, est nommé cumulativement avec les fonctions précitées, Chef du Poste Administratif de Holl-Holl, pour compter du ler juin 1960.
-M. Louisin (Michel), en sa qualité de Chef de Poste de Holl-Holl, bénéficiera de l’indemnité de frais de représentation au taux annuel de 36.000 francs Djibouti prévue par l’arrêté n° 1175 du 3 septembre 1955.
-Les dépenses prévues à l’article 2 de la présente décision sont imputables sur le budget local.

@@ -1,1 +1,0 @@
-une gratification de 400 francs, une fois payée, à été accordée à Mme Nicolas Libéropoulo, dame employée au 2° bureau du secrétariat général (finances) pour services rendus en dehors de ses occupations ordinaires.

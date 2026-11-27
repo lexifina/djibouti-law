@@ -1,1 +1,0 @@
-une indemnité de fonctions de 1.800 francs par an est accordée à M. Lefrançois, commis principal de l’inscription maritime, chef du service de l’inscription, maritime, pour compter de la date de la prise de service de l’intéressé.

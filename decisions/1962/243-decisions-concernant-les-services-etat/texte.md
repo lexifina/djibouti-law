@@ -1,1 +1,0 @@
-MM. Abdourhaman Saleh Koubati et Youssouf Ahmed, moniteurs admis aux épreuves écrites, orales et pratiques de l’examen d’intégration dans le Corps Territorial de l’Enseignement Public, sont titularisés instituteurs de 2e classe, 1e échelon pour compter du 1er janvier 1962 et rangés à l’indice 490.

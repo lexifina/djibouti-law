@@ -1,1 +1,0 @@
-L’adjudant-chef Huart, sous-officier de la Milice, est nommé cumulativement avec ses fonctions agent spécial à titre intérimaire, du Cercle de Dikhil, pendant l’absence de l’adjudant-chef Castor, autorisé à se rendre au Harar du 4 au 25 juin 1966.

@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 460 du ler avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Cheïk Mohamed Omar Bazara la concession provisoire d’une bande de terrain d’une superficie de quatre-vingt quatorze mètres carrés sise à Djibouti, au prix de deux mille cinq cent francs le mètre carré.

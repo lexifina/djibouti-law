@@ -1,1 +1,0 @@
-M. Vogelbach (Pierre), pilote du port Djibouti, service armé, classe de mobilisation 1921, est classé dans l’affectation spéciale, dans son emploi netnel, pour une durée de trois mois, à compter de la mobilisation.

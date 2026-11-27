@@ -1,1 +1,0 @@
-M. Gauthier (Jacques) est engagé en qualité de compositeur-typographe auxiliaire au salaire mensuel de vingt mille francs (20.000 fr.) pour compter du 1er février 1951. M. Gauthier est mis à la disposition du Directeur de l’Imprimerie administrative.

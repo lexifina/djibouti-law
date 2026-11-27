@@ -1,2 +1,0 @@
-Une subvention de 4.950 francs est attribuée au Comité des fêtes de Djibouti pour le couvrir des dépenses effectuées au titre des réjouissances publiques organisées par ses soins à la demande du gouvernement local, pour fêter, avec la signature de l’armistice, la victoire de la France et des nations alliées.
-Les dépenses ordonnancées au nom du Président du Comité des fêtes, seront imputées au chapitre 15, « dépenses imprévues », Exercice en cours.

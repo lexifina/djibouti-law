@@ -1,1 +1,0 @@
-Le sergent Boulnois (Marcel), n° matricule 3310, à été placé dans la position hors cadres et àffecté la milice indigène de la Cote Française des Somalis pour compter du 25 janvier 1946, date de son débarquement à la colonie.

@@ -1,1 +1,0 @@
-une permission de deux mois, dont quinze jours avec solde entière, quinze jeurs avec demi-solde et un mois sans solde, valable du 1er décembre 1930 au 31 janvier 1931 inclus, est accordée au garde méhariste de 1er classe Robleh Ali, n° matricule 36.

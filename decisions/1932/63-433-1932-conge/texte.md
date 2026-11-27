@@ -1,1 +1,0 @@
-29 décembre 1982, un congé de repos de un mois, à solde entière dégagée de tous accessoires, est accordé à l’infirmier de 2° classe Moussa Eusman, en sevice à l’infirmerie indigène, pour compter du 1° » janvier 1933.

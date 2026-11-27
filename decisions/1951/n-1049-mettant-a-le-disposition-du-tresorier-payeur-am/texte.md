@@ -1,1 +1,0 @@
-M. Schmidt (jean), commis de 4” classe des Trésoreries coloniales. de retour de congé, est mis à la disposition du Trésorier-Payeur pour compter du 6 novembre 1951, date de son débarquement sur le Territoire.

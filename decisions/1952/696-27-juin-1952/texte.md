@@ -1,1 +1,0 @@
-Mme.Prélat (Odette) est engagée en qualité de dame-employée auxiliaire 3° catégorie en remplacement numérique de Mme.Veress et mise à la disposiiton du Directeur des Travaux publics (Direction du Port) pour compter du 1er juillet 1952.

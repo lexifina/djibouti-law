@@ -1,1 +1,0 @@
-Le Sergent-Chef MARCEROU Robert du Bataillon de Tirailleurs Sénégalais n. 2 est placé dans la position hors cadres pour compter du 16 janvier 1943. Ce Sous-Officier sera détaché au Cabinet Militaire en remplacement de l’Adjudant GALLION.

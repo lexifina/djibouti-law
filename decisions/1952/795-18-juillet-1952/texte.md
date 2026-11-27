@@ -1,1 +1,0 @@
-M. Gadenne, commis auxiliaire 3e catégorie en service à la Trésorerie, est. autorisé à cesser son service le 25 juillet 1952. M. Martine esi engagé en qualité de commis auxiliaire, en remplacemen tnumérique de M. Gadenne, au salaire mensuel de vingt mille francs, exclusif de toute indemnité, pour compter du 20 juillet 1952.

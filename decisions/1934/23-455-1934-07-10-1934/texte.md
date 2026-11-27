@@ -1,1 +1,0 @@
-M. Ravailler. procureur de la République, chef du service judiciaire de la Côte française des Somalis, est chargé de l’expédition des affaires courantes et urgentes de la colonie, pour compter du 9 octobre 1934. date du départ du Gouverneur en tournée, et pendant la durée de son absence.

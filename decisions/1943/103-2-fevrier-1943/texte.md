@@ -1,1 +1,0 @@
-Le démission de son emploi offerte par Mr. KARCHER, Adjoint technique de 2ème classe du Ladre Local des Travaux-Publics de la Côte Française des Somalis est accep tée pour compter du 30 Décembre 1942 date de son intégration dans le cadre de Madagascar.

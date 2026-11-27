@@ -1,1 +1,0 @@
-Pour compter du 1e octobre 1962, Mme Muzotte Christiane, secrétaire dactylographe au Service de l’Enseignement, est nommé billeteur pour le paiement de la solde et allocations accessoires du personnel autochtone du Service de l’Enseignement, en remplacement de M. Saillour.

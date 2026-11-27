@@ -1,1 +1,0 @@
-M. Jean Canongse, contrôleur des brigades des douanes, 7° échelon (indice nouveau 266 majoré), est mis à la disposition du Ministre des Finances et du Plan, pour compter du 30 avril 1969, date de son arrivée au Territoire, pour servir au Service des Contributions.

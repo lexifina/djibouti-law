@@ -1,1 +1,0 @@
-une permission d’absence de rente jours à solde entière de présence el à compter du 21 juillet 1927 est accordée à Mile Soulier, secrélaire-archiviste au cabinet du Gouverneur, pour en jouir à Diré-Daoua.

@@ -1,1 +1,0 @@
-les agents auxiliaires dont les noms Suivent sont licenciés : araké, Bé lère, Gabré Medine, Marchat, Saleh Beni, Aidera Abdallah, . Saïd Salem, E uhed ben Ahmed, Salem Mohamed, Hahouad, Abdi, , Mohamed Oour, Ouorfuta Noueraoui, Farè-œue, Ali Mohamed, Saïd Sen, Djama Hassen, Ali Ahmed, Ahmed Ouais, Yaya Mohamed, Djaher Attich, Neuman Ali, Self Saïd, Agamso, Bellal.

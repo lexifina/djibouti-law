@@ -1,1 +1,0 @@
-M. Frantz (Georges-Félix), garde principal après cinq ans de la garde indigène de la Côte française des Somalis, précédemment en service au cabinet du gouverneur, est mis à la disposition du commandant de cercle de Djibouti en qualité de secrétaire permanent de l’office du travail.

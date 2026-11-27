@@ -1,3 +1,0 @@
-Lacampagne (André-Paul), chef de Division de la France d’outre-mer, 3° échelon, en service au Cabinet du Gouverneur, est, pour compter du 10 octobre 1966, désigné pour assurer l’intérim de M. Malrieu (Jean), conseiller de classe exceptionnelle au Travail et à la Législation sociale, inspecteur du Travail et des Lois sociales de la Côte Française des Somalis, formulaire d’un congé-annuel.
-M. Lacampagne (André-Paul) bénéficiera pendant la durée de son intérim des prestations en nature prévues par l’arrêté gubernational n° 596 du 26 avril 1957.
-M. Lacampagne prêtera, par écrit, devant le Tribunal supérieur d’appel de Djibouti, le serment prévu par l’article 151 du Code du Travail oùtre-mer Code du Travail outre-mer.

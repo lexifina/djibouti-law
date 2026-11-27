@@ -1,1 +1,0 @@
-M. Rognon, Commis des Services Civils est chargé de la traduction des documents écrits en anglais et en italien. Il aura droit à ce titre à l’indemnité forfaitaire de 600 franes par an prévue au budget, :

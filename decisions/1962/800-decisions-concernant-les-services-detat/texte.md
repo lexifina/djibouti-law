@@ -1,1 +1,0 @@
-M. Hétier Güälbert, ingénieur de classe exceptionnelle du corps autonome des Travaux Météorologiques est désigné pour assurer l’intérim des fonctions de Chef du Service Météorologique de la Côte Française des Somalis pendant l’absence de M. Bourhis Eugène, titulaire d’un congé administratif.

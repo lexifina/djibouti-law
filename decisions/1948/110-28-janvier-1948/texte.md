@@ -1,2 +1,0 @@
-L’inspecteur central du cadre métropolitain des douanes Sauteron (Marcel), rapatrié sanitaire grave, se rendra en France par première occasion aérienne, en vue d’être soumis à l’hopital du Val de-Grâce, à Paris, a un examen médical.
-Les solde et accessoires de solde de M. Sauteron lui seront mandatés par le service des finances de la Côte française des Somalis jusqu’à décision le plaçant dans a position de fonctionnaire en congé.

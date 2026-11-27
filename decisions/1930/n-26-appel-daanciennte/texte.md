@@ -1,1 +1,0 @@
-il est attribué à M. Berger (Henri-Félx), adjoint des services civils avant dix-huit mois, du 12 août 1929, un rappel d’ancienneté de 7 an 5 mois 4 jours pour service militaire obligatoire, en application de l’article 7 de la loi du 1° avril 1923 sur le recrutement .

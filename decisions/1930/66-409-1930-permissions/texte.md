@@ -1,1 +1,0 @@
-une permission de trente jours, dont quinze jours avec solde entière et quinze jours avec demi-solde, valable du 1er au 30 décembre 1930 inclus, est accordée au garde Aiba Ali, n° matricule 20, et au garde Guellé Mead, n° matricule 32.

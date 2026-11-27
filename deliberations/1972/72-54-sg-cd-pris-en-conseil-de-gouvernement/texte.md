@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 235/7° L du 31 décembre 1971 de la Commission permanente de la Chambre des Députés du Territoire Français des Afars et des Issas approuvant le rapport d’exploitation et les comptes d’ «Electricité de Djibouti» pour l’année 1970.

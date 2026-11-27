@@ -1,1 +1,0 @@
-Le Sergent-Chef d’Infanterie de Marine Sechet Georges, désigné pour servir «hors-cadres » en Côte Française des Somalis, arrivé à Djibouti le 29 décembre 1960, est affecté à la Milice de la Côte Française des Somalis, en qualité d’Adjoint au gérant du Dépôt Mülice de Djibouti, pour compter de la date de son débarquement,

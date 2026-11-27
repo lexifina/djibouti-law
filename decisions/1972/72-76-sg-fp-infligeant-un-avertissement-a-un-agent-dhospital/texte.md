@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Gahasse Dini Gahasse, agent d’hospitalisation de 1° classe, 2° échelon, du corps territorial de la Santé publique en service à lhôpital Peltier (Ministère de là Santé publique et des Affaires sociales) pour absence non motivée l’après-midi du 3 janvier 1972.

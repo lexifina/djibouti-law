@@ -1,1 +1,0 @@
-une rétribution de 1.200 francs est allouée à Mlle Soulier, secrétaire, correspendante de l’Exposition coloniale, pour avoir, eu dehors de son travail ordinaire, assuré la préparation de l’Exposition coloniale et de la rétrospective, rassemblé les collections et la documentation.

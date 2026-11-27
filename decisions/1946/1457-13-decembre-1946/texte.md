@@ -1,1 +1,0 @@
-Pour compter du 1er mars 1946, le salaire annuel de M. Léon Kalfayan, commis auxi liaire aux finances, est porté de quatre-vingt mille quatre cents francs (80.400 francs) à quatre-vingt-deux mille quatre cents francs (82.400 francs).

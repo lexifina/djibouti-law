@@ -1,1 +1,0 @@
-une somme de 500 francs destinée à payer les travaux de terrassements entrepris au village indigène est mise à la disposition du Commissaire de police qui devra en justifier dans les formes ordinaires.

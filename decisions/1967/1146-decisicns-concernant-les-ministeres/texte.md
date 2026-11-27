@@ -1,3 +1,0 @@
-Est acceptée, pour compter du 27 mai 1967, la demande de démission présentée par l’agent journalier Saleh Ali Roubah, précédemment en service en qualité de vilangeur (catégorieO.S.1, ler échelon, indice 150), à l’Assistance médicale.
-L’intéressé aui comptait à-cette date deux mois et vinot-six jours de service, ne pourra prétendre au bénéfice de lindemnité de licenciement prévu en application des dispositions de l’article 16 de la Convention collective.
-Par ailleurs, M. Saleh Ali Roubah percevra une indemnité égale à cinq jours de salaire au titre d’indemnité compensatrice de congé payé non pris.

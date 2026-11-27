@@ -1,1 +1,0 @@
-M. Gros Henri), directeur de ln Banque d’émission, service armé, classe de mobilisation 1919, lieutenant de réserve d’artillerie, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

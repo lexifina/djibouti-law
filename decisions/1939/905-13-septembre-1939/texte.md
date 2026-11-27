@@ -1,1 +1,0 @@
-M. Giely (Pierre), agent général adjoint de la C, M, A. O. service auxiliaire, classe de mobilisation 1921, classé dans l’affectation spéciale par décision n° 459, en date du 4 mai 1937, est ravé de cette position, pour compter de la date de la présente décision,

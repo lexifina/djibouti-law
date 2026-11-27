@@ -1,1 +1,0 @@
-et pour compter du 16 du dit, M. Delporte (Georges, François, Léon, Commis de troisième classe du cadre général des travaux publics des colonies, est nommé adjoint de première classe des Affaires indigènes.

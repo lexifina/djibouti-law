@@ -1,1 +1,0 @@
-M. Fouache d’Alloy (Jean-Gérard-Marie), commis des Messageries maritimes, service armé, classe de mobilisation 1825, est placé dans l’affectation spéciale dans son emploi actuel pour une durée d’un mois à compter de la date de la présente décision.

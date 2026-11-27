@@ -1,1 +1,0 @@
-M. Rambaud (Ignace), surveillant à la Compagnie du chemin de fer franco-éthiopien, classe de mobilantion 1 service arme, est placé dans l’affectation spéciale dans son emploi actuel, pour une durée de trois mois, pour compter de la date de la présonte décision.

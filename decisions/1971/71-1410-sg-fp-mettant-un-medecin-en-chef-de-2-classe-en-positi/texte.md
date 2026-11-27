@@ -1,1 +1,0 @@
-Le médecin en chef de 2e classe, Charles Ardouin, en position hors cadres», est, pour compter du 21 septembre 1971,date de son retour dans le Territoire, mis à la disposition du Ministre de la.Santé publique et des Affaires sociales apour servir en qualité de médecin-chef des services médicaux de l’hôpital Peltier.

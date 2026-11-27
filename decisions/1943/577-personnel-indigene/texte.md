@@ -1,1 +1,0 @@
-Le nommé ABDOU SAID est engagé à l’essai en qualité de planton auxiliaire à la Trésorerie pour compter du 1er Juillet 1943 et à 1a solde journalière de 15 francs en remplacement de HASSEIN AHMED licencié à la même date pour abandon de son service.

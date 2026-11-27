@@ -1,1 +1,0 @@
-une Commission composé de MM . de Nas de Tourris, Admi nistrateur des Colonies, Président : Corson, médecin aide-major des Troupes Coloniales, Guyot, Sous-Lieutenant de territoriale a été désignée à l’effet d’examiner et réformer, s’il ya lieu, un mulet et un cheval affectés au service de la Brigade Indigéne.

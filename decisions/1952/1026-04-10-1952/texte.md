@@ -1,1 +1,0 @@
-Mme Poitevineau (Marie-Thérèse), précédemment en service au Cercle, de Djibouti en qualité de dame-employée auxiliaire 2e catégorie, reprend ses fonctions pour compter du 2 octobre 1952 et est affectée provisoirement au Service de l’Information.

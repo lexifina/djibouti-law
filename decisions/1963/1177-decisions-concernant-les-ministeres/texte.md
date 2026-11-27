@@ -1,3 +1,0 @@
-Les guides de 1er classe Ali Afou, et de 2° classe Houmed Ismaël, Hamed Abdallah, Mahamed Houmed, Otman Abdallah,Mohamed Hassan, Mahamed Arbahim, Kamil Hamed, de la 2° Compagnie de Milice à Randa, sont licenciés pour cause de suppression d’emploi, et mis à la retraite à compter du 1e septembre 1963.
-Les intéressés qui totalisent plus de 20 et 15 ans de services effectifs dans la Milice sont admis à faire valoir leurs droits à l’allocation viagère annuelle en exécution de l’article 7 de l’arrêté 1252 du 16 novembre 1961 et de l’article 3 de l’arrêté n° 26/SPCG du 12 mars 1963 ; ils seront libérés et rayés des contrôles de la Milice pour compter du ler septembre 1963 ;
-ils recevront le certificat de libération.

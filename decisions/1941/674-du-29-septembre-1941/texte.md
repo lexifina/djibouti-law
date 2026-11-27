@@ -1,1 +1,0 @@
-M. François, instituteur, et M. Calmette, chef du Service météorologique, lieutenants de réserve, sont mis à la disposition du géné ral commandant supérieur des troupes, pour compter du 1er octobre 1941.

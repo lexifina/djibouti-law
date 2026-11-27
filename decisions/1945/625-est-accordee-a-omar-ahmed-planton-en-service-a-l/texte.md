@@ -1,1 +1,0 @@
-une permission de quinze jours à solde entière (non compris les délais de route) pour en jouir en Ethiopie (Diré-Daoua) à compter du 15 août 1945 est accordée à Omar Ahmed, planton en service à l’Inspection des Affaires administratives.

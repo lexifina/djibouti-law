@@ -1,2 +1,0 @@
-En application des dispositions de l’article 12, alinéa 2, de l’arrêté me 61/19/SPCG du 24 février 1961, est autorisé la prise en chargé des’frais de prothèse pour M. Mahmoud Samrie, expéditionnaire de l’Administration locale, victime d’un accident survenu dans Pexercice de ses fonctions le 7 décembre 1965.
-Cette dépense est imputable au budget du Service local pour l’exercice 1966, chapitre 9, article. 6, paragraplie 19.

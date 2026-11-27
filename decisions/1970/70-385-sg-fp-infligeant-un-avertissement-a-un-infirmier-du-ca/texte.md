@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Hyd Ismaïl Douale, infirmier de 3° classe, 1er échelon, du Cadre territorial du Service de Santé, en service au Dispensaire du Port de Commerce de Djibouti (Ministère des Travaux publics et du Port) pour absence non motivée dans l’après-midi du 6 mars 1970.

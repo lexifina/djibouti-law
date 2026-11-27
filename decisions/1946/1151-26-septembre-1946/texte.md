@@ -1,1 +1,0 @@
-Mm Mazarguil est engagée pour compter du 23 septembre 1916 en qualité de dame employée sténo-dactylographe, au traitement de base de 5.000 francs par mois majoré de l’indemnité de zone et affectée au bureau des finances.

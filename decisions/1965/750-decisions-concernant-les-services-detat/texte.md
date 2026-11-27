@@ -1,1 +1,0 @@
-Le milicien de 2° classe Ibrahim Waiss Boeuh, mle 2587, de la 1° compagnie de Milice à Dikhil, reconnu inapte à servir dans la Milice de la C.F.S. par le Conseil de Santé, est licencié pour raison de sante à compter du 1° maï 1965.

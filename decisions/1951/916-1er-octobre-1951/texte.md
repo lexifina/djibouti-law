@@ -1,1 +1,0 @@
-Un congé de convalescencede trois mois à passer à Argueisa (Somaliland) est ac-vi cordé au garde-cercle de 1er classe Kaman Ahmed, Mle 156, de la Compagnie de gardes-cercle de Djibouti. Pendant son congé, le garder-cercle Kaman Ahmed percevra sa solde dégagée de tous accessoires.

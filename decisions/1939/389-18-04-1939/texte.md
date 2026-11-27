@@ -1,1 +1,0 @@
-un congé de convalescence de trois mois, à passe en France, avec bénéfice d’une cure à Vichy, est accordé à M. Ravailler (Pierre), procurent de la République, chef dun service judiciaire de la Côte francaise des Somalis.

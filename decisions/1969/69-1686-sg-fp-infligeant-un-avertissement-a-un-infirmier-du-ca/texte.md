@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Mohamed Daoud, infirmier de 3e classe, 1er échelon, du cadre territorial du Service de Santé en service à l’hôpital Peltier pour n’avoir pas assuré sa garde de nuit au Pavillon Guïbert-Germain (rez-de-chaussée) du 2 au 3 septembre 1969.

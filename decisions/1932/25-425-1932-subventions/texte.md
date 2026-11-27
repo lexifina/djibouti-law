@@ -1,1 +1,0 @@
-Les nommés : Roblé Boulalé Farah Djama Youssouf Hassen et Fouré Cherona Ammer, élèves moniteurs à l’école indigène de Djibouti. recevront chacun. à compter du 1er allocation mensuelle de 50 francs à titre de hourse. périodes des vacances comprises,

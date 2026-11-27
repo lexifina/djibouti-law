@@ -1,1 +1,0 @@
-Il est accordé à l’écrivain auxiliaire Rahim Amine, en service dans les bureaux du secrétariat général, une indemnité mensuelle de 125 francs, pour travaux supplémentaires d’ordonnancement des dépenses du commerce, pour compter du 1er juillet 1930.

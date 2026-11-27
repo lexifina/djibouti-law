@@ -1,1 +1,0 @@
-Le Sergent-Chef d’Infanterie de Marine Nativel Michel, désigné pour servir hors-cadres » en Côte Française des Somalis, arrivé à Djibouti le 29 décembre 1960, est affecté à la Milice de la Côte Française des Somalis, pour compter de la date de son débarquement et mis à la disposition du Commandant de la 2° Compagnie de Milice à Tadjoura en qualité de chef de poste de Moulhoulé.

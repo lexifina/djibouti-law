@@ -1,2 +1,0 @@
-Une permission d’absence de trois mois à passer en France est accordée à M. Lombardo Raymond», ingénieur adjoint météorologiste, chef du Service météorologiste de la Côte francaise des Somalis.
-L’intéressé, qui rentrera en France par voie maritime (via l’Egypte», pourra, sur sa demande, percevoir avant son départ, une avance de solde dans les conditions précisées par l’article 11 du décret du 1er août 1944.

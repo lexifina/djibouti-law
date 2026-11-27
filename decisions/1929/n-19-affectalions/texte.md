@@ -1,1 +1,0 @@
-M. Lucciardi (Gabriel) adjoint des services civils avant 18 mois, de retour de congé, débarqué à Djibouti le 2 décembre 1929, du paquebot Général-Duchesne, venant de France, est nommé chef du poste administatif de Padjeurah, en rempraccment de M. Collat, sous-chef de bureau des secrétariats généraux, qui recoit une autre effectation.

@@ -1,1 +1,0 @@
-Le sergent-chef Petit (Hilaire), en service hors cadres à la milice indigène, est mis à la disposition du commandant du cercle des Adaëls et nommé chef. de la subdivision d’Obock et président du tribunal indigène de cette subdivision en remplacement de l’adjudant-chef Dersoir, à compter du 1er mai 1938.

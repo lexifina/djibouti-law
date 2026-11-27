@@ -1,1 +1,0 @@
-Un passage par voie maritime de Djibouti à Madagascar a été accordé, en 3e classe, M. Razafimamonjy (Grégoire), ouvrier de 3e classe, du cadre spécial des chemins de fer. remis à la disposition du Gouvernement général de Madagascar, Les frais afférents à son rapatriement seront supportés par le budget local de la Côte française des Somalis.

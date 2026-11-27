@@ -1,4 +1,0 @@
-Les contrats provisoires de deux ans souscrits à compter du 1er janvier 1961 et du 12 avril 1961 par les Miliciens de 2e classe :
-Galeb Ali, mle 2513, Arbahim Meko, mle 2524 Mohamed Ali, mle 2526, sont résiliés pour inaptitude à l’emploi à compter du 1er juillet 1961 et du 9 juillet 1961.
-Les droits à solde et vivres seront liquidés par les soins du Gérant du Dépôt de la Milice à Djibouti jusqu’au 8 juillet 1961 inclus pour le Milicien de 2e classe Galeb Ali, mle 2513, il sera rayé des contrôles de la Milice le 9 juillet 1961.
-Les droits à solde et vivres seront liquidés par les soins de l’adjoint au Commandant de Cercle, billeteur de la 3e Compagnie de Milice à Ali Sabieh pour les Miliciens de 2e classe Arbahim Meko, mle 2524 et Mohamed Ali, mle 2526, jusqu’au dernier juin 1961 inclus, ils seront rayés des contrôles de la Milice le 1er juillet 1961.

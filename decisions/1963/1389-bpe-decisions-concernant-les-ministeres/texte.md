@@ -1,1 +1,0 @@
-M. Sagnes, Francis, ingénieur des Travaux publics de l’Etat (cadre métropolitain) de 4e échelon (indice net 355) est, pour compter du 24 octobre 1963, date de son arrivée au Territoire, mis à la disposition du Ministre de la Production, de l’Agriculture et de l’Elevage pour occuper les fonctions de chef du Service de l’Aydraulique rurale.

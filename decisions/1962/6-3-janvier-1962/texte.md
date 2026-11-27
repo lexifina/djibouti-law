@@ -1,1 +1,0 @@
-M. Hassan Djama Boudine, apprenti typographe auxiliaire (échelle V, 1er échelon, indice 390) à l’Imprimerie Administrative, est mis à la disposition du Ministre des Travaux Publics et du Port pour servir en qualité d’ouvrier auxiliaire.

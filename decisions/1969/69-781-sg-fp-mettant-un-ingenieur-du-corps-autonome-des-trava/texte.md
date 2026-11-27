@@ -1,2 +1,0 @@
-M. Gabriel Fremaux, ingénieur de 1l’° classe du Corps autonome des Travaux publics (indice brut 585), est mis à la disposition du Ministre des Travaux publics et du Port, pour compter du 6 mai 1969, date de son arrivée au Territoire pour servir aux Travaux puüblics.
-Pour compter de la date du départ de M. Py, titulaire d’un congé administratif, M. Gabriel Fremaux est nommé chef de la subdivision administrative et comptable du Service des Travaux publics.

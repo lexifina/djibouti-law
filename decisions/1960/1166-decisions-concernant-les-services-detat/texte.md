@@ -1,1 +1,0 @@
-Une indemnité forfaitaire mensuelle pour travaux supplémentaires de cinq mille francs Djibouti est allouée pour compter du 25 mai 1960 au 6 septembre 1960 à M. Rajhoarson J. William, Secrétaire auxiliaire faisant fonction de CGreffiaer d’Instruction

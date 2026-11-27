@@ -1,2 +1,0 @@
-Un congé administratif de six mois à passer à ln Rénnion est accordé à M. Merlo (Joseph-Léon Alfred-Henri ) sous-chef de bureau de 2é classe des Scerétarints généraux des colonies en service à ln Côte francaise des Somalis.
-Ce fonectionnaire, elassé à la 2° catégorie voyage seul, prendra pussage en 1er classe sur le naquebot Rernardin-de-Saint-Pierre , de Commpagnie des Messageries Maritimes, à Djibouti vers le 3 septembre 1939 destination de la réunion.

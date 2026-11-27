@@ -1,2 +1,0 @@
-une gratification de 200 francs est accordée au nommé Moussa Amin, pour avoir prêté à la police un concours des plus courageux et des plus efficaces à l’occasion de la recherche et de l’arrestation d’un criminel armé et réputé dangereux.
-Une gratification de 100 francs chacun est accordée aux nommés : Abdi Mohamed, servent, matricule 3, et Yaci Egal. askari de 1re classe, matricule n° 12, pour avoir participé aux recherches faites pour découvrir un criminel armé, réputé très dangereux et pour avoir fait preuve, en la circonstance, d’initiative et de courage.

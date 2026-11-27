@@ -1,1 +1,0 @@
-La décision n° 1074 du 3 septembre 1949 est et demeure rapportée. M. Kleinpeter (Lucien), sous-chef de bureau de 1er classe d’administration générale des colonies, est mis. pour compter de ce jour, à la disposition du directeur du service de santé.

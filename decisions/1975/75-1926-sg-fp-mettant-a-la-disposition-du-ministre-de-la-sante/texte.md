@@ -1,1 +1,0 @@
-M. Jean Chamousset, médecin principal, est pour compter du 5 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé publique, pour servir en qualité de médecin-chef du cercle de Dikhil, en remplacement du médecin des Armés Lamarque Didier, rapatriable.

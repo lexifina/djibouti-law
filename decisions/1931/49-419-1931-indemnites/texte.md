@@ -1,1 +1,0 @@
-une indemnité de 75 francs pur mois est allouée aux sous-officiers infirmiers bert et Roby, en service à l’hôpital de Djibouti, en raison de leur service permanent les dimanches et jours de fête, et du travail exécuté journellement, en dehors des heures de présence, pour assurer le fonctionnement des divers services de l’hôpital, pour compter du 1ernovembre 1931.

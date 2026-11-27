@@ -1,1 +1,0 @@
-Un congé à solde entière de trois mois est accordé pour compter du. 10 octobre 1951 à M. Mohamed Bourhan, agent du cadre local de la Sûreté, 8° échelon, qui n’a bénéficié d’aucun congé depuis son engagement, le 1er janvier 1946.

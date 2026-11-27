@@ -1,3 +1,0 @@
-Un congé administratif de six (6) mois, pour en jouir à Aix-en-Provence, est accordé à M. Robin (Guillaume), ingénieur hors classe du cadre supérieur de la Côte Française des Somalis, qui aura accompli le 6 novembre prochain un séjour effectif et ininterrompu de deux ans dans le Territoire.
-M. Robin, classé au groupe II, voyagera accompagné de son épouse et de ses deux enfants âgés respectivement de 21 ans (a atteint sa majorité en cours de séjour) et de 19 ans, par voie
-maritime de Djibouti à Marseille et par voie ferrée de Marseille à Aix-en-Provence, aux frais du budget local de la Côte Française des Somalis.

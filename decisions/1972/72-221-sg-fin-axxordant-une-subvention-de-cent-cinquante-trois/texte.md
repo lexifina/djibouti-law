@@ -1,1 +1,0 @@
-Une subvention de cent cinquante-trois mille huit cent quarante-six francs Djibouti (153.846 FD.) est accordée à la Maison d’Afrique à titre de participation à ses dépenses de fonctionnement (année scolaire 1971-1972).

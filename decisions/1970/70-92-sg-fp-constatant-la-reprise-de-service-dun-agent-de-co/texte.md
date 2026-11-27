@@ -1,1 +1,0 @@
-Est constatée, pour compter du 3 janvier 1970, la reprise de ses fonctions antérieures au service des Contributions (Ministère des Finances et du Plan) par M. Mohamed Elmi Madar, dit Witti, agent de contrôle principal, 1&* échelon, du cadre territorial des Contributions, à l’issue de son congé de longue durée.

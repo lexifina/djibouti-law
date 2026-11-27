@@ -1,1 +1,0 @@
-M. Honoré (Gabriel), ingénieur adjoint de 3° classe stagiaire des Travaux publics de la France d’Outre-Mer, est mis à la disposition du Directeur du Service des Travaux publics, pour études de la route d’Ethiopie, â compter du 28 septembre 1951, date de son débarquement à Djibouti

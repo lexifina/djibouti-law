@@ -1,1 +1,0 @@
-M. Monnier, administrateur adioint des colonies, est désigné pour vérifie x la c aisse des menues recettes et des mennes dépe nses du Cercle de Diibonti, : en remplicement de M. Parthenay, indisponible,

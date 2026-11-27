@@ -1,1 +1,0 @@
-M. Collomb (Camille), recruté en qualité de conducteur de travaux contractuel, est mis à la disposition du Ministre des Travaux Publics et du Port, pour compter du 16 juillet 1960, date de son arrivée dans le Territoire.

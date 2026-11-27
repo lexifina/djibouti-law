@@ -1,1 +1,0 @@
-Le Sergent Ranguin Guy, infirmier des T.O.M, désigné pour servir « hors cadres » en Côte Française des Somalis par (J.O.R.F. du 22-1-60), nouvellement arrivé sur le Territoire, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour servir «hors cadres » à compter du 25 mars 1960 date de son embarquement.

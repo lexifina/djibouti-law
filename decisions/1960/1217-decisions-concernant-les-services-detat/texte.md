@@ -1,4 +1,0 @@
-Les dispositions de l’article 3 de la décision n° 1213 du 14 novembre 1960 accordant un çconge administratif proportionnel à M. Devigne (Géorges), Administrateur en Chef des Affaires &’Outre-Mer, sont abrogées et remplacées par les dispositions suivantes :
-« Art. 3 — M, Devigne (Georges), qui voyagera seul, est autorisé à emprunter la voie anormale. Il percevra avant son départ une avançcé représentant les frais de voyage en 1″ classe Djibouti-Marseilte par voie maritime ét Marseille-Paris par voie ferrée, à charge pour lui de justificatfons desdits frais dans les conditions ptévues par la réglementation en vigueur.
-«M. Devigne (Georges) doit quitter en principe le Territoire le 16 novembre 1960.
-« La durée de son voyage Djibouti-Marseille, tant pour le règlément de sa solde/de traversée: que. pour la détermination de ses droits à congé est fixée à huit jours. »

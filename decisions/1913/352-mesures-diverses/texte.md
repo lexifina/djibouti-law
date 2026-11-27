@@ -1,1 +1,0 @@
-et pour compter du 11 dudit, les gardes de 2e classe, Mohamed Ali, mle 419 ; Abdou Abdallah, mie 464 : Saleh Aouad, mle 472 ; Ahmed Saleh, mie 445 ; Hassen Nacer, mle 458 : Mahamed Ali, mle 478 seront licenciés.

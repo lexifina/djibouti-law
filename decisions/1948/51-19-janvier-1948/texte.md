@@ -1,2 +1,0 @@
-Mme Droguet (Andrée), institutrice de 5e classe du cadre métropolitain en congé pour convenances personnelles, est engagée en qualité d’institutrice auxiliaire au salaire journalier de quatre cent trente francs (430 francs) exclusif de toutes indemnités.
-Mme Droguet dont la situation administrative en Côte française des Somalis serait révisée dans le cas où son détachement serait prononcé par le Département, est mise à la disposition du chef du service de l’enseignement pour compter du 16 janvier 1948.

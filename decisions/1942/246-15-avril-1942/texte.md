@@ -1,1 +1,0 @@
-M. Maury (Georges), vérificateur principal du cadre métropolitain des douanes est nommé curateur aux successions vacantes des fonc tionnaires en remplacement de M. Merlo. sous-chef de bureau des Secrétariats généraux. en instance de départ.

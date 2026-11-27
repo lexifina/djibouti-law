@@ -1,1 +1,0 @@
-A compter du 1er octobre 1946 M. Razafin-drakoto (Pierre). commis au service des contri butions directes, est chargé des fonctions d’huissier près les tribunaux français de Djibouti en remplacement du gendarme Sayde. Avant d’entrer en fonctions, M. Razafindra-koto (Pierre) prêtera le serment prescrit par la loi.

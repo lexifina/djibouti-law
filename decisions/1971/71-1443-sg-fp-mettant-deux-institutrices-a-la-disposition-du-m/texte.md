@@ -1,1 +1,0 @@
-Est constatée, pour compter du 19 septembre. 1971, date de leur retour dans le Territoire, la reprise ‘de leurs fonctions antérieures au Service de l’Enseéignement public du 1 degré,par Mme Anna Luiggi, institutrice (2e échelon) du département de la Seine-Saint-Denis et Mme Mahaboubounissa Houssainé, institutrice (8e échelon) du département de la Réunion.

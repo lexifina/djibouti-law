@@ -1,1 +1,0 @@
-M.Sylva (René), Attaché de 2° classe, 4 échelon de la France d’Outre-Mer (indice 390) est mis à la disposition du Ministre des Finances,des Affaires économiques et du Plan de la Côte Française des Somalis, pour compter du 25 mars:1961, date de son arrivée dans le Territoire.

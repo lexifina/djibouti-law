@@ -1,2 +1,0 @@
-M. Perret Marc, administrateur de 7° échelon des Affaires d’Outre-Mer, est nommé Commandant de Cercle de Dikhil et Président du Tribunal du 2° degré dans le ressort dudit Cercle, en remplacement de M. Bergeron Jean, administrateur de 7° échelon des Affaires d’Outre-Mer, commandant de Cercle d’Ali-Sabieh chargé à titre intérimaire des fonctions de Commandant de Cercle de Dikhil, et de Président du Tribunal du 2° degré dans le ressort dudit Cercle.
-Avant de prendre ses fonctions de Président du Tribunal, M. Marc Perret prêtera, par écrit, le serment prescrit par la loi.

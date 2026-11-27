@@ -1,4 +1,0 @@
-sont affectés à la Milice indigène pour compter du 1er juin 1945 : le sergent-chei Léonetti, en remplacement du sergent Cornet, rapatriable, et le sergent Aïllet, en remplacement du sergent-chef Janon, l’un et l’autre remis à la disposition du Commandant Supérieur.
-Le sergent Aillet remplira à Ali Sabieh les fonctions d’agent spécial, commissaire à l’immigration et chef du bureau des Douanes.
-En temps que commissaire à l’immigration il sera placé sous l’au‘orité directe du chef du service de la Sûreté générale. Avant d’entrer en fonctions il prêtera le serment prescrit par la loi. Mention de la prestation de serment sera inscrite sur la présente décision pour tenir lieu de commission d’emploi.
-Comme chef du bureau des Douanes, il aura droit à l’indemnité de 900 francs l’an fixée par arrêté du 14 juin 1934.

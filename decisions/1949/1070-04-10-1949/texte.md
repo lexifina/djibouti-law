@@ -1,1 +1,0 @@
-Le nominé Omar Mereneh, cuisinier, né à Djibouti en 1918, est recruté pour servir à l’atelier-étole pour compter du 1er octobre 1949. Sa solde, exclusive de toute autre indemnité, est fixée à 4.000 francs par mois.

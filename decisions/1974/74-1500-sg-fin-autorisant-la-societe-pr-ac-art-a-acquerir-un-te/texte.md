@@ -1,1 +1,0 @@
-La Société P.R.A.C. S. à r.l. est autorisée à acquérir un terrain bâti, sis à Djibouti, Place Ménélik, d’une superficie de 315,48 mètres carrés. et immatriculé au Livre foncier du Territoire sous le n° 152 au nom de la succession Minas Nicoletto.

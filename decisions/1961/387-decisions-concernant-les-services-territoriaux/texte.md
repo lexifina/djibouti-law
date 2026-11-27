@@ -1,1 +1,0 @@
-Une indemnité forfaitaire mensuelle de cinq mille francs (5.000) est allouée à M. Mansour Nasser expéditionnaire principal du Cadre Local 3° échelon en service au Ministère des Finances, des Affaires économiques et du Plan (Service des Contributions directes) pour travaux dactylographiques.

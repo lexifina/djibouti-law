@@ -1,1 +1,0 @@
-M. Bonthonneau. administra teur adjoint des colonies, licencié en droit, membre adjoint au Conseil d’administration siégeant au contentieux, est nommé rappor teur de l’affaire enregistrée le 19 septembre 1935, sous le n° 2 : action intentée par M. Hen ri La Fay contre l’administration locale, en remplacement de M. Berger, rapatriable.

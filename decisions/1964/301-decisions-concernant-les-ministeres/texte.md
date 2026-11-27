@@ -1,2 +1,0 @@
-L’adiudant-chef Alt (Emile). du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 7 février 1964 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 16 février 1964 date de son arrivée dans le Territoire.
-Ce sous-officier est désigné pour occuper les fonctions de chef du Secrétariat de la Direction de la Santé publique pour compter de la même date, en remplacement de l’adjudant Chauvet, rapatriable pour fin de séjour.

@@ -1,2 +1,0 @@
-Un congé administratif de six mois à passer en France est naccordé à M. Alemant (Pierre), administrateur de 2° classe des colonies, en service à la Coté francaise des Somalis.
-C’e fonctionnaire. classé à la 1er catégorie B. qui voyage seul prendra en 1er classe sur le paquebot Can-Saint-Jacques de la Compagnie des Chargeurs-Réunis attendu à Djibouti vers le 5 septembre 1939, à destination de Marseille.

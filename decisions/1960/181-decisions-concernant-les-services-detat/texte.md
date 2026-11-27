@@ -1,4 +1,0 @@
-Le Sergent-Chef Hamad Moussa, Mle 733, arrivant en fin de contrat et totalisant 20 ans de services effectifs dans la Milice, est admis à faire valoir ses droits à l’allocation viagère annuelle en exécution de l’article 6 de l’arrêté n° 195 du 3 février 1943 l’intéressé sera libéré et rayé des contrôles de la Milice, pour compter du 22 février 1960, il recevra le certificat de libération.
-Le Sergent-Chef Hamad Moussa, Mle 733, de.la 1° Compagnie de Milice, bénéficiera, pour compter du 22 février 1960, d’une allocation viagère annuelle de cinquante-deux mille francs Djibouti (52.000 F.D.), payable trimestriellement à terme échu et sur le vu d’un certificat de vie délivré par les autorités compétentes.
-Les droits à soldes, vivres et permission de l’intéressé, seront 2)
-liquidés par les soins de la 1 Compagnie

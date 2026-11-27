@@ -1,1 +1,0 @@
-Par arrêté du 11 iuin 1913 il est donné imain-levée à M. Nocelo, du cautionnement de garantie de 1.200 fr. qu’il a constitué le 22 mars 1915 pour la construction d’un bureau et d’un magasin des douanes au platea u de Ma ra bou

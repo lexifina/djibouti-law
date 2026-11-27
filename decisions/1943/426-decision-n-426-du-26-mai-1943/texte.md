@@ -1,1 +1,0 @@
-La décision sus-visée du 11 Mai 1943 est rapportée. M. AGIUS, Employé auxiliaire a l’Usine Electrique aura droit à compter du ler juin 1943 a une solde mensuelle de trois mille francs (3.000 frs) exclusive de toute indemnité.

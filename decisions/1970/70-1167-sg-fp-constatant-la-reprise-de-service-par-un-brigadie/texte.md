@@ -1,1 +1,0 @@
-M. Armand Reb, brigadier de police, 3° échelon, est, pour compter du 18 septembre 1970, date de son retour au Territoire, mis à la disposition du Ministre des Affaires intérieures pour servir au Commissariat central de Diibouti.

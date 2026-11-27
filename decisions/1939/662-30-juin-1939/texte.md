@@ -1,3 +1,0 @@
-Un passage, en 3e classe, à destination de Marseille, est accordé à M. Leca (Noël), sercent-chef, 5e échelon d infanterie coloniale, hors cadres, qui prendra passage sur le paque-bot Chenonceauxr, de la Compagnie des Messageries Maritimes, attendu vers le 30 juillet 1939.
-La dépense est imputable au budget local de la Côte francaise des Somalis (chapitre 14 article 1er, paragraphe 1er).
-Le 30 juin 1939, il a été délivré au lieutenant hors cadres des troupes coloniales Gory un certificat de connaissance pratique du dankali parlé à la Côte française des Somalis, pour en jouir avec les droits et prérogatives qui y Sont attaches,

@@ -1,3 +1,0 @@
-Un témoignage officiel de satisfaction est décerné pour les motifs suivants à M.le Médecin en Chef de 2° classe Dominique GOMART, décédé accidentellement le 25 avril 1971.
-Le Médecin en Chef de 2° classe GOMART, spécialiste de pneumo-phtisiologie des armées, arrivait au terme de son séjour qu’il effectuait en qualité de Chef des Services antituberculeux du Territoire Français des Afars et des Issas.
-Ce médecin d’élite, aux plus hautes qualités morales, passionné par son métier et le dévouement à autrui, a acquis l’estime et la reconnaissance de toute la population. La manière exemplaire dont il avait conduit, de bout en bout de son séjour, la lutte contre la tuberculose, avait amené récemment le Conseil de Gouvernement à demander la prolongation de sa mission.

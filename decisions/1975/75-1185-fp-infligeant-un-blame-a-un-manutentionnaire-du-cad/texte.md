@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Ali Chere Bœuh, manutentionnaire principal, 2e échelon du cadre territorial des Postes et Télécommunications pour retards répétés dans ses prises de service et manque dé conscience professionnelle.

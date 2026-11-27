@@ -1,2 +1,0 @@
-13 avril 1934, il sera paré au nommé Mohamed Saleh, commerennt : Dikkil, sur les fonds du budget local, Ta somme de 1.070 francs, : représentent le montant des vivres fournis, à titre de secours, aux héritiers du chef rares Hassan Ampharé, décédé,
-La dépense sera imputée sur les crédits inscrits au chapitre 13, artic le 3, paragraphe le crits au chapitre 13, artic le 3, paragraphe I du budget local de l’exercice 1933.

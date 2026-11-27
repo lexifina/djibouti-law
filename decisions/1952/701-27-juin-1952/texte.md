@@ -1,1 +1,0 @@
-M. Youssouf Ismaël, électricien à salaire journalier du Service des Travaux publics (Usine Electrique) est admis, pour compter du 1er juin 1952, au salaire mensuel de dix mille francs (10.000 fr.) exclusif de toute indemnité y compris les charges de famille.

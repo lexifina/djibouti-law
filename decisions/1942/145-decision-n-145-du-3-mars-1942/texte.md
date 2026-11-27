@@ -1,1 +1,0 @@
-Wais Roble, de la fraction Irraley Rer Gueddi « Djalle », est agréé à titre précaire et révocable en qualité d’okal des Harla, au salaire mensuel de 325 francs et en remplacement de Klini Moussa, licencié de son emploi.

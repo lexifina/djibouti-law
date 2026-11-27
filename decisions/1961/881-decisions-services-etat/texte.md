@@ -1,5 +1,0 @@
-Est constaté qu’à la date du 18 août 1961, M. Coindard Henri, administrateur en chef des Affaires d’Outre-Mer (indice 600), chargé des Affaires courantes du Secrétariat général, chef du Bureau du Personnel Etat, aura accompli 30 mois et 24 jours de servicés effectifs en Côte Française des Somalis, compte tenu des congés annuels pris du 25 novembre 1959 au 8 février 1960 et du 3 septembre 1960 au 17 octobre 1960 inclus.
-Un congé administratif proportionnel de trois mois et vingt-quatre jours, à passer en France, 10, rue de Picpus, Paris (12°), est accordé à M. Coindard Henri, administrateur en chef des Affaires à d’Outre-Mer, quittant définitivement le Territoire.
-M. Coindard Henri, qui voyagera par voie aérienne, quittera Djibouti, en principe, le 19 août 1961.
-Il sera délivré à M. Coindard une réquisition de transport par voie maritime dans les conditions prévues par la réglementation en vigueur, en cas de départ définitif du Territoire, pour ses bagages.
-Les dépenses prévues par la présente décision sont à la charge du Budget de l’Etat.

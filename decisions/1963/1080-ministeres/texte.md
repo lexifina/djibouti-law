@@ -1,2 +1,0 @@
-Une allocation viagère de reversion de trente mille francs Dijibouti (30.000 F.D.) l’an est accordée à Mme Hawa Afy, somalie issa Wadahgob, veuve de Mereneh Egueh, caporal de la Garde Territotriale, mle 57, décédé à l’Hôpital Peltier le 1er février 1963.
-Cette allocation sera payable trimestriellement et à terme échu pour compter du 1er février 1963 sur le vu d’un certificat de vie délivré par les autorités compétentes du Territoire.

@@ -1,2 +1,0 @@
-Le Sergent d’Infanterie de Marine Martin Christian, embarqué par avion à Marseille le 4 décembre, est affecté à la Milice de la Côte Française des Somalis pour compter du 5 décembre 1963, date de son débarquement à Djibouti.
-Ce sous-officier est affecté à la 3° Compagnie de Milice à Ali-Sabieh pour assurer les fonctions de chef de Poste radio et de secrétaire, en remplacement du Sergent-Chef Placide muté à la 1° Compagnie de Milice.

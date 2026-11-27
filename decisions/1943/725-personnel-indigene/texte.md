@@ -1,1 +1,0 @@
-le nommé OUSMAN ABDL Somali Da rod. Guéri, est engagé à l’essai en qualité d interprète auxiliaire et mis à la disposition du Commandant de Cercle de DIKHII. au sa laire mensuel de 350 francs par mois à compter de la date de la signature de la présente Décision.

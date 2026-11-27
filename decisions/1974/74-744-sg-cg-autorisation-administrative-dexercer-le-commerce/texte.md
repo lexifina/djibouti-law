@@ -1,1 +1,0 @@
-Dérogation est accordée à M°° Fatma Mohamed Omar, de nationalité Ethiopienne, pour exploiter en gérance salariée, une licence de 3° classe, au Bar-Restaurant «Florida», six au quartier 2, maison n° 10, boulevard 21 à Djibouti et appartenant à Mme Loula Abdallah Ahmed.

@@ -1,1 +1,0 @@
-L’adjudant Adam (Robert), en service à la 1er compagnie de milice, est nommé, à compter du 16 septembre 1949, agent, spécial du cercle de Dikhil en remplacement de l’adjudant-chef Sauzet, rapatrié sanitaire.

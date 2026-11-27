@@ -1,1 +1,0 @@
-la remise de 3 p. 100 fixée par l’arrêté du 7 août 1909 disposant que des auto risations de vendre des figurines postales pour ront être accordées à des personnes étrangères à l’administration,est ramenée à 1 p. 100 à par tir du 1er avril 1937.

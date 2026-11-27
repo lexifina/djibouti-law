@@ -1,2 +1,0 @@
-Un congé de convalescence de trois mois, pour en jouir à Challans (Vendée), est accordé M. Antier (Albert), commis principale de classe exceptionnelle du cadre métropolitain des douanes.
-M. Autier, accompagné de son épouse et un enfant Agé de 12 ans, rejoindra son lieu de congé par première occasion maritime pour comptér du 10 avril 1949 et voyagera en 1re classe aux frais du budget local (assimilation : 2e catégorie).

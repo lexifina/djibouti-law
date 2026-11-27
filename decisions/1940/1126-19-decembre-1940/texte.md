@@ -1,2 +1,0 @@
-Le sergent-chef Bourgeois, du détachement des C. O. A. T. C. de la Côte française des Somalis, chargé de la distribution aux corps de troupe des denrées fournies par les services du Ravitaillement général, est, en outre, chargé, en remplacement de M. Gleize, de la répartition des légumes à la population civile.
-Il percevra à ce titre une allocation mensuelle de 500 francs. La dépense sera imputée sur les crédits du Service du ravitaillement général.

@@ -1,1 +1,0 @@
-M. Lassaigne, Administrateur-adjoint de 1ère classe des Colonies a été nommé, pour compter du 26 Janvier 1915, chef du district Dankali, avec droit, en cette qualité, aux indemnités prévues par les règlements en vigueur.

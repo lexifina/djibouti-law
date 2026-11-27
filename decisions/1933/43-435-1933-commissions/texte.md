@@ -1,1 +1,0 @@
-M. Decieux. trésorier-payeur, ancien administrateur de l’inscription mari time, a été nommé administrateur de l’inscrip tion maritime ad hoc pour présider la Commission de réception d’un ponton-mâture destiné à la coloni

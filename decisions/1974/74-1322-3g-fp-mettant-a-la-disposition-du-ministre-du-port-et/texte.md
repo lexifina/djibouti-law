@@ -1,1 +1,0 @@
-M Michel Constantini, volontaire de l’aide technique est, pour compter du 12 juin 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre du Port et des Régies industrielles, pour servir au Port de commerce de Djibouti en qualité d’ingénieur des Travaux Publies de l’Etat, service comptant pour compter du 1er juin 1974.

@@ -1,1 +1,0 @@
-M. Barnasson (André), Sous-Chef de Service du Trésor, détaché à la Côte Française des Somalis en qualité de Commis principal de 1er classe du Cadre local est mis à la disposition du Trésorier-Payeur pour compter du 12 avril 1952, date de son débarquement à Djibouti.

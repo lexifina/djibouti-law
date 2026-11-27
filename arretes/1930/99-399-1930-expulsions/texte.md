@@ -1,1 +1,0 @@
-le nommé Saved Ali Ahmed, Arabe musulman, né à Berberay (Somalie anglaise), sera, à l’expiration de la peine de prison qu’il purge, expulsé de la colonie et reconduit à la frontière du Somaliland britannique, les territoires de la Côte française des Somalis et dépendances ni restant interdits.

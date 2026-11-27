@@ -1,1 +1,0 @@
-A été résilié, pour raison de santé et à da ter de la veille du départ la Côte française des Somalis de l’intéressé, h» contrat en date du 23 mai 1946 portant location à l’Administration locale en qualité de commis du Trésor des services, de M. Guy Boisson.

@@ -1,2 +1,0 @@
-l’article 2 de la décision n° 287, du 4 avril 1933, accordant une allocation journalière de 2 fr, 59 à la directrice du Dispensaire, pour l’entretien de ja jeune Ouila Ataoué, a été complétée comme suit :
-« Cette allocation sera mandatée sur certificat de présence effective au Dispensaire de la susnommée, établi par la directrice de cet établissement, à compter du 22 décembre 1932 et imputée au chapitre 12, article 1er, paragraphe 4, du budget local de 1933.«

@@ -1,1 +1,0 @@
-M. Mohamed Omar Saleh, propriétaire, demeurant à Djibouti, est autorisé à acquérir une parcelle de terrain bâti, sise à Djifouti, rue de Bir-Hakim, et Prato à Mohamed, Labiba et Sadek Abdallah Coubèche.

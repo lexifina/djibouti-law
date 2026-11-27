@@ -1,1 +1,0 @@
-Pour compter du 1e octobre 1965, la Société A. Besse et Cie (Mer Rouge) est autorisée à assurer elle-même le service.de toutes les prestations consécutives aux accidents du travail ou aux maladies professionnelles survenues à son personnel.

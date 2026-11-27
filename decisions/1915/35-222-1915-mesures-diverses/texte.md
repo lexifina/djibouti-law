@@ -1,1 +1,0 @@
-une avance de CENT francs a été mise à la disposition du Greffier-notaire pour lui permettre d’acquitter les frais urgents de Justice visés à l’article 12 de l’arrêté du 28 Juillet 1904, avance dont il sera justifié dans la forme réglementaire.

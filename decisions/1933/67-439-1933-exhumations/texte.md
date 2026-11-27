@@ -1,3 +1,0 @@
-l’exhumation des restes mortels du premier maître fusilier Le Gal, du Waldeck-Rousseau, décédé à Djibouti le 20 juin 1232 et leur transfert en France ont ét autorisés dans les conditions déterminées par l’arrêté ministériel du 21 juillet 1916.
-La dépense résultant de ce transfert et des frais accessoires sera imputée au chapitre 23 (Santé-matières), article 5 du budget de la marine, conformément aux prescriptions de la dépêche ministérielle n° 150, du 31 mai 1933.
-L’exhumation sera effectuée en présence du médecin capitaine Paute et du commissaire de police qui dresseront le procès-verbal des opérations.

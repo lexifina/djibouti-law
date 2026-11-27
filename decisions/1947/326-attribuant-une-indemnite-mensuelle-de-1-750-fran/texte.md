@@ -1,1 +1,0 @@
-Une indemnité mensuelle de mille sept cent cinquante francs (1.750 francs) payable sur les fonds du ravitaillement général, est attribuée à M Boust, employée auxiliaire de 3° catégorie, qui remplit, cumulativement avec ses fonctions au bureau des affaires économiques, celles de secrétaire au ravitaille ment général.

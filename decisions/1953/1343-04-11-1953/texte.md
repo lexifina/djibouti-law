@@ -1,1 +1,0 @@
-M. Ali Zeid Ali Mohamed est engagé à titre essentiellement précaire et révocable en qualité de secrétaire auxiliaire 6e échelon et mis à la disposition du Directeur du Service de Santé, en remplacement numérique de M. Pascal Frumence, licencié, pour compter du 16 octobre 1953.

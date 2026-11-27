@@ -1,1 +1,0 @@
-M. Djama Aid, délégué comme membre de la Commission administrative prévue à l’arti cle 5 de l’arrêté n° 946 du 30 juillet 1946. partant en permission, est remplacé dans ses fonctions à compter du 19 août par M. Mo hamed Kamil, infirmier à Djibouti.

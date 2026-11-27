@@ -1,1 +1,0 @@
-Sont licenciés de leur emploi « pour mauvaise manière de servir et absences non motivées », les nommés Mohamed Ahmed et Mohamed Idriss, compositeurs à l’imprimerie administrative, pour compter du 23 août 1947.

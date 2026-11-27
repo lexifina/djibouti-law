@@ -1,1 +1,0 @@
-M. Allard (Jean), Attaché d’Administration Centrale, 2e classe, 2e échelon, Commandant de Cercle d’Ali-Sabieh par intérim, est nommé Commandant de Cercle d’Ali-Sabieh titulaire, à compter du 6 septembre 1960, en remplacement de M. Frier, Administrateur des Affaires d’Outre-Mer, appelé à d’autres fonctions.

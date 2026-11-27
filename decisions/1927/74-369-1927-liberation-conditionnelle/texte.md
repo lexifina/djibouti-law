@@ -1,1 +1,0 @@
-est accordée la libération conditionnelle du nommé Ali Youssouf (Issa Moumassen), condamné le 7 avril 1927 à six mois de prison et 40 francs d’indemnité par le tribunal indigène du 1er degré pour coups et blessures volontaires.

@@ -1,1 +1,0 @@
-le gendarme Anel, qui assure actuellement les fonctions de porteur de contraintes du service du Trésor, sera également chargé de signifier aux l’adevables les divers actes de poursuites décernés, à la requête d’un service de l’enregistrement, en matière d’amendes et frais de jutice.

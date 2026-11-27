@@ -1,6 +1,0 @@
-Il est mis fin, sur sa demande, pour compter du 7 mars 1905 au contrat de travail intervenu le 2 juillet 1962 entre le Chef du Territoire de la Côte Française des Somalis et M. Saïllour, instituteur contractuel en service à Dikhil (D. 1 indice 330).
-En application des dispositions de Particle 7 du contrat susvisé M. Saïllour devient créditeur du voyage retour pour lui-même et sa famille au prorata du temps de service effectué soit les 11/20°*.
-Dans les conditions ci-dessus visées, M. Saïllour classé au groupe IV, bénéficiera d’un passage de retour à destination de Paris. Il voyagera accompagné de son épouse et de sa fille âgée de six mois par voie maritime où aérienne selon les possibilités.
-M. Saïllour. démobilisé sur place, bénéficiant d’une concession de passage pour rejoindre la métropole, il sera émis à l’encontre des Forces Armées de la Côte Française des Somalis (Bureau Etat-Major) un ordre de recette d’un montant égal au coût du voyage du .
-M. Saillour aura droit à une indemnité compensatrice de congé payé égale à 5 jours de salaire décomptée suivant les dispositions des articles 98 et 124 du Code du Travail Outre-Mer, par mois de séjour effectif accompli dans le Territoire depuis le 28 mars 1962.
-Ces dépenses sont à la charge du Budget du Territoire pour l’exercice 1963.

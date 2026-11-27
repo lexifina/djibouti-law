@@ -1,1 +1,0 @@
-Dérogation est accordée à M. Amin K. M. Sultan, de nationalité sud-yéménite, pour exercer le commerce des boissons, licence de 1er classe, au bar-restaurant le « Winpy-House», sis rue de Marseille à Djibouti.

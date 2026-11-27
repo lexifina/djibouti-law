@@ -1,1 +1,0 @@
-Le salaire mensuel de l’ouvrier Ahmed Guelle en service au cercle de Tadjourah est fixé à mille deux cent soixante francs (1.260 francs) pour compter du 1er octobre 1945, exclusif de toute indemnité de quelque nature que ce soit.

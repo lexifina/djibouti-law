@@ -1,2 +1,0 @@
-Par décision n°2023-118/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 19 mars 2023, M. HAMADOU LOUBACK HAMADOU, est engagé dans la Convention Collective du 26 décembre 2011, à la 2ème catégorie B, en qualité de planton pour servir au Ministère des Infrastructures et de l’Equipement, en remplacement numérique de M. MAHAMOUD MOHAMED YONIS, admis à la retraite.
-La présente décision prend effet à compter du 19 mars 2023.

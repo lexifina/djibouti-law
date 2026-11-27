@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 460 du 1er avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Turco Santino la concession provisoire d’un terrain d’une superficie de six cent un mètres carrés quarante sise à Ambouli (lot n° 11 du boulevard d’Ambouli), au prix de cent francs le mètre carré.

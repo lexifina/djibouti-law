@@ -1,1 +1,0 @@
-un passage de retour, par anticipation, en 2e classe, est accordé à Mme Verger ot à ses quatre enfants âgés respectivement de 14, 13, 11 et 9 ans, famille d’un lieutenant de port en service à la colonie.

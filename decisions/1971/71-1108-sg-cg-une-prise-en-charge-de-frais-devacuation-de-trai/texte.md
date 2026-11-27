@@ -1,1 +1,0 @@
-Sont pris en charge par le budget du Territoire les frais d’évacuation, de traitement et de séjour en Métropole de M. Abdi Dembil Egal, Ministre du Travail du Territoire Francais des Afars et des Issas.

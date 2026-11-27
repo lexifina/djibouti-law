@@ -1,1 +1,0 @@
-Mlle Goyon (Renée), est engagée en qualité de secrétaire du Conseil représentatif, nu salaire mensuel fixe de six mille francs (6.000 francs), exclusif de toutes indemnités, pour compter du 1er août 1948.

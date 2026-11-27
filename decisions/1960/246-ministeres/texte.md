@@ -1,2 +1,0 @@
-Le Médecin-Commandant des Troupes d’Outre-Mer Orio Jean, désigné pour servir «Hors-Cadres» en Côte Française des
-Somalis par J.O.R.F. du 25 octobre 1959, nouvellement arrivé au Territoire est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour servir « Hors-Cadres» au titre de Médecin-Chef du Service d’Hygiène à compter du 5 février 1960 dite de son émbarauement en Métropoles.

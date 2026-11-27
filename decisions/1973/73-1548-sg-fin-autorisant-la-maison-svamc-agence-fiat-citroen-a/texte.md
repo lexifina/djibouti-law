@@ -1,1 +1,0 @@
-La maison S.V.AM.G. (agence Fiat-Citroën) est autorisé à acquérir une parcelle de terrain, sise à Djibouti, zone industrielle sud, lots n° 57-58-59 et immatriculée au Livre foncier du Territoire sous le n° 1282 au nom de M. G. Previtera.

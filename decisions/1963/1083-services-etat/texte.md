@@ -1,5 +1,0 @@
-Les guides de 2e classe: Obsieh Waiss, Hassan Youssouf, Moussa Mohamed de la 1 Compagnie de Milice à Dikhil sont
-licenciés pour cause de suppression d’emploi et mis à la retraite à compter du 1er septembre 1963.
-Les intéressés qui totalisent plus de 15 ans de services effectifs dans la Milice sont admis à faire valoir leurs droits à l’allocation viagère annuelle en exécution de l’article 7 de l’arrêté n° 1252 du 16 novembre 1961 et de l’article 3 de l’arrêté n° 26/SPCG du 12 mars 1963 ; ils seront libérés et rayés des contrôles de la Milice pour compter du 1re septembre 1963, ils recevront le certificat de libération.
-Ces guides de 2e classe bénéficieront à compter du ler septembre 1963 d’une allocation viagère annuelle de quarante trois mille deux cents francs Djibouti (43.200 FD) payable trimestriellement et à terme échu et sur le vu d’un certificat de vie délivré par les autorités compétentes.
-— Les droïts à solde et vivres des intéressés seront liquidés par les soins de l’Agent Spécial de la 1re Compagnie à Dikhil.

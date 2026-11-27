@@ -1,1 +1,0 @@
-M. est engagé en qualité d’employé dactylographe auxiliaire ompter pour du 12 juillet 1915 nalier au salaire jour afférent à la 2e catégorie. L’intéressé chef est mis à la disposition du chef du Servive de Santé.

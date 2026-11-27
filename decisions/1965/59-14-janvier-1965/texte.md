@@ -1,1 +1,0 @@
-Le garde territorial de 2e classe Ibrahim Ahmed, matricule 640, en service à la Prison civile de Djibouti, est licencié par mesure disciplinaire de la Garde territoriale pour compter du 1re janvier 1965.

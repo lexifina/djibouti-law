@@ -1,1 +1,0 @@
-Est retirée, pour compter du 1er janvier 1977, la licence de 1re classe accordée à M. Aden Mouhoumed Ali, par décision n° 73-1259/SG/AI du 20 août 1973, pour être exploitée au barﬁ« Double mêtre», sis boulevard 25, avenue 12, maison 72 au quartier 2 à Djibouti.

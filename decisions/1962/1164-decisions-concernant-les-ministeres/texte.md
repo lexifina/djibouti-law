@@ -1,2 +1,0 @@
-M. Hassan Mohamed Ahmed, préposé de 2! classe, 1er échelon (Service Technique) du Corps Territorial des Postes et Télécommunications est autorisé à suivre un stage pour l’emploi de contrôleur des Postes (branche Exploitation) au centre d’enseignement supérieur des Postes et Télécommunications à Toulouse.
-M. Hassan Mohamed, quittera Djibouti par voie aérienne le 31 août 1962 à destination de la Métropole.

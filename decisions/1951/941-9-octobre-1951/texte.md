@@ -1,1 +1,0 @@
-M. Pacaud (Roger), instituteur de 6e cl., débarqué à Djibouti le 5 octobre 1951, est nommé Directeur de l’Ecole de Tadjoura, en remplacement de M. Blosse, instituteur de 4e classe, en instance de départ en congé administratif

@@ -1,2 +1,0 @@
-Des indemnités une fois payées de huit mille cent francs (S. 100 fr.) et cinq mille quatre cents francs (5.400 fr.) ont été allouées res pectivement à MM Rakotondramazava (Eloi). commis principal de 4e classe des mines, et Andriamampandry (Denis), commis de I classe des mines, pour le service qu’ils ont rendu au Lac Assal, pendant la période du 2 janvier au 22 mars 1946.
-Cette dépense est supportée par le budget local de la Côte française des Somalis, chapitre 18, article 1er, paragraphe 7, de l’exercice 19 6.

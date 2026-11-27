@@ -1,1 +1,0 @@
-M. Poitevin Jean-Marie, contrôleur des impôts, 5e échelon, est pour compter du 9 juillet 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Finances pour servir aux Contributions Directes.

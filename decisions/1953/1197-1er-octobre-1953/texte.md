@@ -1,1 +1,0 @@
-Mme Veronesi, secrétaire sténo-dactylographe auxiliaire àsalaire journalier, engagée pour la durée de la mission de M. l’Inspecteur général Monguillot, cesse ses fonctions pour compter du 27 septembre 1953.

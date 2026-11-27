@@ -1,1 +1,0 @@
-Mme Goudmand, institutrice auxiliaire ayant exercé au Maroc, est engagée en qualité d’institutrice auxiliaire de 2e catégorie pour compter du 7 octobre 1952. Elle est affectée à l’école publique de filles de Djibouti.

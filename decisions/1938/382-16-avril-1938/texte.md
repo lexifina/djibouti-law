@@ -1,1 +1,0 @@
-M. Delaunay, adjoint technique principal contractuel, est chargé cumlativement avec ses fonctions actuelles de celles de géomètre de la Conservation de la propriété foncière en remplacement de M. Karcher, rentrant en congé en france.

@@ -1,1 +1,0 @@
-Le contrat provisoire d’engagement du milicien de 2° classe Ahmed Houmed, mle 2929, de 1a 2° compagnie de Milice à Tadjoura, ne sera pas reconduit en application de l’article 15 susvisé. L’intéressé sera licencié pour « inaptitude à l’emploi > pour compter du 15 juillet 1964.

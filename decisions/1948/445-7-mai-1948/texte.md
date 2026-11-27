@@ -1,1 +1,0 @@
-Un congé administratif de huit mois, pour en jouir à Djibouti est accordé à l’écrivain interprète de 4 classe des cadres spéciaux de Madagascar, Rasoarahona (Ignace), en service aux bureaux des affaires économiques.

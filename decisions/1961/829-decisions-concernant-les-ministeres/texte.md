@@ -1,2 +1,0 @@
-Une somme de cent cinquante mille francs Diïbouti (150 000 fr. Dj.) est accordée à M. Abdi Dembil Egual, Ministre de la ProGuction, de l’Elevage et de l’Agriculture, chargé de l’expédition des Affaires courantes de la Vice-Présidence du Conseil de Gouvernement, au titre des frais de représentation des membres du Censeil de Gouvernement à l’occasion des cérémonies du 14 juillet 1960.
-La dépense est imputable sur le chapitre 18. article 2 paragraphe 4, rubrique 4, du Budget local pour l’exercice 1960 (Dépenses diverses du Conseil de Gouvernement – Fonds politiques).

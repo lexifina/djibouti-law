@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours a solde entière, pour en jouir au Harrar (Ethiopie), est accordée à M. Randrianalaina, écrivain-interprète du cadre spécial de Madagascar en service au Bureau des finances, pour compter du 15 septembre 1948.

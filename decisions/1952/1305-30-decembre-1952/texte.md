@@ -1,1 +1,0 @@
-L’adjudant d’artillerie coloniale Levet (Jacques), est affecté à la Milice de la Côte Française des Somalis pour compter du 26 décembre 1952 et mis à la disposition du Commandant de Cercle de Tadjoura pour assurer les fonctions d’adjoint au Commandant de Cercle, commandant la 2e compagnie, en remplacement de l’adjudant-Chef Cardona, rapatriable.

@@ -1,1 +1,0 @@
-Sont pris en charge par le budget du Territoire, les frais d’évacuation, de traitement et de séjour de M. Youssouf Aptidon Darar, député du TFAI à Djibouti, évacué sanitaire le 23 novembre 1974, par vol AF n° 462, sur l’hôpital la Salpetrière (Service du Professeur Lihermite) n° 47, boulevard de Vhôpital 75 013 -Paris.

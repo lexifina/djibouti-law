@@ -1,1 +1,0 @@
-M. Jouffrey (Roger), rédacteur et chef de la section de la comptabilité générale, est chargé, durant l’absence de M. Fontaine, chef du service de l’enregistrement, des domaines et du timbre, curateur aux successions et biens vacants et conservateur de la propriété foncière, de la signature des actes courants et des arrêtés des registres.

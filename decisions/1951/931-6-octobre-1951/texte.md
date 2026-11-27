@@ -1,1 +1,0 @@
-Une gratification de trois mille francs (3.000 fr.) est accordée à Mohamed AbdalHp.h Scubaï, compositeur à l’Imprimerie administrative, pour travaux exceptionnels. Cette dépense est impulable au chapitre 13, art. 2, rubrique 1 de l’exercice 1951.

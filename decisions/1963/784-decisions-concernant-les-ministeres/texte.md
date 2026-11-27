@@ -1,3 +1,0 @@
-Une indemnité pour accident du travail de quarante mille cinq cent quatre-vingt dix-huit francs Djibouti (40.598 F.D.), est accordée à M. Ah Hassan Kako, manœuvre au Service des Travaux publics (Subdivision administratiÿe et comptable du Port), victime d’unsaccident du travail surveñu le 19 mai 1962.
-Le paiement de cette indemnité implique la renonciation par l’intéressé à tout recours civil ou contentieux, sauf aggravation médicalement constatée de l’incapacité permanente partielle résultant de l’accident du travail.
-La dépense visée ci-dessus est imputable sur le Budget local de l’exercice 1963, chapitre 1, art. 2, § 2.

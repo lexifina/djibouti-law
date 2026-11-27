@@ -1,1 +1,0 @@
-M Fontaine (Mare), commis métropolitain principal de l’enregistrement, des domaines et du timbre, service armé, classe de mobilisation 1918, aspirant de réserve, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

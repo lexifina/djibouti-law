@@ -1,2 +1,0 @@
-Les restes mortels de l’enfant Bringuier (Jacqueline), décédée à Djibouti le 17 décembre 1951 et actuellement entreposés au dépositoire du cimetière de Djibouti, seront transférés au cimetière d’Embres-et-Castelmaure (Aude).
-Les dépenses occasionnées par le transfert des restes mortels de la défunte jusqu’au port de débarquement (Marseille) seront supportées par le Budget de la France d’Outre-Mer.

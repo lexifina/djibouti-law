@@ -1,2 +1,0 @@
-Un témoignage de satisfaction est accordé au sergent Brayer (Robert), n° matricule 16787, de la 4e compagnie du bataillon de tirailleurs sénégalais de lan Côte francaise des Somalis, pour motif suivant :
-« Du 1er mai 1937 au 20 avril 1938, a assumé sans défaillance, sous un climat particulièrement pénible, les fonctions multiples d’agent spécial, chef du bureau des douanes, agent postal et secrétaire du commandant de cercle des Adaëls, À rendu les meilleurs services et s’est montré, en toutes circonstances, un agent zélé, intelligent et sûr. »

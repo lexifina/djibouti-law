@@ -1,1 +1,0 @@
-Un blâme, avec inscription à son dossier, est infligé à M. Houmed Aboubaker, administrateur adjoint de: 3e échelon du cadre territorial, pour attitude incompatible avec les devoirs de sa charge à l’occasion de la consultation du 19 mars 1967.

@@ -1,1 +1,0 @@
-M. Charles Cluzel, médecin de 1re classe du service de santé des Armées, en position « Service détaché» est, pour compter du septembre 1974, date de soh arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique pour servir en qualité de médecin chef du service de Stomalogie à l’hôpltal Peltier.

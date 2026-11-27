@@ -1,1 +1,0 @@
-M. Roussel (Auguste), adjoint principal des services civils, service armé, classe de mobilisation 1919, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois à compter du 13 février 1940,

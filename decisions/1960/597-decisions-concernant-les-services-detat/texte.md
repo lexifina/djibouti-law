@@ -1,3 +1,0 @@
-Un concé administratif de six mois à passer à Nice (Alpes-Maritimes), 139, boulevard Gambetta, est accordé à M. Guerret (Maurice), Vétérinaire, Inspecteur en Chef 3° échelon, Chef du Service de l’Elevage et de l’Agriculture en Côte Française des Somalis, -qui aura accompli le 26 mai 1960 un séjour ininterrompu de 2 ans et 3 mois dans le Territoire.
-NT Guerret (Maurice) indice 600 sroupe I. aui vovagera accompagné de son épouse, en prineipe le 27 mai 1960, est autorisé à utiliser la voie anormale. Il percevra avant son départ une avance représentant les frais de passage Djibouti-Nice à charge pour lui de ‘ustification desdits frais dans les conditions prévues par la règlementation en vigueur.
-La dépense est imputable sur le budget local.

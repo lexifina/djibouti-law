@@ -1,1 +1,0 @@
-La rétrogradation du grade de caporal au grade de 1er classe, est prononcée par mésure disciplinaire, à l’encontre du caporal Ali Hassanle Kako, mle 1013 ; la sanction prendra effet pour compter du lendemain de la notification à l’intéressé de la présente décision.

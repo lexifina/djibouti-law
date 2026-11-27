@@ -1,1 +1,0 @@
-pour motif d’ordre budgétaire, les allocations accordées aux nommées ; Guédi Boeuh, okal fourlaba : Oualié Bahdon, okal fourlaba: Guédi Guiréné, okal orouiné; Fahié Will okal momassen: Mohamed Ali, okal dankali; Diny Ahmed, okal dankali; Moussa Ouaïs, okal arlah; Bolaleh Samatar, okal arlah ont été supprimées à compter du 1er janvier 1934.

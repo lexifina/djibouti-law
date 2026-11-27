@@ -1,1 +1,0 @@
-Les guides de 2° classe Ali Kamil, Kamil Ali, et de 1re classe Ali Hamed, de la 2° Compagnie de Milice à Tadjoura, sont licenciés pour cause de «suppression d’emploi» et mis à la retraite pour compter du 1er mars 1964.

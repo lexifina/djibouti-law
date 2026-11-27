@@ -1,1 +1,0 @@
-Les sergents de la garde indigène Bo-Yallo, Simbo Banana, Ousman N°’Diara, sa femme et ses deux enfants : les caporaux Demba-Dia et Missa-Samaké embarqueront sur le paquebot des Messageries-Maritimes attendu à Djibouti le 27 avril 1913.

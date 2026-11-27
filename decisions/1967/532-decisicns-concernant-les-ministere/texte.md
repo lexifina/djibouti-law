@@ -1,2 +1,0 @@
-Le sergent Djama Mahamoud, matricule 337, en service à la Section de Police portuaire de Djibouti, est licencié de la Garde territoriale par mesure disciplinaire pour compter du ler avril 1967.
-L’intéressé, réunissant à cette date 1 an 9 mois et 23 jours de service militaire et 16 ans 7 mois et 28 jours dans les Forces locales, soit un total de 18 ans 7 mois et 21 jours de service, percevra une allocation viagère mensuelle d’ancienneté minorée de 4 % d’un montant de 69.120 FD (soixante-neuf mille cent vinuts france) pavabla drimestrieement et Atemie échu.

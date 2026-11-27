@@ -1,1 +1,0 @@
-M. Daniel Debaize, instituteur 6° échelon, est, pour compter du 14 novembre 1974, date de son arrivée au Territoire, mis a la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir a l’école d’As-Eyla, poste budgétaire n° 76 CM.

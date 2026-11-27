@@ -1,1 +1,0 @@
-Le Lientenant d’Infantérie Coloniule Grange (Jean) à été placé en activité H. C, à compter du 16 muars 1917 pour prendre le commandement de la Brigade indigène en remplacement du d’Infanterie territoriale Camus de la Guibourgère, rapartrible.

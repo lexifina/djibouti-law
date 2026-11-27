@@ -1,1 +1,0 @@
-Le sous-brigadier de 3e classe du cadre métropolitain des douanes Lingenheim (Lucien-Jean-René-Nicolas-François) est mis, à compter du 16 septembre 195, jour de son débarquement, à la disposition du chef du service des douanes.

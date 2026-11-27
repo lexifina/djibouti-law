@@ -1,1 +1,0 @@
-M. Gauthier (Fernand), comptable principal de 3e classe du cadre local des travaux pu blics est mis à la disposition de M. le chef du service des travaux publics pour compter du 10 décembre 1946, jour de son débarquement dans la colonie.

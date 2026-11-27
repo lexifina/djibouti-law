@@ -1,1 +1,0 @@
-Un blôme est infligé à M. Said Mohamed Kahin, infirmier diplômé d’Etat de 2e classe, 4e échelon du cadre territorial de la Santé en service au laboratoire de chimie de l’Hôpital Peltier, pour incorrection envers le médecin-chef des services médicaux, médecin-chef par intérim de l’Hôpital Peltier.

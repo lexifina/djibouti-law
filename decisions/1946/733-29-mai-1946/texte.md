@@ -1,1 +1,0 @@
-Le lieutenant Tomasi (Yvon) a été placé dans la position « hors cadres » et affeclé à la milice indigène de la Côte française des Somalis, pour compter du 1er juin 1946. Il a été chargé du commandement de la sec lion nomade du Henlé et du poste administratif de Dawano.

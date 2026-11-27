@@ -1,1 +1,0 @@
-La S.A. Gellatly Hankey et Cie (Société foncière), siège social : Djibouti, est autorisée à acquérir un immeuble sis à Djibouti, boulevard Bonhoure, et immatriculé au Livre foncier du Territoire sous le numéro 116 au nom de la S. A. Crédit foncier immobilier.

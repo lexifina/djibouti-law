@@ -1,1 +1,0 @@
-M. Hassan Ismail Houssein, expéditionnaire d’administration à salaire journalier en service au Bureau du Personnel Territorial, est admis à salaire mensuel pour compter du 1er février 1960, et rangé à la 4e catégorie, échelle V, 3e échelon, indice local : 435.

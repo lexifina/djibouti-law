@@ -1,1 +1,0 @@
-un passage en 1re classe, à destination de Marseille, est accordé à M. Monnet (A lain), pharmacien lieutenant 1er échelon, hors cadres, qui compte deux ans, un mois, et vingt-cinq jours de séjour ininterrompu à la colonie.

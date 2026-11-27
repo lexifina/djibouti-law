@@ -1,2 +1,0 @@
-M LEBRANCHU Thomas, Chef mécanicien de la Marine Marchande mis à la disposition du Gouverneur de la C.F S. en qualité de Chef d‘ exploitation de l’Usine Electrique de Djibouti, percevra pendant la durée de son détachement une allocation mensuelle de 10.000 frs exclusive de l’indemnité spéciale temporaire.
-l a présente décision aura effet pour comp ter du S Mars 1943 date à laquelle M. LEBRANCHU a cessé d être aligné en solde par le Commandant de la base navale française de Suez.

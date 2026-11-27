@@ -1,1 +1,0 @@
-Mme Irène Joséphine, sage-femme principale de la France d’outre-mer, est, pour compter du 3 août 1972, date de son arrivée dans le Territoire, mise à la disposition du Ministre de la Santé publique et des Affaires Sociales, pour servir à l’hôpital Peltier, en remplacement numérique de Mme Cougoul.

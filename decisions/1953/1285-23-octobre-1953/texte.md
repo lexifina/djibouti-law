@@ -1,1 +1,0 @@
-Pour compter ch PS octobre 1953, le salaire mensuel de M. Terrien (Georges), surveillant auxiliaire en service à la Direction des Travaux publics, est fixé à 40.000 francs, exclusif de toutes indemnités autres que celles prévues pour charges de famille.

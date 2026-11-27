@@ -1,1 +1,0 @@
-Le Lieutenant de Gendarmerie Piçhery, arrivé en Côte Française des Somalis le 26 décembre 1950, est affecté à l’encadrement de la Compagnie des Gardes-Cercle dont il prendra le commandement à compter du 1er janvier 1951.

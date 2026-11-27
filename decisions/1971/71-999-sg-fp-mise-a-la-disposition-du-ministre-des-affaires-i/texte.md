@@ -1,1 +1,0 @@
-M. Michel Jeanne, volontaire de l’aide technique, est, pour compter du 6 juin 1971, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port pour servir en qualité de dessinateur-projeteur au Bureau d’études des Travaux publics.

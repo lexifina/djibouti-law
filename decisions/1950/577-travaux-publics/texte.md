@@ -1,2 +1,0 @@
-M.Treuvey (Léo»), chef d’atelier contractuel aux travaux publics, est nommé régisseur comptable de la Caisse d’avance des travaux imblies pour le payement des salaires acquis par les ouvriers employés aux travaux exécutés sur les fonds des budgets de l’Etat et du F. I. D. B). iS. en remplacement de M. Giustlniani.
-M. Treuvey aura droit, en cette qualité, à l’indemnité réglementaire prévue par l’arrêté n)33S du 26 mars 1049.

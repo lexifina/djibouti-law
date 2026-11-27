@@ -1,1 +1,0 @@
-M. Perot (Pierre), inspecteur de 2e classe du cadre métropolitain des Contributions directes, en service détaché à la Côte Française des Somalis, est mis à la disposition du Chef du Service des Contributions directes pour compter du 21 janvier 1952, date de son arrivée à Djibouti.

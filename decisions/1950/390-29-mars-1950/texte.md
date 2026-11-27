@@ -1,1 +1,0 @@
-Une suspension de huit jours de demi-solde est infligée au nommé Ahmed Deheud, commis au service de la sûreté, pour : « Attitude in correcte envers l’inspecteur principal, chargé du service des étrangers ». Cette somme sera retenue sur sa solde du mois de mars 1950.

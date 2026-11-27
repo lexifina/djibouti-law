@@ -1,1 +1,0 @@
-M. Daher Gouled, commis principal des services administratifs et financiers (2° échelon) en service au Tribunal de Djibouti est, pour compter du 6 février 1968, remis à la disposition du Président du Conseil de Gouvernement du Territoire Français des Afars et des Issas.

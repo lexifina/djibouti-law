@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Abdillahi Waïs, infirmier de 3 classe, 1° échelon, du Cadre territorial de la Santé publique, en service au dispensaire Farah-Had, pour s’être présenté avec trois heures de retard pour assurer sa garde d’infirmier major audit dispensairé, le dimanche 24 décembre 1967.

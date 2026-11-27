@@ -1,1 +1,0 @@
-une permission d’absence de vingti Jours, à compter du 4 septembre 1927, est accordée à M. Bassières, commis principal des secrétariats généraux, pour en jouir à Diré-Daoua (Abyvssinie), Pendant l’absence du titulaire, les fonctions de chef du 3e bureau seront assurées par M. Rivière, adjoint des services civils, en service aux travaux publics.

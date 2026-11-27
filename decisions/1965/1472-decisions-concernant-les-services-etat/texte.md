@@ -1,1 +1,0 @@
-L’officier de Milice. de 2° classe Issé Ismael, Mle 871, de la 1re Compagnie de Milice à Dikhil, arrivant en fin de contrat le 12 septembre 1965, est mis à la retraite à compter du 13 septembre 1965, date à laquelle il sera rayé des contrôles de la Milice de la C.F.S Il recevra le certificat de bonne conduite.

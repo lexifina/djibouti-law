@@ -1,1 +1,0 @@
-M. Rouland, chef du bureau des affaires économiques et du service du ravitaillement général, est nommé cumulativement avec ses fonctions, chef par intérim du service du personnel, des finances et de la comptabilité, en remplacement de M. Martel, pour compter du 24 juin 1948.

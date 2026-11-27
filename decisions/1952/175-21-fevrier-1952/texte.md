@@ -1,2 +1,0 @@
-M. Roussel, adjoint, technique principal de 1er classe du cadre local des Travaux publics de la C.F.S., arrivé à Djibouti le 16 février, est mis à la disposition du Directeur des Travaux publics et du Port et nommé chef de la Subdivision des Etudes (bâtiments et architecture) en remplacement de M. Gabard, ingénieur contractuel des Travaux publics chargé des travaux de la nouvelle centrale électrique.
-La présente décision aura effet pour compter du 16 février 1952, date de son débarquement en Côte Française des Somalis.

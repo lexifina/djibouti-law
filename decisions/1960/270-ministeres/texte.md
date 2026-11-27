@@ -1,2 +1,0 @@
-Une allocation viagère de reversion de 17.762 francs par an est accordée à la nommée Zainab Bint Ali Hindi, veuve de l’exinterprète auxiliaire Mohamed Abdou Saïd, décédé à Djibouti le 8 avril 1929, qui à servi au Service Judiciaire vendant 20 ans 5 mois.
-Cette allocation sera payable trimestrieilement pour-eompter du 1er janvier 1960, sur le vu d’un certificat de vie délivré par les autorités compétentes.

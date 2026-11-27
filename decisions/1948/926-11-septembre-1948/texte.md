@@ -1,1 +1,0 @@
-Un congé de convalescence de huit jours pour en jouir en Ethiopie, est accordé à M. Benazet, sous-chef de section de l’Agence économique des colonies, chef du cabinet civil, pour compter du 10 septembre 1948.

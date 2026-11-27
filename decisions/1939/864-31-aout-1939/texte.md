@@ -1,1 +1,0 @@
-M.Charra (Joseph), inspecteur de le police à la Côte francaise des Somalis, service armé, Cclasse de mobilisation 191%, classé dans l’affectation special par décision n° 945 en date du 1er octobre 195$, est rayé de cette position pour compter de la date de la présente décision.

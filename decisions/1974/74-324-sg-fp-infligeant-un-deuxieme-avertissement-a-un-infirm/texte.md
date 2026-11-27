@@ -1,1 +1,0 @@
-Un deuxième avertissement est infligé à M. Mohamed Moussa Farah, infirmier de 2e classe, 2e échelon du corps territorial de la Santé publique, en service à FHôpital Peltier (pavillon Guibert- Germain, rez-de-chaussée), pour absence non motivée de l’après-midi du 25 janvier 1974.

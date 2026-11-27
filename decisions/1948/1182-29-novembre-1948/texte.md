@@ -1,1 +1,0 @@
-M. Dieffenbach, chef du service de l’agriculture, est nommé, à compter du 15 novembre 1948, secrétaire administratif de l’Office colonial des anciens combattants et victimes de la guerre de la Côte française des Somnlis, en remplacement de M. Lamarque, rentré en France.

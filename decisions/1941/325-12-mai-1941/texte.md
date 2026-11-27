@@ -1,1 +1,0 @@
-Un congé de 25 jours, valable du 1er au 25 juin 19441 inclus, est accordé à MM. Deltour et Guilbaud, respectivement commis principal et commis des p. T. T.. pour se rendre au centre d’estivage de l’Arta.

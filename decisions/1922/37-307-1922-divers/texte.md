@@ -1,1 +1,0 @@
-est autorisé le remboursement à M. Cope, commis de trésorerie de la somme de 2,210 frs, représentant le prix de passageen 2e classe de Marseille à Djibouti de Mme Cope, sa femme, dont il a fait l’avance.

@@ -1,1 +1,0 @@
-Un passage de retour par anticipation pour la Métropole est accordé à Mme.Bonadona (Monique), fille d’un comptable contractuel, âgée, de 3 ans. Une réquisition de passage par voie maritime Djibouti-Mar seille et une réquisition par voie ferrée Marseille-Prades (Pyrénées-Orientales) seront délivrées à l’intéressé (groupe IV).

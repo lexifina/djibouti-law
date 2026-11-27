@@ -1,1 +1,0 @@
-M. Coll (Pierre), ingénieur adjoint stagiaire des travaux publics des colonies, nouvellement débarqué, est mis à la disposition de M. le chef du service des travaux publics, pour compter du 12 juillet, jour de son débarquement dans la colonie.

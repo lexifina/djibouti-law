@@ -1,1 +1,0 @@
-M. Bordas (Robert), mécanicien des Travaux Publics contractuel, est mis à la disposition du Directeur du Service des Travaux Publics, pour servir à l’Usine électrique, pour compter du 29 juin 1951, date de son retour de congé.

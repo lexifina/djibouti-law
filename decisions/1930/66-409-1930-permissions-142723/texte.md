@@ -1,1 +1,0 @@
-une permission de soixante jours, les trente premiers jours donnant seuls droit à la solde et à la demi-solde dans les conditions prévues par l’article 2 de l’arrêté n° 89, du 10 février 1930, est accordée à Ghaleb Kahim, nacouda du boutre Tadjourah.

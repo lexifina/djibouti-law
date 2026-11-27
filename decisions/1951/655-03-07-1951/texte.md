@@ -1,1 +1,0 @@
-Le sergent-infirmier des T.C. Mussino (Louis), est mis à la disposition du Directeur, du Service de Santé, en qualité de sous-officier chargé de la dépense de l’Hôpital principal de Djibouti, à compter du 29 juin 1951, date de son débarquement sur le Territoire.

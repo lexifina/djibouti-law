@@ -1,1 +1,0 @@
-Le nommé Mohamed Ahmed Saleh est engage en qualité d’aide-comptable, 7e échelon, à salaire journalier, pour compter du 25 juin 1947. L’intéressé est mis à la disposition du chef du service du personnel, des finances et de la comptabilité.

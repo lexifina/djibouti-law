@@ -1,1 +1,0 @@
-une indemmité globale de 500 francs a été accordée à Mme Nicolas Libéropoulo, expéditionnaire-comptable au bureau des finances, pour travaux supplémentaires exécutés en dehors des heures de bureau du 14 juin au dernier octobre 1933 inclus.

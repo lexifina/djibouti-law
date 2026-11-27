@@ -1,1 +1,0 @@
-M. Francois Orsini. adiudant-chef du cadre des infirmiers militaire, en position «cadres hors budget des armées », est, pour compter du 17 juin 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique, pour servir au Centre antituberculeux Paul-Faure, en remplacement de l’adjudant-chef Pizivin, rapatrié pour fin de séjour.

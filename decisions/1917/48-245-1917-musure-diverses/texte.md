@@ -1,1 +1,0 @@
-Par suite du départ des troupes du Corps d’occupation et de la rentrée du Médecin Major de Z classe Tardieu, la direction dù Sérvice de Santé de la Colonie à été supprimée le Médecin Major de 20 chasse Léèger en activité H. C. a été chargé à du mème date des fonctions de chef du Service Médical.

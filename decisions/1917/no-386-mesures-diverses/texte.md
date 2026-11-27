@@ -1,1 +1,0 @@
-. Par décision du 27 décembre 1917 et pour compter du 1er janvier 1918 les gardes de 2me classe ci-après désignés ont été élevés à la fre classe de leur grade : Bsaua Ronren No Mle 53, Monsax At No Mle 67, ADEN GUELLEH bpt No Mle 72, Run Eur No Mie 169,

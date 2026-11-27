@@ -1,1 +1,0 @@
-M. Guezennec (François), garde principal de 2e classe de la garde indigène, est chargé par intérim des fonctions de commandant de la garde indigène pendant l’absence de M. Rossât, à compter du 29 juin, jour de départ en congé de ce dernier.

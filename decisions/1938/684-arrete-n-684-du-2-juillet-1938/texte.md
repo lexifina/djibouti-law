@@ -1,1 +1,0 @@
-M. Alemant (Pierre), administrateur des colonies, chef du service du travail et inspecteur du travail, est chargé cumulativement des fonctions de chef de service de l’inscription mari time pour compter du 22 septembre 1937, date de sa prise de service.

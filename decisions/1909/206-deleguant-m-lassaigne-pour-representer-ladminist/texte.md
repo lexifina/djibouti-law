@@ -1,1 +1,0 @@
-Par décision du Gouverneur en date du 26 décembre 1909, M. Lassaigne. administrateur adjoinl des Colonies, est délégué pour repré senter FAdministration locale au Conseil de Curatelle la Côte Française les Somalis pendant l’année judicaire 1909-1910.

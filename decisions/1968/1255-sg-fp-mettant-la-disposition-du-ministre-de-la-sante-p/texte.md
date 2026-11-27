@@ -1,1 +1,0 @@
-M Gabriel Marrast, adjudant du cadre du Service de Santé des armées arrivé au Territoire le 11 juillet 1968, est, pour compter de la même date, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir à l’hôpital Peltier, en remplacement de l’adjudant Francis Moulard, rapatrié.

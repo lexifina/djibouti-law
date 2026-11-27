@@ -1,1 +1,0 @@
-Dérogation est accordée à M. Komninakis Spyridon, de nationalité hellénique, pour exercer, en gérance libre, le commerce des boissons, licence de 1° classe, à Doraleh (District de Djibouti), au bar-restaurant appartenant à M. Ali Bogoreh Bouh.

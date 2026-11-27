@@ -1,1 +1,0 @@
-Mlle Salwa Saïd Omar est autorisée à acquérir une parcelle de terrain bâti, d’une superficie de 2.400 mètres carrés, sise à Djibouti – Ambouli, lot n° 83 du lotissement de l’Aérogare, immatriculée au Livre foncier du Territoire sous le n° 852 au nom de M. Saïd Omar Mohamed.

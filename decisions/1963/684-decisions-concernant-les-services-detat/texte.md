@@ -1,3 +1,0 @@
-Une allocation viagère d’ancienneté de trente six mille francs (36.000 FD.) l’an est accordée aux héritiers de Ahmed Kahen Guelle, ex-milicien de 1° classe, matriicule 121, ayant accompli 15 ans de service au 8 juillet 1943 et décédé le 15 décembre 1961
-Cette allocation est payable pour la période du ler janvier 1957 au 15 décembre 1961 inclus.
-Pour compter du 16 décembre 1961, une allocation viagère de reversion sera versée, trimestriellement et à terme échu, à la nommée Oubado Warsama, veuve de Ahmed Kahen Guelle, aux taux fixés par les textes en vigueur et sur présentation d’un certificat de vie délivré par les autorités compétentes du Territoire.

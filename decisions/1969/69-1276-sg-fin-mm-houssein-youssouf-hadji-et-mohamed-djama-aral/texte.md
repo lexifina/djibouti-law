@@ -1,1 +1,0 @@
-MM. FHoussein Youssouf Hadji et Mohamed Djama Arale sont autorisés à acquérir une parcelle de terrain bâti, sise à Djibouti, à l’angle de la rue de Rome et de l’avenue GeorgesClemenceau, immatriculée au Livre foncier du Territoire sous le n° 373. au nom de M. Amine Salem Abdallah Mouti.

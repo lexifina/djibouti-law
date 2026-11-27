@@ -1,1 +1,0 @@
-Un témoignage officiel de satisfaction est décerné à M. Poisson (Georges), administra leur adjoint de 1er classe des colonies, chargé de la défense passive au village indigène, pour avoir accompli courageusement sa mission pendant le bombardement du 22 juin 1940 et assuré la sécurité de la population indigène

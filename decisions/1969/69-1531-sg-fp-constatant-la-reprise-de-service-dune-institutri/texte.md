@@ -1,1 +1,0 @@
-Est constatée, pour compter. du 25 septembre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service de l’Enseignement (Ministère de l’’Enseignement, des Sports et de la Jeunesse), par Mme Mahaboubounissa Houssaine, institutrice 1° échelon.

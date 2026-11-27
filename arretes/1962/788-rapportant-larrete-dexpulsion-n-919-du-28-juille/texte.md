@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 919 du 28 juillet 1954 en cé qui concerne Abdillahi Hadji Farah Dirir, Somali Issa rer MousSa Saad Moussa Daha, né vers 1916 à Zeila (République Somalie), de Farah Dirir et de Kaïbo Abdouleh.

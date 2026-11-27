@@ -1,1 +1,0 @@
-M. Delcros (Rémy), ingénieur des travaux publics, chargé du contrôle local dun chemin de fer franco-éthiopien en Afrique-Orientale italienne, service armé, classe de mobilisation 1924 est classé dans l’affectation spéciale, dans son emploi actuel, pour une période indéterminée à compter de la date de la présente décision.

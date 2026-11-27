@@ -1,2 +1,0 @@
-Pour compter du 1er dudit les askaris de 2me classe de la Police urbaine: Hassen Arthé, Hassen Taher Omar,Tanyv-Erey et Omar Ramadan sont clevés à la 1re classe de leur emploi les askaris de 2Me classe de la Police vurale: Saïd Saleh et Qualde Raphaël sont élevés à la 1re classe de leur emploi — En solde de l’interprête de la Police rurale Doalé Boone est portée de 80 à 85 fr.
-par mois — Le sergent de la Police rurale Gabre Mariam et l’Askari de 1re classe.Abdi Abdallah, bénéficieront d’une augmentaion de solde de 5 franes par mois.

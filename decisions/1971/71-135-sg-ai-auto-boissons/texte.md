@@ -1,1 +1,0 @@
-M. Bruno Lucien est autorisé à exploiter en gérance libre une licence de 2° classe (vente des boissons alcoolisées ou fermentées à consommer sur place dans un établissement n’ouvrant qu’à partir de 18 heures) au « Scope Bar », sis au cinéma Olympia, et dont la propriétaire est Mme Gleyze.

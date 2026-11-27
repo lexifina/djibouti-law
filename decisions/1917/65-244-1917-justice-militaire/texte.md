@@ -1,1 +1,0 @@
-M. Auvigne, Chef de Bataillon au 34° Bataillon de Tirailleurs Sénéggalais a été nommé Président du Conseil de guerre permanent dela Côte Française des Somalis à compter du 25 février 1917 et pour une période de 6 mois en remplacement du Chef de Bataillon Colonna d’Istria du 77° Bataillon de Tirailleurs Sénégalais, rapatrie.

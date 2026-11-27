@@ -1,2 +1,0 @@
-Un congé administratif de douze mois (12), pour en jouir à Ambatondrazaka (Madagascar), est accordé à M. Rasoarahona (Ignace), écrivain interprète principal de 4e classe, détaché en Côte Française des Somalis, qui a accompli un séjour effectif et ininterrompu de plus de quatre ans dans le Territoire.
-M. Rasoarahona, qui appartient au groupe IV, voyagera par la voie maritime de Djibouti à Tamatave et par voie ferrée de Tamatave à Ambohimanga Alaotra, aux frais du budget local de la Côte Française des Somalis.

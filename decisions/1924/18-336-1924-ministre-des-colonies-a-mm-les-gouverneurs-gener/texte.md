@@ -1,3 +1,0 @@
-Aux termes de l’article 7 de la convention postale franco-marocaine du 1er octobre 1913, le gouvernement chérifien s’engage à appliquer les règlements poslaux de l’Adiminisiralion française dans ses rapports avec la France, l’Algérie, les colonies francaises.
-Le directeur général de l’Office des postes el des télégraphes du Maroc vient de me faire connaîlre que, par application de cel article, il a pris les mesures nécessaires pour élendre, dès maintenant, dans les relations entre le Maroc el les colonies francaises, les dispositions du décret du 26 mars 1924 portant réorganisation du service des arlicles d’argent franco-coloniaux.
-J’ai l’honneur de vous en aviser et de vous prier de vouloir bien notifier cette décision aux services coloniaux intéressés,

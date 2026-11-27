@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est infligé à M. Mohamed Moussa Farah, infirmier de 2e classe, 2e échelon, du Corps territorial de la Santé publique, en service à l’Hôpital Peltier (Pavillon Guïbert-Germaïin, rez-de-chaussée) pour absences répétées et non justifiées.

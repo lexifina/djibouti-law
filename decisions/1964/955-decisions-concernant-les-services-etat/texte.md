@@ -1,1 +1,0 @@
-Les miliciens de 1° classe Mohamed Abado, mle 2245, et Houmed Ahmed, mie 2244, de la 2° compagnie de Milice à Tadjourah, arrivant en fin de-Contrat le 9 juillet 1964, sont mis à la retraite pour compter du 9 juillet 1964.

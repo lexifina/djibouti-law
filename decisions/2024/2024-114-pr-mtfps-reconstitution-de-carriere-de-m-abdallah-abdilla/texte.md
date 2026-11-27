@@ -1,2 +1,0 @@
-Par décision n°2024-114/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 17 mars 2024, M. ABDALLAH ABDILLAHI MIGUIL, administrateur civil de classe- exceptionnelle Chevron B-2°échelon du Corps de l’Administration Générale, est classé après reconstitution de carrière, au grade d’administrateur civil de Classe-exceptionnelle Chevron A-1°échelon.
-La présente Décision qui prendra effet à compter de la date de signature sera enregistrée, communiquée, exécutée partout où besoin sera et publiée au Journal Officiel de la République de Djibouti.

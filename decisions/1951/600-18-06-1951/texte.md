@@ -1,1 +1,0 @@
-Mlle Laty Marguerite), secrétaire auxiliaire 2e catégorie à salaire journalier, en service à le Direction du Service de Santé (Services pharmaceutiques), est admise à salaire mensuel pour compter du 1er juin 1951.

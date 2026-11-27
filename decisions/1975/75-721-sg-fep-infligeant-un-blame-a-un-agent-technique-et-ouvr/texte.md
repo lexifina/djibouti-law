@@ -1,1 +1,0 @@
-Un blame avec inscription au dossier est infligé à M. Farah Voussouf Moussa, agent technique et ouvrier principal, 1er échelon du corps territorial des Travaux publics et du Port pour absences répétées et injustifiées et manqüe de rendement professionel

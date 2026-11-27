@@ -1,3 +1,0 @@
-M. Douteau Henri, Pierre, Louis, Secrétaire Administratif de Préfecture de 1re classe, 2e échelon, est nommé pour compter du ler février 1961, billeteur pour.le paiement de la Solde et des Allocations accessoires des personnels mensuels et journaliers des Subdivisions du Port, entretenues sur les fonds du Budget local, du Budget de l’Etat et du F.I.D.E.S. en remplacement de M. Landru Gaston, partant en congé.
-Cumulativement avec ses fonctions, M. Douteau Henri, Pierre, Louis, est nommé pour compter du 1er février 1961, Régisseur de la Caisse des Menues Recettes du Port.
-L’intéressé pourra prétendre à l’indemnité prévue par l’arrêté n° 1704 modifié du 31 décembre 1955, sus-visé.

@@ -1,1 +1,0 @@
-une allocation mensuel le de 150 francs par mois est allouée aux chefs Issas dont les nos suivent : Egué Gaérenne (Issa Orouina rer Fiki); Arbi Djabakarlé (Issa Fourlaba Hamaldé), à compter du 1er novembre 1928.

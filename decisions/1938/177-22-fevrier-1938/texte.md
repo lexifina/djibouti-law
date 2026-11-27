@@ -1,1 +1,0 @@
-M. Pierre Ravailler, procureur de la République, chef du service judiciaire de la Côte française des Somalis. retour de congé, reprend ses fonctions dont il est titulaire, pour compter du 18 février 1938, jour de son débarquement.

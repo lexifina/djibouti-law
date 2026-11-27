@@ -1,2 +1,0 @@
-Sont pris en charge, à titre exceptionnel et jusqu’à son retour au Territoire, les frais d’hospitalisation de M. Mohamed Warsama Dirieh, expéditionnaire d’administration, actuellement en traitement à l’Hôpital Laënnec à Paris.
-Cette dépense sera imputée sur le chapitre 11, art. 1«, $ 6 au Budget Local pour l’exercice 1960 en ce qui concerné la période du 7 octobre au dernier décembre 1960 et sur le chapitre 2,art, 2, $ 6 du Budget local pour l’exercice 1961 du 1er janvier 1961 à la date de son retour.

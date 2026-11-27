@@ -1,1 +1,0 @@
-M. Augustin Ravet, adjudant-chef en position cadre hors budget des Armées (indice nouveau 328), est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 4 juillet 1969, pour servir à l’Hôpital Peltier en remplacement numérique de l’adjudant-chef Antonini, rapatriable.

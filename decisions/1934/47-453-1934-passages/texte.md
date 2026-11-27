@@ -1,1 +1,0 @@
-une permission supplémentaire d’absence de quinze jours, à compter du 7 août 1934, est accordée à M. et Mme Duchenet, instituteurs en service à la Côte française des Somalis, actuellement en Ethiopie.

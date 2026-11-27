@@ -1,2 +1,0 @@
-un congé de convalescence de trois mois pour en jouir en France (à Termes Ardennes) est accordé à M. Chignon Pierre, payeur de 3e classe des Trésoreries coloniales en service en Côte Française des Somalis.
-L’intéressé, qui est autorisé à rentrer par voie maritime (1re classe) pourra, sur sa demande, percevoir avant son départ une avance de solde dans les conditions prévues à l’article 11 du décret du 1er août 1944 susvisé.

@@ -1,1 +1,0 @@
-M. Hanri Dubourdieu, inspecteur des Douanes, 5e échelon, est, Pour compter du 5 novembre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre des Finances pour Servir aux Contributions Indirectes.

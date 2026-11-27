@@ -1,1 +1,0 @@
-et pour compter du 15 du dit, l’indemnité de 300 fr. par an prévue au budget en faveur du sous-officier, chef du détachement d’Obock, sera payée au sous-officier chef du détachement du poste de l’Houada.

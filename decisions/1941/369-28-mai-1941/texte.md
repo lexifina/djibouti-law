@@ -1,1 +1,0 @@
-M. Fontanel, sous chef mécanicien, se rendra par première occasion à Obock et Tadjoura pour assurer la mise en place de deux ma chines à main type E. R. 17-22 et vérifier les installations des deux postes radios.

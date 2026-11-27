@@ -1,1 +1,0 @@
-L’administrateur de 2e classe des colonies René Lefebvre, commandant du cercle de Djibouti, est chargé des fonctions d’ordonnateur-délégué du budget local et des budgets annexes, pendant l’absence de l’administrateur des colonies Liurette, titulaire.

@@ -1,1 +1,0 @@
-Mme Guillemoto, dame-employée auxiliaire 3e catégorie, en service à l’Inspection du Travail et des Lois sociales, est mise à la disposition de M. le Chef du Service des Contributions directes, en remplacement numérique de Mme Duchet, pour compter du 23 novembre 1953.

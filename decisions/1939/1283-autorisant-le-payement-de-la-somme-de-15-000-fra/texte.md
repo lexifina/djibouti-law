@@ -1,2 +1,0 @@
-Art, 1, — La regie provisoire de la distribution d’é inergie 6 lectrique de Dijibouti est autorisée à paver la somme de quinze mille iranes _( 15,000 franes) M° Ghaleb. greffier-n otaire, au titre des honoraires dus pour son intervention dans le rachat de In concession de distribution de l’énergie électrique.
-Art 2 — Le chef de service des travaux publics. É tdministrateur de l’usine électrtique, est he ose de l’exécution de la présente decision qui sera enregistrée et communiquée partout où besoin sera,

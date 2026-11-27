@@ -1,1 +1,0 @@
-M. Lucien Collignon, professeur certifié de lettres classiques est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.

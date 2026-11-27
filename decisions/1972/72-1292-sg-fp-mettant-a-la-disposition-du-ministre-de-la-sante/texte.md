@@ -1,1 +1,0 @@
-M. Bernard Le Quellec, médecin en chef de 2e classe, est, pour compter du 14 août 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir en qualité de Chef des Servicés chirurgicaux de l’hôpital Peltier, en remplacement du médecin de classe Bourgès, rapatrié.

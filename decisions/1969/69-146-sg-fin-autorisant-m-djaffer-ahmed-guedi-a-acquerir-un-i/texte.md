@@ -1,1 +1,0 @@
-M. Djaffer Ahmed Guedi est autorisé à acquérir un immeuble, sis à Djibouti, Lotissement du Stade, maison type ITT-A, n° 609-3 et faisant partie d’un terrain plus vaste immatriculé au Livre foncier du Territoire sous le n° 785 au nom de la Société immobilière de Djibouti et du T.E.FA.L

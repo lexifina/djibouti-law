@@ -1,1 +1,0 @@
-les cessions «le matériels d’emballage sont autorisées d’une façon permanente aux particuliers. Les prix en seront tixés par le directeur de ‘intendance conformément aux prescriptions de l’article 159 du règlement du 16 janvier 1905 sur la comptabilité des matières.

@@ -1,2 +1,0 @@
-Les nommés ABDOU RHAMAN ABOUBAKER et MOHAMED AHMED sont engagés, à compter du 1er janvier 1945, en qualité de gardien de nuit par le Service de l’Enregistrement, des Domaines et du Timbre ( surveillance des bureaux de l’Enregistrement et du local sis au rez-de-chaussée de l’imm uble n 98 du Plateau de Djibouti rue d’Athènes ) en remplacement des dénomme NASSER ben NASSER ( SAYED SALEH MOUSTAPHA. licencies de leur emploi à compter de la même date.
-Ils percevront une indemnité mensuelle de trois cents francs, imputable au chapitre VI, article 3.

@@ -1,1 +1,0 @@
-le soldat infirmier des troupes coloniales H. C. GUYON N° mle S. I. C. 1305 a été désigné pour prendre passage sur le paquebot des Messageries Maritimes « Cordillière” attendu à Djibouti le 2 Juillet 1915.

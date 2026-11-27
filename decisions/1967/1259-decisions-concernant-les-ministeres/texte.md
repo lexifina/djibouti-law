@@ -1,2 +1,0 @@
-Est accordée, au Président du Conseil d’administration du Diocèse de Djibouti, l’autorisation préalable de construire un bâtiment à deux niveaux au Foyer Social pour l’Evolution de la Femme Africaine, sur les titres fonciers n°° 699 et 705, boulevard de Gaulle.
-La présente autorisation ne vaut pas permis de construire qui sera délivré par par le Commandant de Cercle de Djibouti suivant la procédure réglementaire.

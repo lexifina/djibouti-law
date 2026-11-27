@@ -1,1 +1,0 @@
-17 août 1931, M. Chollet (Rolland) est rapatrié sur France, Il prendra passage sur le paquebot Explorateur-Grandidier, de la Compagnie des Messageries Maritimes, attendu à Djibouti vers le 17 août 1931,

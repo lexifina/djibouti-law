@@ -1,2 +1,0 @@
-Les décisions n° 1238 du 11 décembre 1929. nommant M. Derbés président de ln Commission d’évaluation des réquisitions militaires en remplacement de M. Perron, rapatriable, et n° 9, du 3 janvier 1940, nommant M, Alemant président de la même Commission en remplacement de M. Perron, rapatrié, sont années
-dt Le président. de la commission d’évatuntion des réquisitions militaires reste M. Derbé, chef du service des fina nces, en vertu des dispositions de la décision n° 1248 du 9 décembre 1939, seule applicable en l’espèce,

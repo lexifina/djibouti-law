@@ -1,2 +1,0 @@
-Le stage de perfectionnement professionnel qu’accomplit M. Osman Cherie Guedi, dépanneur d’appareils réfrigérateurs, à la Société Genefal Motors à Gennevilliers (Seine), qui expirait le 4 janvier 1963, est prolongé de quatre mois qu’il effectuera à la Société Airwel à Chatou (S.-et-O.).
-Les dépenses afférentes à cette prolongation de stage sont à la charge du Budget local de la C.F.S., chapitre 22, article 3, paragraphe 1.

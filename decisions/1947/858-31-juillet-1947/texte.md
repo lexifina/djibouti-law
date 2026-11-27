@@ -1,2 +1,0 @@
-M. Chavigny, commis principal d’ordre et de comptabilité du ministère des finances, en service détaché à la Côte française des Somalis, est mis à la disposition de M. le trésorier-payeur de la Côte francaise des Somalis, pour compter du jour de son débarquement à la colonie.
-M. Chavigny est assimilé, au point de vue traiteiment, à un commis de 2° classe du cadre Jocal de la trésorerie de la Côte francaise des Somalis (traitement de base 68.000 francs), pour compter de la veille de son embarquement.

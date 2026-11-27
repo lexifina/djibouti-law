@@ -1,1 +1,0 @@
-un passage à destination de Marsellle est dde à l’adjudant-chef de la section mixte des infirmiers militaires des troupes coloniales Jegousse (Emile), en servic e hors cadres à la côte francaise des somalis.

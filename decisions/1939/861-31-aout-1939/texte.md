@@ -1,1 +1,0 @@
-M. Banabila (Abdonrahama, contrôlenr des PU T. cadre local, service auxilinire, cluxse de mobilisation 1910, elassé dans l’affectation spéciale par décision n° 255 du 13 avril 1936, est ravé de cette position pour compter de la date de la présente décision.

@@ -1,1 +1,0 @@
-une Commission composée de MM. Carreau, Secrétaire Général p-i, Président, Le Carro Chef du 1er bureau du Secrétariat Général, Bernard, patenté français, Kalos, patenté étranger, a été désignée pour se réunir sur la convocation de son président à l’effet de dresser la liste électorale de la Chambre de Commerce.

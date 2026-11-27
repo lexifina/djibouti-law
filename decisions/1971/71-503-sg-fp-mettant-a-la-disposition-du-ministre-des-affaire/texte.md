@@ -1,1 +1,0 @@
-Le brigadier-chef des Compagnies Républicaines de Sécurité, Majean Théo, matricule n° 521.449, nouvellement affecté, «est mis à la disposition du Ministère des Affaires intérieures, pour servir “au Commissariat de Police de Djibouti.

@@ -1,1 +1,0 @@
-la femme indigène Aïcha est nommée aide-auxiiaire au dispensaire Chapon-Raissae, à compter du 20 janvier 1930. Elle aura droit en cette qualité et pour le service de matinée seulement à un traitement mensuel de 90 francs.

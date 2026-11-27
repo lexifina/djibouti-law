@@ -1,1 +1,0 @@
-M. Youssouf Omar Guelle, titulaire du BEPC, qui assure les fonctions d’enquêteur de police à la direction de la Police, est intégré dans le cadre territorial des enquêteurs de police et nommé enquêteur 2e échelon pour compter du 1er janvier 1977.

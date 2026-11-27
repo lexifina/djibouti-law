@@ -1,1 +1,0 @@
-une accordée de trois mois pour examen est. à M. Linguenheim, brigadier-chef de 3 classe du cadre métropolitain Douanes des pour en jouir en France. M. Linguenheim aura droit de solde aux avances prévues du par l’article 11 du décret.

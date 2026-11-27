@@ -1,1 +1,0 @@
-M. Mohamed Ali Soubackle, technicien de 1re classe, 1er échelon du Cadre Territorial de la Santé Publique est révoqué de son emploi sans suspension de ses droits à pension pour complicité du délit de diffamation à l’égard du Ministre des Finances, et rayé du contrôle du Personnel des Cadres Territoriaux.

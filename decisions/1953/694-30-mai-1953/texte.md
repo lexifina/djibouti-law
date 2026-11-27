@@ -1,1 +1,0 @@
-Mme Hicard, précédemment en service aux Postes et Télécommunications en qualité de dame-employée auxiliaire 1re catégorie, reprend ses fonctions et est mise à la disposition du Directeur des Travaux publics et du Port, pour compter du 11 mai 1953.

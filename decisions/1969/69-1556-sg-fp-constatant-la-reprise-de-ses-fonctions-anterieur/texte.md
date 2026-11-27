@@ -1,1 +1,0 @@
-Est constatée, pour compter du 16 octobre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures de chef du Service du personnel territorial au Ministère de la Fonction publique par M. Balakichenaretty, secrétaire administratif de classe normale, 11° échelon du cadre latéral de préfecture.

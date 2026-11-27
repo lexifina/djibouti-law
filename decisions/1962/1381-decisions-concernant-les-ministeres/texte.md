@@ -1,2 +1,0 @@
-Une allocation viagère de reversion de dix-huit mille neuf cent vingt francs (18.920 F.D.) par an est accordée à Mme Mariam Bourhane Ibrahim, veuve de Aden Mohamed Ali, ex-chef d’équipe du Service de la Voirie décédé à Djibouti le 13 juin 1962.
-Cette allocation sera payable trimestriellement pour compter du 14 juin 1962 et à terme échu sur le vu du certificat de vie délivré bar les autorités compétentes du Territoire:

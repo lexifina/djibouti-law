@@ -1,1 +1,0 @@
-M. Maurel (Robert), Ingénieur de 4e cl. des T.P.C. de la France d’Outre-Mer, est chargé, pendant l’absence de M. Raffaneau, en mission en France, de l’expédition des affaires courantes et urgentes de la Direction du Port de Djibouti.

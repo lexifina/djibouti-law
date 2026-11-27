@@ -1,2 +1,0 @@
-Est inscrit au tableau d’avancement du 1er juillet 1949 : M. Rabibizaka (Marcel), commis greffier de 2e classe, du cadre local européen des commis greffiers, pour le grade de commis greffier de 1re classe, pour compter du 1er janvier 1949. Est nommé pour compter du 1er janvier 1949, au point de vue solde et ancienneté:
-— commis greffier de 1re classe : M. Rabibi zaka (Marcel), commis greffier de 2e classe du cadre local européen des commis greffiers.

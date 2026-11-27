@@ -1,1 +1,0 @@
-Le nomme BARED I ARAH est engage en qualité d’aide mécanicien des P.T.T. et mis à la disposition du Chef de la Station Côtière pour compter du 2 janvier 1943. Le montant de son salaire mensuel est fixé à trois cents francs.

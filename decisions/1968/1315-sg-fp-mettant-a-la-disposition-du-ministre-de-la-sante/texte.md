@@ -1,1 +1,0 @@
-M. Ignace Puisy, adjudant du Service de Santé des Armées, est, pour compter du 11 août 1968, date de son arrivée à Djibouti, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’Hôpital Peltier en remplacement de l’adjudant Petit, rapatriable.

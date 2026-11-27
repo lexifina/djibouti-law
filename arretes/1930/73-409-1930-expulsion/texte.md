@@ -1,1 +1,0 @@
-le nommé Coubarellis (Théodore), sujet grec, est expulsé de la Côte francaise des Somalis et devra quitter dans un délai expirant le 31 décembre 1930, le territoire de la colonie qui lui reste interdit, ainsi que celui de ses dépendances.

@@ -1,1 +1,0 @@
-La décision n° 379 en date du 29 mars 1963 portant recrutement de quarante-deux Gardes Territoriaux est, et demeure rapportée en-ce qui concerne le nommé Boul Boul Ayanleh, l’intéressé faisant lobiet de l’arrêté d’expulsion n° 815 du 17 juillet 1961, sous le nom de Abdoulkader Alayeh Aoul.

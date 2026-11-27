@@ -1,1 +1,0 @@
-M. Ismael Ahmed, cuisinier auxiliaire en service à l’Hôpital Principal de Djibouti, est licencié de son emplo pour compter du 15 juin 1953, pour mauvaise manière habituelle de servir et inaptitude professionnelle.

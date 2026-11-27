@@ -1,1 +1,0 @@
-le sergent-major des troupes coloniales Gaudry (Claude), désigné pour servir en activité hors cadre à la Cède française des Somalis, débarqué à Djibouti le 12 décembre 1927, est chargé de la comptabilité des écritures de l’hôpital. Il aura droit aux indemnités prévues au budget à compter du 13 décembre 1927, date de la prise de service.

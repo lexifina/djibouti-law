@@ -1,1 +1,0 @@
-Est engagé en qualité de moniteur taxiderinique, et affecté au service zootechnique, pour compter du 5 septembre 1947, le nommé Omar Mohamed, à la solde mensuelle de deux mille cent francs (2.100 fr.) exclusive de toutes indemnités.

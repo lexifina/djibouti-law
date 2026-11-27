@@ -1,1 +1,0 @@
-Est constatée, pour compter du 30 janvier 1960. date de son retour dans le Territoire, la reprise par M. Bourhis (Eugène), Ingénieur de 1° classe des Travaux Météorologiques de ses fonctions de Chef du Sérvice Météorologique de la Côte Française des Somalis.

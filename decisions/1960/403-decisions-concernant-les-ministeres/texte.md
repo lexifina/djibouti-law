@@ -1,1 +1,0 @@
-Mme Tissot Juliette, auxiliaire 1er catégorie, échelle XI, échelon IF, indice 970, en service au Cercle de Djibouti, est autorisée à effectuer des heures supplémentaires dans les limites fixées par l’arrêté n° 1372 du 12 novembre 1953, pour travaux de secrétariat.

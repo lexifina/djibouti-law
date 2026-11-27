@@ -1,1 +1,0 @@
-M. Autheaume (Georges), chef Ge carrière à la Société des Batignolies, service armé, classe de mobilisation 1914, est classé Gans l’affectation spéciale dans son emploi actuel, pour une durée de trois mois, à compter de la date de la présente decision.

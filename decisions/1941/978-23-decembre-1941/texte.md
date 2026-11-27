@@ -1,1 +1,0 @@
-Le lieutenant Marnay, du bataillon de tirailleurs sénégalais n° 1, remplira conjointement avec ses fonctions de commandant du détachement d’Obock, celles d’adjoint au commandant de cercle pour compter du 25 décembre 1941.

@@ -1,2 +1,0 @@
-M. Gabriel Jean, administrateur en chef, 2e échelon, des Affaires d’outre-mer (indice net 565), qui a quitté Paris par la voie aérienne le 27 mai 1966, est, pour compter du 28 mai 1966, date de son arrivée au Territoire, nommé premier adjoint du Commandant de Cercle de Djibouti, en remplacement de M. Frier.
-M. Gabriel sera pris en charge par le Budget de l’Etat pour compter du 26 mai 1966, veille de son embarquement à destination du Territoire.

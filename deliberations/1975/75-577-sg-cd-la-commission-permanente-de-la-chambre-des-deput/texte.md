@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 97/8°L du 21 mars 1975 de la Commission Permanente de la Chambre des Députés du Territoire français des Afars et des Issas autorisant un Agent spécial de Compagnie d’Assurance déjà agréé à pratiquer des opérations d’assurances et réassurances vie.

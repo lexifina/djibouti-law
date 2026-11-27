@@ -1,1 +1,0 @@
-D. Daniel Courtois, médecin-capitaine du Service de Santé des armées, est, pour compter du 31 juillet 1968, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir en qualité de chef du Service d’Hygiène et du Laboratoire de Microbiologie de l’hôpital Peltier, en remplacement du médecin-commandant Fourquet, rapatriable.

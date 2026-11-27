@@ -1,1 +1,0 @@
-Est constatée à compter du 19 septembre 1960 la reprise de ses fonctions par Mme Miilon née Labanhie (Josette) secrétaire-dactylographe auxiliaire (échelle IX, 2e échelon, indice 750) employée au Service Judiciaire, en remplacement numérique de Mme Rakotoarivony Sahondra, démissionnaire

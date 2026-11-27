@@ -1,1 +1,0 @@
-31 décembre 1982, M. Alemant, administrateur-adjoint des colonies, est charge de la verfiication de la Caisse du receveur de la comptable des P. P, de Djibouti, à la date du 31 décembre 1932, en remplacement de ladministrteur Collombet, indisponible.

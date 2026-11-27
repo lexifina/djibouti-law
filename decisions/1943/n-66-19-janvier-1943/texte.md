@@ -1,1 +1,0 @@
-Le Milicien de 1ère Classe HOUSSELN OUITI No Mle 695 est libéré du service actif pour fin de contract a compter du 16 Janvier 1943. Ce Milicien qui n’a pas atteint quinze ans de service ne peut prétendre i aucune indemnité.

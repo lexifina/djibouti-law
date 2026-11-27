@@ -1,1 +1,0 @@
-Est acceptée à compter du 15 Mars 1942 la démission d’Adjoint technique principal de 3me classe du cadre local des Travaux Publics de la Côte Française des Somalis présentée par M. DELAUNAY Marcel. actuellement en service à Madagascar.

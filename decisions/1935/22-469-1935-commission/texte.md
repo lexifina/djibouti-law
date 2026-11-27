@@ -1,3 +1,0 @@
-la Commission chargée conformément à l’article 6 du décret du 25 mai 1912portant création d’une Chambre de commerce à la Côote Trançaise des Somalils, de dresser la liste des électeurs de la chambre de commerce de Djihouti, pour l’année 1936, est composée de la façon suivante :
-M. Derbès, chef des bureaux du Secreteriat géneral president;
-MM.Callard president de la chambre de commerce :Coliot. chef du fmirenu des finances Sariilos, commercant etranger, membres, la Commission réunira sur la convocation dec son président, qui présentera la liste des électeurs à l’approbuition du Gouverneur en Conseil d’administration.

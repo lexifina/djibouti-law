@@ -1,1 +1,0 @@
-Les restes mortels de M. Ora À. Newkirk, décédé à Djibouti le 16 mars 1963, actuellement au dépositoire de cette ville, seront transférés aux Etats-Unis, via Addis-Abéba, par l’avion des Ethiopian Air Lines du 31 mars 1963.

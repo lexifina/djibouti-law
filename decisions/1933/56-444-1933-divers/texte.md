@@ -1,1 +1,0 @@
-une somme de 500 francs a été mise à la disposition de M. le commandant militaire pour participation de la colonie dans les dépenses engagées à l’occasion de la réception offerte par les officiers de la place au commandant et à l’état-major du navire école Jeanne-d’Are.

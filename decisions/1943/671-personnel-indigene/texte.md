@@ -1,1 +1,0 @@
-ABDOU NADJI précédemment employé à la Capitainerie du Port et engagé à l’essai à l’Usine Electrique depuis le 18 Juin 1943, est nommé agent auxiliaire de ce service pour compter de la même date au salaire mensuel de MILLE CENT SOI XANTE. FRANCS exclusif de toute indemnité.

@@ -1,1 +1,0 @@
-Lue punition comportant une retenue de quatre cent cinquante francs de solde à effectuer en trois mensualités de cent cinquante franes, est infligée à l’agent contractuel malgache Razafindrakoto (lierre), pour indélicatesses commises an cours d’un travail de confiance dont il était chargé

@@ -1,1 +1,0 @@
-un congé administratif de 6 mois à passer en France à Genolhac (Gard) est accordé à M. Paulet, brigadier de 2e classe des douanes Cet agent et Madame Paulet prendront passage sur le paquebot attendu à Djibouti le 28 octobre 1912.

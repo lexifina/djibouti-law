@@ -1,1 +1,0 @@
-il est fait remise pleine et entière de leur peine, à l’occasion de la Fête Nalionale, aux nommés Roblé Ouais, Moussa Omar, Tabel Ali, Ahmed Ali, Omar Ouabéri, Kalif Ouarsama, Kaïd Abdourah, Gueddih Goun. Il est fait remise de 6 mois de sa peine au nommé Egué Nour.

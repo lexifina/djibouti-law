@@ -1,1 +1,0 @@
-Est rapportée pour compter du 13 octobre 1941 la décision n° 489 du 19 juillet 1911 susvisée en ce qu’elle concerne M. Dufaud (Ro ger), vérificateur du C.L. des douanes après 2 ans. M. Dufaud est remis, pour compter de la même date, à la disposition de M. le chef du Service des douanes.

@@ -1,1 +1,0 @@
-MM. Bertrand (Maurice), service armé, classe de mobilisation 1919, et Hostein (Georges), service armé, classe de mobilisation 1918, fondé de pouvoirs de la Banque de l’Indochine, sont classés dans l’affectation spéciale, dans leur emploi actuel, pour une durée illimitée à compter de la date de la présente décision.

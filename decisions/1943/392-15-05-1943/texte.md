@@ -1,1 +1,0 @@
-Le Lieutenant de Vaisse FLORENS, Commandant la Marine, est provisoirement chargé cumulativement avec ses fonctions actuelles, de celles de Chef du Service Local des Transports Maritimes en remplacement de M. NAS de TOURRIS, agent des Mes sageries Maritimes, en instance de départ.

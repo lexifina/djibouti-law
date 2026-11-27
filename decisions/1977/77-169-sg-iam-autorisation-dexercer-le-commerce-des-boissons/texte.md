@@ -1,1 +1,0 @@
-Une autorisation administrative d’exercer le commerce des boissons avec licence de 1re classe «A», est accordée à Mme Angela Memet Guebrat, pour l’exploiter dans son établissement situé boulevard Bonhoure angle rue Soleill et à Djibouti.

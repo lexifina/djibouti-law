@@ -1,4 +1,0 @@
-a été autorisée l’exhumation des restes mortels de l’enfant Folacci (Paul), fils d’un commis principal de trésorerie, décédé à Djibouti, le 9 juillet 1933, ainsi que leur transfert à Santo-Piétro di Tanda (département de la Corse) dans les conditions déterminées par l’arrêté ministériel du 29 juillet 1916, déterminant les conditions d’autorisation pour le transfert en France où dans une des possessions d’outre-mer, des restes
-mortels des personnes décédées dans les colonie.
-Les dépenses engagées pour l’exhumation et la translation en France des restes mortels de Paul Folacei seront supportées par le budget local, dans la limite prévue par les dispositions de l’arrêté n° 469, du 15 novembre 1924.
-Le cercueil déposé provisoirement dans le caveau du cimetière, sera enlevé en présence d’un médecin et du commandant du cercle de Djibouti, ou de son délégué; ce dernier dressera procès-verbal de l’exhumation qui sera signé par les assistants auxdites opérations.

@@ -1,1 +1,0 @@
-Les nommés Osman Ali et Hoch Hared sont engagés en qualité de gardiens, 1er échelon, à solde journalière, au Centre d’estivage de l’Arta, pour compter du 19 juin 1947, en remplacement de Abdi Galillé et Mahmoud Ali, licenciés.

@@ -1,1 +1,0 @@
-M. Osman Abdi Bakal, Commis auxiliaire précédemment en service à la Marine Marchande, est mis à la disposition du Ministre-des Finances, des Affaires Economiques et du Plan pour compter du 10 octobre 1960 pour servir au Service des Contributions Directes.

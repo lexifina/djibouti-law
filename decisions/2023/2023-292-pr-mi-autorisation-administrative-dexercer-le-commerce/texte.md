@@ -1,1 +1,0 @@
-Par décision n°2023-292/PR/MI, du Président de la République, Chef du Gouvernement, en date du 08 août 2023, une autorisation administrative est accordé à Monsieur ZHONG ZHENLIANG, pour exercer le commerce des boissons alcoolisé, d’une licence de 1ère classe B, dans son établissement dénommé : “ESCALE INTERNATIONAL HOTEL” sis la corniche, route de venise secteur 2.

@@ -1,2 +1,0 @@
-ont été acceptées, pour compter du 13 Août 1915, les démissions de leurs emplois offertes par l’askari de 1ère classe Ali Ersi el par les askaris de 2ème classe Kalife Ouarsama, Eusman Hassen, Achi Samatar
-et Eusman Ouais. Ont été nommés askaris de 2ème classe, pour compter du 16 Août 1915, en remplacement numérique des précédents, les indigènes Hassein Hussein, (Aberwald), Ali Ouarsama (Gadaboursi), Kain Ersi (Edagalé), Aden Ismael (Aber- wald) Chire Omar (Dolbohanti).

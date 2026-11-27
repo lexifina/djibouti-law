@@ -1,3 +1,0 @@
-Les médecins du Service de Santé des Armées « hors cadres » désignés ci-dessous, spécialistes qualifiés de la Santé publique, sont admis à exercer en pratique privée leur spécialité dans les conditions prévues à l’article 4, $ B, du décret n° 52-964 du 28 juillet 1952 relatif à l’exercice et à l’organisation de la profession de médecin dans les territoires d’outre-mer:
-— médecin de 1re classe Ravix, électro-radiologiste des hôpitaux des armées, chef des services d’électro-radiologie à l’Hôpital Peltier ;
-— médecin de 2° classe Ollivier, assistant de chirurgie des hôpitaux des armées, chirurgien résident à l’Hôpital Peltier.

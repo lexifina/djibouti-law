@@ -1,2 +1,0 @@
-M. l’administrateur adjoint des colonies Bonthonneau, en service au Bureau des affaires politiques, est chargé de la vente au public des cartes de légitimation émises par le contrôle commun aux Grands Réseaux français, à l’occasion de l’Exposition internationale le Paris.
-M. Bonthonneau adressera chaque mois au Bureau des finances un relevé des cartes vendues par ses soins. Ce relevé donnera lieu à l’établissement d’un ordre de recettes pour versement au Trésor des sommes provenant de la remise de 10 p. 100 consentie à la colonie.

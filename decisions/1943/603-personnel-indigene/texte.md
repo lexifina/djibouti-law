@@ -1,1 +1,0 @@
-Un congé de convalescence de trois mois dont 15 jours à solde entière, 15 jours a uemi salaire et deux moix sans salaire est accordé à ABDILAHY FOURRE, électricien auxi liaire des Travaux Publics, pour en jouir dans la Colonie.

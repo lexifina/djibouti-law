@@ -1,1 +1,0 @@
-M. GAILLARDON Marc, Contrôleur du Cadre Métropolitain des Douanes. Chef du Service des informations est nommé Chef du Service du Ravitaillement Général pour compter du 5 Mai 1943 en remplacement de M. ROUX Louis, administrateur Adjoint des Colonies mobilisé sur sa demande.

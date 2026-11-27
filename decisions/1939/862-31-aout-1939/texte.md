@@ -1,1 +1,0 @@
-M. Phanre (Georges-Douglas-Ernesty,) agent des Messageries Maritimes, service armé, classe dans l’affectation spéciale par décision n° 145 du 12 février 1939 est ravé de cette position pour compter de la date de la present decision.

@@ -1,1 +1,0 @@
-M. Gabourdès (Louis), rédacteur principal, 1er échelon du Cadre territorial de l’Administration générale en service aux Travaux Publics, est classé, à titre exceptionnel, rédacteur principal, 2e échelon, pour compter du 1er mai 1961.

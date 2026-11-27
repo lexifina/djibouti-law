@@ -1,1 +1,0 @@
-Le lieutenant Ruppert (Albert), en service à la 1er compagnie de milice, est nommé, à compter du 16 septembre 1949, chef du poste administratif d’As-Ela par intérim, en remplacement de l’adjudant Adam, muté à Dikhil.

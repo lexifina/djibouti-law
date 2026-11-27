@@ -1,1 +1,0 @@
-Il est accordé à M. Randrianasolo Louis de Gonzague, comptable contractuel au Service des Finances, une gratification de six mille francs (6.000 fr.), pour services rendus à l’Administration. Cette dépense est imputable au chapitre XIII, article 2, § I de l’exercice 1951.

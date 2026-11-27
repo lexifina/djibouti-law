@@ -1,1 +1,0 @@
-Une permission d’absence d’un mois (vala ble du 5 septembre au 5 octobre 1946), à solde entière, est accordée à Mme Mousset (Georgette), dame employée en service au Gouver nement, pour en jouir en Ethiopie.

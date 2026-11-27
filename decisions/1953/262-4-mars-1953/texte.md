@@ -1,1 +1,0 @@
-Le contrat en date du 3 1 juillet 1952, consenti à M. Marianos (Anasthase), mécanicien du Service des Travaux Publics, prend effet pour compter du 14 octobre 1952, date de retour de congé de l’intéressé.

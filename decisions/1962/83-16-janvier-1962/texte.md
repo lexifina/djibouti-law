@@ -1,2 +1,0 @@
-L’Adjudant-Chef d’Infanterie de Marine Besson Maurice désigné pour servir « hors-cadres » en Côte Française des Somalis, arrivé à Djibouti le 23 décembre 1961, est affecté à la Milice de la CFS pour compter de la date de son débarquement et mis à la disposition du Commandant de Cercle de Tadjourah en qualité de Chef de Poste d’Obock en remplacement de l’Adjudant Dago Henri rapatriable pour fin de séjour.
-Le passage de Commandement entre ces deux sous-officiers s’effectuera le 24 janvier 1962.

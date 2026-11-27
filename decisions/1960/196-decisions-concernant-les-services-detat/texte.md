@@ -1,1 +1,0 @@
-Est constatée pour compter du 9 février 1960, date de son retour dans le Territoire, la reprise par M. Coindard (Henri), Admiristrateur en Chef de la France d’Outre-Mer, 3° échelon, de ses fonctions de Chef du Bureau du Personnel Etat et de celles de Conseiller Technique du Ministre de la Fonction Publique.

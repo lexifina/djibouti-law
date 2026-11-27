@@ -1,1 +1,0 @@
-M. Mohamed Ali (2) Soubackle, technicien de 1er classe, 1er échelon du. Cadre Territorial de la Santé Publique, est déféré devant le Conseil de Discipline pour complicité de diffamation à l’égard du Ministre des Finances.

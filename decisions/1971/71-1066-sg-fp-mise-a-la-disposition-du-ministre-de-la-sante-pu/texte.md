@@ -1,1 +1,0 @@
-Mile Annie Baudet, sage-femme diplômée d’Etat. 6° échelon. du Cadre métropolitain, est pour compter du 14 juillet 1971, date de son arrivée au Territoire, mise à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’Hôpital Peltier en remplacement numérique de Mme Joany, rapatriée.

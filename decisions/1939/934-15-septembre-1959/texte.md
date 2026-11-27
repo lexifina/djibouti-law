@@ -1,1 +1,0 @@
-M. Houillére (Abel-Jean-Yvesi, chef du Service des contributions, service armé, classe de mobilisation 1925, est classé dans l’affectation spéciale, comme chef du Service des contributions et chargé du tribunal indigène du premier degré, pour une durée de trois mois, pour compter du 17 septembre 1559.

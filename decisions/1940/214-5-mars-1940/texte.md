@@ -1,1 +1,0 @@
-M. Parthenay (Auguste), administrateur des colonies, service armé, classe de mobilisation 1910, lientenant de réserve, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée, à compter de la date décision.

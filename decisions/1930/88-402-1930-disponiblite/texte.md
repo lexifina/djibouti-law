@@ -1,1 +1,0 @@
-Le médecin capitaine Gilly, des Lroupes colontales, en service hors cadres à la Côte française des Somalis, sera rapatrié pour fin de séjeur par le paquehbot Rernardin-de Satut-Pierre, attendu à IHibouti le 19 juin prochain.

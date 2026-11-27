@@ -1,3 +1,0 @@
-Un congé de convalescence de trois mois à passer dans les Etablissements français de l’Inde est accordé à M. Belvind (André), greffier en chef du Tribunal supérieur d’appel de la Côte francaise des Somalis, greffier notaire.
-Ce fonctionnaire classé à la deuxième catégorie du tableau annexé an décret du 6 juillet 1904, vorxageant senl, prendra passage en deuxième classe sur le paquebot Sphinx, de la Compagnie des Messageries Maritimes attendu vers le 23 juin 1939, à destination de Pondichéry.
-La dépense est imputable au budget local de la Côte francaise des Somalis (chapitre 14, article 1er, paragraphe 1er.

@@ -1,1 +1,0 @@
-Le nommé Saïd Dirié, est engagé en qua lité d’agent technique auxiliaire (10e échelon) pour servir comme chauffeur au Gouverne ment à compter du 11 mars 1947 en remplacement de Hassen Kahin, licencié par me sure disciplinaire.

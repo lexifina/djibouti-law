@@ -1,1 +1,0 @@
-M. Bouchet (Michel), administrateur-adjoint 2e échelon de la France d’Outre-Mer, est nommé adjoint au Commandant de Cercle de Djibouti, en remplacement de M. Pau (Gabriel), administrateur 2e échelon de la F.O.M,, titulaire d’un congé administratif, pour compter de la date de prise de service.

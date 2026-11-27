@@ -1,1 +1,0 @@
-M. Lebaillif. préparateur auxiliaire à la pharmacie de l’hôpital, cesse ses services pour compter du 20 mai 1942, date à laquelle il est remis à la disposition de l’Administration du chemin de fer franco-éthiopien.

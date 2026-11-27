@@ -1,1 +1,0 @@
-Une indemnité forfaitaire mensuelle pour travaux supplémentaires de mille cinq cents francs Djibouti (1.500 fr.) est allouée pour compter du 1e mars 1961 à M. Ismaël Roble Filfil, observateur météorologiste engagé sous contrat n° 2/AD/60 en date du 21 décembre 1960.

@@ -1,1 +1,0 @@
-Abdallah Ahmed Saïd demeurant à Djibouti a été nommé s crétaire auxiliaire de 7e échelon, à salaire journalier, à compter du 18 janvier 1946 et affecté au service de la Sûreté générale en complément d’effectif.

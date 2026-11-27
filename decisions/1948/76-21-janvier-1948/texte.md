@@ -1,4 +1,0 @@
-Sont expulsés du territoire de la Côte française des Somalis et dépendances :
-789. Houssen Ahammed (sujet anglais), ex- milicien de 1re classe, né vers 1918 à Bourama (Somaliland), fils de feu Ahmed Nour et de Maidan Arrale, domiciliée à Bourama (Somaliland), Somali-Gadaboursi Mahad-Assé: 1787 Djama Mohamed (sujet anglais),
-ex- milicien de 2e classe, né vers 1919 à Bourama (Somaliland), fils de Mahammoud Gueddi et de Fatma Ahmed, domiciliés à Bourama (Somaliland). Somali Gadaboursi ; 1773. Youssouf Samatar (sujet anglais), ex milicien de 2e classe, né vers 1923 à Bourama (Somaliland), fils de Samatar Boueh et de Markado Nour, domiciliés à Bourama (Somaliland), Somali Gadaboursi ;
-1640. Mousse Iban (sujet anglais), ex-milicien de 2e classe, né vers 1927 à Argheissa (Somaliland), fils de Iban Ali et de Fatouma Elmi, domiciliés à Argheissa (Somaliland), Somali Haber Aoual.

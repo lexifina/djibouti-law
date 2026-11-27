@@ -1,1 +1,0 @@
-A. été nommé sergent-chef de lu milice indigène de la Côte française des Somalis, pour compter du 1er janvier 1946, aprés trois ans de grade de sergent, Warssama Farah,mle 332,sergent à la milice indigène.

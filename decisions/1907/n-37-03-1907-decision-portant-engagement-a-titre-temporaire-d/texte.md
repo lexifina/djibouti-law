@@ -1,1 +1,0 @@
-— Par décision du Gouverneur, en date du 1° mars 1907, agents sont engagés temporairement dans la police urbaine et suburbaine pour assurer la sécurité de la ville de Djibouti et des postes situés sur la voie ferrée,

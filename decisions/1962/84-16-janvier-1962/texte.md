@@ -1,2 +1,0 @@
-L’Adiudant du Cadre des Agents de Corps de Troupe de Marine Dellavalle Germain, désigné pour servir « hors-cadres » en Côte Française des Somalis, arrivé à Djibouti le 6 janvier 1962, est affecté à la Milice de la C.F.S. pour compter de la date de son débarquement et mis à la disposition du Commandant de Cercle de Dikhil en qualité d’Agent spécial du Cercle en remplacement du Sergent-Chef Debray Fernand muté à Tadjourah.
-Le passase des consignes entre ces deux sous-officiers s’effectuera le 22 janvier 1962.

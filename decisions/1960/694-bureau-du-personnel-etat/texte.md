@@ -1,2 +1,0 @@
-Le Capitaine d’Infanterie de Marine Albospeyre (Max), Chef du Bureau d’Etudes, est nommé par intérim cumulativement avec ses fonctions actuelles, Chef du Cabinet du Chef de Territoire pendant l’absence de M. Bluzat (Roger), titulaire d’un congé annuel de deux mois.
-M. Albospeyre (Max) procèdera par délégation du Chef de Territoire, à la légalisation des signatures apposées sur toutes les pièces susceptibles de servir hors du Territoire.

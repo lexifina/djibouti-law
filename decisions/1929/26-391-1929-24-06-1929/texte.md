@@ -1,1 +1,0 @@
-M. Bringer (Alphonse), contrôleur métropolitain des postes et télégraphes, est chargé par intérim des fonctions de receveur et de chef du service des postes et télégraphes. M. Bringer aura droit, à compter du 21 juin 1929, aux indemnités prévues au budget.

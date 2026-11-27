@@ -1,1 +1,0 @@
-une permission d’absence de trente jours, pour en jouir à jouir à Dire-Doua, est accordée à M. Roque, adjoint principal des services civils, président du tribunal indigène du 1er degré et adjoint à l’administrateur chef des districts.

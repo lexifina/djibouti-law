@@ -1,3 +1,0 @@
-Mme. DABARO ELMI DJAMA, conventionnée, en service à l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP), titulaire du diplômé Universitaire de Technologie en Statistiques et Traitement Informatique, est intégrée dans le Cadre des Techniciens Supérieurs du Corps de l’Equipement et l’Habitat, à la position du Technicien supérieur stagiaire.
-– L’intéressée bénéficiera d’une indemnité différentielle égale entre son classement de la Convention Collective et son classement nouveau Salaire indiciaire.
-La présente décision prend effet à compter du 08 janvier 2023.

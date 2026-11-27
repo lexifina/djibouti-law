@@ -1,1 +1,0 @@
-Une gratification de cinq cents francs (500francs)est accordée à Ai. Mahmoud Haid, employé au cabinet civil, pour travaux supplémentaires effectués à l’occasion du classement des archives du Bureau d’ordre du Gouvernement.

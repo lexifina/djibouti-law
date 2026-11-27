@@ -1,1 +1,0 @@
-M. Bernard Jolibert, professeur de philosophie, volontaire de l’Aide technique est, pour compter du 23 septembre 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement. des Sports et de la Jeunesse pour servir au Lycée de Djibouti.

@@ -1,1 +1,0 @@
-Le milicien de 2e classe Abdallah Assoweh Warsama,mle 2646, de la 4 compagnie de Milice à Damerdjog, est licencié par mesure disciplinaire à compter du 25 février 1967. L’intéressé, qui totalise 4 ans 10 mois 25 jours de services effectifs à la Milice de la C.FS., étant licencié disciplinairement, ne peut prétendre à aucune indemnité.

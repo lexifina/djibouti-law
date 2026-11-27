@@ -1,1 +1,0 @@
-M. Alaoui Abdoul-Mazgid, titulaire du B.E.P.C. est engagé, pour compter du 1e octobre 1964, en qualité d’élève-instituteur de 2° classe du Corps territorial de l’Enseignement public, et mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse.

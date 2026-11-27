@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Bernadant Issa Ali dit Jean-Pierre, contrôleur sanitaire de 2e classe, 3° échelon, du cadre territorial du Service d’Hygiène, en service à l’Hygiène, pour absence non motivée dans son service.

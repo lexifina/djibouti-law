@@ -1,1 +1,0 @@
-M. G. Kailis, de nationalité hellénique, est autorisé à exploiter à la station-service « Shell» sise à Djibouti, boulevard de la République, une licence de cinquième classe pour la vente de boissons hygiéniques non fermentées à consommer sur place.

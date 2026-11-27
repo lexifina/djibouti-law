@@ -1,1 +1,0 @@
-Les brigadiers-chefs de 3ème classe des Douanes CULOUSCOU Jean et LINGENHEIM Lucien détachés au Ravitaillement Gé néral sont remis à la disposition du Chef du Service des Douanes à compter du 15 janvier 1943.

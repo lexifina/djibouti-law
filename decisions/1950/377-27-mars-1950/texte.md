@@ -1,1 +1,0 @@
-M. Raymond Saurin est engagé en qualité de comptable auxiliaire, à la solde mensuelle de trente-deux mille francs (32.000 francs) pour compter du 1er avril 1950. M. Raymond Saurin est mis à la disposition de M. le chef du service du personnel, des finances et de la comptabilité.

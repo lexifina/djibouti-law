@@ -1,2 +1,0 @@
-Une allocation viagère de reversion annuelle (invalidité 100 %) de dix neuf mille cinq cents francs Djibouti (19.500 F.D.) est accordée à Mme Nasro Ali, veuve de l’ex-caporal milicien Mayoub Mohamed, mle 1570, décédé au Cercle de Tadjourah le 10 septembre 1950.
-Cette allocation yiagère de reversion sera payée trimestriellement et à terme échu sur présentation d’un certificat de vie délivré par les’autorités compétentes du Territoire.

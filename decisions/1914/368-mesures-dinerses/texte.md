@@ -1,1 +1,0 @@
-le séjour de la ville de Djibouti a ete interdit pendant CINQ ans aux nommés Omar Egal, Ali Mohamed, Fatma Dirié, Ouabéri Robleé, Fatma Ali, Gouled Mohamed, Ahmed Ismael, Ahmed Abdou, Abdi Aden, Kassim Mohamed, Diama Elmi, Ahmed Nour, Mohamed Abdilaé et Aden Ali.

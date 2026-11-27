@@ -1,1 +1,0 @@
-Le sergent spécialiste radio La Couédic delai compagnie de transmission, détaché au peloton iméharisto de l’Alta, en qualité de chef de poste radio, a droit à l’indemnité de nomadisation pour compter du 13 avril 1946.

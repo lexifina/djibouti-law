@@ -1,1 +1,0 @@
-M , Daubec (Louis), agenult de la Compagnie du chemin de fer franco-éthiopien 1er classe de réserve, classe de mobilisation 1923 classe dans l’affectation special par décision n°58 du 23 janvier 1936, est rayé de cette position pour comnter de la date de la présente décision.

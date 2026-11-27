@@ -1,1 +1,0 @@
-un passage en 2e classe, à descuation de Marseille, ext accordé à M. Sajous (Pierre), adjudant de gendarmerie, du détachement de gendarmerie de la Côte francaise des Somalis, qui comptera, le 1er mai 1939, 2 ans 11 jours de séjour ininterrompu à la colonie.

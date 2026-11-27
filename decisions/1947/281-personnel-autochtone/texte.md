@@ -1,2 +1,0 @@
-Sont reclassés ainsi qu’il suit les agents auxiliaires autochtones du cercle de Dikkil : Abeba Mocréa. commis administratif, 2e classe. 15° échelon (ancienneté au 1er jan vier 1947 : 1 an. 8 mois. 14 jours).
-Ahmed Hachi agent technique, 2e classe. 12e échelon (ancienneté au 1er janvier 1947 : néant). Mohamed Ali Dirié. agent technique, 2e classe. 10 échelon (ancienneté au 1er janvier 1947 : néant).

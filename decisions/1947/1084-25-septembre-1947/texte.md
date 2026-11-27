@@ -1,1 +1,0 @@
-Est nommé, pour compter du 1er juillet 1947 chauffeur auxiliaire de 2° classe. 10° échelon, le nommé Oufane Bareh, chauffeur à salaire journalier du service de l’agriculture. L’intéressé conserve une ancienneté de 1 an. 9 mois

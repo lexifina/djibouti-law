@@ -1,1 +1,0 @@
-le garde de 2e classe Ahmed Mohamed, n° mle 329, est, libéré par fin d’engagement, pour compter du 1er mai 1926. Les gardes Alho Homad, n° mle 412, et Oualdiram Alleh. n° 473, sont licenciés par mesure disciplinaire, pour compter du 1er mai 1926.

@@ -1,2 +1,0 @@
-Le gendarme Guiguen (Emmanuel) assurera, en plus de ses fonctions habituelles à la brigade de gendarmerie, celle d’agent du service du logement.
-Il est habilité à visiter les locaux à usage d’habitation ou professionnel, situés dans le périmètre urbain de Djibouti, ainsi qu’à recevoir toutes déclarations et à se faire présenter par les propriétaires, locataires ou autres occupants, toute pièce ou document établis sant les conditions dans lesquelles sont effectivement occupés les locaux qu’il visite.

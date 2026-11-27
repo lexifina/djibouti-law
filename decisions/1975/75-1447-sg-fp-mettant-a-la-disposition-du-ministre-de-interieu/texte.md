@@ -1,1 +1,0 @@
-M. Saint-Luc Sylvain, chef de poste administratif contractuel est, pour compter du 5 juin 1975, date de son retour dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir au cercle d’Obock en qualité d’adjoint au Commandant du Cercle, en remplacement numérique de M. Tomadini Serge. rapatrié sanitaire.

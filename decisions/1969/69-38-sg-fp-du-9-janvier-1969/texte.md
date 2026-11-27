@@ -1,1 +1,0 @@
-M. Noël’Speñno, adjudant en position cadre – hors budget des Armées, indice nouveau 301, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 19 décembre 1968 pour servir au Service de Prévention de la tuberculose.

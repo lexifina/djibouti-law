@@ -1,1 +1,0 @@
-Le capitaine Müller (Robert), placé dans la position « hors cadres ». a été nommé, pour compter de ce jour, chef du cabinet militaire et du secrétariat permanent de la défense nationale l’remplacement du chef de bataillon Juvanon du Vachat, affecté à la Commission d délimitation «es frontières

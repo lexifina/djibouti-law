@@ -1,1 +1,0 @@
-M. Verdun, ingénieur principal du cadre général des travaux publics des colonies, est nominé, à compter du 22 septembre 1938, date de la passation de service, chef du service des travaux publics intérimaire, en remplacement le M. Pla, ingénieur du cadre local.

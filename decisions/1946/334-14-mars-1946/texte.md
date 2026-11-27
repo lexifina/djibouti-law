@@ -1,2 +1,0 @@
-Il est accordé à M. Razakamanana (Paul), commis-comptable de 3e classe des cadres spéciaux de Madagascar, en service détaché à la Caisse centrale de la France d’outre-mer à Djibouti, le remboursement de la somme de huit cent quatre -vingt dix francs et dix centimes (890 fr. 10) représentant le prix d’un billet en 2 classe, de Djibouti à Addis-Abeba, aller et retour, qu’il a payé de ses propres deniers.
-La présente dépense imputable sur les crédits du chapitre 17. article 1er, paragraphe 1 de l’exercice 1946, sera remboursée par la Caisse centrale de la France d‘outre-mer.

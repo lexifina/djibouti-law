@@ -1,1 +1,0 @@
-M. Duverneuil (Pierre), surveillant de 2e classe, 3e échelon du cadre supérieur des Travaux Publics de la Côte Française des Somalis, est mis à la disposition de M. le Ministre des Travaux Publics et du Port, pour compter du 16 avril 1960, date de son retour dans le Territoire.

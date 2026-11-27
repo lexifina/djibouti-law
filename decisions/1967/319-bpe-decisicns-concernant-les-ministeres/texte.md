@@ -1,1 +1,0 @@
-M Latcher (Roland), officier de police principal de 4° éche-lon du cadre métropolitain de la Sûreté nationale, est nommé, pour compter du ler février 1967, commissaire spécial du Port et de l’Aéroport, en remplacement de M. Serra (Jean).

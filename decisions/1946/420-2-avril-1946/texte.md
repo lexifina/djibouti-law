@@ -1,1 +1,0 @@
-Un passage par voie maritime a été accordé de Djibouti à Marseille à M. Denis, inspecteur général de l’agriculture, chef de la mission du Lac Assal. Les frais afférents à ce déplacement seront supportés par le budget local de la Côte française des Somalis.

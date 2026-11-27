@@ -1,1 +1,0 @@
-Une permission d’un mois, dont qu’nze jours à solde entière et quinze pours àcdemi solde, est accordée au garde de 1er classe n° mle 484 Mohamed Assen, pour en jouir à Dijithouti. à compter du 10 mai 1930.

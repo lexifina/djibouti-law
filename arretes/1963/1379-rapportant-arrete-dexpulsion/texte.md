@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 2369 du 10 octobre 1959 en ce qui concerne Flmi Waberi Aden, dit « Tawakal », somali issa mamassan bah fourbala rer abdillahi, né vers 1908 à Holl-Holl (Côte Française des Somalis), fils de Waberi Aden et de Guedio Guelleh, domicilié Quartier 3.

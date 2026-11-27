@@ -1,1 +1,0 @@
-M. Carbonnel (Claude), payeur de 1er classe, premier fondé de pouvoirs de la Trésorerie, est charge d’assurer le service de la Trésorerie pendant l’absence de M. Savary, trésorier-payeur, titulaire d’un congé administratif de six mois.

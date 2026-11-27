@@ -1,1 +1,0 @@
-la solde du brigadier de 1re classe Abdouhalé Dhoalé est portée de 180 à 200 fr. par mois. Sont élevés à la 2e classe l’agent de 3e classe des douanes Ahmed Ouais ; à la 3e classe les agents de 4e classe Hassen Hersi et Ismaël Ali, à la 4e classe l’agent de 5e classe Noor Baal. Ces nominations compteront du 1er janvier 1913

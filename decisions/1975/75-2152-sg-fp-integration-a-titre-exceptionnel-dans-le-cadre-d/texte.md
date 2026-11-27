@@ -1,1 +1,0 @@
-M. Ali Ismaël Yabe, commis des S.A.F. de 2e classe, 3e échelon du cadre territorial de l’Administration général, en service au cercle d’Ali-Sabieh est intégré, à tigre exceptionnel dans le cadre des rédacteurs, et nommé rédacteur de 1re classe, 1er échelon pour compter du 1er novembre 1975. (P.B. n° 2 CT)

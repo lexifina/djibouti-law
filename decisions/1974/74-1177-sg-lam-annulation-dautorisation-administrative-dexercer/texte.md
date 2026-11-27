@@ -1,1 +1,0 @@
-Est rapportée, pour compter du 1er janvier 1974, la décision n° 71-641/SG/AI du 27 avril 1971, autorisant M. Mohamed Ibrahim Arab à exercer le commerce des boissons, licence de 6° classe, 19 rue dé Parts à Djibouti.

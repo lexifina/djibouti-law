@@ -1,1 +1,0 @@
-M. Hubert Terrier, volontaire de l’aide technique, est pour compter du 9 avril 1974 date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir aux services de Secours et de Lutte contre l’Incendie, en qualité de mécanicien-diéséliste, service comptant au 1er avril 1974.

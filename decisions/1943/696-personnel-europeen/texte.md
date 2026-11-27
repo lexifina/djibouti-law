@@ -1,1 +1,0 @@
-Une permission d’un mois à solde entière à passer au HARRAR est accordée à Mme HODEGEZ en religion Sœur ETIENNE-MARIE, infirmière en service au Dispen saire Chapon Baissac, à compter du jeudi 26 Août 1943.

@@ -1,1 +1,0 @@
-Le salaire du mécanicien auxiliaire DES SAIGNE Xavier en service à la Station Intercoloniale DE T.S.F. est porté, pour compter du 1er mai 1943, à TROIS MILLE SIX CENTS FRANCS (3.600 1rs) par mois exclusif de toute indemnité.

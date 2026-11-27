@@ -1,1 +1,0 @@
-M. KRouel Alain, volontaire de l’aide technique est, pour compter du 13 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics et du Port, pour servir au bureau d’Etudes des Travaux Publics en qualité d’architecte DPLG, services comptant au 1er septembre 1973.

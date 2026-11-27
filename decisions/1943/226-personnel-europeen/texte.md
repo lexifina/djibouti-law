@@ -1,1 +1,0 @@
-Est accordée à Madame HAMOT, en re ligion Sœur Marie du Calvaire, infirmière contractuelle une prolongation de trois mois à solde entière du congé de convalescence lui ayant été accordée jusqu’au 17 Février 1943 par décision 561.

@@ -1,1 +1,0 @@
-M. Houssein Adare Charmarkeh, agent de contrôle auxiliaire à salaire forfaitaire, en service aux Contributions Directes (Postes) est rangé pour compter du 1er janvier 1961 à la 4° catégorie, échelle VI, 3° échelon, indice 525.

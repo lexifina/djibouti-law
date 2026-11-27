@@ -1,2 +1,0 @@
-Un passage de retour par anticipation pour la Métropole est accordé à Mc Boulanger, épouse de M. Boulanger (Ernest), ingénieur électricien contractuel, qui appartient au groupe III.
-Une réquisition de passage Djibouti- Marseille par voie maritime et une réquisition Marseille-Strasbourg (Bas-Rhin) par voie ferrée seront délivrées à Mme Boulanger, qui voyagera accompagnée de son fils âgé de trois ans.

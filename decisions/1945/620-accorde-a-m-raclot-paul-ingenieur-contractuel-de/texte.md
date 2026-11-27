@@ -1,2 +1,0 @@
-un congé de convalescence de trois mois pour en jouir en France (à Paris) est accordé à M. Raclot Paul, ingénieur contractuel des Travaux des Postes, Télégraphes etTéléphones, chef de la Station Intercoloniale de Télégraphie Sans Fil de Djibouti.
-L’intéressé qui voyage en 1re classe à bord des paquebots est autorisé à rentrer par voie maritime via l’Égypte ; il pourra percevoir avant son départ une avance de solde dans les conditions prévues à l’article 11 du décret du 1er août 1944.

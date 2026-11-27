@@ -1,1 +1,0 @@
-L’adjudant-chef d’Infanterie de Marine Lusetti (Constantin), mis à la disposition du Commandant de Cercle de Tadjourah en qualité d’adjoint, assumera cumulativement les fonctions d’agent spécial, en remplacement du sergent-chef d’Infanterie de Marine Godin (Jacques), appelé à d’autres fonctions.

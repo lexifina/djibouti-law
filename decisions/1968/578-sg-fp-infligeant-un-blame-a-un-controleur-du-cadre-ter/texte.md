@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est infligé à M. Houmed Youssouf Houmed, contrôleur de 2° classe, 2° échelon, du Cadre territorial des Postes et Télécommunications pour comportement d’insubordination caractérisé.

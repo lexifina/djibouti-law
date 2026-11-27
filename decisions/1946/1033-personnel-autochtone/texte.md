@@ -1,2 +1,0 @@
-Les nommés Ahmed Goumane, ex-sergent chef au bataillon somali, et Youssouf Abtidon. ex-sergent au bataillon somali, sont en gagés comme auxiliaires échelon a salaire journalier pour compter du 24 août 1946 et mis à la disposition du directeur de l’Impri merie administrative en qualité d’ouvriers typographes.
-Les intéressés étant engagés au 8 échelon sont considérés comme ayant épuisé tous leurs droits à rappel d’ancienneté pour services militaires.

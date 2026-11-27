@@ -1,2 +1,0 @@
-Sont acceptées pour compter du 1er mai 1942 les démissions de leur emploi présentées par l’infirmier principal de 1er classe Ibrahim Mohamed et l’infirmier auxiliaire Ali Ahmed.
-Une allocation viagère de 2.000 francs par an est allouée dans les conditions prévues par l’arrêté n° 971 du 6 octobre 1938 à l’infirmier principal de 1er classe Ibrahim Mohamed en ltré dans l’administration le 1 er octobre 1917 et comptant en conséquence plus de vingt ans de service.

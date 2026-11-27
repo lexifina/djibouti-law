@@ -1,1 +1,0 @@
-M. Fontanel, sous-chef mécanicien des P. T.T., retour de congé, reprend les fonctions de chef de la Station côtière de compter du 30 octobre, jour de son débarquement dans la colonie en remplacement de M. Lapavre, ingénieur météorologiste.

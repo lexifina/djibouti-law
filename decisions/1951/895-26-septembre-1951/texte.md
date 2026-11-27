@@ -1,1 +1,0 @@
-Mme Buschaud (Simone), née Marot, est engagée comme institutrice auxiliaire de 1er catégorie, pour compter du 1er octobre 1951, en remplacement de Mlle Lahaye. Elle est affectée au Groupe scolaire de Djibouti.

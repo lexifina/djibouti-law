@@ -1,1 +1,0 @@
-une permission de 15 jours à solde entière pour en jouir à Diré-Daoua (Ethiopie) est accor dée à Aden Ismaïl, chef du quartier n’ 3. Pendant l’absence de Aden Ismaïl, le chef du quartier n » 5. Ahmed Moussa, assurera cumulativement avec ses fonctions celles du chef du quartier n » 3.

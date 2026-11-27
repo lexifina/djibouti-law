@@ -1,1 +1,0 @@
-L’adjudant -chef Sauzet, désigné pour servir « hors cadres » à la Côte francaise des Somalis, est affecté à la milice indigène pour compter du 28 juillet 1947, date de son débarquement, et mis à la disposition du capitaine commandant la 1er compagnie de milice à Dikhil.

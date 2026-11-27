@@ -1,1 +1,0 @@
-18 août 1931, une punition de quatre jours de suspension de solde est infligée e aux infirmiers Ahmed Ali et Hassen Ahmed Ali, en service à l’hôpital intercolonial, pour néglisences répétées dans leur service,

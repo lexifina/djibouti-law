@@ -1,1 +1,0 @@
-Est constatée. pour compter du 16 avril 1971 Gate de son retour au Territoire, la reprise de ses fonctions antérieures au Commissariat central de police (Ministère des Affaires intérieures) par M. Roger Cuvelier, officier de police.

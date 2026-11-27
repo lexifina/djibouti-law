@@ -1,1 +1,0 @@
-. Par décision du 6 avril 1914 et pour compter du premier avril 1914 Abdr Birié, Mohamed Djama, Gueddi Ovaisse, Abred Guireh Issa Farah sont nommés askaris de deuxieme classe en remplacement de ibrahim Mohamed.s Ismael Ouaisse, Almed Mohamed, Saleh Aouad et djama Roblé

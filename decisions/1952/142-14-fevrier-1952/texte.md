@@ -1,1 +1,0 @@
-Le sergent-infirmier des Troupes coloniales Mussino (Louis), en position horscadres, précédemment- chargé du service de la dépense de l’Hôpital Principal de la C.F.S. à Djibouti, est affecté en qualité d’infirmier du dispensaire de Dikhil, pour compter du 25 février 1952, en remplacement du sergent-major d’infanterie coloniale, Bohec, qui reçoit une autre affectation.

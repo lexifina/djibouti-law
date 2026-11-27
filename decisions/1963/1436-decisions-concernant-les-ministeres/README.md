@@ -1,9 +1,0 @@
-# Décision n° 1436 Décisions concernant les Ministères.
-
-Décision · Journal officiel de la République de Djibouti, n° 12 du 31/12/1963 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1436-decisions-concernant-les-ministeres/>
-
-En vigueur : 1963-12-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) |  Milicien de 2° classe Harbi Roble Hérsi. matricule 2433 de la 3° Compagnie de Milice à Ali-Sabieh, est mis à la retraite d’office sur avis du Conseil de Santé, et pour compter du 1er décembre 1963. La maladie contractée étant imputable au service, l’intéressé, qui totalise 3 ans, 1 mois, 19 jours de services effectifs. dans la Milice de la C.F.S.,, peut prétendre à une pension d’invalidité temporaire annuelle de 100 %, à savoir: quarante trois mille deux francs Djibouti (43.200 F.D.). |

@@ -1,2 +1,0 @@
-Le contrat de travail de Mlle Hélène Beauple, secrétaire sténodactylographe contractuelle, en service à la Délégation du Territoire Français des Afars et des Issas à Paris à compter du 30 octobre 1967, est résilié à compter du 4 janvier 1968 pour faute lourde (absences irrégulières).
-Mle Beauple qui réunira 2 mois 4 jours de service effectif aura droit à une indemnité compensatrice de congé payé égale à cinq jours de salaire.

@@ -1,1 +1,0 @@
-Un congé de convalescence de trois mois (3 mois) est accordé à M.T.O. Gianetti, agent d’exploitation du cadre métropolitain des P.T.T., détachée en Côte Française des Somalis, à passer à Saint Laurent (Corse).

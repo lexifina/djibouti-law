@@ -1,1 +1,0 @@
-une punition de deux jours de retenue de solde est infligée pour mauvaise volonté dans j’exécution de son service au planton Ahmed Ali Yassin, planton de 2e classe, après deux ans en Service au Cabinet du Gouverneur.

@@ -1,1 +1,0 @@
-22 août 1931, une rémunération de 1500 francs, pour ctrav: AUX SU pplémentaires effectués en dehors des “heures réglementaires de service, est accordée à M. Collat, sous-chef de bureau des secrétariats généraux, qui a etablie le compte définitif de l’exercice 1929.

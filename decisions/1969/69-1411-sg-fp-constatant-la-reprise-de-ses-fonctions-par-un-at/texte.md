@@ -1,1 +1,0 @@
-Est constatée, pour compter du 17 septembre 1969. date de son retour au Territoire, la reprise de ses fonctions antérieures au 1er arrondissement urbain du District de Djibouti (Ministère des Affaires intérieures), par M. Gilbert Detolle, attaché de la France d’outre-mer de classe exceptionnelle (indice nouveau 445).

@@ -1,2 +1,0 @@
-un témoignage de satisfaction est accordé à M. Arnaud, adjoint technique du cadre local des travaux publics :
-« Agent qui s’est dépensé sans compter pour assurer la direction de la subdivision administrative des travaux publics dont il avait la charge. Placé au centre des nombreuses activités du service, et chargé de la comptabilité générale, a assuré ses fonctions avec beaucoup de zèle et à da satisfaction entière de ses chefs. »

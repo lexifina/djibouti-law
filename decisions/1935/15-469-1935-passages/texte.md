@@ -1,1 +1,0 @@
-Un passage en 3° classe à destination de Marseille, est accordé à M. Verguet (Ntoger), sergent-chef d’infanterie coloniale, qui compte deux ans, cingq mois et vingt Jours de séjour ininterrompu à la colonie.

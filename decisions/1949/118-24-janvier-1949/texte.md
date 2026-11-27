@@ -1,2 +1,0 @@
-Le capitaine Marie, commandant la 1re compagnie du B. A. I. S. M., et chef du poste administratif d’Ali-Sabieli, est placé dans la position « hors cadres » et affecté à la milice indigène à compter du 1er février 1949.
-La décision n° 6 du 8 janvier 1949 est annulée. Le capitaine Mairie prendra, à compter du 1er février 1949, le commandement du cercle de Dikhil en remplacement du capitaine Grollemuird, rariatriable et le commandement de la 1er compagnie de «milice en remplacement du lieutenant Krelier, muté à Ali-Sabieh.

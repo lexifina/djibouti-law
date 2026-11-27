@@ -1,1 +1,0 @@
-Mme Oubado Bouk, veuve du sergent-chef Omar Bouh Mohamed dit youssouf Bœubh, matricule 10 de la Compagnie de gardes-cercie de Djibouti, percevra, en un seul et unique versement, la somme de dix-neuf mille sept cent quatre-vingt?dix francs (19.790 fr.) correspondant à deux années de la pension accordée à son mari décédé le 15 août 1951.

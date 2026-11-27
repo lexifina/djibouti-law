@@ -1,1 +1,0 @@
-. Par décision du 29 décembre 1917 et pour compter du 1er janvier 1918 M. LarouBERE, mécanicien en service des P, TT. à été chargé de l’entretien de l’horloge du secrétariat général et des machines à écrire de l’administration, Une indemnité anpuelle de 300 francs prévue au chapitre 12 du budget lui a été à ce titre allouée:

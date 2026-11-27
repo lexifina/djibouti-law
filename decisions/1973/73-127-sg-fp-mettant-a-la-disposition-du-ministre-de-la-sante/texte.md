@@ -1,1 +1,0 @@
-M. Francis Labeille, médecin volontaire de l’aide technique, est, pour compter du 12 décembre 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales.

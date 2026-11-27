@@ -1,1 +1,0 @@
-M. de Nas de Tourris, Sous-Chef de bureau des Secrétariats Généraux des Colonies, est chargé, pendant l’absence de M. Rousselet, du contrôle du chemin de fer. Il aura droit, en cette qualité, à l’indemnité prévue par la décision du 9 septembre 1905.

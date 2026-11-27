@@ -1,1 +1,0 @@
-4 février ,1929, à titre de secours alimentaire, il est alloué mensuellement à partir du 1er février 1929 : a) cent cinquante francs à Sitana, femme de Habib, mère des deux fillelles Fatou et Saida; b) cent francs à Kadjidja, deuxième femme de Habib.

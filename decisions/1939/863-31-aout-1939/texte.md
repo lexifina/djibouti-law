@@ -1,1 +1,0 @@
-M. Calluard (Robert), capitaine de réserve d’artillerie coloniale, service armé, classe de mobilisation 1911, placé en appel différé par décision n° 383, du 6 juin 1934, est rayé de cette position pour compter de la date de la présent decision.

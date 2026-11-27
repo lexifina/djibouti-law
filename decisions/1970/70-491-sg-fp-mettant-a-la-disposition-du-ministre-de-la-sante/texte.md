@@ -1,1 +1,0 @@
-M. Henri Crozes, médecin de 1er classe, en position «hors budget des armées», est, pour compter du 15 avril 1970 date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir en qualité de médecin-chef du Cercle de Tadjourah, en remplacement numérique du médecin de 2° classe Gelot, rapatrié.

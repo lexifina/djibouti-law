@@ -1,1 +1,0 @@
-M. Abdui Gaffar Abdul Aziz, comptable contractuel, est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan, pour compter du 15 juillet 1960, date de son retour dans le Territoire.

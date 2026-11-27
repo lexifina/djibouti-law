@@ -1,1 +1,0 @@
-une commission composée de MM. Peltier, médecin lieutenant-colonel, chef du service de santé, président; Valageas, directeur des travaux du port, et Alemant, administrateur-adjoint, adjoint au chef du 1er bureau, membres, se réunira, sur Convocation de son président, pour procéder à la réception des travaux d’aménagement du nouvel battoir de boulaos.

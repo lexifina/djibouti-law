@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 636 du 20 mars 1959 en ce qui concerne Djama Ahmed Douale, Somali Gadabourci Habar Afan Moussa Fine, né à Boroma (République Somalie) vers 1927 de Ahmed Doualé et de Mariam Kahin, cuisinier, demeurant quartier n° 4.

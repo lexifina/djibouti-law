@@ -1,1 +1,0 @@
-Est engagé. pour compter du 19 novembre 1947. le nommé Boeuh Robleh, Somali, en qualité de planton 5e échelon, au service zootechnique (en remplacement numérique de Ahmed Saleh, suspendu de ses fonctions).

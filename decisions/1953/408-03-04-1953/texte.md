@@ -1,1 +1,0 @@
-M. Ahmed Dini, infirmier vétérinaire auxiliaire de 11e échelon, qui n’a pas rejoint son poste à l’expiration du congé qui lui a été accordé, est considéré comme démissionnaire de son emploi pour compter du 1er mars 1953.

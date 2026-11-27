@@ -1,1 +1,0 @@
-une permission d’un mois à solde entière pour en jouir à l’Arta du 16 septembre au 15 octobre 1945 est accordée à M. Rouckert Eugène, agent de la Société des Batignolles dé taché au Service des Travaux Publics (Sub division du Port).

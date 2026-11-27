@@ -1,9 +1,0 @@
-# Décision n° 921/BPE/ITLS DECISIONS CONCERNANT LES SERVICES D’ETAT
-
-Décision · Journal officiel de la République de Djibouti, n° 7 du 31/07/1962 · <https://www.journalofficiel.dj/texte-juridique/decision-n-921-bpe-itls-decisions-concernant-les-services-detat/>
-
-En vigueur : 1962-07-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) |  Desanti Jean, Chef de Division de classe normale de 3° échelon du Corps Autonome de la France d’Outre-Mer, délégué dans les fonctions de Contrôleur du Travail et des Lois Sociales, est désigné pour assurer conjointement avec ses fonctions de Directeur de l’Office Territorial de la Main-d’Œuvre de la Côte Française des Somal’intérim de M. Berthoumieu Pierre, Conseiller au Travail et à la Législation Sociale, Inspecteur du Travail et des Lois sociales de Côte Française des Somalis, titulaire d’un congé annuel à passer en Métropole du 13 juillet au 30 septembre 1982 |

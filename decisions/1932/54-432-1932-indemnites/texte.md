@@ -1,1 +1,0 @@
-l’indemnité de permanence de 2.400 francs l’an, prévue par la décision n° 803, du 28 novembre 1932, pour le fonctionnaire contractuel chargé du bureau d’ordre, sera allouée à Mlle Soulier, chargée desdites fonctions à compter du 1er novembre 1932, date depuis laquelle elle a effectivement assuré ce service de permanence.

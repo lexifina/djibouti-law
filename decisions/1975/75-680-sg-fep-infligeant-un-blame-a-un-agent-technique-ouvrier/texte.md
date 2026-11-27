@@ -1,1 +1,0 @@
-Un blame avec inscription au dossier est infligé à M. Ahmed Aden Aptidon, agent technique ouvrier de 1 classe, 3° échelon du corps territorial des Travaux Publics et du Port en service à la Direction des Travaux Publics pour absences injustifiées et mangue de conscience professionnelle.

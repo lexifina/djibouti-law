@@ -1,1 +1,0 @@
-les gardes Elmi Dirieh, numero matricule 333 el Meurseh Omar, numero aatricule 343, en traitement à l’hôpital, pour maladie contractée en service commandé, sont exonérés de la relenue prévue à l’article 12 de l’arrêté du 21 avril 1922

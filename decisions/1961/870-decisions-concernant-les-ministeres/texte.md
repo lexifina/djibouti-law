@@ -1,2 +1,0 @@
-M. Ismaël Assowe Bœuh, secrétaire à salaire journalier en service au Ministère du Travail, est admis à solde forfaitaire mensuelle de 30.000 francs, pour compter du 1° mai 1961.
-La Convention Collective Territoriale des Services, Entreprises et Etablissements Publics de la Côte Française des Somalis en date du 16 mars 1956 lui est applicable. hormis les dispositions relatives à la classification et à la rémunération.

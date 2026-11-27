@@ -1,1 +1,0 @@
-M. Cauvin, commis stagiaire des services ciVils, est mis à la disposition de M, le chef du Service de l’inscription maritime M ‘Trobas, commis stagiaire des services civils, est mis à la disposition de M le commandant de cercle de djiboutii.

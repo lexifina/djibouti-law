@@ -1,1 +1,0 @@
-le nommé Abdallah Mohamed Mékbel est engagé comme journalier, à rulson de cinq francs par jour, et mis en cette qualité à la disposition d’u chef du service des douanes, pour compter du 1er septembre 1929.

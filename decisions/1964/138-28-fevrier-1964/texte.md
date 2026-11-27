@@ -1,1 +1,0 @@
-Le milicien de 2e classe Ali Hamad Moussa, mle 2888 de la 4e Cie de Milice à Damerdjog est licencié pour «inaptitude à l’emploi» pour compter du 15 janvier 1964. L’intéressé, qui totalise 4 mois et 1 jour de services effectifs dans la Milice de la C.FS., ne peut prétendre à aucune indemnité.

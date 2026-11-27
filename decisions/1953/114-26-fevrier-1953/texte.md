@@ -1,2 +1,0 @@
-Un passage de retour par anticination vour Madagascar est accordé à Mme. Zafimbelo-Rambeloarisoa (Lucie), épouse d’un secretaire-dactylographe contractuel en service au Trésor.
-Une réquisition de passage par voie maritime Diibouti-Tamatave et une requisition par voile ferrrée Tamatave-Tananariv seront delivrées à intéressé qui voyagera accompagnée de ses deux enfants âgés respectivement de 3 ans et de 1 an (Groupe IV).

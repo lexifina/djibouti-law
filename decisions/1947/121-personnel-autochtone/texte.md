@@ -1,1 +1,0 @@
-Un congé à salaire entier d’une durée de deux mois est accordé à Djama Saïd, planton du cadre local. en service à la Station intercoloniale de T. S. F.. pour en jouir à DiréDaoua. pour compter du 10 février 1947.

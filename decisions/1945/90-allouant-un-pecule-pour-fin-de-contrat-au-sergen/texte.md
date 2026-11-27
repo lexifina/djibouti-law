@@ -1,1 +1,0 @@
-Article unque. — Un pécule de cinq mille six cent cinquante francs (5.650 fr. ) est alloué au sergent FARAH CHIRE, mle 104 libéré pour fin de contrat le 1er février 1945 après 17 ans de service accomplis.

@@ -1,1 +1,0 @@
-La société « Shell » (A.M.G.) est autorisée à mettre en service les réservoirs souterrains devant contenir des liquides inflammables et les installations de délivrance implantés à la station service à l’enseigne « Shell», située route d’Arta.

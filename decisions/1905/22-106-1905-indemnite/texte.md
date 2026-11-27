@@ -1,1 +1,0 @@
-Par décision du Gouverneur en date du 16 août 1905, l’indemnité journalière attribuée a M.Sére, écrivain au secrétariatsoncral, est portée de six à sept francs par pour a compter du 1er septembre 1905.

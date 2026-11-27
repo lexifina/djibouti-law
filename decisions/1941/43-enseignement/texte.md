@@ -1,2 +1,0 @@
-M. François étant chargé de la direction de l’éducation physique et du contrôle , permanent des écoles de brousse, M. Vincent reprend les fonctions de chef du Service de l’enseigne ment.
-A ce titre, M. Vincent est chargé de la réorganisation . de l’enseignement suivant les directives , contenues dans le télégramme officiel n° 113 du 21 décembre 1940, et notamment en ce qui concerne l’organisation de l’enseignement manuel, rural et ménager.

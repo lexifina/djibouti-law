@@ -1,1 +1,0 @@
-Est rapportée la décision n° 246 du 15 avril susvisée. M. Rouillère, inspecteur du cadre métropolitain des contributions directes est nommé curateur aux successions et biens vacants des fonctionnaires.

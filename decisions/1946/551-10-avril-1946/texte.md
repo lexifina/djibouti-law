@@ -1,1 +1,0 @@
-Une avance de quinze mille francs (15.000 fr.i. à valoir sur ses émoluments, a été accordée à titre exceptionnel à M. Horne beck. agent détaché de l’Imprimerie Nationale, directeur de l’Imprimerie administrative de Djibouti.

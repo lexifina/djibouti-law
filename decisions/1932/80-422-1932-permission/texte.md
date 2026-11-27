@@ -1,1 +1,0 @@
-une permission de trente jours, dont quinze à solde entière et quinze à demi-solde sans indemnité, est accordée au garde de 2e classe Mohamed Assen, n° 638, pour en jouir au Yémen, pour compter du 1er février 1932.

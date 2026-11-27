@@ -1,1 +1,0 @@
-chef – du gouvernement, en date du 26 février 1994, un premier avertissement est infligé à Mme Samia Abdi Moumin, institutrice adjointe de 2e classe — 2e échelon du corps de l’Education nationale, en service ‘à l’Education nationale pour manque de conscience professionnelle caractérisé.

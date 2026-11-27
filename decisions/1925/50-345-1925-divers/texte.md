@@ -1,1 +1,0 @@
-est autorisé l’exhumation des restes mortels de Max Rivière, décédé et inhumé à Djibouti, le 28 mai 1924, fils 4e M. Rivière, adjoint des services civils, ainsi que leur transfert à l’Entre-Deux (Réunion).

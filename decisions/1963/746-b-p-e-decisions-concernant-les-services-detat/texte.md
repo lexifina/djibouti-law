@@ -1,1 +1,0 @@
-M. Darmendraïl Joseph, Administrateur de 7° échelon des Affaires d’Outre-Mer, est, à compter du 20 juin 1963 et pour la durée de l’absence de M. Morin Daniel, titulaire d’un congé annuel à passer en Métropole du 20 juin au 20 août 1963, nommé par intérim, Commandant de Cercle de Djibouti et Président du Tribunal du 2° degré dans le ressort du dit Cercle.

@@ -1,1 +1,0 @@
-M. Omar Aden Hassan, dit Jérôme, instituteur de 2° classe, 1 échelon, dù cadre territorial de l’Enseignement, ne s’étant pas présenté à une visite médicale régulière à subir au Dispensaire Pierre-Pascal le 10 septembre 1968, est, pour compter de la même date, suspendu dé sés fonctions avec le bénéfice de la moitié de sa rémunération et de la totalité de ses avantages familiaux.

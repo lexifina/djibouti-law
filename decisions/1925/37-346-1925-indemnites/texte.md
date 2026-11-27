@@ -1,1 +1,0 @@
-une indemnité de licenciement de 180 francs, égale à trois mois de solde, est accordée à l’askari de la police Qualileh Sarrayeh, licencié de son emploi pour inaplilude physique à compler du 31 août 1925.

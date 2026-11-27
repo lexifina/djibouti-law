@@ -1,1 +1,0 @@
-Les miliciens dont les noms suivent ont droit à l’indemnité pour charges de famille : 1937, Mohamed Ali, 2e classe, 4e compagnie (pour compter du 25 février 1947) ; 1942, Ateyeh Ahmed, 1re classe, 4e compagnie (pour compter du 26 février 1947).

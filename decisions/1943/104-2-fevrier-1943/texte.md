@@ -1,2 +1,0 @@
-Le Commis Principal de 1ère classe des Contributions Indirectes du cadre Local de Madagascar LEBREAUD, rendu à la vie civil pour compter du 1er janvier 1943, est provisoirement intégré dans le personnel de la C.F.S. Il est temporairement mis a la disposition du Chef du Ravitaillement Général dont le budget supportera sa solde et ses indemnités.
-La présente décision prend effet du 1er janvier 1943.

@@ -1,1 +1,0 @@
-Le Capitaine d Infanterie Coloniale BONNEFOY Gustave. Félix est placé dans la position Hors Cadres » pour compter du 23 Août 1943 et prendra les fonctions de Com mandant de la MILICE:, en remplacement du Chef de Bataillon CHEDEVILLE en instance de départ en congé de convalescence.

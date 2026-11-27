@@ -1,1 +1,0 @@
-M. Raveloary (Justin), secrétaire dactylographe contractuel,de retour de congé, est mis à la disposition du Commandant de Cercle de Djibouti pour compter du 7 décembre 1952, date de son débarquement sur le Territoire.

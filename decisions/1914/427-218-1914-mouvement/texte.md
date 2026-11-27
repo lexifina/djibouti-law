@@ -1,1 +1,0 @@
-ont été nommés pour compter du même jour, 1° au grade de caporal, le garde de 1ère classe Abdourhaman Charaff n° matricule 54; 2° à la première classe, les gardes de 2me classe: Ali ben Ali n° matricule 398 et Meusscn Abdallah n° mle 494.

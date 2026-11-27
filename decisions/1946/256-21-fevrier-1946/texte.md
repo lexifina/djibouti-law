@@ -1,1 +1,0 @@
-Les arrêtés n°231 et 2332 visés ci-dessus ont été modifiés en ce qui concerne le planton Omar Ahmed. L’intéressé il été inscrit au tableau d’avai cement du 1er janvier 1946 pour le 3e échelon de l’emploi de planton (3e tour choix, à défaut d’ancienneté) : il a été promu à cet échelon pour compter de la même date :

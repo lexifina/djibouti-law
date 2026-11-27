@@ -1,2 +1,0 @@
-Sera versé au Budget annexe du port et imputé en recette audit Budget exercice 1960, chapitre 3, article 3, $ 1, le reliquai suivant de la vente aux enchères publiques non réclamé à l’expiration d’un délai d’un an.
-10 Reliquat de la vente du 6 mars 196) s’élevant à la somme de trente-sept mille cinquante-trois francs Djibouti (37.053) en capital plus quatre cent trente-neuf francs Djibouti (439) d’intérêts, soit au total trente-sépt mille quatre cent quatre-vingt douze-francs Dyibonti (37.492).

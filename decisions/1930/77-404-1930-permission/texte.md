@@ -1,1 +1,0 @@
-une permission de détente de quarante-cinq jours, dont trente jours à solde entière et quinze jours sans solde, est accordée à Mlle Furioux, infirmière-major contractuelle, à compter du 15 juillet 1930, pour en jouir à Diré-Daoua.

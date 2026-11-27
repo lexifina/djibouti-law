@@ -1,2 +1,0 @@
-Un congé administratif de six mois (6), pour en jouir à Auderville (Manche), est accordé à Mme Pottier (Lucile), institutrice de 3e classe du cadre métropolitain, en service détaché en Côte Française des Somalis, qui aura accompli le 1er octobre prochain, un séjour effectif ininterrompu de deux ans dans le Territoire.
-Mme Pottier, qui appartient au groupe III, voyagera par voie maritime de Djibouti à Marseille et par voie ferrée de Marseille à Auderville (Manche), aux frais du budget local de la Côte Française des Somalis.

@@ -1,2 +1,0 @@
-M. Abboulkader Hassan, est engagé à l’essai pour deux mois à compter du 1er février 1960 en qualité de planton auxiliaire et mis à la disposition du Ministre des Affaires Intérieures pour servir au Cercle de Dikhil, en remplacement de M. Saïd Abdallah admis au bénéfice d’une allocution-viasère d’ancienneté.
-M. Abdoulkader Hassan est classé à la 5° catégorie, échelle 1, ler échelon, indice local 100.

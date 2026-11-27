@@ -1,1 +1,0 @@
-En date du 2 juin 1910, M. Georges Lassaigne, Administrateur Adjoint de % classe des colonies, procédera à le date du 30 juin 1910, conformément aux prescriptions du décret du 20 novembre 1882 à la vérification de la Caisse du Trésorier Payeur.

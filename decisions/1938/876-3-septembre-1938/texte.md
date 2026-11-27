@@ -1,1 +1,0 @@
-M. Nicolas (François), inspecteur stagiaire du cadre local de police, est nommé chef du noste des douanes d’Ali-Sabiet, à compter au 11 septembre 1938, en remplacement du serment Coudeyre, remis à la disposition du colonel commandant supérieur des troupes.

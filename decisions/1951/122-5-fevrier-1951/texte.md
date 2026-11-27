@@ -1,1 +1,0 @@
-Mme Merle, secrétaire comptable auxiliaire 2e catégorie à salaire journalier, en service à la Direction du Service de Santé (Pharmacie d’approvisionnement), est admise à solde mensuelle pour compter du 1er février 1951.

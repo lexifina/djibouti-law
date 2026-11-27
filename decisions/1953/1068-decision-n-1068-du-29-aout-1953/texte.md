@@ -1,1 +1,0 @@
-Mme Mussard (Annick) est engagée en qualité de dame-employée auxiliaire 3° catégorie à salaire journalier et mise à la disposition du Commandant de Cercle de Djibouti pour compter du 18 septembre 1953.

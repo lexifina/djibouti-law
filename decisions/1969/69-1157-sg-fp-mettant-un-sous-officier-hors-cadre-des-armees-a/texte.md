@@ -1,1 +1,0 @@
-M. Pierre Baïlbe, sergent-chef, en position hors cadre des Armées (indice nouveau 231) est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 4 juillet 1969, pour servir à l’Hôpital Peltier, en remplacement numérique de ladjudant-chef Divet, rapatriable.

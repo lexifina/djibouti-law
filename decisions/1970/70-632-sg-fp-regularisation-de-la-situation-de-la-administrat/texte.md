@@ -1,1 +1,0 @@
-M: Agualeh Miguil Farah, ouvrier de 1°classe, 1°échelon, à Cadre territorial des Travaux publics et du Port, en service Port de Commerce de Djibouti, est reclassé ouvrier de classe, 2* échelon, pour compter du 31 décembre 1969.

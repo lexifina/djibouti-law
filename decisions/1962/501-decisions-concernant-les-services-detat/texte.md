@@ -1,1 +1,0 @@
-M. Ali Daher Liban, rédacteur stagiaire, est nommé receveur comptable (billeteur et agent intermédiaire) du 16 avril au 16 mai 1962, durant l’absence de M. Felix Evariste, titulaire d’un congé de trente jours (30 jours).

@@ -1,1 +1,0 @@
-M. Hassan Omar Dirieh, technicien de 2° classe, 2° echelon du cadre territorial de la Santé publique, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à la Santé publique pour compter du 8 juillet 1970, date de son retour au Territoire, à l’issue de son stage de perfectionnement professionnel en métropole.

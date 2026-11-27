@@ -1,1 +1,0 @@
-une rémunération de 500 francs est allouée à l’administrateur des colonies Grémillet, pour la préparation et la rédaction des tables chronologique et analytique des textes en vigueur à la Côte des Somalis, du 1er janvier au 31 décembre 1924.

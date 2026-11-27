@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Hamed Kamil Ali, infirmier de 2″° classe – 2″° échelon du corps territorial de la Santé publique, en service au dispensaire de Tadiourah pour absence non motivée de l’après-midi du 10 avril 1974.

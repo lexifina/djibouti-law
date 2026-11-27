@@ -1,1 +1,0 @@
-M. Diderrich (Arthur), adjoint principal des services civils après 2 ans, du 19 février 1928, qui réunit les conditions d’ancienneté et de séjour exigées par l’article 6, paragraphe B, de l’arrêté du 26 avril 1928, passe automatiquement à l’échelon après 4 ans, pour compter du 19 février 1930.

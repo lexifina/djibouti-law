@@ -1,1 +1,0 @@
-M.Goulin Louis, volontaire de l’aide technique est pour compte du 22 décembre 1974, date de son arrivée dans le Territoir la disposition du Président du Conseil de Gouvernement servir l’Electricité de Djibouti, en qualité de Expictistion Entretien Centrales Thermiques, service à compte du 1er décrnbre 1974.

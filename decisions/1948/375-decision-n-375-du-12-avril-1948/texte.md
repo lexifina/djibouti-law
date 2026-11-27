@@ -1,2 +1,0 @@
-Est titularisé dans le grade de commis de 4e classe des Trésoreries coloniales pour compter du 1er février 1948 le commis stagiaire de 4° classe Pottier (Robert).
-Conformément aux dispositions des lois susvisées sur les rappels d’ancienneté pour services militaires et en application de la circulaire n° 122/B.-4 du 12 novembre 1946 du Ministre des finances, il est attribué à M. Pot tier (Robert), commis de 4 classe, une an cienneté de 1 an 11 mois à titre de rappel pour services militaires.

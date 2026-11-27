@@ -1,1 +1,0 @@
-Le milicien de 2e classe Diriye Hassan numéro matricule 16S2, de la 2° compagnie de milice, décédé à Boromsi le 20 septembre 1949, est rayé des contrôles de la milice pour compter du 30 septembre 1940.

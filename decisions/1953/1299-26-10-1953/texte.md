@@ -1,1 +1,0 @@
-Un congé de convalescence de trois mois à solde entiere, à l’issue duquel l’intéressé devra se représenter devant le Conseil de Santé pour décision sur son aptitude à continuer ses service, est accordé à M. Kamel Ahmed, chauffeur 18e échelon du cadre local, en service au Secrétariat général, à compter du 20 octobre 1953.

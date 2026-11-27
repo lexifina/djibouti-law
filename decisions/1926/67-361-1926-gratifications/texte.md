@@ -1,1 +1,0 @@
-31 décembre 1926. une gralification exceplionnelle de 200 francs est accordée à M. Fontanel, mécanicien des postes et téléoraphes, pour entrelien et surveillance des moleurs des automobiles et vedettes du Gouverneur pendant lannée 1926.

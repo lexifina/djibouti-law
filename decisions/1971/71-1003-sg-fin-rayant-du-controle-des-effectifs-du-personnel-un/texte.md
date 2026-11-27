@@ -1,1 +1,0 @@
-M. Djama Ibrahim, caporal -2 -_ indice 165 de la garde territoriale, matricule 1819, est rayé du contrôle des effectifs du personnel de la garde territoriale pour raison de limite d’âge pour compter du 1 juillet 1971.

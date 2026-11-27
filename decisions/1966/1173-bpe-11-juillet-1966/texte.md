@@ -1,2 +1,0 @@
-M. Gabriel (Jean), administrateur en chef de 2e échelon des A.O.M, premier adjoint au Commandant de Cercle de Djibouti est, pour compter du 1er juin 1966, nommé président du Tribunal du premier degré dans le ressort du Cercle de Djibouti pour les Affaires contentieuses, en remplacement de M. Vaslin (Jacques), conseiller aux Affaires administratives de 1re classe, 2e échelon, titulaire d’un congé à passer en métropole.
-Avant l’entrée en fonction, M. Gabriel (Jean) prêtera le serment prévu par la loi.

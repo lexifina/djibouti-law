@@ -1,1 +1,0 @@
-M. Gueziec, juge au siège, mis à la disposition du Procureur de la République à compter du 1er mars 1964, est délégué dans les fonctions de substitut du Procureur de la République à compter de la même date et jusqu’à la reprise de ses fonctions par M. Bertrou, substitut titulaire.

@@ -1,1 +1,0 @@
-M. Bertrand (Jean), élève administrateur des colonies, est mis à la disposition de l’inspecteur des affaires administratives, chef du Cabinet civil, chargé de l’expédition des affaires courantes et urgentes pendant la durée de la mission du Gouverneur en France.

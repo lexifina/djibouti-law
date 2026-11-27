@@ -1,1 +1,0 @@
-M. René Ollivier, médecin de 2e classe, en position « hors cadres », est, pour compter du 22 juillet 1970, date- de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir en qualité de chirurgien résident de l’Hôpital Peltier, en remplacement du médecin en chef de 2e classe Crochet, rapatriable.

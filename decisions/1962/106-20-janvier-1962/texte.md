@@ -1,2 +1,0 @@
-Une bonification d’ancienneté de 3 ans pour services accomplis dans la Milice est accordée à M. Odoum Houmad, agent technique de 2e classe, 2e échelon, du Cadre Territorial des Travaux Publies.
-Compte tenu de cette bonification M. Odoum Houmad est classé au 3e échelon du grade d’agent technique de 1re classe des Travaux Publics pour compter du 1er janvier 1962 (ancienneté civile épuisée, R.S.M.C. : 2 ans 3 mois).

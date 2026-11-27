@@ -1,1 +1,0 @@
-M. Cope (Henri-Emile), premier fondé de pouvoirs, service armé, classe de mobilisation 1913, classé dans l’affectation spéciale par décision n° 1092 en datée du 8 novembre 1938 est rayé de cette position pour compter de la date de la present décision.

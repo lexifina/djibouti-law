@@ -1,1 +1,0 @@
-Le sergent Rigail, de la compagnie des le légraphistes coloniaux, breveté radioteélegraphiste détaché hors-cadres à la Côte Francaise des Somalis est alfecté à la station Côtiére de T.S.F. à compter du jour de son débarquement.

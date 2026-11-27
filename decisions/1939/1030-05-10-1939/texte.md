@@ -1,1 +1,0 @@
-M. David (Pierre), vérificateur des P. T. T. service armé, classe de mobilisation 1929, est rayé de la position d’appel différé, et placé dans l’affectation spéciale pour une durée de trois mois à compter du 2 octobre 1939.

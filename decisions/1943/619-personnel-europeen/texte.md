@@ -1,1 +1,0 @@
-M. SAUTERON Marcel, Vérificateur prin cipal des Douanes, affecté à la Côte Fran çaise des Somalis, est nommé pour compter du 1er Août 1943. Chef du Service des Douanes en remplacement de M. HH DENBRAND. Commis principal, chargé de l‘expédition des affaires courantes.

@@ -1,1 +1,0 @@
-Et pour compter du 21 du même mois, le patron de 2ème classé Odoa Arri, patron du « Djibouti” a été affecté au boutre « Tadjourah”; les matelots de 2ème classe Abdallah Ibrahim, Hassan Omar de l’équipage du « Djibouti’, Boeuh Ali, Abdi Doali et Abdallah Mohamed de l’équipage du « Tadjourah” ont été licenciés par suite de suppression d’emploi.

@@ -1,1 +1,0 @@
-Mme Jumarie (Louise), auxiliaire de 3° catégorie au service des informations. est licenciée pour compter du 11 mars 1950. pour suppres sion d’emploi. Mm Jumarie (Louise) aura droit à une in demnité de licenciement égale à quinze jours de salaire.

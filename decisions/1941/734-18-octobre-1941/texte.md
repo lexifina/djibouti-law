@@ -1,1 +1,0 @@
-Le nommé Abdallah Saïd Salem. commis auxiliaire en service au Bureau des finances, est licencié de son emploi à compter du 16 oc tobre 1941 pour refus de se présenter à l’examen d’enseignement général prescrit partucirculaire, en date du 8 octobre 1941, du chef de la colonie.

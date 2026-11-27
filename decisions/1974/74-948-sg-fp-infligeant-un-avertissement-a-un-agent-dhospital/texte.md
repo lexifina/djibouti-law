@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ahmed Mohamed Ali, agent d’’hospitalisation de classe exceptionnelle du corps territorial de la Santé publique, en service au dispensaire de Tadjourah pour absences irrégulières non motivées des après-midi des 3, 5, 8, 9, et 10 avril 1974.

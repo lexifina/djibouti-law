@@ -1,1 +1,0 @@
-Est constatée pour compter du 8 mai 1968, date de son retour au Territoire, la reprise de service de M. Fernand André, comptable contractuel (catégorie C, 3e échelon, indice 275, groupe IV) en service à la pharmacie d’approvisionnement (hôpital Peltier – Ministère de la Santé publique et des Affaires sociales).

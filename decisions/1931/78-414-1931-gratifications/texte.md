@@ -1,1 +1,0 @@
-une gratification de 100 francs est accordée au garde Farah Issa, du détachement de Tadjourah, pour le sang-froid dont il a fait prouve en empêchant des gardes qui se croyaient en danger de tirer sur une population paisible.

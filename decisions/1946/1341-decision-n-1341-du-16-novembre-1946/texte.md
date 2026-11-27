@@ -1,1 +1,0 @@
-M. Mahmoud Haïd, comptable principal de 1re classe du cadre des travaux publics de la Côte française des Somalis, est affecté pour compter du 19 novembre 1946 au bureau des finances, en remplacement numérique de M. Rahime Amine, comptable contractuel, en instance de départ en permission.

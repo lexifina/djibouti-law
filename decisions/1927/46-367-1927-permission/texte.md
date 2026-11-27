@@ -1,1 +1,0 @@
-une permission de quinze jours avec solde de présence est accordée au garde sanitaire de 2e classe (planton à l’hôpital) Ibrahim Kamil, pour se rendre à Obock. Celle permission comptera du 10 juin 1927.

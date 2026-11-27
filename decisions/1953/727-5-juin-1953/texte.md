@@ -1,2 +1,0 @@
-Le maréchal des logis-chef Duffourg (Paul), arrivé en Côte Française des Somalis le 1er juin 1953, est affecté à la Compagnie de Gardes-Cercle de Djibouti pour compter de la date de son débarquement.
-Le maréchal des logis-chef Duffourg (Paul) est nommé billeteur de la Compagnie de Gardes-Cercle pour compter du 8 juin 1953 en remplacement du gendarme Poitevineau (Sylvain), appelé à d’autres fonctions.

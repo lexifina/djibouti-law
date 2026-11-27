@@ -1,1 +1,0 @@
-Un blame avec inscription au dossier est infligé à M. Elmi Amine Ahmed, planton principal 3° échelon du cadre territorial de l’Administration générale, en service à l’école primaire du Quartier 7 de Djibouti (Ministére de Enseignement, des Sports et de la Jeunesse) pour mauvaise conduite.

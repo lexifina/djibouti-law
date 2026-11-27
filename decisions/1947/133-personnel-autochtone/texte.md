@@ -1,1 +1,0 @@
-Le nommé Ahmed Mansour. chanteur arabe d’Aden. est engagé pour les besoins du < Dar El Akbar ». à compter du 1er février 1947, à la place du nommé Farao Saïd Bacharawi, au salaire de 30 francs par jour.

@@ -1,1 +1,0 @@
-29 décembre 1932, un congé de repos de un mois, à solde entière dégagée de tous accessoires, est accordé à l’infirmier de 2° classe Mohamed Moussa, en service à l’hôpital intercolonial de Djibouti, pour compter du 1° » janvier 1933.

@@ -1,1 +1,0 @@
-M. Jean Sabiani est engagé, pour compter du 1er novembre 1947, pour diriger la section € viande » du Ravitaillement général, au salaire mensuel de 20.000 francs, net de tous accessoires et indemnités.

@@ -1,1 +1,0 @@
-Le salaire mensuel du nommé Abdallah Abdou Djoumaï, commis administratif auxiliaire au service des travaux publics, est porté à dix-neuf mille quatre cent quarante francs, pour compter du 1er juillet 1950.

@@ -1,1 +1,0 @@
-une subvention de mille sent 15 juin 1922, une subvention de mille sept sen cinquante francs (1750) est att ibuée au comité des fètes de Djibouti (dépenses occasionné es par la réception de S.M. l’Empreurd’Annam).

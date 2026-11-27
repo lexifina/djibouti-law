@@ -1,1 +1,0 @@
-Par déision du Gouverneur, en date du 28 décembre 1907 et â l’occasion du I er de l’an 1908, il est fait remise pleine et entière de leur peine aux nommés Ahmed Hussein, Bieher Chirié, Kayat Assoa, Djama Younis, Abdallah Chili, Tagla, Djama Roblé.

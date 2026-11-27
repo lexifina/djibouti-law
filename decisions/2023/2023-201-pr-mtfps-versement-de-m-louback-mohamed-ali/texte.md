@@ -1,2 +1,0 @@
-Par décision n°2023-201/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 31 mai 2023, M. LOUBACK MOHAMED ALI, Attaché d’administration de 1°classe-3°échelon, du Corps de l’Administration Générale, en service à la Direction Générale du Doraleh Multi-Purpose Port, du Ministère des Infrastructures et de l’Equipement, est versé dans le cadre des Administrateurs civil, du Corps de l’Administration Générale, au grade d’administrateur civil de 1°classe-3°écheion.
-La présente décision prend effet à compter du 31 mai 2023.

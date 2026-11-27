@@ -1,1 +1,0 @@
-Le Capitaine d’infanterie coloniale Perrot (Pierre), officier dans les cadres en service à TEtat-Major du Colonel commandant supérieur, est chargé de l’expédition des affaires courantes du Cabinet militaire, durant l’absence du Lieutenant Bore, se rendant en mission en France, et pour compter du 8 mai 1951.

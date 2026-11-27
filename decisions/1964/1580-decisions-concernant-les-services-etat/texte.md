@@ -1,1 +1,0 @@
-Le caporal Idriss Ali, matricule 2498, de la 3e compagnie de Mülice à Ali-Sabieh, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. du 3 novembre 1964, est licencié pour raison de santé à compter du 11 novembre 1964.

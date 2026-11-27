@@ -1,1 +1,0 @@
-M. Carton (Albert), commandant de camp de 1re classe du corps, d’encadrement des pionniers de Madagascar, est mis « la disposition de le commandant du cercle de Djibouti e pour compter du jourde son débarquement.

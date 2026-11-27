@@ -1,2 +1,0 @@
-Un passage, en 3° classe, à destination de Marseille, est accordé à M. Flori (Jean), sergent du Service de santé colonie hors cadres, qui prendra passage paqurebot Leconte-de-Lisle de 1n Compagnie des Mes saveries Maritimes attendu vers le 16 septembre 1939.
-Le 21 naoût 1939, il n’été délivré au liente tronpes coloniales Gory un certificat de conaissance pratique d’arabe Côte française des Somalis, pour en jonir avec les droits et prérogatives qui y sont attachés

@@ -1,1 +1,0 @@
-M. Mouis (Edmond) est mis à la disposition du chef du service des finances pour servir en qualité de comptable, en remplacement de M. Deruytter qui a reçu une autre affectation, pour compter du 18 septembre 1950, date de son arrivée à Djibouti.

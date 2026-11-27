@@ -1,1 +1,0 @@
-M. Arnaud (Bernard), ingénieur-adjoint de 1er classe des T.P.C. de retour de congé, est mis à la disposition du Directeur du Service des Travaux Publics pour servir à la Subdivision administrative à compter du 17 mai 1951, date de son arrivée à Djibouti.

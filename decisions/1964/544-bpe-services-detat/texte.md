@@ -1,2 +1,0 @@
-M. Vaslin (Jacques), conseiller aux Affaires administratives de 2e classe, 6e échelon, adjoint au Commandant de Cercle de Djibouti, est nommé président du Tribunal du 1er degré dans le ressort dudit cercle pour les affaires concernant l’état civil des personnes en remplacement de M: Darmendrail (Joseph), administrateur en chef de 2e échelon des Affaires d’outre-mer.
-Avant d’entrer en fonction M. Vaslin prêtera le serment prescrit par la loi.

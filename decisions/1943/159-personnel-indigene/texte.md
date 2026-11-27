@@ -1,2 +1,0 @@
-Le Commis auxiliaire des douanes ISMAIL IIERSI. en disponibilité sans solde d’un an depuis le 1er mars 1942, est réintégré dans son emploi, en mêmes qualité et traitement, à compter du 15 février 1943.
-Le nommé MOHAMED MOKBEL est en gagé en qualité de commis auxiliaire des douanes au salaire mensuel de Huit cents francs 800,00 à compter du 15 février 1943 en remplacement numérique d’un agent en disponibilité.

@@ -1,1 +1,0 @@
-M. Saleh Kabeche Gouled, propriétaire demeurant à Djibouti, au quartier n° 2, est autorisé à acquérir une parcelle de terrain bâti, d’une superficie de 144 mètres carrés, sur laquelle est édifiée un appartement, sise à Djibouti, plateau du Serpent, et immatriculée au Livre foncier du Territoire sous le n° 92 au nom de M Neuven Tan L:eùü et son épouse Dao-Thi-Tuvyet.

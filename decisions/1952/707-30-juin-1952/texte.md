@@ -1,1 +1,0 @@
-M. Doyen (André), Chef de bureau de 2e classe d’Adminis tration générale d’Outre-Mer, est chargé, à titre provisoire, du Service de l’Information et dès fonctions de Secrétaire du Conseil Représentatif pour compter du 23 juin 1952, date de son arrivée à Djibouti

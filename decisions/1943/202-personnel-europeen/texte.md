@@ -1,1 +1,0 @@
-Ln congé de convalescence de trois mois est accordé à M. TROBAS Marcel. Adjoint de 2me classe des Services Civils, en service au Cercle de Djibouti. M. ‘TROBAS est autoiisé à jouir de son congé à Beyrouth (Syrie). Une réquisition de transport Djibouti Da mas par les Lignes Aériennes Militaires lui sera délivrée pour l’avion du 8 Mars 1943.

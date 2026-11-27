@@ -1,1 +1,0 @@
-le nommé Ali Waldé, Abyssin, sans profession ni domicile, est expulsé de la Côte française des Somalis et devra quitter, ; dans un délai expirant le S mai 1931, le territoire de la colonie, qui lui reste interdit, ainsi que celui de ses dépendances.

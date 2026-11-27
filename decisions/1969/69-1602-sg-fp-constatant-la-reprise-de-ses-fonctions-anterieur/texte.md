@@ -1,1 +1,0 @@
-Est constatée, pour compter du 20 octobre 1969, date de son retour dans le Territoire, la reprise de ses fonctions antérieures de chef du Service des Affaires administratives territoriales (Ministère des Affaires intérieures) par M. Mohamed Aden Ahmed Dini, administrateur adjoint 4 échelon, du cadre terrtorial.

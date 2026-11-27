@@ -1,1 +1,0 @@
-pour compter du 20 du dit le sergent Giroud à été affecté à la Brigade Indigène en qualité de sergent-fourrier et a été autorisé à prèter son concours au Trésorier Paveur pour la tenue de la comptabilité de son service.

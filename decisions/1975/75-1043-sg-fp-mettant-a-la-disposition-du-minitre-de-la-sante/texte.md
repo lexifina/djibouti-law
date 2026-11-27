@@ -1,1 +1,0 @@
-M. Jean-Pierre Tagawa, V.A.T. est, pour compter du 9 avril 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique pour servir en qualité de médecin des dispensaires d’Ibrahim-Balala, Arhiba et Ambouli, service comptañt pour compter du 1 avril 1975.

@@ -1,1 +1,0 @@
-M. Guy Oubron, technicien du Génie rural, 8° échelon, est, pour compter du 18 août 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Affaires économiques pour servir en qualité d’adjoint au Chef du Service de l’Agriculture et des Forêts.

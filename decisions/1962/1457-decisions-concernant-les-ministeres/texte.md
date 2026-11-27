@@ -1,3 +1,0 @@
-Le Sergent-Maior Faber François, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 2 août 1962 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 11 août 1962, date de son arrivée au Territoire.
-Ce Sous-Officier est désigné pour occuper les fonctions de mécanicien dentiste au Service de Stomatologie de l’Hôpital Peltier pour compter du 16 août 1962, en remplacement de l’Adjudant-Chef Duchez rapatrié pour fin de séjour.
-Le Sersgent-Maior Faber sera réintégré dans les cadres et pris en charge par l’autorité militaire pour compter du le décembre 1962. Il quittera son service à l’Hôpital Peltier à l’arrivée de M.Duchez. contractuel. attendu vers cette date.

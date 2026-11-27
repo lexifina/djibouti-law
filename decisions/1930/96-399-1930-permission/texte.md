@@ -1,1 +1,0 @@
-l’adjudant Gaudry, de la section des infirmiers coloniaux, en service hors cadres à l’hôpita de Djibouti, est rapatrié pour fin de séjour, par le paquebot Géncésal-Voyron, attendu à Djibouti le 23 février 1930.

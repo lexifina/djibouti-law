@@ -1,2 +1,0 @@
-M. Martini Ernest, comptable contractuel catégorie C, 4e échelon, groupe III, chef comptable de la Subdivision des Eaux, propriétaire de la voiture Jeep-Wyllis, 9 CV, numéro minéralogique 643 D1, est autorisé à utiliser ce véhicule personnel pour les besoins du service dans la limite de 250 km par mois.
-M. Martini Ernest perceVra à ce titre une indemnité mensuelle de six mille cent douze francs Djibouti (6.112 FD.)

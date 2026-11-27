@@ -1,1 +1,0 @@
-Un congé à solde entière d’une durée de trois mois est accordé à M. AbdiRahman Abdillahi, commis administratif en service au Cabinet du Gouverneur. La présente décision aura effet pour compter du 7 juillet 1952

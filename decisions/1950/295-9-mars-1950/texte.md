@@ -1,1 +1,0 @@
-M. Mohamed Houssein Cassim est engagé pour compter du 6 mars 1950 en qualité de contrôleur principal stagiaire, au 16° échelon. M. Mohamed Houssein Cassim est mis à la disposition de M. le directeur du port.

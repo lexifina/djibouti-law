@@ -1,2 +1,0 @@
-Une allocation viagère de reversion de trente-quatre mille deux cent dix francs Djibouti (34.210) l’an est accordée à Mme Aourala Ali Mohamed, Somalie Darod Majertène, veuve de l’ex-agent auxiliaire Abdi Gouled décédé au mois de juillet 1962 à Burao (Répblique Somalie).
-Cette allocation sera payable trimestriellement et à terme échu pour compter du 1er août 1962 sur le vu d’un certificat de vie délivré par les autorités compétentes du Territoire.

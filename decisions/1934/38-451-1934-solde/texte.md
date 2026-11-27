@@ -1,1 +1,0 @@
-une somme mensuelle de 250 fr.imputable sur les fonds du compte hots budget, création de centres agfi vies dahs la colonie », a èté mise à la disposition du commandant du cercle de DiKhil-Gobad, qui devra en justifier l’emploi, pour assurer le fonctionnement de l’école de culture.

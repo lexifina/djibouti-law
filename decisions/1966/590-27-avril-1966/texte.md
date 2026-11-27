@@ -1,1 +1,0 @@
-M. Djama Chadire Din, somalie issa ourweiné, né en 1926 à Arta et titulaire de la C.I.F. n° 265 délivrée le 4 avril 1951, est engagé en qualité d’électricien journalier 6e catégorie au Service, de la Voirie de Djibouti (P.B.-n° 36).

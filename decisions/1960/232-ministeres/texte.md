@@ -1,2 +1,0 @@
-M. Girard (Jean), Aspirant pilote de Port, contractuel, est mis à la disposition du Ministre des Travaux Publics et du Port, pour compter du 7 décembre 1959, date de son arrivée dans le Territoire.
-M. Girard percevra pour compter du 7 décembre 1959, une avance sur traitement égale à 120.000 francs Djibouti (cent vingt mille francs Djibouti) par mois, qui sera régularisée dès réception de son contrat de travail visé par l’Office Central du Travail et de la Main-d’Œuvre.

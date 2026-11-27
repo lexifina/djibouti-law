@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 1122 du 7 septembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à M. Darar Waiss Assoe la concession provisoire d’un terrain d’une superficie de 2.500 mètres carrés, sis à Boulaos à Djibouti, au prix de 100 francs le mètre carré.

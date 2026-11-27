@@ -1,3 +1,0 @@
-Mme Poitevineau, secrétaire dactylographe auxiliaire 2° catégorie en service au Cercle de Djibouti, est autorisée a cesser son service poux compter du 1 novembre 1951.
-Mie Filippi (Gabrieile), secrétaire auxliaire 2” catégorie, retour de congé, reprend son service au Service Metéorologique pour compter du 2 novembre 1951 en remplacement de Mine Rivaud qui reçoit une autre affectation.
-Mie Rivaud, secrétaire auxiliaire de 3° categorie employée au Service Météorologique, est mise à la disposition du Commandant du Cercle de Djibouti en remplacement de Mme Poitevineau, autorisée à cesser son service.

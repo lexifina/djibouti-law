@@ -1,1 +1,0 @@
-L’indemnité forfaitaire annuelle pour frais de représentation allouée au Vice-Président du Conseil de Gouvernement est portée de trois cent mille francs (300.000 fr.) à cinq cent mille francs (500.000 fr.) pour compter du 1 janvier 1960, conformément à la délibération n° 124 du 15 février 1960.

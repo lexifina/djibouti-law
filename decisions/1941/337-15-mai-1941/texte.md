@@ -1,1 +1,0 @@
-Le sergent Lancelot ( François), du bataillon de tirailleurs sénégalais n° 3, est placé hors cadres et mis à la disposition du capitaine commandant le cercle d’Ali Sabieh, pour compter du 18 mai 1941. en remplacement du ser gent Cerces, déserteur.

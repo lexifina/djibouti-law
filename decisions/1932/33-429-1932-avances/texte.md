@@ -1,2 +1,0 @@
-une avance renouvelable de 15.000 francs, prélevée, sur les crédits du chapitre IV : « Administration générale >. du budget de l’exercice en cours, est mise à la disposition de l’adjudant-chef Brischoux, chef du peloton méhariste, qui devra en justifier l’emploi dans les formes et délais réglementaires.
-L’adjudant-chef Brischoux aura droit à l’indemnité de responsabilité de caisse prévue au budget de l’exercice en cours.

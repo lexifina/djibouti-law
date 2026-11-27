@@ -1,2 +1,0 @@
-Le maréchal des logis chef Bienvenu André, du Service du Matériel et Bâtiments des Troupes de Marine, est affecté, en qualité de surveillant de travaux de la 1re Compagnié de Milice et du Cercle de Dikhil pour compter du 28 septembre 1963.
-Le maréchal des logis chef du Service du Matériel et Bâtiments des Troupes de Marine Piot Charles, est affecté, en qualité de surveillant de travaux de la 4° Compagnie de Milice et du Dépôt de Milice à Djibouti pour compter du 28 septembre 1963.

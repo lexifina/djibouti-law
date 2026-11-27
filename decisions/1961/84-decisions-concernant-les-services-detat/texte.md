@@ -1,1 +1,0 @@
-Le Sergent-Chef d’Infanterie de Marine Paponnet André, désigné pour servir «hors-cadres» en. Côte Française des Somalis, arrivé à Djibouti le 29 décembre 1960, est affecté à la Milice de la Côte Française des Somalis et mis à la disposition du Commandant de la 1’° Compagnie de Milice de Dikhii en qualité de chef de garage pour compter de la date ‘de son embarquement.

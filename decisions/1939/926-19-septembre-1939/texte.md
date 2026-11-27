@@ -1,1 +1,0 @@
-M. Roussel, adjoint technique des travaux publics, service armé, classe de mobilisation 1926, est placé dans la position d’appel différé, dans son emploi actuel, pour une durée de rente jours, à compter de la date de la présente décision.

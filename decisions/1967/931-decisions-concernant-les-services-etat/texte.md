@@ -1,3 +1,0 @@
-l’agent journalier de 2e catégorie Kadidja Meraneh Bahal, précédemment en service à l’Hôpital Peltier en qualité de fille de salle, est licenciée de son emploi à compter du 1er juin 1967 pour abandon de poste et mauvaise manière habituelle de servir.
-L’intéressée. aui comptait à cette date 5 ans 1 mois de serserices, ne pourra prétendre au bénéfice de l’indemnité de licenciement vrévue en application des dispositions de l’article 13 de la convention collective précitée.
-Il sera allouée à Mme Kadidja Meraneh Bahal une indemmnité ésale à 13 jours calendaïires de salaire au titre de congépayé non pris.

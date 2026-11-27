@@ -1,1 +1,0 @@
-MM. Garrigue (Elie), chef de bureau au C, F, E. service armé, classe de mobilisation 1918, et Bonnedame (Maurice), dessinateur au C. F. E.. service armé, classe de mobilisation 1930, sont classés dans l’affectation spéciale, dans leur emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

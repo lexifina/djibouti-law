@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Mohamed Houmed Daoud, infirmier de 2e classe, 2e échelon du cadre territorial de la Santé Publique en service au Centre de Pneumo-phtisiologie Paul Faure pour absence irrégulière non motivée du 28 avril 1975 au 6 mai 1975 inclus.

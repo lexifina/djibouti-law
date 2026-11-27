@@ -1,2 +1,0 @@
-L’Adjudant-Chef d’Infanterie de Marine Huart Daniel, arrivé par avion à Djibouti le 26 mai 1963, est affecte à la 1° Compagnie de Milice à Dikhïil pour assurer cumulativement les fonctions d’Adjoint au Commandant de Cercle de Dikhil et d’Adjoint au Commandant de la 1° Compagnie de Milice en remplacement de l’Adjudant-Chef Lefort Louis, appelé à d’autres fonctions.
-Ce sous-officier prendra ses fonctions à compter du 12 juin 1963.

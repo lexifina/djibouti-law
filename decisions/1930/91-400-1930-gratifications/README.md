@@ -1,9 +1,0 @@
-# Décision n° 91-400-1930 Gratifications.
-
-Décision · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/decision-n-91-400-1930-gratifications/>
-
-En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) | e gratification de 200 francs est allouée au sergent indigène Doalé Ousman |

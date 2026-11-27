@@ -1,1 +1,0 @@
-M. Orbisso Gadito Hassen, moniteur auxiliaire d’Educaticn surveillée, est mis à la disposition du Ministère de l’Enseignement, des Sports et de la Jeunesse, pour compter du 1er octobre 1961, pour exercer les fonctions de moniteur auxiliaire au Service de l’Enseignement.

@@ -1,1 +1,0 @@
-Mme Poitevineau (Marie-Thérèse), dame-employée auxiliaire 2e catégorie, en service au Cercle de Djibouti, est admise à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 du 24 mars 1945, pour compter du 1er janvier 1953.

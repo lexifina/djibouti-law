@@ -1,1 +1,0 @@
-une somme une fois payée de 100 francs a été allouée au nommé Bourhane, ex-président au Grand Conseil de Tadjourah, pour participation de la colonie aux dépenses d’une cérémonie qui sera célébrée en mémoire des morts Danakil.

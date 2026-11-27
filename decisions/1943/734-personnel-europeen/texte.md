@@ -1,1 +1,0 @@
-Les heures supplémentaires effectuées par M.M. DESSAIGNE, mécanicien auxiliaire et BORDES. agent contractuel à la Station Intercoloniale, seront payées à compter du 1er Septembre 1943 au tarif suivant : 7 frs par heure de jour et 14 frs par heure de nuit de 21 h. à 6h.)

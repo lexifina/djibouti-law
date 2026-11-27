@@ -1,1 +1,0 @@
-Il est accordé à AREF BOURHANE, Se crétaire auxiliaire au Tribunal de Charia une permission de 15 jours à salaire entier et 15 jours à demi-salaire pour en jouir à l’intérieur du territoire de la Colonie.

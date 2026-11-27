@@ -1,1 +1,0 @@
-Un congé de convalescence, à solde entière, de trois mois est accordé à M. Mohamed Bacha, chauffeur auxiliaire employé au Service de Santé, à l’issue duquel A devra se présenter au Bureau du Personnel.

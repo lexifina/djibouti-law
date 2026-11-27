@@ -1,1 +1,0 @@
-M. Robert Berclaz, inspecteur de la Police nationale pour compter du 15 mars 1974, est mis à la disposition du ministre de l’Intérieur et des Affaires musulmanes pour servir au Commissariat central de Police.

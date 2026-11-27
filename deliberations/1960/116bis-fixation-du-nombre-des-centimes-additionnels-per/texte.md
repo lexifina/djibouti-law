@@ -1,1 +1,0 @@
-Art 1er – Le montant des centimes additionnels à percevoir au profit de la Chambre de Commerce de la Côte Française des Somalis, pour l’année 1960 est fixé à sept centimes par franc de la Contribution des Patentes.

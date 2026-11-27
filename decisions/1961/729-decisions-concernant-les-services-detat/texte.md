@@ -1,2 +1,0 @@
-Mme Janot (Yvonne), secrétaire sténo-dactylographe auxiliaire (échelle XI, échelon I) précédemment en service au Ministère des Travaux Publics et du Port est pour compter du 30 mai 1961 mise à la disposition du Commandant de Cercle de Djibouti pour servir au titre de la représentation du pouvoir central.
-Pour compter du 30 mai 1961 la rémunération de Mme Janot sera imputable sur le Budget de l’Etat.

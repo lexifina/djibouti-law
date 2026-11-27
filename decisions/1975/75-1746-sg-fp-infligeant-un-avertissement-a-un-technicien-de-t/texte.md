@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Mohamed Abdi Gueid, technicien de travaux de 2e classe, 2e échelon du cadre territorial des Travaux Publics et du Port, en service à l’hôpital Peltier, pour mauvaise volonté dans l’exécution de son travail.

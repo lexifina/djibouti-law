@@ -1,1 +1,0 @@
-Le Capitaine MENEBOODE du Bataillon Somalis est nommé pour compter du 20 Juillet 1943 Chef du Poste Administratif et Président du Tribunal du premier degré d’ALI-SABIEH, en remplacement du Lieute nant MULLER. Il prêtera s erment devant 1ère instance de DJIBOUTI. le Tribunal de Djibouti.

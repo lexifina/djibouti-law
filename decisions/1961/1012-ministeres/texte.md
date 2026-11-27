@@ -1,1 +1,0 @@
-Est constatée la reprise de service de M. Ahmed Kayed Abdallah, commis auxiliaire en service à l’Hôpital Peltier, pour compter du 1er juillet 1961, date de sa libération du service militaire obligatoire.

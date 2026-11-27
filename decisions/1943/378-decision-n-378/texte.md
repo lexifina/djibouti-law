@@ -1,1 +1,0 @@
-Le Capitaine TAGGER Henri, de l’Etat-Major du Commandant Supérieur des Trou pes de la C.F.S. est chargé cumulativement avec ses fonctions actuelles, de contrôler et diriger les services de la Sûreté de la Colonie à compter de la date de la présente décision.

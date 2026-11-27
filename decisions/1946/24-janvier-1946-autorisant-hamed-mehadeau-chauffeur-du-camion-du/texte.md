@@ -1,1 +1,0 @@
-Le nommé Hamed Mehadeau, chauffeur du camion du service du Ravitaillement général,chargé provisoirement d’assurer. le transport du personnel des douanes, à été autorisé à percevoir à ce titre des indemnités pour travaux supplémentaires.

@@ -1,1 +1,0 @@
-Une somme de 400 francs, dont il devra justifier l’emploi, à été mise à la disposition du commandant du cercle des Adaëis à Foccasion de la célébration, le 11 novembre 1933. de la féte de la Victoire.

@@ -1,2 +1,0 @@
-Il est mis fin, pour compter du 25 septembre 1968, fonctions de M. Le Gurun, rapatriable en fin de contrat.
-Pour compter du 26 septembre 1968, M. Mohamed Houmed Abro, membre du Comité de gestion, prévu par l’arrêté n° 54/ SPCG du 13 septembre 1967, assurera l’expédition des affaires courantes de la Coopérative des Pêcheurs de Djibouti.Un inventaire contradictoire sera établi par MM. Le Gurun et Abro, en présence du Chef de Service de l’Elevage.

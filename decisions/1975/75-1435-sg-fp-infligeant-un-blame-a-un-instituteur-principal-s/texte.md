@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Mohamed Barreh Darar, instituteur principal stagiaire du cadre territorial de l’Enseignement Public du 1er degré en service à l’école primaire d’Ali-Sabieh pour attitude incorrecte et insolence.

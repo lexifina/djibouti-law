@@ -1,2 +1,0 @@
-Il est alloué, à M. Serpaggi Jean, Chef de Bureau principal de classe exceptionnelle des S.A.F. indice net 360, une indemnité de sujétions particulières dont le montant annuel est fixé à huit cent quarante francs français (840 FF).
-Cette indemnité est exclusive de toute autre indemnité pour travaux supplémentaires ou pour services rendus. Elle sera payée en monnaie locale d’après la parité en vigueur au cours de la période sur laquelle porte la liquidation multipliée par l’index de correction applicable à la solde.

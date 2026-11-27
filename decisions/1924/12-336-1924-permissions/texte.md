@@ -1,1 +1,0 @@
-le chef de brigade de 3e classe Bouron (Auguste), en service au détachement de gendarmerie de la Côte francaise des Somalis, est autorisé à s’embarquer à destination de la France en vue de loblention d’un congé administratif de six mois.

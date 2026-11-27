@@ -1,1 +1,0 @@
-Est engagé, pour compter du 1er décembre 1947, le nommé Mohamed Abdillahi, en qua lité de planton 4e échelon du cadre local, en remplacement d’Ali Bouh, démissionnaire. L’intéressé est mis à la disposition du chef du service des P. T. T. (station côtière).

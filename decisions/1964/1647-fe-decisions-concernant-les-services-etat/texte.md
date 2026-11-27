@@ -1,1 +1,0 @@
-M. Lacampagne (André) est autorisé à percevoir, sur les fonds du budget de la C.F.S. (budget du Port), les sommes revenant à M. Lesage (Roger), administrateur civil hors classe, chef de service de la Distribution des Carburants au Ministère de l’Industrie, à l’occasion de la mission accomplie par ce dernier en Côte Française des Somalis du 4 octobre au 18 octobre 1964 inclus.

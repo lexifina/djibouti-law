@@ -1,1 +1,0 @@
-M. Folacci (Jules), fondé de pouvoir du Trésor, service armé, classe de mobilisation 1912, est classé dans l’affectation spéciale pour une durée indéterminée, dans son emploi actuel, à compter de la date de la présente décision.

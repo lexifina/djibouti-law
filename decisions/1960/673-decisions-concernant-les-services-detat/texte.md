@@ -1,3 +1,0 @@
-Un congé administratif de sept mois à passer à Pignicourt par Neufchâtel-sur-Aïsne (Aisne) est actordé à M. Georges (Géo), Payeur de 2° classe, 3° échelon des Trésoreries de la France d’Outre-Mer-en service à Djibouti.
-M. Georges (Géo), elassé au groupe IL, indice 340, voyagera accompagné de ses quatre enfants respectivement âgés de quatorze ans et demi, treize, douze et dix ans et demi par voie aérienne à compter du 6 juillet 1960, date à laquelle il aura accompli un séjour admiñistratif de trente mois et vingt et un jours dans le Territoire,
-Les frais de Voyage et de transport sont imputables au Budget de l’Etat (Ministére des Finance).

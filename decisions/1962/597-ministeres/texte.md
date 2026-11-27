@@ -1,2 +1,0 @@
-L’Adjudant Cavarle Alaïn, désigné pour continuer ses services hors cadres en Côte Française des Somalis, embarqué le 16 mars 1962 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 26 mars 1962, date de son arrivée sur le Territoire.
-Ce sous-officier est désigné pour occuper les fonctions de Chef du Bureau des Entrées et de Receveur à l’Hôpital Peltier pour compter du ler mai 1962, en remplacement de l’Adjudant Guillou rapatrié pour fin de séjour.

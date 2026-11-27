@@ -1,2 +1,0 @@
-Le Sergent-Chef d’Infanterie de Marine Schaeffer Robert, actuellement en service au Détachement autonome de la Milice à Ali-Sabieh, est remis à la disposition de Monsieur le Général commandant supérieur des Forces Armées de la Côte Française des Somalis à compter du 26 décembre 1960.
-La présente décision annule la décision n° 2610 du 27 novembre 1959 mettant l’intéressé à la disposition du Chef de Territoire.

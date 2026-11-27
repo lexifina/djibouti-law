@@ -1,1 +1,0 @@
-Le nommé Douber Waiss est engagé en qualité d’agent technique de 2e classe, 11e échelon, pour compter du 1er juin 1947. L’intéressé est affecté au service de l’information comme opérateur radiotéléphoniste.

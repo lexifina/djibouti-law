@@ -1,1 +1,0 @@
-M. Lingenheim, brigadier-chef de 3e classe des douanes, a été nommé membre titulaire et secrétaire rapporteur de la Commission des prix en remplacement de M. Langle, adminis trateur adjoint des colonies, appelé à d’autres fonctions.

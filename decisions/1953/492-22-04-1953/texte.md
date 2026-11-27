@@ -1,1 +1,0 @@
-M. Saïd Omar Saleh est engagé, pour compter du 1er mai 1953, en qualité d’infirmier vétérinaire auxiliaire 6e échelon et mis à la disposition du Chef du Service de l’Elevage en remplacement numérique de M. Ismaëel Habib, démissionnaire.

@@ -1,1 +1,0 @@
-M. BORDES, opérateur radio télégraphis te de la Station Côtière, actuellement em ployé comme téléphoniste au Central des P.T.T., est mis à la disposition de M. le Chef de la Station Intercoloniale de T.S.F.

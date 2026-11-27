@@ -1,1 +1,0 @@
-. Par décision du 18 décembre 1917 et pour compter du fer du dit : 10) le caporal Yorsour Moussa No Me 21 a été cassé de son grade et remis garde de tre classe, pour absence illégale de 33 jours. 20 Le garde de 1re classe Art Gor No Mie 38 à été nommé caporal en remplacement de Yousouf Moussa.

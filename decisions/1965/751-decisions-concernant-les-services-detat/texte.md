@@ -1,1 +1,0 @@
-Le milicien de 1° classe Hassan Robleh. mile 2517. du Détichement autonome d’Obock, reconnu inapte à servir dans la Milice de la C.F.S. par le Conseil de Santé du 23 avril 1965, est licencié pour raison de santé à compter du 1° mai 1965.

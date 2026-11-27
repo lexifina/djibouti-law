@@ -1,1 +1,0 @@
-et pour compter du ler du dit, Ferin Ahmed et Erey Ouarsama sont nommés plantons de quatrième classe et attachés au service des travaux publics, en remplacement numérique de Daouenlé et Ali Hassen, licenciés par décision du 28 avril 1914.

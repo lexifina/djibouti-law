@@ -1,2 +1,0 @@
-Le montant de la prime de rendement à allouer à M. Lorion (Michel), ingénieur principal H.C. des Travaux publics d’outre- mer, contrôleur du Chemin de Fer Franco-Ethiopien, est fixé – à cent quatre-vingt quatorze mille quatre-vingts francs DjiBouti (494 080 KD) pour lannée-1966.
-Les dépenses visées à l’article ler ci-dessus sont imputables sur le Budget de l’Etat (Ministère des Affaires étrangères).

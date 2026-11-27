@@ -1,2 +1,0 @@
-Un congé administratif de six mois pour en jouir à Pau (Basses-Pyrénées) est accordé à M. Roche (Albert), substitut du Procureur général, près la Cour d’appel de Tananarive, qui a accompli le 27 septembre 1951 un séjour de deux ans à la Côte Française des Somalis.
-Une réquisition de passage par voie aérienne Djibouti-Nice et une réquisition par voie ferrée Nice-Pau seront délivrées à l’intéressé, qui appartient au groupe I.

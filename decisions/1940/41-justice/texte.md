@@ -1,1 +1,0 @@
-M. Ravailler, procureur de la République, chef du Service judiciaire de la Côte française des Somalis, est désigné comme délégué du Gouverneur pour l’année 1940 auprès de la Commission administrative de la bibliothèque municipale de Djibouti,

@@ -1,1 +1,0 @@
-L’ex adjudant-chef Hassan Hersi, mle 757, de la Milice de la C.F.S., licencié pour raison de santé, le 31 octobre 1963, pour maladie imputable au service, bénéficiant d’une allocation viagère annuelle de 108.000 F.D., peut prétendre à une pension d’invalidité temporaire de 100 % à compter du 1er novembre 1963.

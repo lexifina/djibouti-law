@@ -1,1 +1,0 @@
-Les miliciens de 1r’e classe Roble Elabe. n° mle 2172: et 1re classe Hassan Boulsa, mle 2173, de la 2e Compagnie de Milice à Tadjoura, arrivant en fin de contrat le 23 février 1964, sont mis à la retraite pour compter du 23 février 1964.

@@ -1,1 +1,0 @@
-M. Christian Boussereau, surveillant 3° échelon de l’administration pénitentiaire, est, pour compter du 13 septembre 1968, mis à la disposition du Ministre des Affaires intérieures pour servir à la prison civile de Djibouti en remplacement du gendarme Huübert Cotillon.

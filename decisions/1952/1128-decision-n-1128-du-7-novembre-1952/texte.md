@@ -1,1 +1,0 @@
-M. Labreuil est engagé en qualité de secrétaire auxiliaire à soldé mensuelle de 38.000 francs exclusive de toute indemnité, y compris les charges dé famille, pour compter du 3 novembre 1952 et mis à la disposition du Chef du Service Judiciaire.

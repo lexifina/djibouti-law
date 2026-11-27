@@ -1,1 +1,0 @@
-31 décembre 1926, une gratification de deux cents francs (200 fr.) est accordé e à M. Duval, agent technique des travaux publics. pour l’exécution, à l’hôtel du Gouvernement, de certains travaux spéciaux à l’occasion du passage à Djibouti de la division navale japonaise,

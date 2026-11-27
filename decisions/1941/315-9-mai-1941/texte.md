@@ -1,1 +1,0 @@
-Un congé de quinze jours, valable du 9 au 23 mai inclus, est accordé à AL Razafindrakoto (Pierre), employé contractuel en service à l’enregistrement, pour en jouir dans le territoire de la Côte française des Somalis.

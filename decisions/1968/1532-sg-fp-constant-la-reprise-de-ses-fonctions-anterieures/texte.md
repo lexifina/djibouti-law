@@ -1,1 +1,0 @@
-Est constatée,pour compter du 20 septembre 1967, date de son réetour aùû Territoire, la reprise de ses fonctions antérieures par M. Jean Montel, administrateur en chef de classe exceptionnelle des Affaires d’outre-mer (indice nouveau 732), Directeur des Finances territoriales.

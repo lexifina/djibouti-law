@@ -1,1 +1,0 @@
-M. Mohamed Daoud, dactylocopiste à salaire journalier en service au Cercle de Tadjourah, est admis pour compter du 1er mars 1960 à salaire mensuel et classé dans la hiérarchie du personnel auxiliaire à la 4e catégorie, échelle V, 1er échelon, indice local 390.

@@ -1,1 +1,0 @@
-Est constatée, pour compter du 31 janvier 1968, la reprise de ses fonctions antérieures par M. Lenoir (Philippe), ingénieur des Travaux publics; contractuel (catégorie B, 7e échelon, indice 520, groupe.-II), en service à la Subdivision des Eaux (Ministère des Travaux publics et du Port).

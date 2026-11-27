@@ -1,1 +1,0 @@
-et pour compter du même jour, les nommés Yaya Ahmed (arabe) et Mohamed Soukoule, (abéraoual) ont été nommés agents de 6ème classe des Douanes et Contributions en remplacement numérique de Libah ( sod et Kain Ibrahim licenciés par décision du 5 Janvier 1915.

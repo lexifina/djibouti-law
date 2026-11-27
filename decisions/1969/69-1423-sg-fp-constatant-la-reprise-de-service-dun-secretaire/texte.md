@@ -1,1 +1,0 @@
-Est constatée, pour compter du 12 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au District de Djibouti (Ministère des Affaires intérieures) par M. Henri Aroul, secrétaire greffier de classe normale, 7e échelon.

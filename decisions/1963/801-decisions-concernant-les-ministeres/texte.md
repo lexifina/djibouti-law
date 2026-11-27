@@ -1,1 +1,0 @@
-La peine de blâme avec inscription au dossier est infligée à M. Houssein Hassan, instituteur de 2° classe, 2° échelon du Cadre Territorial de l’Enseignement Public pour désobéissance à un ordre de l’Autorité Supérieure.

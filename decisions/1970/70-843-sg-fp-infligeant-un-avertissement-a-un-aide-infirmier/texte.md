@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Hachim Abdourahman Haji, aide-infirmier de 2° classe, 1° échelon, du Cadre territorial de la Santé publique en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour s’être absenté sans autorisation l’après-midi du 18 juin 1970.

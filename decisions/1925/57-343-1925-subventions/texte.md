@@ -1,1 +1,0 @@
-est t autorisé le mandatement de la subvention de 10.090 francs en faveur du Comité ‘alliance française pour le fonctionnement | de l’école maternelle pendant l’année, prévue au budget de 1925. (Chapitre 11, art. 3.)

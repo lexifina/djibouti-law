@@ -1,1 +1,0 @@
-Meme di Bona (Caroline), dame-employée auxiliaire 1er catégorie, est admise à bénéficier, pour compter du 1er octobre 1952, de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisé.

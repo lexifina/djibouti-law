@@ -1,1 +1,0 @@
-M. Gros (Henri), directeur de la Banque de l’Indochine, lieutenant de réserve, service armé. classe de mobilisation 1915, est classé dans l’affectution spéciale, dans son emploi actuel, pour une durée de trois mois, compter de la date de la présente décision.

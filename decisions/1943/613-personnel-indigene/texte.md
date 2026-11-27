@@ -1,1 +1,0 @@
-Le Milicien de 2me Classe MAHAMMAD DJIAMA Mle 1109 est libéré du Service actif le 16 juillet 1943, pour inaptitude a l’emploi. Ce Milicien qui na pas une année de de service ne peut prétendre a aucune indemnité.

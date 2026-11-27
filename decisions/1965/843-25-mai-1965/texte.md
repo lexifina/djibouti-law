@@ -1,1 +1,0 @@
-Le sergent-chef Martin Christian, secrétaire de la 3e compagnie de Miülice à Ali-Sabieh, est provisoirement nommé cumulativement avec ses fonctions, Président du Tribunal du Premier Degré d’Ali-Sabieh en remplacement de l’adjudant-chef Duchesne Julien, en instance de départ.

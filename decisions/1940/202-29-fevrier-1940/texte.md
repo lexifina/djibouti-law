@@ -1,1 +1,0 @@
-MM. Hildenbrand (Pierre), commis principal des douanes, service armé, classe de mobilisation 1915, et Roné (Laurent), brigadier des douanes, service armé, classe de mobilisation 1912, sont classés dans l’affectation spéciale, pour une nouvelle période de trois mois à compter du 2 mars 1940.

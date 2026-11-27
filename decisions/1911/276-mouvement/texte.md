@@ -1,1 +1,0 @@
-M. Torchet, administrateur-adjoint des Colonies, remplissant les fonctions de juge suppléant près le tribunal de paix à compétence étendue, aura droit, pendant l’absence du titulaire, à une indemnité de 41.250 fr., représentant le 414 du traitement du titulaire.

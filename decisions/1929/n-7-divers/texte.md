@@ -1,1 +1,0 @@
-la circulation, la mise en vente et la distribution des journaux ayant pour titre : l’empéro, Il Tevere et l’A. Z., publiés à Rome en langue italienne, sont interdites sur le territoire de la Côte francaise des Somlis et somalis et de ses dépendances.

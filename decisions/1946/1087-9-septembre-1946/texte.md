@@ -1,1 +1,0 @@
-M. Banabila, contrôleur principal des P.T.T. du cadre local, assurera les fonctions de chef de service, receveur comptable des P.T.T., en l’absence de M. Plattier, rapatrié sanitaire, jusqu’à l’arrivée de M. Geoffroy.

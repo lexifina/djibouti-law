@@ -1,2 +1,0 @@
-le bénélice de Tassistance judiciaire est accordé au sieur Ahmed Magane, Arabe, coolie, domicilié à Djibouti, à l’effet d’introduire instanc e contre la Compagnie de l’Afrique orientale (maritime et commerciale) et, le cas échéant, de suivre sur la procédure devant le tribunal supérieur d’appel.
-Le hénétice de Fassistance judiciaire s’ applique également à l’exécution de toutes les décisions de justice à intervenir en l’affaire.

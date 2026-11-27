@@ -1,1 +1,0 @@
-Mme Fathma Bar Houssein, infirmière auxiliaire 6e échelon, en service à 1 Hôpital Principal de Djibouti, est licenciée de son emploi pour «abandon de poste et négligence grave dans le service », pour compter du 15 octobre 1953.

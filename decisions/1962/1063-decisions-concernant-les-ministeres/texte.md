@@ -1,2 +1,0 @@
-Le Létmédecin-capitaine Corne Jacques, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 12 juillet 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 13 juillet 1962, date de son arrivée sur le Territoire.
-Cette l’officier est désigné pour occuper les fonctions de Chef du Sérvice de Médecine pour compter du 13 juillet 1962, en remplacement du médecin-capitaine Laurent, rapatrié pour fin de séjour.

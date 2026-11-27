@@ -1,1 +1,0 @@
-Le sergent-chef Mazet (Antoine), débarqué en Côte française des Somalis le 17 avril 1949, en position hors cadres, est affecté, pour compter du jour de son débarquement, à l’hôpital colonial de Djibouti, en qualité de mécanicien dentiste, en remplacement du sergent-chef Victoire (Georges), rapatriable pour fin de séjour.

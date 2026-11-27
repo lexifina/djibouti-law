@@ -1,3 +1,0 @@
-Par décision n°2023-224/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 19 juin 2023, M. MOHAMED DAHER RAYALEH, est engagée à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt FARHAN DAHER RAYALEH, décédé (PB. n°1056/CC).
-M. DAOUD ABDALLAH WAIS, est engagé à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt MOUSSA ABDALLAH WAIS, décédé (PB. n°1690/CC).
-La présente décision prend effet à compter du 19 juin 2023.

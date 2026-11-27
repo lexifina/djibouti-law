@@ -1,2 +1,0 @@
-ont été désignés pour effectuer les vérifications ci-après: A- La caisse du service des Douanes et Contribution, M. Guilbert Administrateur-Adjoint de 3ème classe des Colonies; B- La caisse du Chef du Service des Postes et Télégraphes, M. Le Carro Administrateur-Adjoint de 3ème classe des Colonies, C- La caisse de l’Agent Spécial, M. Bellot, Administrateur- Adjoint de fère classe des Colonies. D- La caisse
-du Directeur comptable de l’hôpital et celle du Receveur de l’Enregistrement, M, de Tourris, Administrateur de 3ème classe des Colonies.

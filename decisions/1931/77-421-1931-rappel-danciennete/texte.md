@@ -1,2 +1,0 @@
-4 septembre 1929 et 22 juillet 1930, portant promotion et reclassement de M. Parès, sont et demeurent rapportées.
-Comme suite aux dispositions de l’article 4 du présent arrêté, M. Parès (Louis), qui réunit les conditions d’ancienneté et de séjour colonial requises par l’article 32, paragraphe 5, de l’arrêté du 26 avril 1928, passe automatiquement à l’échelon de contrôleur principal après trois ans, le 7 juillet 1931.

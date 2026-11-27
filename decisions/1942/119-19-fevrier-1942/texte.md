@@ -1,1 +1,0 @@
-M. Ravailler (Pierre), appelé à reprendre son nouveau poste de substitut du procureur général de la Cour d’appel de l’A. O. F. cesse ce jour d’exercer ses fonctions de chef du Service judiciaire de la Côte française des Somalis. Al. Gasse (Victor), prend à compter de ce jour ses fonctions.

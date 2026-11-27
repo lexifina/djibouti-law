@@ -1,1 +1,0 @@
-M. Gérard Bauer, volontaire de l’Aide technique, est, pour compter du 7 avril 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port pour servir en qualité d’adjoint technique des Travaux publics de l’Etat au Port de commerce de Djibouti.

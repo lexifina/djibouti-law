@@ -1,1 +1,0 @@
-un passage de retour en 2e classe à destination de Marseille est accordé, à titre exceptionnel, sur les fonds du budget local, à Mme Marcelle Hamot, en religion sœur Marie du Calvaire, qui compte cinq années de service ininterrompu à l’hôpital intercolonial de Djibouli, en qualité d’infirmière.

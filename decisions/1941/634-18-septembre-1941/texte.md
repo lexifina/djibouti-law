@@ -1,1 +1,0 @@
-Le nomme Saïd Mahfoud, est engagé en qualité de planton journalier, à raison de 10 francs par jour ouvrable, en remplacement numérique du planton de 5 classe Mohamed Ibrahim, dont la démission est acceptée pour compter du 15 septembre 1941.

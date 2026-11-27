@@ -1,1 +1,0 @@
-M. Banabila Abdourahman, contrôleur des P. T. T. du cadre local avant doux ans, du 1er décembre 1931, qui réunit les conditions exigées par l’article 6, paragraphe b) de l’arrêté du 20 avril 1928 portant réorganisation des cadres locaux européens de la Côte française des Somalis, passe automatiquement à l’échelon de contrôleur après deux ans, pour compter du 1er décembre 1933.

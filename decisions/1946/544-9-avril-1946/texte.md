@@ -1,2 +1,0 @@
-Une somme de huit mille cinquante-deux francs (8.052 francs), a été attribuée à M G ourgeot (Pierre), chef d’études du service « Voie et bâtiments » au C. F. E.. mis à la disposition de la mission du Lac Assal, pour le dédommager de ses frais de déplacement pendant soixante-six jours.
-La dépense résultant de l’application de la présente décision est imputable au chapitre 18. article 1er, paragraphe 7. de l’exercice en cours du budget local.

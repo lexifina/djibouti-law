@@ -1,1 +1,0 @@
-M. Ghaleb (Paul), greffier prés le tribunal, à Djibouti, reprend les fonctions d’huissier pour compter du 5 septembre 1939, Avant d’entrer en fonctions, M, Ghalebh préteru le serment prescrit pur lu loi,

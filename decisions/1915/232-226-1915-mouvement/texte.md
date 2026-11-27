@@ -1,1 +1,0 @@
-un passage de relour par anticipation a été accordé à M. Guy Loriot de Rouvray fils du Rédacteur métropolitain, Chef du Service des Postes et Télégraphes de la Côte Française des Somalis. M. de Rouvray prendra passage sur le paquebot des Messageries Maritimes attendu à Djibouti le 26 Août 1915.

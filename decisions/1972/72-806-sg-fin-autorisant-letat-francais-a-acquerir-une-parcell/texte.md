@@ -1,1 +1,0 @@
-L’Etat français est autorisé à acquérir une parcelle de terrainnon bâti, d’une superficie de 10.000 m2 , sise à Djibouti, faisant partie d’un terrain plus vaste et immatriculé au Livre foncier du Territoire sous le n° 172, au nom de la Compagnie des Salins du Midi et des Salines de l’Est.

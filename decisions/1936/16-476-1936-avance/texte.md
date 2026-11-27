@@ -1,1 +1,0 @@
-une somme de cent mille francs sera mandatée à titre d’avance au budget d’emprunt remboursable en 1937; imputable au chapitre 17 du budget local (exercice 1936) pour Gdification de hangars métalliques destinés à abriter les marchandises entreposées sur le terre-plein du nouveau port,

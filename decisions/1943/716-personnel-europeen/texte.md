@@ -1,1 +1,0 @@
-M. ARNAUD, Bernard, Lucien, Antoine, Ingénieur-adjoint de 4ème classe des Tra vaux Publics des Colonies, est nommé pour compter du 1er Septembre 1943, Régisseur Comptable provisoire de la Casse d’avance des Travaux Publics, en remplacement de M. ROBIN. Il aura droit, en cette qualité, à l’indemnité règlementaire.

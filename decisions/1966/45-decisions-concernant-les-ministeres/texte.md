@@ -1,1 +1,0 @@
-Le Capitaine de Gendarmerie Thomasset (Francis), officier adjoint au Commandant du Groupement de Gendarmerie de la Côte Française des Somalis, est nommé inspecteur de la Garde territoriale, à titre provisoire, et pour assurer l’intérim du Chef d’Escadron Personnier, titulaire d’une permission exceptionnelle.

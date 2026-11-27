@@ -1,1 +1,0 @@
-une permission de trente jours, dont quinze à solde de présence et quinze à demi-solde, est accordée au garde de 2e classe Mohamed Assen, n° mle 740, pour en jouir au Somaliland, pour compter du 1er mai 1931.

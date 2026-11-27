@@ -1,1 +1,0 @@
-M. Fratacci (Jean), gérant du « Palmier en Zinc », demeurant à Djibouti, est autorisé à acquérir une parcelle de terrain bâti sise à Djibouti, lot n° 89, et immatriculé au Livre foncier du Territoire sous le n° 117, au nom de la Compagnie Européenne Immobilière et Commerciale (ex Compagnie de l’Afrique orientale).

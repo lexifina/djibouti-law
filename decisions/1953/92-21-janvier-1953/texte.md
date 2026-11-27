@@ -1,1 +1,0 @@
-M. Moussa Chirdon est nommé agent technique auxiliaire 6e échelon pour compter du 1er janvier 1953 et mis à la disposition du Directeur du Service de Santé, en remplacement numérique de M. Abdallah Barro, licencié.

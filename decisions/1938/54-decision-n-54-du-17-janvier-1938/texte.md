@@ -1,1 +1,0 @@
-M. Cechak (Vladimir), adjoint technique contractuel des T. P., et Gauthier (Fernand), comptable contractuel, sont mis à la disposition de M. le chef du Service des travaux publics, pour compter du 10 janvier 1938, jour de leur débarquement à la colonie.

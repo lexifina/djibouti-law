@@ -1,1 +1,0 @@
-l’indemnité de cherté de vivres fixée par la décision du 5 Mai 1914 complétée par l’arrêté du 1er Octobre suivant a été accordée, à compter du 1er Septembre 1915, à M. Blanchard, auxiliaire au Greffe du Tribunal de Djibouti.

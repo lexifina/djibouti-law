@@ -1,1 +1,0 @@
-Par décision du Gouverneur en date du 8 avril 1905, M. Baixas François, est nommé commis auxiliaire du Service Postal et télégraphique de Djibouti, à la solde mensuelle de 200 francs, pour compter du 1 avril 1905

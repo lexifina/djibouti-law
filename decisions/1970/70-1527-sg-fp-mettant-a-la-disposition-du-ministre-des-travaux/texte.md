@@ -1,1 +1,0 @@
-M. Alain Bourdin, ingénieur des Travaux publics de Etat 4° échelon, est, pour compter du 16 novembre 1970, date de arrivée au Territoire, mis à la disposition du Ministre des TravauX publics et du Port pour servir au Port de Commerce de DjiboutI.

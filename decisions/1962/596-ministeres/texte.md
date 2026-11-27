@@ -1,2 +1,0 @@
-L’Adiudant Romand Henri, désigné pour continuer ses services hors cadres en Côte Française des Somalis, embarqué le 11 mars 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publiaue et des Affaires Sociales pour compter du 12 mars 1962, date de son arrivée sur le Territoire.
-Ce sous-officier est désigné pour occuper les fonctions de Chef du Bureau des Fonds à l’Hôpital Peltier pour compter du 15 mars 1962 en remplacement de l’Adjudant-chef Goutille rapatrié pour fin de séjour.

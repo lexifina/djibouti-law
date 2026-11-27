@@ -1,2 +1,0 @@
-Une allocation viagère de reversion de : seize mille six cent quatorze francs Djibouti (16.614 F.D.) l’an est accordée à Mme Sayada Bahdon Sougal, somalie issa mamassan, rer hélo, veuve de Soultan Ali Gouled, gardien du Service des Travaux publics, décédé à son domicile à Djibouti, quartier n° 6, le 1er juillet 1963.
-Cette allocation sera payable trimestriellement et à terme échu pour compter du 1 août 1963, sur le vu d’un certificat de vie délivré par les autorités compétentes du Territoire.

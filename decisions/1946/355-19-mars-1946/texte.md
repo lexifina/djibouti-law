@@ -1,1 +1,0 @@
-M. Fontaine, commis principal du cadre métropolitain de l’Administration de l’enregistrement, des domaines et du timbre, a été chargé, pendant l’absence de M, Pichon, des fonctions de receveur de l’enregistrement, des domaines et du timbre, conservateur de la propriété foncière, curateur aux successions et biens vacants.

@@ -1,1 +1,0 @@
-une gratification de 500 francs est accordée à Mme Laïoubère, pour ravaux de dactrlographie concernant établissement du budget de l’exercice 1930, ainsi que divers travaux effectués à domicile, en cours des mois de septembre et octobre 1929,

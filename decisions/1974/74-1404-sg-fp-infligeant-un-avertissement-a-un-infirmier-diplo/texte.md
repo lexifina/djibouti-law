@@ -1,1 +1,0 @@
-Un avertissement est infligé äà M. Houmed Maki Ibrahim infirmier diplômé d’Etat du corps territorial de la Santé Publique, en service au Dispensaire de Tadjourah pour absence non motivée de la journée du 25 juillet 1974.

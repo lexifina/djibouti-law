@@ -1,1 +1,0 @@
-et pour cornpler du premier ils de la même année, le sieur Kaïn Ibrahim est nommé agent de sixième classe des douanes et contributions en remplacement numérique de l’agent de sixième classe Abdi Dhoalé dont la démission est acceptée.

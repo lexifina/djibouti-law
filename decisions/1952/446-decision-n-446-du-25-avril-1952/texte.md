@@ -1,1 +1,0 @@
-M. Renaud (René), inspecteur de 2e classe, 2e échelon, de la Sûreté Nationale, détaché à la Côte Française des Somalis, est mis à la disposition du Chef du Service de la Sûreté pour compter du 21 avril 1952, date de son débarquement à Djibouti.

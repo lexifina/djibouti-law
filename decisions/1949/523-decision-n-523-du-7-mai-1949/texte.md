@@ -1,2 +1,0 @@
-Le nommé Youssouf Mohamed, aide-forgeron à l’usine électrique, victime d’un accident de travail le 1er mars 1949, percevra une indemnité de 7.907 francs (sept mille neuf cent, sept francs), pour incapacité de travail fixée à 5 p. 100 Le payement de cette indemnité implique la renonciation de la victime à toute poursuite civile ou contentieuse.
-L’imputation de la dépense sera faite sur les crédits du budget local, chapitre 9, article 4, paragraphe 1.

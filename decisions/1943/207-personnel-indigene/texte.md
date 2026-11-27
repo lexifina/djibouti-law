@@ -1,1 +1,0 @@
-Les nommés MOHAMED ATIA, IDRIS OMAR, ABDI DJAMA, YACIN CHEROUA et MOHAMED OSMAN sont engagés en qualité de préposés stagiaires des Douanes à la solde annuelle de 3.000 francs à compter du 1er Mars 1943. le préposé stagiaire MOHAMED OSMAN est affecté au bureau des Douanes d’ALI SABILH à compter du 1er Mars 1943.

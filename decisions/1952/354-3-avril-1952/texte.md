@@ -1,1 +1,0 @@
-M. Duehet (André), ouvrier d’art contractuel, de retour de congé, est mis à la disposition du Directeur des Travaux Publics, pour servir à la Centrale électrique à compter du 2 avril 1952, date de son débarquement sur le Territoire.

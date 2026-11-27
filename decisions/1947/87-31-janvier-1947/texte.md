@@ -1,1 +1,0 @@
-Une avance remboursable de trente mille francs (30,000 francs) à valoir sur ses émoluments, est accordée à titre exceptionnel à M, Diffenbach ( Edouar l), agent contractuel,chargé des fonctions de chef du service de l’agriculture en Côte francaise des Somalis.

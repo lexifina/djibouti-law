@@ -1,3 +1,0 @@
-Art 1er, -_ Une mission d’information composée de cinq mémbres de l’Assemblée Territoriale désignés par la Commission Permanente et dont les noms figurent en annexe à la présente délibération se rendra en France à l’occasion des fêtes du 14 juillet.
-Art2 __ Chaaue membre de l’Assemblée Territoriale désigné pour cette mission percevra une indemnité forfaitaire de deux cent mille francs Djibouti (200.000 FD) pour frais de déplacement exclusive de toute autre indemnité.
-Art 3 _ Les frais de vovage par Voie aérienne en classe touriste Djibouti-Paris et retour et les frais de déplacements prévus à l’article 2 ci-dessus seront supportés par le budget local, chapitre 2, article 2, $ 3. :

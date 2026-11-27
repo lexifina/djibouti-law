@@ -1,1 +1,0 @@
-Mme Jacqueline Senteral, professeur de Collège d’enseignement général, 1er groupe, 8° échelon (indice nouveau 327) est, pour compter du 24 septembre 1968, date de son arrivée au Territoire, mise à la dispisotion du Ministre de l’Enseignement, des Sports et de la Jeunesse pour servir àu Lyçée de Djibouti

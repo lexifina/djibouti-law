@@ -1,1 +1,0 @@
-Le sergent Marchi (Philippe), débarqué à la colonie le 28 décembre 1937, est mis à la disposition du chef de bataillon commandant la milice indigène et affecté au peloton méhariste à compter du jour de son débarquement, en remplacement du sergent -chef Antonietti (Juge ) rapatriable.

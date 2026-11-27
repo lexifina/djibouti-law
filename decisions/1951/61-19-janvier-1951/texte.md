@@ -1,1 +1,0 @@
-Sont licenciés pour faute grave dans le service et pour compter de la notification de la présente décision : MM. Mohamed Mokbel Saleh Zeghir, commis auxiliaire 10e échelon, et Mohamed Saïd, commis auxiliaire 8e échelon, en service à la Sûreté.

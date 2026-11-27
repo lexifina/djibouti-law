@@ -1,1 +1,0 @@
-M. Bernard, adjoint principal des services civils, précédemment chargé du service des contributions, est mis à la disposition de M. l’administrateur commandant le cercle de Djibouti pour être employé au service général.

@@ -1,1 +1,0 @@
-La S.A. Banque Nationale pour le Commerce et l’Industrie (Océan Indien), Succursale de Djibouti, est autorisée à acquérir un immeuble, sis à Djibouti, quartier de la Plaine, et immatriculé au Livre foncier du Territoire sous le n° 922 au nom de M. Basile Moskos.

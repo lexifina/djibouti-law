@@ -1,1 +1,0 @@
-M. Robert (Labor), vérificateur de 1re classe des douanes, est nommé chef du bureau central des douanes par intérim à compter du 24 avril 1937, en remplacement de M. Maury appelé à d’autres fonctions.

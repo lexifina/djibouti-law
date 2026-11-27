@@ -1,2 +1,0 @@
-une réquisition de passage, en 1re classe sera dé livrée à M. Cancel (Léopold), commis principal hors classe de la trésorerie de Djibouti, évacué par le conseil de santé de la colonie sur l’hôpital militaire Michel-Lévy de Marseille.
-Ce fonctionnaire prendra passage sur le paquebot de la Compagnie des Messageries maritimes Leconte de-Lisle attendu à Djibouti vers le 8 août 1933, à destination de Marseille.

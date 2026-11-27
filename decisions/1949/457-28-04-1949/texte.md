@@ -1,1 +1,0 @@
-M. Lamarque, chef de la station côtière est nommé, à compter du 1er mai 1949, secrétaire administratif de l’Office national des anciens combattants et victimes de la guerre de la Côté française des Somalis, en remplacement de M. Dieffenbach, démissionnaire.

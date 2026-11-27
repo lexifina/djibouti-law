@@ -1,1 +1,0 @@
-Le gendarme Perdreau (Marcel), arrivé en Côte Française des Sormalis le 1 novembre 1951, est affecté à la Compagnie de gardes-cerele de Djibouti pour compter du 5 novembre 195], date à laquelle il a commencé son service À cette unité,

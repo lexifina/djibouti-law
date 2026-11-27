@@ -1,1 +1,0 @@
-Ismaël Ambar, précédemment magasinier auxiliaire au service de la voirie, est intégré dans le cadre local des chauffeurs au 10° éche lon, pour compter du 1er septembre 1949. Ismaël Ambâr reste à la disposition du commandant de cercle de Djibouti.

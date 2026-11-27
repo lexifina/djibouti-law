@@ -1,2 +1,0 @@
-M. Vigne (Jean), secrétaire d’administration, est nommé, à compter du 22 juin 1963, billeteur pour le paiement de la solde et allocations accessoires des personnels mensuels et journaliers du Service des Travaux publics et de la Régie des Eaux entretenus sur les fonds du Budget local du Budget de l’Etat et du FID.ES. en remplacement de M. Gauthier (Fernand). partant en congé.
-M. Vigne pourra prétendre à l’indemnité prévue par l’arrêté n° 1704 du 31 décembre 1955.

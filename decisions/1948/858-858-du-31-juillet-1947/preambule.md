@@ -1,2 +1,0 @@
-# Préambule
-du lieu de :

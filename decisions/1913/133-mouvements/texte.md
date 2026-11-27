@@ -1,1 +1,0 @@
-Et pour compter du 1er dudit, sont nommés : au grade de sergent, le caporal Madar Hassan, Mie 45, en remplacement du sergent Sénégalais Sidi Taraouré. Au grade de caporal, le garde de 1er classe Abdallah Ali, Mie 181, en rempla cement du caporal Madar Hassan, promu sergent.

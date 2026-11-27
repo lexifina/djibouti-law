@@ -1,3 +1,0 @@
-Le Maréchal des Logis d’Artillerie de Marine Lhuillier Marcel (C:A.T. 2 mécanicien A..E.B. et C.I.A.), désigné pour servir en Côte Française des Somalis, et placé en position «hors-cadres> pour compter du 13 avril 1963, date de son embarquement par avion à Paris, est affecté à la Milice de la Côte Française des Somalis pour compter du 14 avril 1963, date de son débarquement à Diibouti.
-Ce sous-officier est mis à la disposition du Commandant de Cercle d’’Ali-Sabieh, pour remplir les fonctions de chef de garage.
-L’entretien complet de ce sous-officier est à la charge du Ministère d’Etat chargé des Départements et Territoires d’Outre-Mer.

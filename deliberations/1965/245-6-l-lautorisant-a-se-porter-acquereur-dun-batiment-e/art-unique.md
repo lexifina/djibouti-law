@@ -1,2 +1,0 @@
-# Article unique
-— Le Chef du Territoire, Président du Conseil de Gouvernement, est autorisé à signer, au nom du Territoire de la Côte Française des Somalis, l’acte d’acquisition amiable, annexé ci-joint, aux termes duquel le Territoire achète à M. Hassan Moyale, membre de l’Assemblée Territoriale, un bâtiment en dur, à usage d’habitation, sis à As-Eyla, moyennant le prix de cinq cent mille francs Djibouti (500.000 FD).

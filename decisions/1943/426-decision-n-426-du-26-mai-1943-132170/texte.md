@@ -1,2 +1,0 @@
-Le Capitaine de Port de 2me classe GRIVEAU André, Capitaine au long cours, est nommé Capitaine de Port à Djibouti pour compter du 24 Mai 1943.
-Cumulativement avec ses fonctions, M. GRIVEAU exercera celles de Chef du Service de l’Inscription Maritime et contrôlera l’Inspection de la Navigation et du Travail Maritime provisoirement dirigée par M. ZOUAIN qui est maintenu par ailleurs à la disposition du Commandant du Cercle de Djibouti.

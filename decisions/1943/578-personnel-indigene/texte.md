@@ -1,1 +1,0 @@
-SAID MOHAMED est engagé à compter du 1er Août 1943 en qualité de planton concierge auxiliaire du Service des informations au salaire mensuel de 750 francs exclusif de toute indemnité, y compris les rémunérations pour travaux suplémentaires.

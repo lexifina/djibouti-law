@@ -1,1 +1,0 @@
-Un congé de convaiescence d’un mois à solde entière, à l’issue duquel l’intéressé devra se représenter devant le Conseil de Santé pour décision sur son aptitude à continuer ses services, est accordé à l’infirmier 9e échelon du cadre local Allato Detta, en service à l’Hôpital Principal de Djibouti, à compter du 6 juin 1953.

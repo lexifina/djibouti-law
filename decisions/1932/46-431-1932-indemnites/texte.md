@@ -1,2 +1,0 @@
-les décisions des 3 juillet 1930, allouant une indemnité de permanence aux plantons en service au cabinet du gouverneur et du 28 décembre 1931, portant augmentation de l’indemnité de permanence allouée au personnel susvisé, sont ce qui concerne Hassen Ghaleb.
-Une indemnité mensuelle de 25 francs est accordée au planton de 3e classe Hassen Ghaleb, en service gouverneur, pour compter du 1er octobre 1932.

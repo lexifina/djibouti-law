@@ -1,1 +1,0 @@
-M. Daher Roble, Agent techniaue auxiliaire 6 échelon en service à la Direction du Service de Santé, est licencié de son emploi pour mauvaise manière habituelle de servir pour compter du 1er mars 1953.

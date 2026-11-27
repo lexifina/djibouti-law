@@ -1,1 +1,0 @@
-M. BIAU Louis, ingénieur architecte mis à la disposition du Gouverneur de la C.F.S. pour compter du Ier avril 1943 est affecté provisoirement au service des Travaux publics . Jusqu’à régularisation de sa situation, M. BIAU Louis conservera les émoluments men suels de 7.000 francs qu’il percevait en A.F.F.

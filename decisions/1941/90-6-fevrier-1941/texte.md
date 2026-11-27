@@ -1,1 +1,0 @@
-Le sergent radiotélégraphiste Barras, de la compagnie des télégraphistes coloniaux, est classé dans la position « hors cadres », à compter du 1er février 1941, et mis à la même date à la disposition du capitaine inspecteur des pelotons méharistes.

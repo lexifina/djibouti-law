@@ -1,1 +1,0 @@
-une permission d’absence valable du 3uillet au 10 octobre 1945 et pour en jouir Ethiopie en est accordée à Mme Copé, épouse d’un payeur de 1er classe des trésoreries coloniales. en service à Djibouti.

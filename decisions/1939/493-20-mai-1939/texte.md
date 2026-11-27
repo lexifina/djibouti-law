@@ -1,1 +1,0 @@
-M, Raoera (Célestin), dactylographe contractuel en service au Bureau des finances, est affecté pour compter du 17 mai 1959, au Cabinet civil du Gouverneur, en remplacement de M. Nadim Kassim. partant en congé.

@@ -1,4 +1,0 @@
-Le 1’° classe Ahmed Kahim, mle 1219 du Dépôt de la Milice à Disbausti maintenu nar tacite reronduection de son contrat du 27-2-61 au 10-8-61 totalisant 18 ans 5 mois et 14 jours de services effectifs dans la Milice, est admis à faire valoir ses droits à l’Allocation viagère annuelle en exécution de l’article n° 6 de l’arrêté n° 105 du 3 février 1943, il sera libéré et rayé des contrôles de la Milice pour compter du 11 août 1961, il recevra le certificat de bonne conduite.
-Le 1’° classe Ahmed Kahim, mle 1219 bénéficiera à compter du 11 août 1961 d’une allocation viagère annuelle de trente huit mille zéro cinquante francs Djibouti (38.050 FD) payable trimestriellement et à terme échu et sur vu d’un certificat de vie délivré par les autorités compétentes.
-Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins du Gérant du Dépôt de la Milice à Djibouti.
-La présente décision annule la décision n° 724 en date du 12 juin 1961.

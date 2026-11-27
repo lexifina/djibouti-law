@@ -1,1 +1,0 @@
-cutoire par arrêté n° 628 du 27 avril 1965, la Commission Perrmanéñte de l’Assemblée Téfritoriale à accordé à M. Tabet Ali Salam la concession provisoire d’une parcelle de terrain d’une supéfficié de 52,20 m2 environ, sise à Djibouti, äVeñue 13, à titré gratüit.

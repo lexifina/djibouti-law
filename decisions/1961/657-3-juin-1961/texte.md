@@ -1,1 +1,0 @@
-M. Rasamy (Maxime), secrétaire d’Administration de 1er classe, 2e échelon du cadre territorial de la Côte Française de Somalis, est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan (service des Finances), pour compter du 26 mai 1961, date de son retour à Djibouti.

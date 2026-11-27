@@ -1,1 +1,0 @@
-M. Emile (Edouard), commis principal de 1re classe après 4 ans? du Secrétariat général de la Côte française des Somalis, en congé dans l’Inde, est maintenu d’office dans la position de disponibilité sans traitement pour une période d’une année à compter du 21 février 1939.

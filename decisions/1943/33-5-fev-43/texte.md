@@ -1,1 +1,0 @@
-En raison de l’indisponibilité de M. CAR-BONNEL, nommé par arrêté 67 du 20 Janvier 1943 comme membre de la Com mission chargée de vérifier les travaux de surcharge des timbres par l’Imprimérie de Diré-Daoua, M. MUSSART, Adjoint prin- ,cipal de classe exceptionnelle est désigné pour le remplacer.

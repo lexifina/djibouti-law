@@ -1,1 +1,0 @@
-une permission d’un mois, dont quinze jours avec solde entière, quinze jours demi-solde, valable du 1er au 31 juillet 1931 inclus, est accordée au garde méhariste de 2e classe Ahmed Ibrahim, matricule 29 et au garde méhariste de 2e classe Oukaye Bouh, matricule 33,

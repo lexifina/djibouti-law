@@ -1,3 +1,0 @@
-Un congé de convalescence de trois mois à passer en France est accordé à : M. Soubielle, adjoint principal hors classe des services civils; M. Cope, payeur des trésoreries coloniales: M. Pichon, receveur-contrôleur principal de 2e classe du cadre métropolitain de l’enregistrement, des domaines et du timbre.
-Les intéressés, qui rentrent en France par voie maritime, pourront sur leur demande, percevoir avant leur départ une avance de solde dans les conditions précisées par l’arti cle 11 du décret du 1 er août 1944.
-Les frais afférents à leur déplacement seront supportés par le budget local de la Côte française des Somalis.

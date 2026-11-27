@@ -1,1 +1,0 @@
-Le Lieutenant MULLER Robert de la 1ère Compagnie Somalie est nommé pour compter du lcr Janvier 1943 Chef du Poste Administratif et Président du Tribunal du premier degré d’ALI SABIEH. Il prêtera, devant le Tribunal de 1ère instance de DJIBOUTI, le serment prévu par la Loi.

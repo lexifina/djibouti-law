@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Houmed Vitti, infirmier de 2e classe ,2e échelon du corps territorial de la Santé publique, en service à l’Hôpital Peltier (pavillon Guibert-German, rez-de-chaussée). pour absence non motivée dans la matinée du 4 juin 1974.

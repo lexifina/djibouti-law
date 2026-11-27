@@ -1,1 +1,0 @@
-Est abrogée pour compter du 1er août 1951, la décision n° 813 du 1 août 1949 allouant une indemnité mensuelle de six mille francs (6.000 fr.) à chacun des deux contrôleurs de la Station du réseau général pour aide technique à la Station côtière.

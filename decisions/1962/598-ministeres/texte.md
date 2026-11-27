@@ -1,2 +1,0 @@
-L’Adjudant Hay Jules, désigné pour servir hors cadres en Côte Française des Somalis, embarqué le 16 mars 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 26 mars 1962, date de son arrivée sur le Territoire.
-Ce sous-officier est désigné pour occuper les fonctions de Dépensier à l’Hôpital Peltier pour compter du 1e avril 1962, en remSacement de l’’Adiudant Buisson rapatrié pour fin de séjour.

@@ -1,1 +1,0 @@
-une allocation de deux mille cinq cents francs canicien (2.500 frs) est accordée à M. Gehin, mé moteur Diesel pour les travaux de montage du 200 chevaux exécutés pendant le mois de juin 1945. Cette dépense sera imputée sur le chapi tre 10, article 4, paragraphe 3 du budget cal lo 1945.

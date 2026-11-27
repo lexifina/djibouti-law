@@ -1,1 +1,0 @@
-M. Marcou Athanase est autorisé à exploiter, place Albert-Bernard, une licence de 8° classe pour la vente uniquement à emporter, en gros ét en demi-gros, de boissons alcoolisées et fermentées, à l’exclusion de toute vente au détail.

@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 1122 du 7 septembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à l’Etat Français (Ministère des Travaux publics, Secrétariat général à l’Aviation civile), la cession à titre gratuit et définitif de deux parcelles de terrain,d’une superficie de 3.000 et 5.000 mètres carrés, sises de part et d’autre de l’aérodrome.

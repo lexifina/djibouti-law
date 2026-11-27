@@ -1,1 +1,0 @@
-M. Ali Daher Liban, expéditionnaire d’Administration de 2e classe, 2e échelon, du cadre local en service au Bureau du Personnel territorial, est placé sur sa demande dans la position de disponibilité sans traitement, pour une période d’un an à compter du 1er septembre 1959.

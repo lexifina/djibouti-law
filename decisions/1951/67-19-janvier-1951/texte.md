@@ -1,2 +1,0 @@
-1° Les restes mortels de M. Le Pape (Alain), décédé le 15 août 1948, à bord, du s/s « Ville-de-Reims » et inhumé à Djibouti le 16 août, seront transférés au cimetière de Penmarch (Finistère).
-2 Les dépenses afférentes à l’exhumation et au transfert du corps du défunt jusqu’au lieu de réinhumation, seront supportées par la Compagnie de l’Afrique orientale (Nouvelle compagnie havraise péninsulaire de navigation) et Mme veuve Le Pape.

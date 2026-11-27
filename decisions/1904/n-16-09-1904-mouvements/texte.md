@@ -1,2 +1,0 @@
-Par décision du Gouverneur p. i. et date du 31 juillet 1904, les sieurs Saïd ben Said et Arthé, sont nommées conceges garde-meubles de l’hôtel du Gouvernement et de l’hôtel du Secrétarial général.
-Le sieur Ali Dankali est nommé planton du Secrétariat général Les sejours Ibrahim Odone Djama Fora et Farah Moussa sont nommés canoliers du gouvernement, en remplacement des sieurs Ali Dankali Arthé et Saïd ben Saïd.

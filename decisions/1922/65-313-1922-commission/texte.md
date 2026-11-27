@@ -1,1 +1,0 @@
-une commission composée du Chef du service des P. T. T., Président, du Trésorier-payeur et du Chef du bureau des finances, se réunira sur la convocation de son président, pour procéder à l’incinération de différentes figurines postales.

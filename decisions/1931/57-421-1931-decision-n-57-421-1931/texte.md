@@ -1,1 +1,0 @@
-M. Bodin (Clément), adjoint principal de classe exceptionnelle des services civils après deux ans, du 3 mai 1929, qui réunit les conditions d’ancienneté et de séjour colonial exigées par l’article 6, paragraphe B, de l’arrêté du 26 avril 1928, passe automatiquement à l’échelon après quatre ans à compter du 19 novembre 1931.

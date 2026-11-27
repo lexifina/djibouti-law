@@ -1,2 +1,0 @@
-Pour raison de santé « non imputable » au service, le Garde de 2e classe Ali Hoche, Mle 534, est licencié de la Garde Territriale at rayé des contrôles pour compter du ler mai 1961 Ce Garde Territorial, totalisant à cette date 1 an et 3 mois de service dans les Forces Locales, percevra une indemnité de licenciement égale à un mois de solde nette, soit cinq mille cent quatre-vingt francs (5.180), payable en une seule et unique fois.
-Il recevra le certificat de bonne conduite.

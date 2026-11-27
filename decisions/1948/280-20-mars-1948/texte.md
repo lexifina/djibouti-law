@@ -1,2 +1,0 @@
-Un congé administratif de six mois pour en jouir à Madagascar, est accordé à M. Ramandiamanana (Clermont), commis principal de 1re classe du cadre spécial du Trésor de Madagascar.
-A l’issue du congé administratif, M. Ramandiamanana sera mis à la disposition du Haut Commissaire de la République à Madagascar M. Ramandiamanana rejoindra son lieu de congé par première occasion maritime pour compter du 4 mai 1948 et voyagera eu 3e classe aux frais du budget local (assimilation : 4e catégorie).

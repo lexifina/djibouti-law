@@ -1,1 +1,0 @@
-MM. Arnaud (Bernard), adjoint principal technique des travaux publics, service armé, classe de mobilisation 1914, et Gabourdes (Louis), comptable des travaux publics, service armé, classe de mobilisation 1922, sont classés dans l’affectation spéciale, dans leur emploi actuel, pour une nouvelle période de trois mois à compter du 18 mars 1940.

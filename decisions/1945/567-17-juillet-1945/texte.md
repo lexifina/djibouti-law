@@ -1,1 +1,0 @@
-le sergent-chef Pouthier Henri, les sergents Lamblain Edouard et Chartrain Raymond sont placés dans la position « hors cadres » pour compter du 10 juillet 1945, date de leur débarquement en Côte Française des Somalis et affectés à la Milice indigène.

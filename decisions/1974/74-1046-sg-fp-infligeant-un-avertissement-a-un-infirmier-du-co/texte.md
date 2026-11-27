@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Mohamed Daher, infirmier de 2e classe — 2e échelon du corps tertitorial de la Santé pubhque en service au centre de pneumo-phtisiologie Paul-Faure, pour absences non motivées des après-midi des 9, 13 et 16 mai 1974.

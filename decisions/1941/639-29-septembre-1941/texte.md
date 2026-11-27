@@ -1,3 +1,0 @@
-Le capitaine d’infanterie coloniale hors ca dres Lanto, commandant le cercle de Tadjoarah et h» 2° peloton méhariste est replacé dans les cadres et mis à la disposition du généra! commandant supérieur pour compter du 20 septembre 1911. Le lieutenant d’infanterie coloniale Coullet, du bataillon de tirailleurs sénégalais n°1 est placé dans la position hors cadres pour comp ter du 20 septembre 1941.
-Il prend, à la même date, le commandement du 2e peloton méhariste et celui du cercle de Tadjourah en remplacement du capitaine Lanlo.
-Le lieutenant Coullet prêtera devant le tribunal de 1er instance de Djibouti h» serment prévu par la loi.

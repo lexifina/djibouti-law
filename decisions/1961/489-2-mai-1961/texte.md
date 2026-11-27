@@ -1,2 +1,0 @@
-A titre exceptionnel une autorisation d’absence à salaire entier de soixante-dix-sept jours pour services effectifs et ininterrompus dans le Territoire pendant la période du 17 octobre 1958 au 3 mai 1961, pour sé rendre en France, est accordée à M. Hua de Bernard, secrétaire auxiliaire au Service Judiciaire (échelle XII, 3e échelon, indice 1085) à compter du 4 mai 1961.
-Les frais de voyage et de transport sont à la charge de lintéresse.

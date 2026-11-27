@@ -1,1 +1,0 @@
-il est accordé au directeur de la Police nationale une somme de cinq cent soixante quinze mille francs Djibouti (575 000 FD) au titre du chapitre 32.11 —Article 22 — Paragraphe 7 (Fonds spéciaux du 1er trimestre).

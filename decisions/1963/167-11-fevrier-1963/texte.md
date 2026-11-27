@@ -1,3 +1,0 @@
-M. Orbisso Gaddito Hassen, moniteur auxilizire d’éducation surveillée faisant fonction d’’instituteur auxiliaire, en service à Obock, admis aux épreuves de l’examen d’intégration des moniteurs, est titularisé dans le grade d’instituteur de 2e classe et rangé au ler échelon de ce grade pour compter du 1er janvier 1963.
-Il ne sera fait aucune reprise sur la rémunération perçue par M. Orbisso Gaddito Hassen, au cas où sa nouvelle solde serait inférieure à celle qu’il perçoit depuis le ter janvier 1963, jusqu’à la date de la présente décision.
-Tant que la nouvelle rémunération afférente à son nouveau grade restera inférieure à celle qu’il percevaïit jusqu’à ce jour, la différenée lui sera allouée, à titre personnel, sous forme d’indemnité compensatrice.

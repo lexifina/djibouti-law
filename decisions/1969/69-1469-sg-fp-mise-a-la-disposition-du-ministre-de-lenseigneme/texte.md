@@ -1,1 +1,0 @@
-M. Tidone ((Marcien), inspecteur de l’Enseignement primaire, 7e échelon, est mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour compter du 22 septembre 1969, date de son arrivée au Territoire, pour servir en qualité de chef du Service de l’Enseignement du premier degré.

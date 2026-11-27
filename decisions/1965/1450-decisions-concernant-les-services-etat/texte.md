@@ -1,2 +1,0 @@
-Le milicien de 2e classe Isman Ibrahim, mle 2824, de la 2° compagnie déMMilice à Tadjourah, ne sera pas rengagé à l’expiration de Son contrat en cours se. terminant le 28 août 1965.
-L’intéressé, Qi totalise trois ans de services effectifs à la Milice de la C.FSÿMétant licencié pour inapäitude à l’emploi, percevra. une indémité égale à deux mois deWsolde nette, à savoir : onze mille sbbcent trente-six francs Djibouti (11.636 FD).

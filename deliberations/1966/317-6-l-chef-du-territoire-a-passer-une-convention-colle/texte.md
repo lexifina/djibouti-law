@@ -1,1 +1,0 @@
-Le Gouverneur, Chef du Territoire, est autorisé à signer avec l’entreprise A. de Cola une convention accordant à cette entreprise la concession du service public de vidange des fosses d’aisance dans le périmètre urbain de la ville de Djibouti.

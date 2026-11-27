@@ -1,1 +1,0 @@
-MM. Garant (Sylvain), chef de section à la Société des Batignolles, service armé, classe de mobilisation 1917, et Antheaume (Georges}, chef de carrière à la Société des Batignolles, service armé, classe 1914, Sont classés dans l’affectation spéciale, dans leur emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

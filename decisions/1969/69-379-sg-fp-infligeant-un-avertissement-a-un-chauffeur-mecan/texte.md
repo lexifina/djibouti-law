@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Houssein Bare Ared, chauffeur mécanicien de 2e classe, 3e échelon du cadre territorial des chauffeurs mécaniciens et chauffeurs, en Service au Port de Commerce de Djibouti (Ministère des Travaux publics et du Port) pour fraude énvers les services de contrôle portuaira.

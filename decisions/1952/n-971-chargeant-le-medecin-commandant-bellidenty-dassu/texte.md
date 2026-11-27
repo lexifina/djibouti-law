@@ -1,1 +1,0 @@
-Pendant la durée de la mission du Médecin-Colonel, Directeur du Service de Santé de la Côte Française des Somalis, le Médecin-Commandant Bellidenty assurera l’expédition des affaires courantes de la Direction du Service de Santé et de la Cffefferie de l’Hôpital

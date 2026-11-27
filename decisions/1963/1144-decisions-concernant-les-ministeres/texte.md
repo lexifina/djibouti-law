@@ -1,1 +1,0 @@
-Mile Abdi Marguerite rayée des contrôles du Centre d’EnSeignement Professionnel par décision n° 645/SPAS du 12 juin 1963, reclassée journalière à salaire journalier, est licenciée de son emploi pour mauvaise manière habituelle de servir et pour compter du ler août 1963, date à laquelle elle a cessé d’assurer son service.

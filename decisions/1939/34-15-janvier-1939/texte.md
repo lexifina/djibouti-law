@@ -1,1 +1,0 @@
-Monsieur Liéron, Surveillant contractuel des Travaux Publics, nouvellement Arrivé à la colonie, est mis à la disposition de Monsieur le chef du Service des Travaux Publics pour compter du à janvier 1939, jour de son débarquement.

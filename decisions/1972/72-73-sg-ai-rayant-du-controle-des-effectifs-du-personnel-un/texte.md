@@ -1,2 +1,0 @@
-M. Ahmed Dabar, 1° classe + 2, indice 155 de la Garde territoriale, peloton de Dikhil, mle 954, né vers 1927, est rayé du contrôle des effectifs du personnel de la Garde territoriale pour raison de limite d’âge pour compter du 1er janvier 1972.
-En application des dispositions de l’article 62 de l’arrêté n° 902/SG/CG du 7 juin 1968, M. Ahmed Dabar pourra prétendre au remboursement de la retenue pour pension subie sur son traitement, à l’exclusion de toutes autres indemnités.

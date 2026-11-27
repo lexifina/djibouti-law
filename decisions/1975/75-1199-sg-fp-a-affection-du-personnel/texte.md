@@ -1,1 +1,0 @@
-M. Ali Sultan (Omar) commis des S.A.F. de 1er classe, 2e échélon du cadre territorial de l’administration générale, précédemment en service à la Direction des Finances (Ministère des Finances) est mis à la disposition du Ministre de l’Economie Rurale pour servir à l’Agriculture en remplacement numérique de Mme Trampont Josèphe, titulaire d’un congé administratif.

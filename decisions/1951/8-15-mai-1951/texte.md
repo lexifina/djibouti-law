@@ -1,1 +1,0 @@
-L’Administrateur-Adjoint de 1″ classe des Colonies, Gabriel Pau, est désigné pour représenter le Commandant du Cercle de Djibouti dans l’action en expulsion contre le sieur Ali Hersi Eulou, locataire du logement n° 5 du groupe d’habitations sis au quartier 5.

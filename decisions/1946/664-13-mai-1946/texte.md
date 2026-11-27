@@ -1,1 +1,0 @@
-Un congé de convalescence de trois mois pour en jouir dans son pays d’origine a été accordé à M. Rajeremia (Emile), mécanicien de 4é classe du cadre spécial des chemins de fer de Madagascar, détaché à la Côte francaise des Somalis.

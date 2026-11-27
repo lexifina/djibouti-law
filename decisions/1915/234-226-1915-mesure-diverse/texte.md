@@ -1,1 +1,0 @@
-M. Roussilion employé à titre journalier au jardin d’Ambouli a été licencié à compter du 1er Septembre 1915, par suites des nécessités du service. Il lui a été alloué une indemnité égale à deux mois de salaires.

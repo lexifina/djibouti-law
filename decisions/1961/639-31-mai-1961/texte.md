@@ -1,1 +1,0 @@
-M. Hetier Gilbert, Ingénieur de 1er classe du corps autonome des Ingénieurs de Travaux Météorologiques, est nommé chef du Centre Météorologique régional de Djibouti, en remplacement de M. Bergès Roger, appelé à d’autres fonctions.

@@ -1,1 +1,0 @@
-Un congé de maternité de quatorze semaines dont huit à solde entière et six à demi-solde, est accordé, pour compter du 16 août 1866, à Mme Rosalie Guillio, infirmière auxiliaire en service à l’Hôpital Peltier.

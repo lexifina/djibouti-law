@@ -1,1 +1,0 @@
-à M. Frier (Pierre), administrateur des Affaires d’Outre-Mer de 7e échelon, délégué administratif permanent de la Côte Française des Somalis à Paris, est nommé adjoint au Commandant de Cercle de Djibouti en remplacement de M. Darmendrail (Joseph). administrateur en chef de 2e échelon des Affaires d’Outre-Mer.

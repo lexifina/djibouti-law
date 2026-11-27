@@ -1,2 +1,0 @@
-L’adjudant-chef d’Infanterie de Marine Christophe Paul, affecté à la Milice de la Côte Française des Somalis pour compter du 6 mars 1961, est mis à la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions de chef de poste d’As-Eyla, en remplacement: de l’adjudant Racroul Jacques, remis la disposition du Général commandant supérieur des Forces Armées de la Côte Française des Somalis pour compter du 13 mars 1961.
-Le passage de commandement entre l’adjudant Racroul et l’adjudant-chef Christophe, s’effectuera le 12 mars 1961.

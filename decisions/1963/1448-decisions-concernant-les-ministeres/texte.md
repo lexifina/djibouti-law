@@ -1,1 +1,0 @@
-L’indemnité forfaitaire mensuelle allouée à Mme Blin (Jacqueline), gérante de la Bibliothèque Publique de Djibouti, est portée à dix mille francs (10.000 fr.) payables à terme échu, pour compter du 1er octobre 1963.

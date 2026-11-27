@@ -1,1 +1,0 @@
-à compter du 1er novembre 1927, la solde du Cadi de Djibouti Chamsan Ismaël est. portée de 315 francs à 575 francs par mois, exclusive du relèvement temporaire de solde accordé par l’arrêté du 15 mai 1926.

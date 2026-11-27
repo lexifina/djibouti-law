@@ -1,1 +1,0 @@
-Le sergent-chef infirmier Goutte (Guy), désigné pour servir en Côte française des Somalis, hors cadres, est affecté à l’hôpital colonial de Djibouti (service de bactériologie), en remplacement du sergent-chef Masson (Mi chel), rapatrié depuis le 18 juin 1947, pour compter du 30 novembre 1948, date de son débarquement à Djibouti.

@@ -1,4 +1,0 @@
-Un secours égal à trois mois de salaire de M. Cheik Hassan Abdallah, menuisier auxiliaire (échelle VI, 2° échelon, indice local 495), décédé le 25 février 1963, est accordé à la veuve Séoud Ahmed Al-Kadirir.
-Une indemnité compensatrice de congé non pris, égale à 28 jours de salaire de M. Cheik Hassan Abdallah est accordée à sa veuve.
-M. Cheik Hassan Abdallah réunissant, à la date de son décès, 28 ans, 1 mois, 24 jours de services effectifs, sa veuve Mme Séoud Ahmed Al-Kadiri est admise pour compter du 25 février 1963 au bénéfice d’une allocation viagère de reversion payable trimestriellement et à terme échu sur le vu d’un certificat de vie et d’un certificat de non-remariage délivré par les autorités compétentes.
-Les dépenses visées aux articles précédents seront supportées par le Budget du Service local.

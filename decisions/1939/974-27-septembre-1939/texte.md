@@ -1,2 +1,0 @@
-M. Bringer (Alphonse), receveur de 3e classe du C. M, reprend ses fonctions de chef de service des P. T, T, pour compter du 22 septemmbre 1939 et celles de receveur comptable à partir du 1er octobre 1939.
-M. Gnanadicum (Etienne), contrôleur principal des P. T. T. du cadre local, délégué du Bureau des finances, est désigné pour assister à la coupure de gestion comportant prise en charge de la caisse, des valeurs courantes et de la caisse de réserve des timbres-poste,

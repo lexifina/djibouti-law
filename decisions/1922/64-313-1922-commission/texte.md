@@ -1,1 +1,0 @@
-une commission de récolement des inventaires de matériel, de mobilier du service local, composée du receveur des domaines et de MM. Vernier, comptable des travaux publies et Rivière, commis des services civils, se réunira à partir du 26 décembre 1922.

@@ -1,1 +1,0 @@
-M Hétier Gilbert insénieur des Travaux Météorolosiques du Corps Autonome de classe exceptionnelle est nommé Chef du Service de l’Aviation Civile en Côte Française des Somalis, à titre intérimaire et pour la durée de l’absence de M. Blin Pierre, titulaire à comoter du 14 juin 1962. d’un congé annuel de deux mois à passer en Métropole.

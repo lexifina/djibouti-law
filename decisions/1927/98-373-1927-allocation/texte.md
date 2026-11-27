@@ -1,1 +1,0 @@
-une allocation forfaitaire de 500 francs est accordée à M. Pellequer, géomètre principal à la Compagnie du chemin de fer franco-éthiopien, qui a exécuté des travaux de levé de plans et de dessin intéressant la protection «le défense de la rivière d’Ambouli.

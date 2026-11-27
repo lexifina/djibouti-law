@@ -1,3 +1,0 @@
-M Montel Jean-Michel, administrateur en chef des Affaires d’outre-mer de 3e échelon, chef du Service des Finances-Etat et chef du Service territorial des Finances est, sur sa demande, déchargé de ses fonctions de chef du Service des Finances-Etat pour compter du 14 septembre 1964.
-M. Lorans Raymond, administrateur en chef de classe exceptionnelle des Affaires d’outre-mer, affecté au Service de:
-Finances-Etat pour compter du 29 août 1964, date de son arrivée en Côte Française des Somalis, est nommé chef du Service des Finances-Etat pour compter du 14 septembre 1964 en remplacement de M. Montel Jean-Michel, et ordonnateur délégué.

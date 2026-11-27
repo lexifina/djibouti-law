@@ -1,2 +1,0 @@
-Un congé administratif de six mois est accordé à M. Vignon (Robert), instituteur de 3e classe du cadre métropolitain. en service détache à la Côte Française des Somalis, pour en jouir dans la Métropole.
-Une réquisition de passage par voie maritime Diibouti-Marseille et une réquisition par voie ferrée Marseille-Amiens seront délivrées à l’intéressé qui voyagera accompagné de son épouse et de ses deux enfants âgés respectivement de 5 et 3 ans (groune 3).

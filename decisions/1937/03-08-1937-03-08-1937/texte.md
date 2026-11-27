@@ -1,1 +1,0 @@
-AL Perron (Michel), administra teur de 1re classe nouvellement affecté à la Côte française des Somalis, est nommé chef du bureau d’administration générale et des affaires économiques pour compter du 2 août 1937, jour de son débarquement dans la colonie.

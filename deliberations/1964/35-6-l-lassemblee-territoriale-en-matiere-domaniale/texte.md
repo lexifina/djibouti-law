@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 279 du 25 février 1964 la Comemission permanente dé l’Assemblée Territoriale a accordé à M. Roger Radeau la concession provisoire d’un terrain d’une superficie de 1.248 m2 sis à Ambouli, au prix de 100 francs le mètre carré.

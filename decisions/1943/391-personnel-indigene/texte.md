@@ -1,1 +1,0 @@
-Les nommés AHMED KASSIM, ABDILLAI HUSSEIN, AHMED YOUSSOUF, SAID OMAR et ALI DJAMA sont engagés en qualité de préposés stagiaires des douanes à solde annuelle de 3.000 francs à compter du 1er mai 1943 en remplacement de deux agents licenciés et en complément d’effectif.

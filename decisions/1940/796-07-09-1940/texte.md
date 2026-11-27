@@ -1,2 +1,0 @@
-M. Zouain (Jean), commis principal des P. 1 T. T., du cadre local de la Côte française des Somalis, est affecté au Service de l’inscription maritime, pour compter du 4 septembre 1940, jour de sa démobilisation. M. Zouain est nommé syndic des Gens de mer, en remplacement de M. Poisson, administrateur adjoint des colonies.
-Il recevra, à compter du 4 septembre 1940, l’indemnité afférente à cet emploi.

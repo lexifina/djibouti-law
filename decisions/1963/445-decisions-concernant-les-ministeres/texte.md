@@ -1,1 +1,0 @@
-M. Biazzos Evangelos est autorisé à exploiter, 11, rue de Madrid à Djibouti, une liéence de deuxièmeclasse pour la vente en gros de boissons alcooliques et hygièniques et pour la vente au détail de boissons alcooliques et hygiéniques à emporter.

@@ -1,1 +1,0 @@
-une rémunération de 100 fr. a été accordée à Raharison et à Ramadan, ductylographes au bureau d’ordre du cabinet, pour avoir procédé à la dactylographie du projet de budget de la colonie pour l’exercice 1934 en dehors des heures réglementaires de service.

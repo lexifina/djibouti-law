@@ -1,1 +1,0 @@
-M.Blanchard (Paul-Léon-Jean), commis opérateur de la Station intercoloniale de T. S. F service armé, classe de mobilisation 192S, classé – dans l’affectation spéciale par décision n° 1094 en date du $ novembre 193$, est rayé de cette position pour compter de la date de la présent décision.

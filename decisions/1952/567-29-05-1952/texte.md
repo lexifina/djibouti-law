@@ -1,1 +1,0 @@
-M. Depouilly (Roland), instituteur de 2e classe du Cadre métropolitain détaché en Côte Française des Somalis, professeur au cours complémentaire de Djibouti, est nommé cumulativement avec ses fonctions directeur du cours complémentaire et des classes primaires-du groupe scolaire du boulevard de la République.

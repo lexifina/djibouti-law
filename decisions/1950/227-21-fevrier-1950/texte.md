@@ -1,1 +1,0 @@
-Le sergent-major Cucheval (Pierre), désigné pour servir « hors cadres » en Côte française des Somalis, est affecté fi la section du chiffre du gouvernement à compter du 7 février 1950, date de son débarquementà la colonie et jusqu’au 31 mars 1950 inclus.

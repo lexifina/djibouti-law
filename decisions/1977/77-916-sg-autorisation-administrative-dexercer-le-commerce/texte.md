@@ -1,1 +1,0 @@
-Une autorisation administrative d’exercer le commerce des boissons, licence de ire classe À, est accordée à Mile Delaineche Aberra, pour l’exploiter dans son établissement, sis rue d’’Ethiopie, Bar « Le Florida ».

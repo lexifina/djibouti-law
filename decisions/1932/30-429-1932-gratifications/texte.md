@@ -1,1 +1,0 @@
-une gratification exceptionnelle de 30 francs est accordée at nommé Bayenne Afto Makaner, askari du contrôle abyssin, pour le zèle dont il a fait preuve dans l’arrestation et le transport à Djibouti de l’inculpé Abdoullahi Ahmed.

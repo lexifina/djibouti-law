@@ -1,1 +1,0 @@
-Dérogation est accordée à Mme Athede Guanshi, de nationalité éthiopienne, autorisée à exploiter, en gérance libre, une licence de 3 classe au bar «Bonne Année», sis 13, rue de Madrid à Djibouti, dont la propriétaire est Mme Mastewat Guebre Mariam.

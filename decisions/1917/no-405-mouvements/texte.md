@@ -1,1 +1,0 @@
-, Par décision du 31 décembre 1917 et pour compter du 1er janvier 1918, la prime d’ancienneté de 5 fr, par mois prévue par l’arrêté du 9 septembre 1912 à été allouée au sergent Gaëri Mariam qui réunit plus de 15 ans de service,

@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours, pour en jouir au Harrar (Ethiopie), est accor dée à M. Liurette, administrateur des colonies, commandant du cercle de Djibouti, pour compter du 25 septembre 1948.

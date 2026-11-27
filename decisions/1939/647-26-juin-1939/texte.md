@@ -1,2 +1,0 @@
-Un passage de rapatriement en 3e classe, à destination de Marseille, est accordé à M. Marchi (Philippc-Antoine), sergent-chef 4er échelon d’infanterie coloniale, hors cadres, qui prendra passage sur le paquebot Compiègne de la Compagnie des Messageries Maritimes, attendu le 27 juin 1939.
-La dépense est imputable an budget local de la Côte francaise des Somalis (chapitre 14, article 1er, paragraphe 1er).

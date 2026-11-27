@@ -1,1 +1,0 @@
-M. Berger (Henri), administrateur des colonies, chef du Service du ravitaillement général, continuera à assurer les fonctions de président du Comité de surveillance des prix, qu’il exerçait antérieurement en qualité de chef du Bureau des affaires politiques.

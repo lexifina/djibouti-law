@@ -1,1 +1,0 @@
-A compter du 1er juillet 1941, il est accordé à titre transitoire un congé de quinze jours à salaire entier, à chacun des agents de l’usine électrique ci-après dénommés : Hersi Hassan, forgeron : Shire Ghere, chef d’équipe.

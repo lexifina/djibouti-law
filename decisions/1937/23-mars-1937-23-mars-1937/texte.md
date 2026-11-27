@@ -1,1 +1,0 @@
-M. le chef de bataillon de Fau que de Jonquières, commandant le battaillon de triailleur sénegalaius de la Coté Francais francaise de Somalis est nommé à compter du 1er avril par délégation, du Comité co lonial des anciens combattants de la Côte française des Somalis, en remplacement de M. médecin lieutenant-colonel Guirriec, rapatriable

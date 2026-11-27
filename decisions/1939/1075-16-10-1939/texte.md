@@ -1,1 +1,0 @@
-Le docteur Goez (Yann), médecin capitaine des troupes coloniales, en service hors cadres au Service de santé de la Côte française des Somalis, est nommé chef du Service d’hygiène et d’assistance médicale indigène.

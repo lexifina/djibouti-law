@@ -1,1 +1,0 @@
-M:Lassays (Gaston), Inspecteur des Impôts (Enregistrement) de 5° échelon, Chef du Service de l’’Enregistrement, des Domaines et du timbre, dont le séjour administratif arrive à expiration le 10 janvier 1961, est autorisé à prolonger son séjour d’un an pour compter de la date précitée.

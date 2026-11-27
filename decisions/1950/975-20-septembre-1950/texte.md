@@ -1,1 +1,0 @@
-M. Pient (Guy), administrateur adjoint de 1er classe, cbef du bureau des affaires économiques et du ravitaillement général, est nommé cuniulaliveinent avec ses fonctions actuelles, chef de la section du secrétariat général, en remplacement du capitaine Deviras, en instance de départ en congé.

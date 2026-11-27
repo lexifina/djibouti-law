@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours a solde entière pour en jouir à Djibouti, est accordée à M. Andrianirina ( Alphonse), secrétaire contractuel à l’hôpital colonial, pour compter du 16 mars 1948.

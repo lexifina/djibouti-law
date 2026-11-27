@@ -1,1 +1,0 @@
-M. DOSE Louis. Administrateur Adjoint de 1er classe des Colonies avant 3 ans est nommé provisoirement Chef du Bureau Politique en remplacement de M. MARNAY, Administrateur Adjoint de 1re classe mobilisé Lieutenant de réserve remis à la dis position des autorités militaires.

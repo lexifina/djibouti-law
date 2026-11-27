@@ -1,2 +1,0 @@
-M. Charles Merz, Administrateur en chef de 2e échelon des À.O.M., qui a quitté Paris le 26 avril 1967 par la voie aérienne et a débarqué à Djibouti le 27 avril 1967 est, pour compter de cette dernière date, nommé chef du Service des Affaires administratives d’Etat, en remplacement de M. Robert Bonneau,Administrateur en chef de classe exceptionnelle, titulaire d’un congé administratif.
-Pour compter du 25 avril 1967. veille du jour de son embarquement à destination du Territoire, M. Charles Merz sera pris en charge par le budget de l’Etat (chap. 31-11).

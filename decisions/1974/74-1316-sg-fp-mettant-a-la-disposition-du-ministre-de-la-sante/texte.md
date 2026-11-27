@@ -1,1 +1,0 @@
-M. Claude Guidi, médecin de ire classe, en service détaché est, pour compter du 15 juillet 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique pour servir en qualité de médecin-chef du service de la prévention de la tuberculose du Territoire français des Afars et des Issas et médecin adjoint du dispensaire Paul-Faure

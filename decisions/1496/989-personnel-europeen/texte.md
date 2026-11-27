@@ -1,1 +1,0 @@
-M. Bertrand (Jean), élève administrateur d s colonies, précédemment chargé des fonc tions le chef de service des informations et adjoint au chef du cabinet civil. est affecté au bureau des affaires économiques.

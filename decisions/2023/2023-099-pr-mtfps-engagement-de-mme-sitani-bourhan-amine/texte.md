@@ -1,2 +1,0 @@
-Par décision n°2023-099/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 12 mars 2023, Mme. SITANI BOURHAN AMINE, est engagée dans la Convention Collective du 26 décembre 2011 à la 1ère Catégorie C, en qualité de Femme de Ménage, pour servir au Ministère de la Défense chargé des Relations avec le Parlement, en remplacement numérique de la défunte, NASRO ALI KAMIL.
-La présente décision prend effet à compter du 12 mars 2023.

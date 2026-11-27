@@ -1,1 +1,0 @@
-M. Poggi Ange, sergent à la 2e Compagnie de la Milice à Tadjourah, est nommé Président du Tribunal du 1ler degré d’Obock pour compter du 26 novembre 1963 en remplacement de M. Allard Jean, attaché d’Administration centrale de 2e classe, e échelon

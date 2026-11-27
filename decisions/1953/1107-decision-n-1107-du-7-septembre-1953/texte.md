@@ -1,1 +1,0 @@
-M. Rajohnson, comptable contractuel, précédemment en service aux Finances, de retour de congé, est remis à la disposition de M. le Chef du Service des Finances et de la Comptabilité pour compter du 6 septembre 1953, date de son débarquement sur le Territoire.

@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ahmed Ali Bileh, adjoint technique de 2e classe, 4e échelon, du cadre territorial des Travaux publics et du Port, en service à l’Electricité de Djibouti, pour Manque de conscience professionnelle.

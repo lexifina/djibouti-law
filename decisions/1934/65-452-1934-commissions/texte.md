@@ -1,5 +1,0 @@
-Un comité a été chargé de l’organisation des réjouissances publiques à l’ocension de la Fête nationale du 14 juillet 1934. Il a été composé comme suit :
-M. Alemant, administrateur-adjoint de 1er classe des colonies, commandant le cercle de Djibonti, président ;
-Un membre désigné par 1a Chambre de commerce; M. le Président de la Soclété sportive » de Djiboutt; M. Pla, chef du service des travaux publices; M. Naudar, sous-chef de bureau des Secrétariats généraux; M, Bodin, adjoint principal de classe exceptionnelle des
-Services civils; Un officier de la Compagnie sénégalaise désigné par le commandant militaire : M. Verger, Ieutenant de port ; M, Coupa, adjudant-chef du détachement de gendarmerie; M. l’adjudant hors cadres Morel, de l’infanterie coloniale ; M. le sergent-chef Ouvrard ;
-Farah Samatar, notable indigène ; Dorani, notable indigène, membres, Le comité se réunira au cercle, gur convocation du Président, et établira le programme des fêtes qui sera soumis à l’approbation du chef de la colonie.

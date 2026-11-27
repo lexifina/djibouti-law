@@ -1,1 +1,0 @@
-M. Aubry (Léon-Alexis), agent de la Banque de l’Indochine, lieutenant de réserve, service armé, classe de mobilisation 1910, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois, à compter de la date de la présente décision.

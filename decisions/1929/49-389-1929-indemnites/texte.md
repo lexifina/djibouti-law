@@ -1,1 +1,0 @@
-l’adjudant de la section d’infirmiers des troupes coloniales Hbert, assurant en sous-odre le service de la météoro logie, recevra une indemnité annuelle de 360 francs, pour compter du 11 février 1929.

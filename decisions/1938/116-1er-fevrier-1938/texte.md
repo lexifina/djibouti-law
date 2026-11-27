@@ -1,1 +1,0 @@
-M. de Gaillande, ingénieur principal des T. P. C., est chargé d’assurer, à compter du 29 janvier 1938, les fonctions de chef du Ser vice des travaux publics de la colonie, pendant l’absence du titulaire.

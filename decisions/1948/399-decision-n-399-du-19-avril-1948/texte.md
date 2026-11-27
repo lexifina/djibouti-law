@@ -1,1 +1,0 @@
-Un congé de convalescence d’un mois est accordé au milicien de 2e classe Mohamed Ahmed, matricule 1658, de la 3e compagnie de milice: durant son congé, le milicien Mohamed Ahmed percevra sa solde dégagée de tous accessoires.

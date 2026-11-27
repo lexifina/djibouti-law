@@ -1,1 +1,0 @@
-le bénéfice de l’assistance judiciaire est accordé au nommé Abdou Houmi, Arabe, caporal coolie, demeurant à Djibouti, à l’effet d’introduire instance contre la Compagnie maritime de l’Afrique orientale et, le cas échéant, de suivre sur la procédure devant le tribunal d’appel,plique également à l’exécution de toutes décisions de justice à intervenir dans l’affaire.

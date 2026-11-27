@@ -1,1 +1,0 @@
-Est constatée pour compter du 29 juin 1960, date de son retour dans le Territoire, la reprise par M. Rabary Régis, Commis de 2° classe, 2° échelon, des Services Administratifs et Financiers De la Côte Française des Somalis de ses fonctions au Trésor.

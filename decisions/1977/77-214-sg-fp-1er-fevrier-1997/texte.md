@@ -1,1 +1,0 @@
-M. Mahamoud Daoud Havane, commis de 1re classe, 3e échelon du cadre territorial assurant les fonctions de greffier du Tribunal du second degré du District de Djibouti est intégré dans le cadre des rédacteurs et nommé rédacteur 2e classe, 1er échelon pour compter du 1° janvier 1977.

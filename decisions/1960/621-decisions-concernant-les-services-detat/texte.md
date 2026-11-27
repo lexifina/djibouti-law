@@ -1,2 +1,0 @@
-Mme Veress (Svlvana). ex-secrétaire-dactylographe auxiliaire est réengagée en la même qualité pour compter du 16 mai 1960 et mise à la disposition de M. le Trésorier-Payeur de la Côte Francaise des Somalis en remplacement numérique de Mme Cayer démissionnaire.
-Mme Veress (Svlvana) est rangée à la 1’° catégorie, échelle XI, jer échelon indice 895 et conserve dans cet échelon une ancienneté de 10 mois 22 jours.

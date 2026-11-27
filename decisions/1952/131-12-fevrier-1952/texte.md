@@ -1,1 +1,0 @@
-Est autorisé à effectuer des travaux supplémentaires le personnel ci-après désigné du Service des Finances de Djibouti : 5 commis et comptables; 2 chauffeurs ; 6 manoeuvres ; 4 agents techniques. La présente décision aura effet pour compter du 1er janvier 1952 jusqu’au 31 mars 1952.

@@ -1,1 +1,0 @@
-le sergent Despoux (Paul), de la section des télégraphistes coloniaux, en service hors cadres à la Côte française des Somalis, qui compte deux ans de séjour ininterrompu à la colonie, est rapatrif pour fin de campagne.

@@ -1,1 +1,0 @@
-M. Vigne (Jean), comptable contractuel, de retour de congé, servir est mis à la disposition du Directeur des Travaux publics pour à la Direction du Port, pour compter du 24 octobre 1953, date de son débarquement sur le Territoire.

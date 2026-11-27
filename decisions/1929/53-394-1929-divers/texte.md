@@ -1,1 +1,0 @@
-le nommé Mohamed Djama, précédemnrent téléphoniste au cabinet du gouverneur, est engagé, à compter du 1er septembre 1929, comme journalier, au salaire de sept francs par journée de travail effectif et mis, en cette qualité, à la disposition du commandant du cercle de Djibouti.

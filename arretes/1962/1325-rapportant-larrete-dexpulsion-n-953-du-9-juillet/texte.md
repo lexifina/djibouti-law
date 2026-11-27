@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 953 du 9-7-1962 en ce qui concerne Worke Tessema Guebre Woilde:alias Kadidja A Hassan, de nationalité éthiopienne, née à Harrar (Ethiopie), vers 1931 de Tessema Guebre Wolde et de Taffessetch Woldi.

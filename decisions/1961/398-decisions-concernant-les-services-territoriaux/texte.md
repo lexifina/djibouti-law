@@ -1,3 +1,0 @@
-M. Abdi Aden Hassan, planton auxiliaire, échelle I, 1er échelon, indice local 100, en service au Cercle de Djibouti (Ministère des Affaires intérieures) est mis à la disposition du Ministre des Travaux Publics et du Port pour servir au Port, en remplacement de M. Bogorre Diraneh Foureh qui reçoit une autre affectation.
-M. Bogorre Diraneh Foureh, planton à salaire journalier en service au Ministère des Travaux Publics et du Port (Direction du Port) est mis à la disposition du Ministre des Affaires intérieures pour servir au Cercle de Djibouti, en remplacement numérique de M. Abdi Aden Hassan.
-La présente décision prendra effet pour compter du 1er mars 1961.

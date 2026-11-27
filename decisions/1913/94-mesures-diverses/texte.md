@@ -1,1 +1,0 @@
-et pour compter du 28 dudit mois, M. Chanel, administrateur de 3e classe des Colonies, Chef du Secrétariat du Gouvernement, est chargé des Affaires Indigènes et du Tribunal Indigène du premier degré, en remplacement de M. Séré, en instance de départ.

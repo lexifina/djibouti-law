@@ -1,2 +1,0 @@
-A compter du 21 avril 1946 M. Romano (Jean-Louis), capitaine au long cours, sera considéré comme dégagé de toutes obligations contractuelles vis-à-vis du gouvernement local de la Côte française des Somalis.
-Une somme de dix-huit mille quatre cent implante francs C. F. A. (18.450 francs) cor respondant au prix du voyage par voie maritime Djibouti – Marseille, en 1er classe. sera remboursée à l’intéressé autorisé à quitter la Côte française des Somalis, pour se rendre à Saïgon : Indochine).

@@ -1,1 +1,0 @@
-il est attribué à M. Arnaud (Bernard-Lucien-Antoine), adjoint technique de 4° classe du cadre local des travaux publics, un rappel d’ancienneté de 1 an, 11 mois, 18 jours, pour service militaire obligatoire, en application de l’article 7 de la loi du 1° avril 1923, sur le recrutement.

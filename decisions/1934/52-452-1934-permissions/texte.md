@@ -1,1 +1,0 @@
-Une permission de trente jours, avec solde entière de présence dégagée de tous accessoires, n’été accordée au caporal infirmier Cabara Abdi, pour en jouir à Au douini (Somalie anglaise), à compter du 1er août 1934

@@ -1,1 +1,0 @@
-Est acceptée, pour Compter du 15 juin 1947, la démission de son emploi offerte par Saxed Mohamed Aboubaker El-Baz, commis auxilaire comptable au service du personnel, des finances et de la comptabilité.

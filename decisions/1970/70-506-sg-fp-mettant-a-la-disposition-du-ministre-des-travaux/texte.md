@@ -1,1 +1,0 @@
-M. Michel Poucant, volontaire de l’Aide technique, est,pour compter du 11 avril 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir aux Travaux publics en qualité de dessinateur-projetéur.

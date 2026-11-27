@@ -1,1 +1,0 @@
-7 avril 1934, a été ordonné le pavement de la somme de trois francs, représentant le montant du transport par navire Cordillère », avant quitté Marseille le 25 novembre 1928 et arrivé à Djibouti le S décembre 1928, de deux colis destinés au service local de la Côte francuise des Somalis.

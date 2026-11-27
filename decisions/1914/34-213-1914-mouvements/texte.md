@@ -1,1 +1,0 @@
-Pour compter du 16 dudit, les gardes de ler classe,Saleh Saïd mle. 557 et Kasim Mausour mle. 199 sont nommés au grade de caporal —Les garde de 2eme classe Mohamed Hamed mle, 298, Mohamedally mle. 326; Mohamed Dirié mle. 203, Abdallah Al mle. 311, Omer Obsié mlc 328 Mohamed Obsié mle. 9237 sont nommés à la 1er classe.

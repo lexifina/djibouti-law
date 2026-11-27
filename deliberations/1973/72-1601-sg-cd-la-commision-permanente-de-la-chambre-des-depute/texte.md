@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° (°1 dU 24 Octobre b 1973 de la Commission Permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant une parcelle de terrain domaniale, sise à Djibouti, nouveau lotissement de la Rénublique.

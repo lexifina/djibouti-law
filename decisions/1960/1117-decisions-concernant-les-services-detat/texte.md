@@ -1,1 +1,0 @@
-M. Osman Abdi Bakal, commis auxiliaire, échelle V, 1er échelon, en service’ à la Marine Marchande, est remis à la disposition du Ministre de la Fonction Publique, pour compter du 10 octobre 1960, par suite de dépassement de l’effectif budgétaire prévu à la Marine Marchande.

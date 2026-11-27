@@ -1,1 +1,0 @@
-la Commission permanente de l’Assemblée territoriale a accordé à M. Isman Agane Assowe la concession provisoire d’une parcelle d’un terrain d’une superficie de 1.495 mètres carrés, sis à Ambouli, n° 39, au prix de 100 francs le mètre carré.

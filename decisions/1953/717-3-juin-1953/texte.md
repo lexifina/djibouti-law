@@ -1,1 +1,0 @@
-M. Mohamed Cheik Fahie est engagé, à titre essentiellement précaire et révocable, en qualité de chauffeur auxiliaire au salaire journalier de 350 francs, exclusif de toutes indemnités, et mis à la disposition du Commandant de Cercle de Djibouti pour compter du 1er juin 1953.

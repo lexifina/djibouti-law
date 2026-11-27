@@ -1,3 +1,0 @@
-L’allocation aux familles nécessiteuses dont les soutiens indispensables sont sous les: drapeaux, est accordée au soldat de 2° classe Abdi Toube Ali, matricule 59.976.00002 en service au 16° Bataillon d’Infanterie de Marine pour compter du 1 mars 1959, date de son incorporation.
-L’intéressé qui est marié de puis le 12 octobre 1958 est père d’un enfant né le 20 octobre 1960.
-Les ordres de paiement correspondant à cette allocation seront établis par les soins de l’Intendance Militaire des Forces Terrestres de la C.F.S. et payés par le Trésor au titre du Ministère de ja Santé Publique et de la Population.

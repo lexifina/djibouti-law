@@ -1,1 +1,0 @@
-L’adjudant Ali Warsama, mle 661, de la 4° compagnie de Milice à Damerdjog, arrivant en fin de contrat le 24 août 1965 et inapte physiquement au rengagement, est mis à la retraite à compter du 25 août 1965, date à laquelle il sera rayé des contrôles de la Milice de la C.FS. Il recevra le certificat de bonne conduite.

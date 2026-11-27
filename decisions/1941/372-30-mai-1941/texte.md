@@ -1,1 +1,0 @@
-La nommée Madina Ali est engagée en qualité d’infirmière auxiliaire à l’hôpital colonial, à compter du 20 mai 1941, en remplacement de l’infirmière Kadidja Omar, licenciée le 31 avril 1941. Elle aura droit à un salaire mensuel de deux cent quarante francs (240 francs).

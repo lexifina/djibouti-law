@@ -1,2 +1,0 @@
-Un passage de retour par anticipation est acordé à M.Aufort, épouse d’un typographe contractuel faisant fonction de gérant de Imprimerie administrative.
-Une réquisition de passage Djibouti-Matresille et une Sition par voie ferrée Marseille-Puteaux ( Seine ) seront délivre à l’intéressée qui s’embarque sur le s/s « Félix Roussel » du 22 février, accompagnée de ses deux enfants âgés respectivement de 4 ans 1/2 et 2 ans (groupe III).

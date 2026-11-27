@@ -1,1 +1,0 @@
-sont nommés pour compter du 14 juillet 1909, Commis Principal de 2e classe des Postes et Télégraphes, M. Baixas, Commis Principal de 3e classe du même service ; Commis de 2 classe, MM. Roque et Bignotti, Commis de 3e classe du même service.

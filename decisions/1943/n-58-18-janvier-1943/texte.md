@@ -1,1 +1,0 @@
-Le Capitaine d’Infanterie Coloniale LA BARSOUQUE, en service hors cadres, est replacé dans les cadres et mis à la disposi tion du Lieutenant-Colonel Commandant Su périeur des Troupes pour compter du 1er Janvier 1943.

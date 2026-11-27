@@ -1,2 +1,0 @@
-L’agent journalier de 4 catégorie Doumbio Béatrice, précédemment en service au Dispensaire de Farah-Had, est licencié de son emploi pour compter du 1er mai 1966.
-L’intéressée, qui comptait à la date de son licenciement, 2 ans, 3 mois et 9 jours de Service, bénéficiera d’une indemnité de’ licenciement égale à 12 jours de salaire en application des dispositions de l’article 16 de la Convention collective précitée.

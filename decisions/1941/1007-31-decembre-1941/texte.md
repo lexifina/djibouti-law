@@ -1,1 +1,0 @@
-M. Mahmoud Haid, précédemment contractuel et dont le contrat est arrivé à expiration le 31 décembre, est maintenu en service au Cercle en qualité d’écrivain interprète au salaire journalier de soixante-dix francs par jour de travail.

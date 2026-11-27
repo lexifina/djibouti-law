@@ -1,2 +1,0 @@
-M. Le Henanf (Paul), attaché de 2e classe, 1er échelon, de la F.O.M. est chargé de l’expédition des affaires courantes du
-Cercle d’Ali-Sabieh et nommé, à titre intérimaine, président du Tribunal du deuxième degré, dans le ressort dudit cercle, pour compter du 11 mai 1966 et pendant l’absence de M. Bergeron (Jean), administrateur de 7e échelon des A.O.M., commandant de Cercle d’Ali-Sabieh, titulaire d’un congé annuel à passer en métropole.

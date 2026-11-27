@@ -1,1 +1,0 @@
-les « Okals » nommés ci-dessous recevront les allocations mensuelles suivantes : Gueddi Amare : 1.000 francs, ckal de la tribu Curweina de la Confédération des Issa. Mahamoud Dideh : 750 francs, okal de la tribu Gadabcursi de la Confédération des Issa. Ces nominations auront effet à compter du 1er juillet 1945,

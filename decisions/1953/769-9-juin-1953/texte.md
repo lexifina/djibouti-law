@@ -1,1 +1,0 @@
-Un congé administratif d’un an, pour en jouir à Tananarive (Madagascar), est accordé à M. Rajoelina, secrétaire dactylographe contractuel en service à la Sûreté. Une requisit ion de passage par première occasion maritime Djibouti-Tamative et une réquisition par voie ferrée Tamatave-Tananarive seront délivrées à l’intéressé qui appartient au groupe IV.

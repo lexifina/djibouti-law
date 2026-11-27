@@ -1,1 +1,0 @@
-une permission de deux mois, dont quinze jours à solde entière et quinze jours à demi-solde, est accordée aux gardes méharistes dont les noms suivent : Barah Ali, n° mle 36, caporal: Youssouf Saïd, n° mle 6, 2e classe, pour compter du 1er septembre 1932.

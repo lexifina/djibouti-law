@@ -1,2 +1,0 @@
-Un congé administratif de six mois (6), pour en jouir à Auderville (Manche), est accordé à M. Pottier (Robert), commis principal de 4e classe des Trésoreries coloniales, qui aura accompli le 1er octobre prochain un séjour effectif ininterrompu de deux ans dans le Territoire.
-M. Pottier, qui appartient au groupe III, voyagera par voie maritime de Djibouti à Marseille et par voie ferrée de Marseille à Auderville (Manche), aux frais du budget local de la Côte Française des Somalis.

@@ -1,2 +1,0 @@
-pensables sont sous les drapeaux, est accordée au soldat de 2e classe Moussa Louis, matricule 59.976.00011 en service au 16e Bataïllon d’Infanterie de Marine pour compter du 1er janvier 1960, date de son incorporation.
-Les ordres de paiement correspondant à cette allocation seront établis par les soins de l’Intendance Militaire des Forces Terrestres de la C.F.S., et payés par le Trésor au titre du Ministère de la Santé Publique et de la Population.

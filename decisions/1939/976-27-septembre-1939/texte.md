@@ -1,1 +1,0 @@
-M. Fontaine (Marc), commis principal de l’Enregistrement, des Domaines et du Timbre, est nommé par intérim chef du Service de l’enregistrement, des domaines et du timbre, curateur des Successions et biens vacants et conservateur de la Propriété foncière à Djibouti, en remplacement de M, Pichon, mobilisè.

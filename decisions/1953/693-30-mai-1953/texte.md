@@ -1,1 +1,0 @@
-M. Rabarisoa (Raymond), comptable contractuel, de retour de congé, est mis à la disposition du Chef du Service des Finances et de la Comptabilité pour compter du 25 mai 1953, date de son débarquement sur le Territoire.

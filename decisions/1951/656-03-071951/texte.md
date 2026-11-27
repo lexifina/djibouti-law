@@ -1,1 +1,0 @@
-Le sergent-chef infirmier des T.C. Benthe Tobie (Alphonse) est mis à la disposition du Directeur du Service de Santé en qualité de préparateur à la Pharmacie de détail de l’Hôpital Principal de Djibouti, à compter du 29 juin 1951, date de son débarquement sur le Territoire.

@@ -1,1 +1,0 @@
-les fonctions de Conservateur de la Propriété foncière, de Receveur de l’Enregistrement et de Curateur aux successions et biens vacants ont été confiées, pendant la durée de l’absence de M. Salel, à M. Belvindirassamy (Andre), Commis de la Conservation.

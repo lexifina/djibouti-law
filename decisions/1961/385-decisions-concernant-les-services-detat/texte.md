@@ -1,1 +1,0 @@
-M. Fenard (Guy), administrateur en chef de classe exceptionnelle de la France d’Outre-Mer est chargé, en l’absence du Chef du Territoire se rendant en mission à Paris, de l’expédition des affaires courantes et urgentes du Territoire.

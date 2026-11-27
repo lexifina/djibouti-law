@@ -1,1 +1,0 @@
-Pour compter du 4 dudit M. Baixas, Commis principal du cadre local des postes télégraphes téléphones est nommé Keceveur Comptable faisant fonctions de Chef du Service des Postes Telésraphes Téléphones en remplacement de M.Koque titulaire d’un congé de convalescence.

@@ -1,2 +1,0 @@
-Un consé administratif de six mois: à passer à Sellières (Jura), rue du Château, est accordé à M. Patillot (André), payeur de 2° classe, 4 échelon, des Trésoréries d’Outre-Mer (indice 360, groupe Il), en service à la Trésorerie de la Côte Française des Somalis, qui aura accompli au 22 décembre 1960, un séjour de deux ans.
-M.Patillot (André), qui voyagera seul, sera mis en route par la voie &érienne par première occasion, à partir du 23 décembre1960.

@@ -1,1 +1,0 @@
-Le caporal Ibrahim Abdi, matricule SG, de la 4° compagnie de milice à Ali-Sabict, décédé à l’ hopital colonial de Djibouti, le 8 mars 1948, est ravé des contrôles de la milice pour compter du 9 mars 1948.

@@ -1,3 +1,0 @@
-M.poisson, adjolnit de 1er classe des colonies, chef du bureau d’administration générale, cumulera, par intérim, avec fonctions, celles de chef adjoint du cabinet secrétaire archiviste du Conseil d’administration d’aministration et secrétaire-creffier du Conseil du contententieux .
-Il aura droit en cette qualité aux indemnités réglementaires.
-M Parthenav. administrateur adjoint de 1er classe « colonies, est affecté à l’inseription maritime et assnrera l’intérim d’administrateur de l’inscerintion maritime, chef du Service travail au départ de M. Alemant, administrateur de 2e classe des colonies titulaire de congé.

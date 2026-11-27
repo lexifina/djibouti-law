@@ -1,1 +1,0 @@
-la solde mensuelle de Mlle Marcelle Hamot, en religion Sœur Marie du Calvaire, infirmière auxiliaire à l’hôpital, est portée de 800 à 1.000 francs, à compter du 1er janvier 1932, à l’exclusion de tous autres indemnités et avantages en nature.

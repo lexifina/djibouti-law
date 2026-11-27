@@ -1,1 +1,0 @@
-Le sergent-major de l’infanterie coloniale Samson (Pierre), désigné pour servir « hors cadres » en Côte Française des Somalis et arrivé à Djibouti le 13 juin 1952, est affecté à la Milice de la C.F.S. (Dépôt de la Milice) pour compter du jour de son débarquement.

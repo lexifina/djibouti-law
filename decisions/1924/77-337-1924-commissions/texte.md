@@ -1,1 +1,0 @@
-une commission compsée de MM, Chauvet, chef du service judiciaire, président; Allard et Poggioli, membres du conseil d’administration, se réunira sur la convocation de son président, à l’effet de procéder au rapprochement des écritures de l’ordonnateur de celles du trésorier-payeur, en ce qui concerne les opérations effectuées au titre du service local pendant l’exercice 1924.

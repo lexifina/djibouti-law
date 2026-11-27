@@ -1,1 +1,0 @@
-M. Berger, agent auxiliaire au cercle, est licencié pour suppre ss ion d’emploi pour compter du 1er novembre 1941. Une indemnité de licenciement, égale à un mois de son salaire, lui est allouée à titre de préavis.

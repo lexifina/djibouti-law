@@ -1,1 +1,0 @@
-Le médecin-lieutenant Roux Jean demgne pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 31 octobre 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 9 novembre 1963, date de son arrivée sur le Territoire, en remplacement numérique du médecin-lieutenant Pages.

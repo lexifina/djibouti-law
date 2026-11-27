@@ -1,2 +1,0 @@
-Le contrat du 8 juillet 1943 portant engagement de M. Raoera (Célestin), en qualité de commis d’ordre, est résilié pour raison de santé à compter de la date à laquelle l’intéressé quittera la colonie.
-Conformément aux dispositions de l’article 2 de l’avenant en date du 12 mai 1944 au précédent contrat, M. Raoera aura droit, outre à son rapatriement sur Madagascar par voie maritime, à un dédommagement égal à neuf mois de rémunération globale.

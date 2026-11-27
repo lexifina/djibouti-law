@@ -1,2 +1,0 @@
-Sont promus, au titre du premler semestre 1965, pour compter des dates ci-dessous indiquées, les fonctionnaires et agents des Cadres Territoriaux de la Côte Française des Somalis, ddont les noms aiuvent:
-Une bonification d’ancignneté civile d’un an est attribuée à M. Hassan Bouh Boudinî» l’expéditionnaire d’administration de 2° classe, ler échelon, en service au Cercle de Djibouti. 24 Compte tenu de cette ancienneté, M. Hassan Bouh Boudin est classé Expéditionnaire d’administration de 2° classe, 2° échelon pour compter du 10 mars 1965 (ancienneté épuisée).

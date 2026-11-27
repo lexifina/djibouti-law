@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Saad Mouhoumed Gadid,infirmier de 3° classe, 1er échelon, du cadre territorial du Service de Santé, en sérvice à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour attitude incorrecte réitérée à l’égard de son infirmier-major.

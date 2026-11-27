@@ -1,1 +1,0 @@
-six ascaris ont été nommés dans la police urbaine, en remplacement d’agents démissionnaires pour raison de santé ; la démission de l’ascari Mohamed Nour a été acceptée ; une suspension de solde de 4 jours a été infligée, pour négligence dans le service, aux ascaris Darar Aouallé et Mohamed Dilalé,

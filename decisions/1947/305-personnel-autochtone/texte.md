@@ -1,1 +1,0 @@
-Le nommé Abdi Dembil, radio, du service de la station côtière, détaché à la disposition du cercle de Dikhil par décision n° 468 du 10 juin 1943 est remis à la disposition de son service à compter du 16 mars 1947.

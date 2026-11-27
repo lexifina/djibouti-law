@@ -1,2 +1,0 @@
-M. Honoré Barrin, attaché de 2e classe, 4 échelon du corps autonome de la France d’Outre-Mer, est nommé à titre intérimaire et pour compter du 1er mai 1967, Commandant de Cercle d’Ali-Sabieh et Président du Tribunal du deuxième degré dans le ressort dudit Cercle, en remplacement de M. Jean Bergeron, administrateur en chef des Affaires d’Outre-Mer titulaire d’un congé à passer en métropole.
-M. Honoré Barrin prêtera par écrit le serment exig épar le décret du 4 juin 1938 susvisé.

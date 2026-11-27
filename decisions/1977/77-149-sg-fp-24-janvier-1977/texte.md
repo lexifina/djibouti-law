@@ -1,1 +1,0 @@
-M. Mohamed Ali Chirdon, technicien principal 2e échelon du cadre territorial des Travaux Publics et du Port, en service à la Régie des Eaux, est mis à la disposition du ministre de l’Economie Rurale pour servir au Génie Rural pour compter du 1er janvier 1977.

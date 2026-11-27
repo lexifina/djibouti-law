@@ -1,1 +1,0 @@
-M. Deruytter Robert est autorisé à exploiter la licence de 1er classe dont il est titulaire, dans un local sis : 6, rue de Paris, actuellement occupé par un Bureau de Tabac, et à y ouvrir un Bar-Restaurant.

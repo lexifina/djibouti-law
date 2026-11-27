@@ -1,1 +1,0 @@
-rendué ëxécutoire par arrêté n° 628 du 27 avril 1965, la Commission PerManeñte de l’ASSemblée Terfritorialé à accordé à M. Mohamed Abdallah Ali, commerçant, la concession provisoire d’une parcelle de terrain d’une superficie de 103 m2 environ, sise à Djibouti, quartier 1, au prix de 100 francs le mètre ‘carré.

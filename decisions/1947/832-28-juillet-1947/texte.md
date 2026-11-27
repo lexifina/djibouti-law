@@ -1,1 +1,0 @@
-M. Soubielle, chef de bureau de classe exceptionnelle et M, Guiot, chef de bureau de 2e classe de l’administ ration générale des colonies, sont mis à li disposition de M, l’administrateur des colonies, chef du service du personnel, des finances et de la comptabilité, pour compter de la date de leur débarquement à Djibouti.

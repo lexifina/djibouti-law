@@ -1,1 +1,0 @@
-une retenue de huit jours de solde est infligée au patron Ali Roblé une retenue de six jours de solde est infligée aux canotiers Djibril Have, Kaïd Saïd, Hussen Moussa el au mécanicien Kader Hussen de la vedetle du gouvernement, pour manquement à leur service spécial.

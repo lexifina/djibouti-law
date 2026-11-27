@@ -1,1 +1,0 @@
-Le nommé ALI KAMIL, infirmier stagi aire. est licencié de ses fonctions pour comp ter du 1er Février 1943, pour insuffisance professionnelle. Le nommé ALI MOHAMED, dankali, est engagé pour compter de la même date, com me infirmier stagiaire en remplacement de ALI KAMIL.

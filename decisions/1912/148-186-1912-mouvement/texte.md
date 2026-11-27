@@ -1,1 +1,0 @@
-nommant une commission composée de : MM. Carreau, Administrateur de 3e classe des Colonies, Président ; Crémazy, Conseiller d’administration ; Bernard, Conseiller d’administration, en vue de procéder au rapprochement avec les écritures du Trésorier-payeur des résultats consignés dans le compte définitif de l’exercice 1911 au titre du Service Colonial.

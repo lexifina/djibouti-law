@@ -1,1 +1,0 @@
-Madame BOUST Thérèse, employée auxiliaire en qualité de lingère a l’Hôpital Colonial, est licenciée de son emploi pour compter du jour de l’expiration de la permission d’absence qui lui a été accordée par décision n. 389 du 14 Mai 1943.

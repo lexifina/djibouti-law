@@ -1,1 +1,0 @@
-M. Jouve Jean-Marie, administrateur en chef de classe exceptionnelle des Affaires d’Outre-Mer, arrivé au Territoire le 9 janvier 1964, est chargé de mission auprès du Chef de Territoire pour compter de la même date.

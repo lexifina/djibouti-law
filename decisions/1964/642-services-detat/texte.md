@@ -1,2 +1,0 @@
-L’adjudant-chef d’Infanterie de Marine Klonowski (Félix), de la 4e compagnie de Milice, est désigné pour remplir les fonctions d’adjoint au Commandant de la 4 compagnie, de billeteur de cette unité et de chef de poste administratif de Damerdjog pour compter du 15 mai 1964 én remplacement de l’adjudant-chef Lefort (Louis), rapatriable pour fin de séjour.
-L’adjudant-chef Lefort (Louis). reste à la disposition de la Milice de la C.F.S. jusqu’à son embarquement.

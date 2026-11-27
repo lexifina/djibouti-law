@@ -1,2 +1,0 @@
-M. Audibert, inspecteur spécial de police, est nommé, cumulativement avec ses fonctions d’agent du service d’hygiène et de vérificateur des poids et mesures, régisseur de la Caisse des menues recettes et menues dépenses de la colonie, en remplacement de M.
-Charbonnel, appelé à d’autres fonctions, M. Charbonnel, agent auxiliaire, est main tenu à la disposition du commandant de cercle pour être employé au contrôle de la vente de légumes.

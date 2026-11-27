@@ -1,1 +1,0 @@
-rendu exécutoire par arrêté n° 1299 du 7 septembre 1964 Commission permanente de l’Assemblée Territoriale a accordé à Mme Fatma Roblé Gouled la concession provisoire d’une parcelle de terrain d’une superficie de mille trois cent-cinquante mètres carrés environ, sise à Ambouli (lot n° 8), au prix de cent francs le-mètre carré.

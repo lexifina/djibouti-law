@@ -1,1 +1,0 @@
-la solde annuelle de M. Enouf, dit Duval, agent technique du service des eaux de Pondichérvy, en service hors cadres à la Côte française des Somalis, est portée de 4560 à o.uc0 francs, pour compter du 1er janvier 1926.

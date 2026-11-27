@@ -1,1 +1,0 @@
-M. Fontanel (Ernest), mécaricien principal avant 2 ans, du 1° » janvier 1929, qui réunit les conditions d’ancienneté et de séjour colonial exigées par l’article 6, paragraphe B, de l’arrêté du 26 avril 1928, passe automatiquement à l’échelon après 2 ans, à compter du 1° janvier 1931.

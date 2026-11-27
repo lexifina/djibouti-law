@@ -1,4 +1,0 @@
-Une allocation viagère de reversion s’élevant à la somme de 24.000 francs l’an est accordée à Mme Kadidja Wais Omar, veuve du caporal milicien Houssein Roble, mle 1639, échelon + 4, dont le décès survenu à l’Hôpital Peltier le 4 octobre 1960, est imputable au service — soit 15 ans et 22 jours de services effectifs dans la Milice.
-Les droits à solde, vivres de l’intéressé jusqu’au 4 octobre 1960 seront liquidés par les soins de l’Agent Spécial de la 1er Compagnie de la Milice à Dikhil.
-Le Caporal Hoüssein Roble, mle 1639, sera rayé des Contrôles de la Milice pour compter du 5 octobre 1960.
-La dépense visée au paragraphe premier ci-dessus sera payée trimestriellement, pour compter du 5 octobre 1960 et à terme échu sur présentation d’un certificat de vie délivré par les autorités compétentes.

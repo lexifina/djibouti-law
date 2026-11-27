@@ -1,1 +1,0 @@
-le taux du thaler prévu par l’arrèté du 25 octobre 1920 est fixé pour le mois de décembre 1920, à 9,31 2,50 cours normal) soil 6,814, Pour la méme période les indemmités accessoires correspondant a des dépenses effectuées sur place fixées par les arrétés des 7 décembre 1920 art 1 § B et art2, 1 septembre 1921 et 31 mars 1923, seront décomptées sur le taux de 9.31.

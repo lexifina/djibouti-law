@@ -1,1 +1,0 @@
-M. Didier « François) Adjudant chef au 73° Bataillon de Tirailleur Sénégalais a été nommé juge au Conseil de guerre de la Cote Française des Somalis, pour compter du 25 février 1917 et pour une période de 6 mois en remplacement de l’Adjudant Chef Préhac nommé Greffier.

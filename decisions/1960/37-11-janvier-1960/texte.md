@@ -1,1 +1,0 @@
-A compter du ler janvier 1960, il est créé une prime dite d’isolement et de risque, dont le taux est fixé à 1.800 F. D. par mois (soit 41,40 NF) pour l’ensemble du personnel de recrutement local, Miliciens et Guides, uniformément, sans distinction de grade ou d’ancienneté.

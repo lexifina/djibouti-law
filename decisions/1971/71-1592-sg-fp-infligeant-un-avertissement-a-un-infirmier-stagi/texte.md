@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Mohamed Abdou Farada, infirmier stagiaire en service à l’hôpital Peltier, provisoirement détaché au Dispénsaire d’Obock, pour absence injustifiée et non motivée le 8 octobre 1971.

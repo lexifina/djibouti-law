@@ -1,1 +1,0 @@
-MOHAMED DIRIE, planton stagiaire en service au Gouvernement (Bureau du Chiffre) aura droit pour compter du 1er Août 1943 à l’indemnité mensuelle de permanence fixée par la décision n. 564 du 17 Novembre 1942.

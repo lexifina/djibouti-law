@@ -1,1 +1,0 @@
-M. Copo. payeur de 3e classe des trésoreries coloniales, est nommé caissier du Trésor, en remplacement de M. Le Prévost, commis de 1re classe des trésoreries coloniales rapatrié, pour compter du 15 octobre 1934.

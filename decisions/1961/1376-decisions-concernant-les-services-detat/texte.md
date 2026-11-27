@@ -1,1 +1,0 @@
-Art, 1, — M. Devigne Georges, administrateur-en chef de classe exceptionnelle des Affaires d’outre-mer, en service au ministère d’État, chargé du Sahara, des départements d’outre-mer et territoires d’outre-mer, est nommé délégué administratif permanent de la Côte française des Somalis à Paris.

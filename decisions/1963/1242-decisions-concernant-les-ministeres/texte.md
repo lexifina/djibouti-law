@@ -1,1 +1,0 @@
-M. Houssein Ali Chirdon, expéditionnaire d’Administration de 1er classe, 3e échelon du Cadre Territorial de l’Administration Générale, en service au Trésor, est déféré devant le Conseil de Discipline, pour complicité du délit de diffamation à l’égard du Ministre des Finances.

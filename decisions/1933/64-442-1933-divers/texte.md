@@ -1,2 +1,0 @@
-23 septembre 1933. le commandant de la milice indigène a été autorisé à recruter deux auxiliaires indigènes qui seront affectés au peloton méhariste en qualité de guides, d’agents de renseignements et de courriers,
-Le salaire de ces agents, qui sera payé sur la caisse d’avances du peloton méhariste, a été fixé à 125 francs par mois pour chacun d’eux et est exclusif de toutes autres indemnités, auront, toutefois, droit à la nourriture dans les mêmes conditions que les gardes du peloton méhariste.

@@ -1,1 +1,0 @@
-M. Gravier (Elie), inspecteur principal hors classe de l’Enseignement primaire, chef du Service de l’Enseignement de la Côte Française des Somalis, est chargé provisoirement et cumulativement avec ses fonctions actueDes de la Direction du Groupe scolaire de Djibouti, à compter du 1er octobre 1951.

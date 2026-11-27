@@ -1,2 +1,0 @@
-pour le mois d’août 1923, le cours moven du thaler en juillet ayant été de 8,53 le taux du thaler prévu à l’arrêté du 25 octobre 1920, est fixé par application de l’arrêté du 11 mars 1922 à 5 frs — 2,50 (cours normal) Soit 2,50.
-En ce qui concerne les indemmnités accessoires correspondant à des dépenses effectuées sur place, fixées par arrêté du 1er décembre 1920 (art. 1er §§ a et b et art, 2) et l’arrêté du 7 septembre 1921, elles seronts décomptées sur le taux de 5 francs.

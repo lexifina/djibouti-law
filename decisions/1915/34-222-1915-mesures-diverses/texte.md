@@ -1,1 +1,0 @@
-les nommés Bourale Gouled et Roblé Gouled, anciens Okhals Wardiek ont été réintégrés! dans leurs fonctions avec droit, en cette qualité, à une solde mensuelle de 60 francs à compter du 1er Avril 1915.

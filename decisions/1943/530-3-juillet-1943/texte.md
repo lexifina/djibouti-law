@@ -1,1 +1,0 @@
-M. TROBAS, Adjoint de 2mc classe des Servies Civils, en service en Côte Française des Somalis, qui n’a pas rejoint son poste à l’expiration du congé de convalescence dont il était titulaire, est suspendu de ses fonctions pour compter du 8 juin 1943. Cette suspension de fonctions comporte la privation de tout traitement.

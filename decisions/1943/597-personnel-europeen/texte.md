@@ -1,1 +1,0 @@
-Une permission de six jours à solde entière est accordée à Mademoiselle PONTACQ An drée. employée auxiliaire de l’Administration, pour en jouir en Éthiopie. A l’expiration de cette période, Mlle PONTACQ est autorisée à prolonger son séjour sans le bénéfice de sa solde pendant toute la durée de la permission d’absence accordée à son père.

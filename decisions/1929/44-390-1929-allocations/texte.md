@@ -1,1 +1,0 @@
-les nommés : Hassan Farahade (Fourlaba), Egui Guérenne (Cromina), Dirané Moussa (Harla) et Oualahen Ouiti (Dibeneh), okals de la subdivision de Dikkil, percevront par dérogation exceptionnelle à l’arrêté du 31 août 1921, à partir du 1er avril 1929 et jusqu à nouvel ordre, la ration en vivres dans les conditions prévues par l’arrêté du 18 février 1921.

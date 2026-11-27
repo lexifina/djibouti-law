@@ -1,1 +1,0 @@
-il est alloué, à compter du 1er juin 1908, aux gérants des bureaux postaux de Diré Daoua et de Harrar une remise de 5 0/0 sur le produit de la vente des figurines postales de la Côte des Somalis eflectuée par eux.

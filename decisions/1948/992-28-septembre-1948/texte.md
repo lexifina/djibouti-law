@@ -1,1 +1,0 @@
-Une permission d’absence de vingt et un jours, à solde entière pour en jouir à Aden, est accordée à Aboubaker Mohamed Ahmed commis administratif auxiliaire (8e échelon), en service au Bureau des Finances, pour compter du 8 octobre 1948

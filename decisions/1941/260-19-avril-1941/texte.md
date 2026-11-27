@@ -1,1 +1,0 @@
-Il est alloué à M. Brossy. commerçant à \li-Sabieh, une indemnité forfaitaire de 5.000 francs (cinq mille francs), pour occupation de son immeuble, sis à Ali-Sabieh, par les autorités administratives, du 11 octobre 1940 au 30 avril 1941

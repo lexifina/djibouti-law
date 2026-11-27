@@ -1,1 +1,0 @@
-Est constatée pour compter du 27 septembre 1960, date de son retour dans le Territoire la reprise par M. Muzotte, instituteur de 10° échelon du cadre métropolitain, de ses fonctions de Chef du Service de l’Enseignement par intérim.

@@ -1,2 +1,0 @@
-Le sous-brigadier de 1re classe des douanes Saïd ben Saïd ayant accompli au 1er février 1942. 31 ans et 6 mois de tous services dont 27 ans et 6 mois de services civils est licencié pour fin de service à compter du 1er février 1942.
-Il bénéficiera à compter du 1er février 1942 d’une allocation viagère de 2.000 francs l’an, payable dans les conditions tixées par l’arrê té du 6 octobre 1938 susvisé.

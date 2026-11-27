@@ -1,1 +1,0 @@
-et sur la proposition de M. le Commissaire de Police, le nommé Mohamed Ali. condamné à six mois de prison et ayant subi plus de la moitié de sa peine, obtient la remise pleine et entière du restant de sa peine, pour la conduite exemplaire dont il a fait preuve durant sa détention.

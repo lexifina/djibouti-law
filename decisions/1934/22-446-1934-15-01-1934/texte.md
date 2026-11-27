@@ -1,1 +1,0 @@
-M. Dufaud (Roger), vérificateur-adjoint des douanes après deux ans, qui réunit, à la date du 11 janvier 1934, les conditions d’ancienneté et de séjour colonial exigées par l’article 6, paragraphe B, de l’arreté susvisé du 26 avril 1928, passe automatiquement à l’échelon après qua re ans de son grade à compter du 11 janvier 1934.

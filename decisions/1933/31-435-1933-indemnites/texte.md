@@ -1,1 +1,0 @@
-M. Rossat, inspecteur principal de la garde indigène près quatre ans du 18 mars 1931, qui réunit les conditions l’ancienneté et de séjour colonial exigées par l’article 6, paragraphe C, de l’arrêté du 26 avril 1928 passe automatiquement à l’échelon après six ans, à compter du 18 mars 1933.

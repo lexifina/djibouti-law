@@ -1,1 +1,0 @@
-Est rapportée, pour compter du 1er janvier 1974, la décision n° 127/PCG du 17 août 1967, autorisant M. Lalitkumar Jarnadas Damani à exercer le commerce des boissons, licence de 8° classe,au n° 10 place du Marché à Djibouti.

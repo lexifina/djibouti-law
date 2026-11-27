@@ -1,2 +1,0 @@
-Les restes mortels de l’enfant Guihot Pascal (fils du Sergent-Chef Guihot Maurice actuellement en service à Madagascar), décédé en rade de Djibouti, le 4 juin 1960, actuellement au dépositoire de Djibouti, seront transférés au cimetière de Haïinneville (France).
-Les dépenses. occasionnées par ce transfert seront à la charge de l’Etat (Budget de l’Armée « Terre », Affaires d’Outre-Mer, chapitre 32-83 — Transport du Personnel et Déplacements).

@@ -1,1 +1,0 @@
-le pharmacien capitaine des troupes coloniales Bonnet (Pierre), en service hors cadres à la Côte française des Somails, sera rapatrié pour fin de séjour par le paque bot « Général-Voyron », attendu à Djibouti le 1er juillet 1930.

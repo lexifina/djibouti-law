@@ -1,1 +1,0 @@
-Le lieutenant Coullet (Paul), débarqué le 30 janvier 1938, est mis à la disposition du chef de bataillon commandant la milice indigène, et prend le commandement du 2e peloton méhariste à compter du jour de son débarquement.

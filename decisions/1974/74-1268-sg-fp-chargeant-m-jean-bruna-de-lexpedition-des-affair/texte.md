@@ -1,1 +1,0 @@
-M. Joseph de Ferrières de Sawvebœuf, volontaire de l’Aide technique est, pour compter du 12“juin 1974, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics, des Transports et du Tourisme, pour servir en qualité de géomètre au bureau d’études.

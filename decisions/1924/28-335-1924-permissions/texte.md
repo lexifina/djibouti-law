@@ -1,1 +1,0 @@
-une permission d’absence de deux mois, dont quinze jours à solde entière, quinze jours à demi-solde et trente jours sans solde, est accordée à l’agent indigène de 6e classe des douanes, Djama Gouled, à compter du 13 octobre 1924

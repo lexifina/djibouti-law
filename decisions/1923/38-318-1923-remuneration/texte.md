@@ -1,1 +1,0 @@
-7 mai 1923, une rémunération forfaitaire pour travaux supplémentaires est allouée aux agents Europecns el indiget ne charge s des relevés de la consommation électrique au tableau central de l’usine d’électricité,

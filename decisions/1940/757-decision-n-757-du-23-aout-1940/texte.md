@@ -1,2 +1,0 @@
-Un congé de convalescence de trois mois à passer dans les Etablissements français de l’Inde est accordé à M. Gnanadicom (Etienne), contrôleur principal avant 3 ans du cadre lo cal des P. T. T. chargé des fonctions de chef de la section du matériel du Service des finances.
-Ce fonctionnaire, classé à la 2e catégorie, qui voyage seul, prendra passage sur le cargoyougoslave Drara quittant Djibouti vers le 24 août 1940 à destination de Colombo où il transbordera pour se rendre à Pondichéry par voie ferrée.

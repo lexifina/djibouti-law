@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 105/8e L du 21 mars 1975 de la Commission permanente de la Chambre des du Territoire français des Afars et des Issas envoyant en métropole le Président de la Chambre des députés.;

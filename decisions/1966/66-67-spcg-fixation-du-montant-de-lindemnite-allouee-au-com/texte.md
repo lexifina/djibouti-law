@@ -1,1 +1,0 @@
-Nonobstant les dispositions dé l’article 1er de l’arrêté n° 62/59//SPCG susvisé, l’indemnité allouée à M. Dautais, commandant de Port, en sa qualité de Chef de la Station de Pilotage, est fixée, à titre personnel, à 7 %.

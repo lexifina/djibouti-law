@@ -1,1 +1,0 @@
-Le sergent Fauquet est nommé observateur de la station météorologique de Tadjoura en remplacement du caporal radio Simonnet, à compter du 1er janvier 1941. Il aura droit. à compter de cette date, à l’indemnité mensuelle de soixante-quinze francs.

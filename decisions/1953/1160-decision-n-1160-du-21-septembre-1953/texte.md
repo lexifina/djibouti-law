@@ -1,1 +1,0 @@
-L’adjudant-chef infirmier de la S.MIM.T.C. Revol (Léonce),est mis à la disposition du Directeur du Service de Santé pour servir en position hors cadres en qualité d’infirmier-chef de l’Hôpital Principal, à compter du 17 septembre 1953, date de son débarquement sur le Territoire.

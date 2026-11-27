@@ -1,1 +1,0 @@
-ont été nommés askaris de 2me classe de la police rurale pour compter du ler août: Ersi Elan, Fareh Ali, Elmi Farah, et Faredge Ali en remplacement de Bokoni Ouarsama, Libah Gouled licenciés le 1er Août et Mabrouck Hussein licencié le 2 Juillet 1914.

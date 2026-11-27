@@ -1,1 +1,0 @@
-Le lieutenant Munch, du R. T. S. de la Côte française des Somalis, est placé dans la posi tion hors cadres et mis à la disposition du commandant de la milice indigène, pour compter du 1er octobre 1940, en remplacement du lieu tenant Fournier, rapatriable.

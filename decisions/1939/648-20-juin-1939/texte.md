@@ -1,2 +1,0 @@
-Un passage, en 2e classe, à destination de Marseille, est accordé à M. Nicolaï (Paul) .adjudant 4e échelon d’infanterie coloniale, hors cadres, qui prendra passage sur le paquebot Athos-IT, de la Compagnie des Messageries Maritimes. attendu le 11 juillet 1939,
-La dépense est imputable au budget local de la Côte francaise des Somalis (chapitre 14, de la Côte francaise des Somalis (chapitre 14, article 1er, paragraphe 1er).

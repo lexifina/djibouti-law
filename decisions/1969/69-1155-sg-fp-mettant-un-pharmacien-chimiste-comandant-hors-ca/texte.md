@@ -1,2 +1,0 @@
-M. Claude Vest, pharmacien-chimiste, commandant en position hors cadre des armées (indice nouveau 465) est mis à la
-disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 19 juin 1969, date de son arrivée au Territoire, pour servir en qualité de pharmacien gestionnaire de la Pharmacie d’approvisionnement, de pharmacien-chef de l’Hospital Peltier, et d’inspecteur des pharmaciens, en remplacement numérique du pharmacien-chimiste-commandant Durant rapatriable.

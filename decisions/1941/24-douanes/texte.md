@@ -1,1 +1,0 @@
-M. Dufaut (Roger), vérificateur avant 2 an-, du cadre local des douanes qui remplit la double condit ion d’ancienneté et de séjour, est promu, pour compter du 1er janvier 1911. vérificateur après 2 ans.

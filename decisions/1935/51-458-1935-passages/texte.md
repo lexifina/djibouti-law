@@ -1,1 +1,0 @@
-11 janvier 1935, un passage en 3 classe, à destination de Marseille, est accordé an servent de ]a section des militaires radiotélégrphistes coloniaux Cox M: So en pets à hors cadres à ln Côte française des Nomalts.

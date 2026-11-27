@@ -1,2 +1,0 @@
-Le rapatriement sur Saïgon, aux frais du Budget Local, est accordé, à titre de secours exceptionnel, à Mme Abdi Hayad, accompagnée de ses filles Nouria, née le 25 février 1950 à Saïgon, et Saadia, née le 6 août 1955 à Djibouti.
-Des réquisitions de passage Djibouti – Saïgon par voie maritime, en 3e classe, seront délivrées aux intéressées. La dépense est imputable au Budget Local (chapitre 26, article 3, paragraphe 3, secours exceptionnels).

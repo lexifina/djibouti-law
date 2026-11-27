@@ -1,2 +1,0 @@
-Le gendarme Poitevineau (Sylvain), arrivé en Côte Française des Somalis le 26 septembre 1952, est affecté à la Compagnie de gardes-cercle de Djibouti pour compter, du 30 septembre 1952, date à laquelle il a commencé son service à cette unité.
-Le gendarme Poitevineau (Sylvain) est nommé billeteur de la Compagnie de gardes-cercle pour compter du 1er octobre 1952 en remplacement du gendarmé Duffourg (Paul), en instance de départ en congé.

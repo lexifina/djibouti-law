@@ -1,2 +1,0 @@
-Une subvention complémentaire de quinze mille francs (15.000 fr.) est accordée à l’Office des Anciens Combattants et Victimes de guerre de la Côte Française des Somalis pour lui permettre de couvrir les frais occasionnés par l’inauguration de la « Maison du Combattant ».
-Cette dépense, imputable à la Section XVII, chapitre XXXV, article 1er, § 1, du Budget local de fonctionnement, pour l’exercice 1953, sera mandatée au nom du Trésorier de l’Office.

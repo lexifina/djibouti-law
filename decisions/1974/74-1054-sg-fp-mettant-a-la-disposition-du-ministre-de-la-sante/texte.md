@@ -1,1 +1,0 @@
-M. Huet Lucien, adjudant-chef infirmier, en position «Cadre hors budget des armées » est, pour compter du 21 mai 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique pour servir à la pharmacie d’approvisionnement de l’Hôpital Peltier, en remplacement numérique de l’adjudant Ferreri Ange, rapatrié pour fin de séjour.

@@ -1,2 +1,0 @@
-Mme Rabary (Odile), ex-secrétaire dactylographe auxiliaire, est réengagée, pour compter du 1er août 1960, en la même qualité et mise à la disposition du Ministre de la Fonction Publique, pour servir au Bureau du Personnel Territorial, en remplacement numérique de Mme Ramin Louise, mutée au Service des Travaux Publics.
-Mme Rabary (Odile) est classée à la 2e catégorie, échelle X, 2e échelon, indice local 835, et conservera dans cet échelon une ancienneté de 7 mois.

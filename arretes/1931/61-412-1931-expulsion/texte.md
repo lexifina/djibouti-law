@@ -1,1 +1,0 @@
-les nommés Leppik (Auvuste), Alevik (Alfred), Perler (Alexander), Nukk (Michaël), sujets esthoniens, sont expulsés de la Côte française des Somalis et devrent quitter le territoire de la colonie (qui leur reste interdit), ainsi que celui de ses dépendances.

@@ -1,1 +1,0 @@
-Sont promus, pour compter du 1er janvier 1953, dans le Cadre est nommé, pour compter du 1er mars 1953, Régisseur de la Caisse d’avance créée par arrêté susvisé du 19 novembre 1952 pour le paiement des dépenses d’approvisionnement en viande fraiche des ouvriers du chantier de la route d’Ethiopie.

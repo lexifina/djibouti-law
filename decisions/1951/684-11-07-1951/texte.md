@@ -1,2 +1,0 @@
-Un- congé administratif de neuf mois, pour en jouir dans la Métropole, est accordé à M. Batmalle (Sylvain), préposé des Douanes de 3e classe, qui aura accompli le 30 juillet 1951 un séjour de trois ans dans le Territoire.
-Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie de terre Marseile-Saint-Paul, par Saint-Laurent-de-Neste (Var), seront délivrées à l’intéresse qui appartient au groupe IV.

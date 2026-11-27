@@ -1,1 +1,0 @@
-M. Lamarque, médecin de 2e classe en position « hors cadres », est, pour compter du 7 septembre 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir en qualité de médecin-chef du cercle de Dikhil, en remplacement du médecin de 2e class Menez rapatriables.

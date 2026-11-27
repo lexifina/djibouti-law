@@ -1,1 +1,0 @@
-Le salaire mensuel du menuisier Ali Mohamed en service au cercle de Tadjourah est fixé à mille huit cents francs (1.800 francs) pour compter du 1er octobre 1945, exclusif de toute indemnité de quelque nature que ce soit.

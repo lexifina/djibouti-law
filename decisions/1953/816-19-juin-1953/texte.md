@@ -1,1 +1,0 @@
-M. Guerlais (Jean), chiffreur de 1 classe du cadre général du Chiffre d’Outre-Mer, est affecté au Bureau du chiffre du Cabinet du Gouverneur, en remplacement de M. André, titulaire d’un congé administratif.

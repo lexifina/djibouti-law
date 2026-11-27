@@ -1,2 +1,0 @@
-pour le mois d’août 1922 le cours moyens du thaler en juillet ayant été de 6,35, et laux moyens prévu à l’arrêté de 25 octobre 1920 est fixé par application de l’arrèté du 11 mars 1922 à 5 frs 00 — 2 frs 50 cours normal) soit 2,50.
-En ce qui concerne les indemnités correspondant à des dépenses effectuées sur place fixées par arrêté du 1 décembre 1920 (art, 1er KA. B, art. 2) et l’arrêté du 7 septembre 1921, elles seront décomptées sur le taux de 5 frs.

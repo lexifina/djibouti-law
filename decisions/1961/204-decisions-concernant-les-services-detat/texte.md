@@ -1,1 +1,0 @@
-Est reclassé pour compter du 1er juillet 1960 à l’échelle VIII, ie échelon, indice local 655 (3° catégorie), M. Mohamed Daoud, dactylographe auxiliaire en service au Ministère des Affaires intérieures (Cercle de Tadjourah).

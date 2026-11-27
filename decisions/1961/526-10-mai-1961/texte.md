@@ -1,2 +1,0 @@
-M. Van Sevenandt (Guy), ouvrier spécialisé auxiliaire en service au Ministère de la Santé Publique et des Affaires Sociales (Hôpital Peltier) percevra un salaire forfaitaire mensuel de 60.000 francs Djibouti pour compter du 1e janvier 1961.
-Mme Buisson (Simone), infirmière auxiliaire en service au Mnistère de la Santé Publique et des Affaires Sociales (Hôpital Peltier) percevra, pour compter du ler janvier 1961, un salaire forfaitaire mensuel de 50.000 francs Djibouti.

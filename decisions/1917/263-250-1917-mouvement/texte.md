@@ -1,1 +1,0 @@
-et pour compter du 1er dudit Madame Parés a été nommée dactylographe auxiliaire au Secrétariat du Gouvernement et touchera en cette qualité un traitement mensuel de 190 frs. et l’indemnité de cherté de vivres de 1.50 par jour attribuée aux agents auxiliaires.

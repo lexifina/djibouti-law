@@ -1,3 +1,0 @@
-La décision n° 629 du 30 mai 1960 est et demeure rapportée.
-Une allocation viagère de reversion s’élevant à la somme de vingt quatre mille (24.000 francs l’an est accordée à Mme Kadidja Mire, veuve du Caporal Milicien Ahmed Dama Ouarfa, matricule n° 1820, échelon + 4 comptant 13 ans, 2 mois et 16 jours de services effectifs dans la Milice, dont le décès survenu à l’Hôpital Peltier le 23 mars 1960, est imputable au service.
-Les sommes perçues par celle-ci au titre de secours unique et de l’indemnité égale à la moitié du pécule se montant au total à 37.759 francs en exécution de la décision n° 629 du 30 mai 1960

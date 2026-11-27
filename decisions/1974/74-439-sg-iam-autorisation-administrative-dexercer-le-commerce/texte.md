@@ -1,1 +1,0 @@
-Est rapportée, pour compter du 1° février 1974, la décision n° 69-1236/SG/AI autorisant M”*° Jean Zouain à exercer le commerce des boissons, licence de 1° classe, au Bar-Restaurant «Aux sans soucis> à Ambouli (près du service des Eaux et du côté du Club Hippique).

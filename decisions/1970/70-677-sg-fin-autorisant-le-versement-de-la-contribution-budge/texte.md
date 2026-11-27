@@ -1,1 +1,0 @@
-Est autorisé le versement au Centre d’hébergement du diocèse de Djibouti (pouponnière) de la somme de deux millions (2.000.000) de francs Djibouti, au titre de contribution forfaitaire ,du Territoire aux frais de fonctionnement de ce centre, pour l’année 1970.

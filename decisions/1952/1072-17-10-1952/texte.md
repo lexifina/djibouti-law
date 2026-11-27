@@ -1,1 +1,0 @@
-Mme Capellazzi (Paulette) est engagée pour compter du 8 octobre 1952 en qualité de dame-employée auxiliaire 2e catégorie et affectée au Service de l’Information en remplacement de Mme Poitevineau qui reprend ses fonctions au Cercle de Djibouti.

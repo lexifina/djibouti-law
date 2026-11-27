@@ -1,1 +1,0 @@
-13 décembre 1932, une indemnité exceptionnelle de 200 francs est accordée à Mme Bonifacio. interprète ati dispenstire féminin, pour supplément de travail, pendant la permission de la sœur infirmière de l’hôpital.

@@ -1,1 +1,0 @@
-et sur la proposition du Secrétaire Général, l’indemnité allouée à M. Coadou, chef d’équipage de la Compagnie des Messageries maritimes pour l’entretien et l’allumage de la bouée noire n°1, qui indique l’entrée du mouillage des navires, est portée de 25 à 30 fr.

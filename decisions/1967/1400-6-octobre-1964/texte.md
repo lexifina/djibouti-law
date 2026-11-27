@@ -1,1 +1,0 @@
-L’adjudant-chef Le Mouel (Marcel), du Cadre des Infirmiers militaires des Troupes de Marine, embarqué le 30 août 1964 à destination de Djibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 31 août 1964, date de son arrivée dans le Territoire, en remplacement numérique de l’adjurant Hay rapatriable.

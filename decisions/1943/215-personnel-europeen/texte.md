@@ -1,1 +1,0 @@
-M. DELCRC S, Ingénieur de 2ème classe des Travaux Publics des Colonies, est chargé pendant l’absence de M. VERDUN d’assurer la direction du Service des Travaux Publics. La présente décision prendra effet du 8 Mars 1943, date de départ en mission de M. VERDUN.

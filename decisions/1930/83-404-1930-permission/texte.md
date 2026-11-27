@@ -1,1 +1,0 @@
-une permission de détente et d’absence pendant la période des vacances scolaires, du 1er août au 15 septembre 1930, est accordée à M. Pétrement, directenr de l’école publique, pour en jouir en Abyssinie.

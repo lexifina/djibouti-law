@@ -1,2 +1,0 @@
-19 avril 1924 la somme de qauatre cent vingttrois francs Soixenmte utimes (423 fr. 60), montant de droits d’enregistrement à un marché administratif du 30 janvier 1933, en tropperçus, par suite d’événements postérieurs à la perception. sera remboursée à M. Mahmoud Ahmed Farah, commercant à Djibouti.
-Le remboursement de cette somme sera imiputé sur les erédits du chanitre 14, article 4, paragraphe 11, exercice 1933.

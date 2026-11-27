@@ -1,1 +1,0 @@
-Un congé à solde entière d’une durée de trois (3) mois est accordé à l’infirmière auxiliaire 8° échelon Aouarala Djama, en service à l’Hôpital Principal de Djibouti, pour compter du 1er décembre 1952.

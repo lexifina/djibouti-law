@@ -1,1 +1,0 @@
-M. Vincens, lieutenant de réserve, classe de mobilisation 1923, directeur de 1a Banque de l’indochine, est placé en appel différé, pour une nouvelle période de quinze jours, pour compter du 17 septembre 1939.

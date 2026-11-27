@@ -1,1 +1,0 @@
-Sont pris en charge par le budget du Territoire les frais d’évacuation, de traitement et de séjour de M. Mohamed Othman Youssouf, membre de la Chambre des Députés. à l’hôpital civil thermal de Vichy (Allier).

@@ -1,1 +1,0 @@
-M. Lachal (Roger), administrateur en chef, 2e échelon, des Affaires d’outre-mer, arrivé au Terirtoire le 3 octobre 1966, est, pour compter de cette même date, nommé chargé de mission auprès du Chef du Territoire et plus spécialement chargé des questions économiques et financières

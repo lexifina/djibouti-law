@@ -1,1 +1,0 @@
-la commission de classement prévue à l’article 22 du décret du 6 août 1921 est chargée de formuler des propositions concernant les grades et classes à attribuer dans le nouveau cadre des trésoreries coloniales aux agents actuellement en fonctions à la trésorerie de Djibouti, se réunira sur la convocation de son Président.

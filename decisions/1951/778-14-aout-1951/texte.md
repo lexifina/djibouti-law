@@ -1,2 +1,0 @@
-Le capitaine d’administration Collange (Jean), débarqué en Côte Française des Somalis le 24 juillet 1951, en position hors, cadres, est nommé Gestionnaire de l’Hopital Principal de la C.F.S. à Djibouti, pour compter du 10 août 1951, en remplacement du Lieutenant d’administration Bardinon (Ludovic), rapatriable pour fin de séjour.
-Cet officier aura droit aux indemnités réglementaires afférentes à ses fonctions.

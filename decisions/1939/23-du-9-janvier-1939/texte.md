@@ -1,2 +1,0 @@
-M. Poisson, Administrateur adjoint de 1er classe des Colonies, chef du bureau des Affaires Economiques est nommé membre du Comité Central des Echanges Commerciaux en remplecement de M. L’Administrateur Lucas, appelé à d’autres fonctions.
-M. Verdun, ingénieur principal, chef du service des travaux publics est nommé membre du comité central des échanges commerciaux en remplecement de M. l’ingénieur Pla.

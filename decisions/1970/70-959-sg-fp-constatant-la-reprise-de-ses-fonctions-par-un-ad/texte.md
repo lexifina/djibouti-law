@@ -1,1 +1,0 @@
-Est constatée, pour compter du 9 août 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Jean-Louis Rouvin, administrateur en chef de classe exceptionnelle des Affaires d’outre-mer, secrétaire général du Gouvernement.

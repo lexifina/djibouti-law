@@ -1,3 +1,0 @@
-Est constaté, pour compter du 2 juillet 1964 date de son retour au Territoire, la reprise de ses fonctions de Commandant de Cercle de Tadjourah et de Président du Tribunal du 2° degré dans le ressort dudit Cercle, par M. Zebrowski Jean, administrateur en chef de 2° échelon des Affaires d’outre-mer.
-Pour compter du 6 juillet 1964, M. Zebrowsky Jean est nommé, cumulativement avec ses fonctions et à titre intérimaire, Commandant de Cercle d’’Obock et Président du Tribunal du 2° degré dans le ressort dudit Cercle, pendant l’absence de
-M. Allard Jean, attaché d’Administration centrale de 2° classe, 7° échelon, bénéficiaire d’un congé administratif à passer en Métropole.

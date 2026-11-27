@@ -1,1 +1,0 @@
-M. Rakotoarijaona (Harry), comptable contractuel, de retour de congé, est remis à la disposition du Chef du Service des Postes et Télécommunications, pour compter du 14 juin 1953, date de son arrivée à Djibouti.

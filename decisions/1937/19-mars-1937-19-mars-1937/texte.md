@@ -1,1 +1,0 @@
-M. Lapayre, ingénieur météo rologiste. de retour de congé, reprend les fonc tions de chef de service de la station météo rologique dont il est titulaire, à compter du 15 mars 1937, jour de son débarquement dans la colonie.

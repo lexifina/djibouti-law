@@ -1,1 +1,0 @@
-M. Dubet (Francois), contrôleur de 1er classe des douanes, service armé, ciasse de mobilisation 191, est placé en appel différé, dans son emploi actuel, pour une durée de huit jours, pour compter du 23 septembre 1939.

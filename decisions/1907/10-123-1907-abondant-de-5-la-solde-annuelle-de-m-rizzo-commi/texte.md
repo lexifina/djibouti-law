@@ -1,1 +1,0 @@
-la solde annuelle de M. Rizzo lixée par décision du 16 mai 1906 à 4.500 fr. sera abondée de 5 conformément aux dispositions de l’article 12 5 du décret du 17 janvier 1905. I! sera opéré sur la solde de M. Rizzo les retenues prescrites par le décret précité.

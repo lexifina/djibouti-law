@@ -1,1 +1,0 @@
-Le nomme HOUMMAD MAHISSO, Dankali Aïssamalé, est engagé en qualité d’interprête auxiliaire et mis à la disposition du Commandant de la Circonscription d’OBOCK. au salaire mensuel de 400 francs par mois en remplacement du nommé DARAR BOUH dit MIGUIL DEMBIL dit « ALI SABIEH » relevé pour inaptitude à l’emploi.

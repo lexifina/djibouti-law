@@ -1,2 +1,0 @@
-pour le mois de septembre 1922 le cours moyen du thaler en août avant été de 6,47, le taux moyen prévu à l’arrêté da 25 octobre 1920 est fixé par application de l’arrêté du 11 mars 1929 à 5 frs 00 — 2 frs 50 (cours normal) soit 2,50,
-En ce qui concerne les indemnités correspondant à des dépenses effectuées sur place lixées par arrêté du 1° décembre 1920 (art, 1er ss A. B, art, 2 et l’arrêté du 7 septembre 1921, elles seront décomptées sur le taux de 5 frs.

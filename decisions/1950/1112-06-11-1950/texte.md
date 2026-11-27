@@ -1,1 +1,0 @@
-Est, titularisé dans ses fonctions de moniteur, 10e échelon, du cadre local des moniteurs de l’enseignement, pour compter du 1er octobre 1950, le nommé Ali Xaref, en service au groupe scolaire de Djibouti.

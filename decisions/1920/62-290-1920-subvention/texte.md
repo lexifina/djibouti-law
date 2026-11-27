@@ -1,1 +1,0 @@
-une subvention de 4.500 étés prélevéesur la provision inscrite au budget de l’exercice 1920, chapitre 10, art. 4, § 1 sùça maudatée au nom du Trésorier du comité de l’Alliance Française, à charge par lui de justifications ultérieures.

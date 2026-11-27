@@ -1,1 +1,0 @@
-Une prolongation de séjour de six mois pour compter du 21 décembre 1960 est accordée à M. Braneyre Jean-Pierre, ingénieur principal de 1° classe du Cadre autonome des Travaux publics, Directeur d’« Electricité de Djibouti ».

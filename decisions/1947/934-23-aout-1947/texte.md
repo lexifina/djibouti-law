@@ -1,1 +1,0 @@
-Pendant l’absence de M. Lefebvre (René), administrateur des colonies, commandant du cercle de Djibouti, M. Liurette (Georges), administrateur des colonies, chef du cabinet civil. assurera les fonctions de commandant de cercle.

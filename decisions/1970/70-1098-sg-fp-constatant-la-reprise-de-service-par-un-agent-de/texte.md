@@ -1,1 +1,0 @@
-Est constatée, pour compter du 4 septembre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service des Contributions (Ministère des Finances et du Plan), par M. Raymond Sandjivy, agent de constatation, 3e échelon, des Impôts.

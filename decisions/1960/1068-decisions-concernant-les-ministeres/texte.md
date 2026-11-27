@@ -1,1 +1,0 @@
-Est constatée pour compter du 23 septembre 1960, date de son retour dans le Territoire la reprise par M. Duc (Raymond), Conseiller aux Affaires Administratives de 2e classe, 7e échelon, de ses fonctions de Conseiller technique à la Vice-Présidence du Conseil de Gouvernement et de Chef de Cabinet du Vice-Président, Ministre des Travaux Publics et du Port.

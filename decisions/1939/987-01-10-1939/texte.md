@@ -1,1 +1,0 @@
-M. Plattier (Jeun-Baptiste), contrôleur adjoint des P. T. T., service armé, classe de mobilisation 1917, est classé dans l’affectation spéciale dans son emploi actuel pour une durée de trois mois à compter de la date de la présente décision.

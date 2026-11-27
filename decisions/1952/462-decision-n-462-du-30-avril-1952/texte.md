@@ -1,1 +1,0 @@
-Le sergent infirmier des troupes coloniales Michel (François), fi précédemment en service à l’Hôpital Principal de Djibouti, est affecté à Ali-Sabiet en qualité d’infirmier chargé du Dispensaire, en remplacement du sergent-chef infirmier Dipp (Gabriel), rapatriable. La présente décision aura effet pour compter du 5 mai 1952.

@@ -1,1 +1,0 @@
-Le Chef de poste de Gendarmerie de Loyada, chargé d’effectuér les vaccinations imposées par lés règlements aux étrangèrs pénétrant en Côte Française des Somalis par ce poste frontière, percevràa une indémnité de six millé francs (6.000 FD) par mois.

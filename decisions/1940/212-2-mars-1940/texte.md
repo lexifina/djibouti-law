@@ -1,1 +1,0 @@
-M. Ropagnol fulien), magistrat, service armé, classe de mobilisation 1927, lieutenant de réserve, est classé dans l’affectation spéciale dans son emploi actuel, pour une nouvelle période de trois mois à compter du 4 mars 1940.

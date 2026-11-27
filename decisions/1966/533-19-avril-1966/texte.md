@@ -1,1 +1,0 @@
-L’adjudant-chef Gaudion: (Pierre) est nommé chef du Service administratif, comptable-billèteur et régisseur de la Caisse d’avance de la Garde Territoriale pour compter du lé mai 1966, en rémplacement de l’adjudant-chef Benattou (Mohamed), en instance de rapatriement.

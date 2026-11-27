@@ -1,1 +1,0 @@
-M. Dhouret (Savary, Ambroise), greffier principal 2° échelon du cadre supérieur de la Côte Française des Somalis, dont le séjour administratif est arrivé à expiration le 22 février 1960, est autorisé à prolonger son séjour d’un an pour compter de la date précitée.

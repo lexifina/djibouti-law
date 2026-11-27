@@ -1,1 +1,0 @@
-Les Anciens Comptoirs Riès sont autorisés à acquérir une parcelle. de terrain bâti, sis à Djibouti, plateau du Serpent, boulevard Franchet-d’Espérey, d’une superficie de 1.293 mètres carrés environ, faisant partie du titre foncier n° 109 immatriculé au nom du Crédit Foncier et Immobilier.

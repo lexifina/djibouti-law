@@ -1,1 +1,0 @@
-Le maréchal des logis chef de réserve La fitte, du groupement d’artillerie coloniale, est mis à la disposition du chef du Service des finances pour compter du 1er novembre 1941. Il percevra en cette qualité une gratification mensuelle de 600 francs.

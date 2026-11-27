@@ -1,1 +1,0 @@
-Est reclassé 5 échelon. pour compter du 1er octobre 1947, au titre rappel pour services militaire, le nommé Mohamed Djama, planton 4e échelon. L’intéressé conserve une ancienneté de 3 mois dans son nouvel échelon.

@@ -1,1 +1,0 @@
-M. Jean-Baptiste Bertolani, sergent-chef en position cadre hors budget des Armées (indice nouveau 218) est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’Hôpital Peltier, en remplacement numérique de l’adjudant Naessens, rapatrié.

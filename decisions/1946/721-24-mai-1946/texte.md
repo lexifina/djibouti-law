@@ -1,1 +1,0 @@
-A l’issue du congé de convalese nee dont il est titulaire, M. Stéfani, contrôleur principal du cadre des P. T. T. de Madagascar, en ser vice détaché en Côte francaise des Somalis. sera remis à la disposition du gouverneur gé itérai d Madagascar.

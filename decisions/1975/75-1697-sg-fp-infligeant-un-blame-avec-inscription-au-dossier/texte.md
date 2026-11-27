@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est infligé à M. Hassan Farah Guelleh, agent de contrôle de ire classe, 2er échelon, du Cadre Territorial des Contributions, en service aux Contributions Indirectes (Ministère des Finances), pour refus d’obéissance manifeste.

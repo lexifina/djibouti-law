@@ -1,1 +1,0 @@
-l’indemnité de fonctions de 2.400 francs l’an prévue au chapitre 4, article 2 du budget local de 1933, sera mandatée au profit de M. Kresser (Marcel), chef des bureaux du secrétariat général, à compter du 23 novembre 1933 date à partir de laquelle elle cessera d’être payée à M. Vital, chef du bureau des finances.

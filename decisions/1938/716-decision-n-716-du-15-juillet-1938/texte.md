@@ -1,1 +1,0 @@
-Le sergent Coudeyre ( François ) du batail lon de tirailleurs sénégalais de la Côte francaise des Somalis, est nommé chef du poste de douane d’Ali-Sabieh, en remplacement du ser gent-chef Nicolaï, remis à la disposition du capitaine commandant la milice indigène.

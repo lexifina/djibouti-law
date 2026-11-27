@@ -1,1 +1,0 @@
-Est admis à solde mensuelle, pour compter du 1er août 1947, Abdillahi Egal, téléphoniste aux travaux publies, reclassé agent technique auxiliaire de 2e classe (10e échelon), pour compter du 1er juin 1947.

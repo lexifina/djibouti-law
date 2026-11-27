@@ -1,1 +1,0 @@
-M. Ghaleb y (Jean), comptable contractuel au Service des Finances, qui a ses attaches familiales et matérielles en France,bénéficiera du régime des prestations familiales applicables aux fonctionnaires provenant de la Métropole.

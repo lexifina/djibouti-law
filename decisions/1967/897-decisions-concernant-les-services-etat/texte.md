@@ -1,1 +1,0 @@
-M. Keramoal (Pierre), assistant technique des Travaux publics de l’Etat (10° échelon), est chargé des études et travaux de l’Infrastructure au Service de l’Aviation civile en Côte Française des Somalis, pendant l’absence de M. Lafoux, ingénieur des TPE, titulaire d’un congé administratif à compter du 10 février 1967.

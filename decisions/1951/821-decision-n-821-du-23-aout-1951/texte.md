@@ -1,1 +1,0 @@
-Mme Bonfanti (Clotiide), auxiliane de 3e catégorie, à salaire mensuel, employée en qualité de lingère à l’Hôpital Principal de Djibouti, est nommée auxiliaire 2e catégorie pour compter du 1er septembre 1951.

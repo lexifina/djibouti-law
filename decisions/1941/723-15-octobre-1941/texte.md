@@ -1,1 +1,0 @@
-Une autorisation d’absence de trente jours pour affaires personnelles est accordée à l’auxiliaire Ali Farah à compter du 19 octobre 1941. Cet agent, qui ne compte qu’un an de service administratif. ne pourra percevoir son traitement que pendant la première période de quinze jours.

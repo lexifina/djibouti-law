@@ -1,1 +1,0 @@
-Une permission d’absence d’un mois à passer en Ethiopie est accordée a MM. LANCELLE Jean-Baptiste Contrôleur «les P.T.T et BARROYER Abel, Vérificateur principal I.E.M. en service a la Station Intercoloniale de T.S.F. de Djibouti.

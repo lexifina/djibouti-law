@@ -1,1 +1,0 @@
-Est rapporié l’arrêté d’expulsion n° 1388 du 16 octobre 1958 en ce qui concerne le nommé Mansour Ali Ahmed, Arabe Drihimi né vers 1926 à Moka (Yemen), de Ali Ahmed et de Mariam Ali, matelot de boutre.

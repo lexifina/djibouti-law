@@ -1,1 +1,0 @@
-Est rayé des contrôles de la milice, pour compter du S septembre 1947.,le milicien de 2° classe Yabe Hamad. mle. 1320. décédé en service commandé le 7 septembre 1947. Est rayé des contrôles de la milice, pour compter du 27 août 1947, le milicien de 2e classe Ibrahim Warsama mle. 1801, décédé à Djibouti le 26 août 1947.

@@ -1,2 +1,0 @@
-M. Bourhis Eusène, ingénieur des Travaux météorologiques du Corps autonome de classe exceptionnelle, chef du Service de la Météorologie de la Côte Française des Somalis, est nommé, à titre intérimaire et pour la durée de l’absence de M. Blin, titulaire d’un congé de deux mois à passer en Métropole, pour compter du 6 juillet 1964, chef du Service de l’Aviation civile en Côte Francaise des Somalis.
-M. Keramoal Pierre, assistant technique des Travaux publics dé l’Etat est nommé chef du Service de l’Infrastructure à titre intérimaire et pour la durée de l’absence de M. Blin.

@@ -1,1 +1,0 @@
-M. Ibrahim Kassim Chehem, docteur en sciences économiques de troisième cycle de l’Université de Poitiers, est recruté pour la période du 1°” mars au 31 août 1975 pour remplir les fonctions de chargé de mission d’étude auprès de la Caisse Côopéation écomomique de Djibouti.

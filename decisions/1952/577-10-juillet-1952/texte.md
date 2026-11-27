@@ -1,1 +1,0 @@
-M. Duverneuil (Michel), agent voyer, est habilité à constater les infractions aux arrêtés n° 80 du 23 janvier 1950 et n°661 dit 19 juin 1952 susvisés. M. Duverneuil (Michel), prêtera serment, conformément à la loi.

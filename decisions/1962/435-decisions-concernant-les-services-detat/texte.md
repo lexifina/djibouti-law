@@ -1,1 +1,0 @@
-M. Ibrahim Taher Egue, agent de 2° classe, 2° échelon du Corps Territorial des Postes et Télécommunications en service à l’Office des Postes et Télécommunications, est mis en position de service détaché, pour compter du 1er février 1962, au Service du Port de Djibouti pour y tenir un emploi de commis-comptable.

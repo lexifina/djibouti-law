@@ -1,1 +1,0 @@
-M. Verdun (Pierre), chef du service des travaux publies, lieutenant de réserve, classe de mobilisation 1910, est classé dans l’affectation spéciale, dans son emploi actu pour une nouvelle période de trois mois à compter du 2 mars 1940.

@@ -1,1 +1,0 @@
-une permission d’absence de trois mois pour eu jouir à Madagascar est accordée à M. Ratsimandresy Norbert, me uisier c ntractu aux Travaux publics. Il pourra, sur sa demande, percevoir avant sen départ une avance de solde dans le conditions prévues à l’article 11 du décret du 1er août 1944 ; il profitera de la première occasion maritime et voyagera en 3 classe.

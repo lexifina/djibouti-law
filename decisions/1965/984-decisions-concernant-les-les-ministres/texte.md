@@ -1,1 +1,0 @@
-Le garde territorial de 2° classe Aden Abdallah, mle 696, en à la Section de Police portuaire de Djibouti, est licencié par mesure disciplinaire de la Garde Territoriale pour compter du 1er juin 1965.

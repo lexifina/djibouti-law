@@ -1,1 +1,0 @@
-Une permission de quinze jours à solde entière valable du 15 au 30 Janvier 1943 pour se rendre au Harrar est accordée à M. ANCELIN Michel, Contre-maître électricien à l’Usine Electrique et à Mlle Liliane ANCELIN,sa fille, dactylographe au Gouvernement.

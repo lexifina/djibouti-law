@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 628 du 27 avril 1965, la Commission Permanente de l’Assemblée Térritoriale à accordé à M. André Marill la concession provisoire d’une parcelle de terrain, d’une superficié dé 2:800 m2 environ, sisé à Boulaos, au prix de 100 francs le mètre cärré.

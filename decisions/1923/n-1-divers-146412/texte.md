@@ -1,2 +1,0 @@
-le commandement de la pinasseest provisoirement conlié, sous la surveillace du chef p.1. des travaux publics, au sous patron de cette embarcation. Le Journal de bord sera tenu à la diligence du chef du service.
-L’acces de toute vedette el de toute embarcalhion du service local est interdit à M. Riuscili, lieutenant de port. Le sous-patron de la pinasse, avec son personnel assurera, comme d’usage le service de la bouée lumineuse, il recevra de ce chef l’allocation de 30 francs par mois prévue au budget, assurera, en outre le service de larraisonnement.

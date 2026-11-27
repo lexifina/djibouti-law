@@ -1,1 +1,0 @@
-cataire de la fourniture des denrées nécessaires à l’alimentation des ascaris et okals pendant l’année 1912. du cautionnement de 550 fr. qu’il a constitué le 20 décembre 1911, en garantie de son contrat.

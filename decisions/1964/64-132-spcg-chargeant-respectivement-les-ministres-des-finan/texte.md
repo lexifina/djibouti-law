@@ -1,2 +1,0 @@
-M. Raymond Pécoul, ministre des Finances, est Chargé pour, compter du 26 novembre 1964, de l’expédition des affaires courantes du Ministère de la Production, des Affaires économiques et du Plan jusqu’à la désignation du ministre titulaire.
-M. Hassan Gouled, ministre de l’Enseignement, de la Jeunesse et des Sports, est chargé pour compter du 26 novembre 1964 de l’expédition des affaires courantes du Ministère. des Affaires intérieures jusqu’à désignation du ministre titulaire.

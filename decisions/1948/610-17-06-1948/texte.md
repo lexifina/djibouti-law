@@ -1,1 +1,0 @@
-M. Maurice Rouland, administrateur des colonies, chef du service des affaires économiques et du ravitaillement général, est nommé secrétaire général ad hoc pour le second tour des élections à la Chambre de commerce.

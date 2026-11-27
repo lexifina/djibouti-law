@@ -1,1 +1,0 @@
-M. Coindard Henri, administrateur en chef des Affaires d’Outre-Mer, est chargé, cumulativement avec ses fonctions actuelles, de l’expédition des affaires courantes du Secrétariat Général du Territoire.

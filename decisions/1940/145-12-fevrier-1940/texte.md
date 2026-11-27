@@ -1,1 +1,0 @@
-M. Bertrand (Pierre), commercant, services armé, classe de mobilisation 1912, est classé dans l’affectation spéciale, dans son emploi actuel, pour une nouvelle période de trois mois à compter du 14 février 1940

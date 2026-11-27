@@ -1,1 +1,0 @@
-M. Uros (Gabriel), mécanicien-diéséliste contractuel, est mis à la disposition du Ministre des Travaux publics et du Port, pour servir au Port de Djibouti, pour compter du 30 janvier 1960, date de son arrivée à Djibouti.

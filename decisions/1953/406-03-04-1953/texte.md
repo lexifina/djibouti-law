@@ -1,1 +1,0 @@
-Le sergent Boutou (Jean), de l’infanterie coloniale, en service « hors cadres » à la 2 compagnie de la Milice de la C.F.S., est muté à la 1re compagnie et mis a la disposition du Commandant de Cercle de Dikhil, pour compter du 10 avril 1953.

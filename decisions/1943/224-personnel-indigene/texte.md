@@ -1,1 +1,0 @@
-Le menuisier MOHAMED AWAD, a solde mensuelle, passe a salaire journalier à comp ter du 1er Mars 1943. Ce salaire qui sera fixé par le Chef de service des Travaux Publics, suivant le tarif en vigueur, sera imputé sur le chapitre 10 Article 4 Travaux Publics.

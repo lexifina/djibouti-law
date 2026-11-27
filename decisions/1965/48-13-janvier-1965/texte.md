@@ -1,1 +1,0 @@
-Le caporal Omar Abdi, matricule 2308, de la 4 compagnie de Milice à Damerdjog, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. du 29 décembre 1964, est licencié pour raison de santé à compter du 1e janvier 1965.

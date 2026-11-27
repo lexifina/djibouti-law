@@ -1,2 +1,0 @@
-Un congé administratif d’un an, pour en jouir à Ambatondra-zaka (Madagascar) est accordé à M. Andriamiandravola (Victor), écrivain-interprète principal de 2e classe du cadre local de Madagascar et dépendances, en service détaché à la Côte Française des Somalis.
-Une réquisition de passage par première occasion maritime Djibouti-Tamatave et une réquisition par voie ferrée Tamatave-Ambatondrazaka seront délivrées à l’intéressé, qui voyage accompagné de son épouse et de son fils agé de 9 ans 1/2 (groupe IV).

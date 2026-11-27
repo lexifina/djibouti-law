@@ -1,2 +1,0 @@
-Un congé administratif de six (6) mois à passer dans la Métropole est accordé à M. Cantini (Pierre), comptable contractuel du Service des Contributions directes.
-Une réquisition de passage par première occasion maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Saint-Martin-de-Blaye (Gironde) seront délivrées à l’intéressé, qui voyagera accompagné de son épouse et de sa fille âgée de 20 ans (groupe III).

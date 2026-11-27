@@ -1,1 +1,0 @@
-Le sergont-major Nicolas ( René), désigné pour servir hors cadres à la Côte française des Somalis, est affecté à la 2e compagnie de milice indigène à compter du 10 juin 1947, date de son débarquement.

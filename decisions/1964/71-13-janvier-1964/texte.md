@@ -1,1 +1,0 @@
-Pendant la durée de la maladie et de la convalescence de M. Rouaud Pierre, M. Garnavault, compositeur-typographe, en service à l’Imprimerie Administrative, assurera les fonctions de gérant et d’agent intermédiaire pour la perception des produits de la régie de l’Imprimerie Administrative.

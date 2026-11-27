@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Wais Houmed Waîs inﬁrmier stagiaire du cadre territorial de la Santé publique, en servicer au Dispensaire Ibrahim Balala (Ministère de la Santé publiqu et des Affaires sociales), pour mauvaise volonté dans 1’exécution du service, attitude injurieuse envers son chef direct et faute professionnelle.

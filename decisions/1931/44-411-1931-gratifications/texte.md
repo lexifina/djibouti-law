@@ -1,1 +1,0 @@
-Une gratification de 1.600 francs à imputer au chapitre 13, article 4, paragraphe II, est accordée à AL Olivier, vérificateur hors classe des douanes, pour lui tenir compte du préjudice pécuniaire qu’il a subi du fait qu’il a occupé iutérimairemenl les fonctions de chef de service.

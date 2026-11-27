@@ -1,1 +1,0 @@
-Le sergent radio-télégraphiste Dupont (Roger), de la Compagnie des télégraphistes coloniaux, est placé dans la position hors cadres pour compter du 1er novembre 1941 et mis à la disposition du capitaine inspecteur des pelotons méharistes.

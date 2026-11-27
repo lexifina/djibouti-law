@@ -1,2 +1,0 @@
-A compter du 16 décembre 1946, M. Gauthier (Fernand), comptable principal de 3e classe du cadre local des travaux publics de la Côte française des Somalis est nommé agent comptable, chargé de la centralisation des encaissements et de la garde des fonds de l’Usine électrique, en remplacement de M. Hauw. M. Gauthier percevra la remise prévue au décret du 19 novembre 1946.
-Cette remise sera payée trimestriellement sur présentation d’un état indiquant le montant des encaissements effectués et certifié par le chef du service des travaux publics.

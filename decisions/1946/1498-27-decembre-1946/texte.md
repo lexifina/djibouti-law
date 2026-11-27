@@ -1,1 +1,0 @@
-Mme A. Di Bonn est engagée à salaire jour nalier, en qualité de dame auxiliaire sténodactylographe (2e catégorie) pour compter du 23 décembre 1916. L’intéressée pourra être admise à salaire mensuel après deux mois de services, sur proposition du commandant de cercle.

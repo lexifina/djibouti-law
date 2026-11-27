@@ -1,1 +1,0 @@
-MOHAMED ABDOU ALEM est engagé en qualité d’employé auxiliaire au Service des Travaux Publics au salaire mensuel de 1.250 frs en remplacement numérique de M. GABOURDES, mis provisoirement à la disposition du Chef du Bureau des Finances.

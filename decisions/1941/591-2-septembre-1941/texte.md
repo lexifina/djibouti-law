@@ -1,2 +1,0 @@
-Le caporal radiotélégraphiste Simone (Robert), n° mle 1161 de la Compagnie des télé graphistes coloniaux est replacé dans les cadres et mis à la disposition du général com mandant supérieur pour compter du 1er septembre 1941.
-Le sergent Fiquet (Jacques), de la Compa gnie des télégraphistes coloniaux, est placé dans la position hors cadres pour compter du 1er septembre 1941 et mis à la disposition du capitaine inspecteur des pelotons méharistes.

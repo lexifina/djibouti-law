@@ -1,1 +1,0 @@
-26 avril 1934, M. le capitaine d’infanterie coloniale Fargues, en service hors cadres à la Côte française des Somalis, reprend le commandement de la milice indigène, à compter du 23 avril 1934, qui était assuré provisoirement par M. le lieutenant Rodolphe,

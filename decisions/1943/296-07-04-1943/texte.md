@@ -1,1 +1,0 @@
-Le Sergent-Chef VEZIN Léonce Hors Cadres, est nommé a compter du 1er Avril 1943, Agent Spécial du Cercle de Tadjourah, en remplacement du Sergent-Chef NICOLAS, laissé à la disposition du Commandant de Cercle de Tadjourah.

@@ -1,1 +1,0 @@
-Meme Agez, dame employée auxiliaire, ire catégorie, en service à la Direction du Service de Santé, est admise à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisé, pour compter du 1er octobre 1952.

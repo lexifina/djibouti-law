@@ -1,1 +1,0 @@
-et sur la proposition du Secrétaire général, une somme de cinq cents francs est mise à la disposition du Commissaire de Police pour la continuation des travaux de terrassements entrepris au village indigène.

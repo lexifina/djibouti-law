@@ -1,1 +1,0 @@
-M. Lucas, administrateur de 3e classe des colonies, est nommé chef du Service zootechnique par intérim pour la durée de l’absence de M. Roth, et demeure à la disposition du commandant de cercle de Djibouti pour assu rer le contrôle des rationnaires indigènes.

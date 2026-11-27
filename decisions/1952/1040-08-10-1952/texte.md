@@ -1,1 +1,0 @@
-M. Gravier (Elie), inspecteur principal hors classe de l’Enseignement primaire, reprend ses fonctions de chef du Service 3 de l’Enseignement en Côte Française des Somalis, pour compter du 29 septembre 1952, date de son retour de congé.

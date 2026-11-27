@@ -1,1 +1,0 @@
-M. Tatibouet, contrôleur principal de 4e classe des douanes, est chargé de la gestion du bureau central des douanes de Djibouti pendant l’absence de M. Sauteron, inspecteur central des douanes, se rendant en Ethiopie.

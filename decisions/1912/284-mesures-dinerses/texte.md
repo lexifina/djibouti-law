@@ -1,1 +1,0 @@
-une commission composée de MM. Torchet, administrateur-adjoint chargé de l’Inscription maritime, faucon, chef du Service des Travaux Publics et Combes, mécanicien breveté de la Marine, a été chargée de procéder à la visite des machines des remorqueurs « l’Abeille et la Mouche » de la Cie des Messageries maritimes,

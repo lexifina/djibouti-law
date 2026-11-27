@@ -1,1 +1,0 @@
-M. Lerebours Erie, volontaire de l’aide technique, est pour compter du 9 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé publique, pour servir en qualité de médecin-adjoint au médecin-chef du cercle de Tadjourah, service comptant au 1er septembre 1975.

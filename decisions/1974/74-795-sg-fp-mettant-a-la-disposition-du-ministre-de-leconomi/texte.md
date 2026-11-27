@@ -1,1 +1,0 @@
-M. Jean-Jacques Walger, volontaire de l’aide technique, diplômé du «Deston », est, pour compter du 9 avril 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Economie Rurale, pour servir au service de l’Agriculture et des Forêts, en qualité de technicien.

@@ -1,3 +1,0 @@
-Mme Nima Mohamed Guireh, veuve de M. Saïd Dirieh Ismael chauffeur auxiliaire classé à l’échelle VI, 2e échelon (indice 495), décédé à Djibouti le 30 mai 1961 alors qu’il était en service au Palais du Gouvernement, a droit aux allocations suivantes : ne 1e Indemnité compensatrice de congé non pris par M. Saïd Dirieh Ismaël pour la période s’étendant du 1er septembre 1960 au 30 mai 1961 ;
-2° A 50% -de l’indemnité prévue à l’article 27 de l’arrêté n’ 1033 du 23 juillet 1955 à laquelle aurait pu prétendre le 30 mai 1961 M. Saïd Dirieh Ismaël qui comptait à cette datée 14 ans 1 mois et 19 jours de services effectifs.
-La dépense est imputable sur le Budget de l’Etat.

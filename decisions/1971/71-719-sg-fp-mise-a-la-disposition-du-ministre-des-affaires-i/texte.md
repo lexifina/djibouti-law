@@ -1,1 +1,0 @@
-Est constatée, pour compter du 15 avril 1971 date de son retour au Territoire, la reprise de ses fonctions antérieures à la prison civile (Ministère des Affaires intérieures) par M. Christian Boussereau, surveillant de l’Administration pénitentiaire, 4 échelon.

@@ -1,1 +1,0 @@
-une permissiond’absence de huit jours (8 jours) pour en jouir à Harrar (Ethiopie) du 28 août au 4 septembre 1945 est accordée à M. Lombarde, chef du Service Météorolo gique de la Côte Française des Somalis.

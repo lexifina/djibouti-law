@@ -1,2 +1,0 @@
-M. Coulon Paul, imprimeur-typographe contractuel est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan pour servir à l’Imprimerie Administrative, pour compter du 13 mars 1961 date de son arrivée dans le Territoire.
-M. Coulon percevra mensuellement une avance sur sa rémunération égale à quatre vingt onze mille francs Djibouti (91.000) qui séra régularisée dès réception de son contrat de travail visé par l’Office Central du Travail et de la Main-d’Œuvre Outre-Mer.

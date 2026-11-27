@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 385/7e L du 24 octobre 1973 de la Commission Permanente de la Chambre des Députés du Territoire Français des Afars et des Issas accordant à l’Etat français la concession provisoire de parcelles de terrains, sises à Djibouti. nouveau lotissement de la République.

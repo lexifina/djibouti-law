@@ -1,1 +1,0 @@
-Un blame avec inscription au dossier est infligé à M. Ali Ahmed Ibrahim, agent d’exploitation qualifié principal, 2e échelon du cadre territorial du Service de Santé en service à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour attitude incorrecte envers son chef de service et négligence dans ses fonctions de chef cuisinier.

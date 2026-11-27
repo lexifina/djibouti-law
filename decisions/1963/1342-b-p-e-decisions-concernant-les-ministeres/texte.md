@@ -1,1 +1,0 @@
-M. Beaux Henri, conseiller aux Affaires administratives de 1er classe, 6e échelon, est nommé Conseiller technique auprès du chef du Territoire, plus spécialement chargé des questions d’information, pour compter du 6 octobre 1963, date de son arrivée en Côte Française des Somalis.

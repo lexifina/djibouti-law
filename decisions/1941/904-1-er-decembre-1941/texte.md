@@ -1,2 +1,0 @@
-Lis nommés Daher God, Ali Kabara et Fatma Ouarsama sont engagés en qualité d’infir miers auxiliaires à l’Hôpital colonial pour compter du 1 er décembre 1941, en remplacement des nommés Kamil Mohamed. Ahmed Ibrahim et Fahmi Ibrahim, qui n’ayant pas rejoint leur poste à l’issue de leur congé ont été considérés comme démissionnaires.
-Ils auront droit à un salaire mensuel de deux cent quarante francs (240 francs).

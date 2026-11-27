@@ -1,2 +1,0 @@
-Un congé administratif de neuf mois à passer à Grimaud (Var), est accordé à M. Giustiniani (Jean), conducteur principal 4 échelon du cadre supérieur des Travaux Publics de la Côte Française des Somalis, qui aura accompli le 7 avril 1960, un séjour. effectif et ininterrompu de 36 mois dans le Territoire (in M. Giustiniani, classé au groupe II, quittera Djibouti par vremière occasion aérienne à partir du 8 avril 1960.
-La dépense est imputable sur le Budget local.

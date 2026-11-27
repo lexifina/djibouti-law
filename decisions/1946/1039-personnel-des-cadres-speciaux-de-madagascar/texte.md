@@ -1,2 +1,0 @@
-Un congé de conalescence de trois mois à passer à Madagascar est accordé à M. Ratsimbarivony (Jacques), ouvrier d’art du ca dre local des travaux publics de la Côte française des Somalis.
-L’intéressé, qui est autorisé à rentrer par voie maritime (2 classe), pourra sur sa demande, percevoir avant son départ une avan ce de solde dans les conditions prévues par l’article 11 du décret du 1er août 1944.

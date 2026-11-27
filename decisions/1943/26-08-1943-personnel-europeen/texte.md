@@ -1,1 +1,0 @@
-M. ZOUAINS Jean. commis principal des P. T.T. remplira, les fonctions de Régisseur de la Caisse des menues Recettes et Dépenses du Cercle de Djibouti pendant l’absence de M. MAHMOUD HAID bénéficiaire d’une permission d’un mois.

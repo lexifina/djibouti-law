@@ -1,1 +1,0 @@
-M. Jean-Pierre Lalain, volontaire de l’Aide technique, est, pour compter du 23 août 1970, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir en qualité d’ingénieur au Port de Commerce de Djibouti, en remplacement de M. Daniel Gouvenot, rapatriable.

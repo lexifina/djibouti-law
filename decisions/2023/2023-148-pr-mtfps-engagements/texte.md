@@ -1,3 +1,0 @@
-Par décision n°2023-148/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 06 avril 2023, M. SAID ADOU SAID, est engagé à la 1ère Catégorie C, de la Convention Collective du 26 Décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt OMAR KAMIL ADOU, décédé.
-M. HOUSSEIN DAHER HASSAN, est engagé à la 1ère Catégorie C, de la Convention Collective du 26 Décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt MOHAMED DAHER HASSAN, décédé.
-La présente décision prend effet à compter du 06 avril 2023.

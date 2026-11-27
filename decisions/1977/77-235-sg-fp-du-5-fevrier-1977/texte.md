@@ -1,1 +1,0 @@
-M. Ismail Ali Youssouf, contrôleur divisionnaire de 1er classe, 1er échelon du cadre territorial du, service des Contributions, assurant les fonctions de chef de la section «Enquêtes» au service des Contributions indirectes, est intégré pour compter du 1er juillet 1976, dans les cadres des inspecteurs et nommé Inspecteur de 2e classe, 1er échelon.

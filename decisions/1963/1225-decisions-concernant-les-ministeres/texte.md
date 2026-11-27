@@ -1,1 +1,0 @@
-Le milicien de 2e classe Aden Yonis, mle 2443, de la 2e Compagnie de Milice à Tadjoura, est licencié pour raison disciplinaire pour compter du 5 octobre 1963. L’intéressé qui totalise 2 ans 11 mois 23 jours de services effectifs dans la Milice de la Côte Francaise des Somalis. étant licencié pour raison disciplinaire, ne peut prétendre à aucune indemnité.

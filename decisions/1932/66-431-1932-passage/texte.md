@@ -1,1 +1,0 @@
-un passage de retour pour la France est accordé à M. Antonin, administrateur en chef des colonies, chargé des fonc tions de gouverneur intérimaire de la Côte française des 8onialis, jiar décret du 20 novembre 1931.

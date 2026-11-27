@@ -1,5 +1,0 @@
-Est constaté qu’à la date du 16 novembre 1960, M. Devigne (Georges), Administrateur des Affaires d’Outre-Mer, 3° échelon, indice 600, groupe I, aura accompli 31 mois 20 jours de services effectifs en Côte Française des Somalis, compte tenu du congé annuel de deux mois pris du 1er décembre 1959 au 1 février 1960.
-Un congé administratif proportionnel de 5 mois 27 jours à passer en France 22, quai de Béthune, à Paris (IV°), est accordé à M. Devigne (Georges), Administrateur en Chef des Affaires & Outre-Mer, quittant définitivement le Territoire.
-M. Devigne (Georges), qui voyagera seul, est autorisé à emprunter la voie anormale. Il percevra avant son départ une avance représentant les frais de passage Djibouti-Paris, à charge pour lui de justification desdits frais dans les conditions prévues par la réglementation en vigueur.
-M. Devigne (Georges) doit quitter en principe le Territoire le 16 novembre 1960, son congé commencera à compter du jour de l’arrivée à Marseille du s/s « Pierre-Loti » devant quitter Djibouti 1e 26 novembre 1960.
-La dépense est imputable sur le Budget de l’Etat.

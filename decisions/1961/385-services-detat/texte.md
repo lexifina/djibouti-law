@@ -1,1 +1,0 @@
-M. Fenard Guy, administrateur en Chef de classe exceptionnelle de la France d’Outre-Mer est chargé, en l’absence du Chef de Territoire se rendant en mission à Paris, de l’expédition des Affairs courantes et urgentes du Territoires.

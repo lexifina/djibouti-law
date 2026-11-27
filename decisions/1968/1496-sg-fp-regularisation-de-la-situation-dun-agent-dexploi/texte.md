@@ -1,2 +1,0 @@
-M. Idriss Mohamed Kamil, agent d’exploitation du cadre territorial de la Santé publique principal, 1° échelon depuis le ler janvier 1966, est promu agent d’exploitation principal, 2e échelon, pour compter du 1er avril 1968.
-M. Idriss Mohamed Kamil. aui réunira au 1er octobre 1968 , 20 ans 5 mois de service effectif, est admis à faire valoir ses droits à pensoin de retraite proportionnelle pour insuffisance professionnelle.

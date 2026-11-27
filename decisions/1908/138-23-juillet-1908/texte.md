@@ -1,1 +1,0 @@
-M. de Bonchamps, Administrateur des Colonies, Chef du service des Affaires Indigènes, est nommé Membre du Conseil d’Administration de la Côte Francaise des Somalis en remplacement numérique de M. de Nos de Tourris appelé à remplir les fonctions intérimaires de Secrétaire Général.

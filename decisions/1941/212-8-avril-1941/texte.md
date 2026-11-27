@@ -1,3 +1,0 @@
-M. Fontaine, commis principal métropolitain de l’enregistrement. des domaines et du timbre. assurera par intérim, à compter du 19 avril 1941. les fonctions de receveur de l’enregistrement, des domaines et du timbre, conservateur de la propriété foncière, curateur aux successions et biens vacants et curateur aux successions et biens vacants des fonctionnaires pendant la durée de l’absence de M. l’ichon, receveur de 1er classe de l’enregistrement, des domaines et du timbre. titulaire d’un congé d’estivage.
-Avant d’entrer en fonctions, M. Fontaine prétera le serment prescrit par la loi.
-La passation de service donnera lieu à l’établissement en triple exemplaire d’un procès verbal.

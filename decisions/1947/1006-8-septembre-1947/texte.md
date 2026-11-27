@@ -1,1 +1,0 @@
-La décision n° 781 du 8 juillet 1947 est rap portée. Mme. Vigne (Odette), est engagée en qua lité de dame employée auxiliaire (dactylogra phe). 1″ catégorie, à salaire journalier, et affectée au service des travaux publics pour compter du 1e juillet 1947

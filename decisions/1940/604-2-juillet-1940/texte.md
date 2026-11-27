@@ -1,1 +1,0 @@
-Est nommé secrétaire-archiviste du Conseil d’administration et secrétaire-greffier du Conseil du contentieux, M. Monnier, administra leur adjoint des colonies, en remplacement de M. Parthenay, administrateur de 3e classe des colonies.

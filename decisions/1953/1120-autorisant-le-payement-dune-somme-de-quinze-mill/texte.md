@@ -1,2 +1,0 @@
-Une subvention de trente mille francs métropolitains (30.000 F. M.) est accordée à l’Académie des Sciences coloniales, 15, rue de la Pérouse, Paris (16°), au titre de participation aux frais de diffusion de son bulletin mensuel pour l’année 19585.
-La dépense visée à l’article 1er est imputable au budget de fonctionnement du Service local pour l’exercice 1953, section XVII chapitre 35, article 1er, $ 2.

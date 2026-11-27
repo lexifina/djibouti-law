@@ -1,4 +1,0 @@
-la décision du 24 février 1932,nommant les membres de la commission de réforme pour une période de deux années est rapportée, Sont désignés pour faire partie de la commission de réforme appelée à constater l’invalidité de M. Barrès, contrôleur-adjoint des douanes de la Côte francaise des Somalis :
-Président : M. Kresser, chef de burean hors classe des secrétariats généraux. délégué du gouverneur :
-Membres : MM. le trésorier-paveur ou son représentant: le chef du service des douanes ou son représentant : le médecin capitaine Bajolet, membre de la commission de rapatriement: Dufaud, vérificateur-adjoint du cadre local des douanes: Colombani, contrôleur-adjoint du cadre local des douanes.
-La commission ci-dessus désignée se réunira le 27 juin 1932. à 16 heures, à l’hôpital intercolonial de Djibouti.

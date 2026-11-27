@@ -1,2 +1,0 @@
-M. Cornet Paul, administrateur en chef de 2° échelon des Affaires d’Outre-Mer, affecté au Cabinet du Chef de Territoire pour compter du 8 août 1961, date de son arrivée en Côte Francaise des Somalis, est nommé chef du Bureau du Personnel Etat pour compter du 19 août 1961, en remplacement de M. Coindard Henri, administrateur en chef de 3° échelon des Affaires d’Outre-Mer, titulaire d’un congé administratif.
-Cumulativement, et à compter de cette même date, M. Cornet Paul exercéra, par intérim, les fonctions de chef du Service des Affaires administratives d’Etat,

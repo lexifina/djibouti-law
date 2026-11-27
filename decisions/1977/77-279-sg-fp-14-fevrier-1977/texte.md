@@ -1,1 +1,0 @@
-Une bourse est accordée, à compter du 1er janvier 1977, à M. Said Salah Youssouf, diplômé de la Faculté de médecine de Khartoum (Soudan), inscrit à l’Ecole internationale de langue et de. civilisation française (Alliance française), pour suivre un stage accéléré en langue française, à Paris.

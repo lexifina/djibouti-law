@@ -1,1 +1,0 @@
-et pour compter du méme jour, le nommé Mohamed Hassen Dankali mécanicien du moteur du jardin d’Ambouli a été licencié pour négligence habituelle dans son service; le nomme : Abdlah Abdi, gadaboursi, a été nommé mécanicien du moteur du jardin d’Ambouli à la solde mensuelle de eu remplacement du nommé Mohamed Hassen, licencié.

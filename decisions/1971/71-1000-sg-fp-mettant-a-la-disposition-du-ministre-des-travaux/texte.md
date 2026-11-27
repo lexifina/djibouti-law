@@ -1,1 +1,0 @@
-Une concession de passage Paris-Djibouti est accordée à Mlle Catherine Boudaud, née le 12 février 1957, fille de M. Rémy Boudaud, conducteur principal des Travaux publics de l’Etat, 8° échelon (groupe III), en service au Port de Commerce de Djibouti (Ministère des Travaux publics et du Port):

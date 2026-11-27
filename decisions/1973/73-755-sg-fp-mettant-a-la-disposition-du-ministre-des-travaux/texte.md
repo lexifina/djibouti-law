@@ -1,1 +1,0 @@
-M. Jean-Jacques Besatti, adjoint technique des Travaux publics de l’Etat, volontaire de l’aide technique, pour compter du 8 avril 1973, date de son arrivée dans le Territoire, est mis à la disposition du ministre des Travaux publics et du port, pour servir au bureau d’études.

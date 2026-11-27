@@ -1,2 +1,0 @@
-M. Claverie (Edgard), administrateur en chef de classe exceptionnelle des Affaires d’Outre-Mer, est nommé Commandant de Cercle de Djibouti et Président du Tribunal de 2e degré dans le ressort dudit cercle, en remplacement de M. Morin (Daniel), administrateur en chef de 3e échelon des Affaires d’Outre-Mer, en instance de départ en congé.
-Avant d’entrer en fonctions, M. Claverie prêtera le serment prescrit par la loi.

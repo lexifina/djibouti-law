@@ -1,2 +1,0 @@
-1° Mme Carpentier (Madeleine), Secrétaire auxiliaire 1er catégorie, en service au Bureau de l’Hygiène, est autorisée à cesser son service pour compter du 1er mars 1951;
-2° Mme Yeronesi (Flavia), de retour de congé, est mise à la disposition du Directeur du Service de Santé (Bureau de l’Hygiène), en qualité de secrétaire auxiliaire 1er catégorie, à salaire mensuel, en remplacement numérique de Mme Carpentier, démissionnaire, pour compter du 6 février 1951.

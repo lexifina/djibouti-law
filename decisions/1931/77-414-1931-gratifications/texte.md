@@ -1,1 +1,0 @@
-une gratification de 200 francs est accordée au ducislographe Rabemananjura, pour la conscience et le zèle qu’il a apportés à l’exécution des travaux qui lui ont été confiés par la mission d’inspection.

@@ -1,1 +1,0 @@
-l’amen de de 75 francs encourue par M. Taulier, Greffier-Notaire près les Tribunaux de Djibouti, pour défaut de présentation à l’Enregistrement dans les délais règlementaires de l’inventaire notarié des biens de M. Jean Roberty, a été levée.

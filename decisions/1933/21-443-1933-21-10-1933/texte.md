@@ -1,1 +1,0 @@
-M. Gnanadicom (Etienne), contrôleur avant deux ans du cadre local des P. T. T., du 16 octobre 1931, qui réunit les conditions exigées par l’article 6, paragraphe b), de l’arrêté du 26 avril 1028, portant réorganisation des cadres locaux européens de la Côte française des Somalis, passe automatiquement à l’échelon après deux ans de son grade pour compter du 16 octobre 1933.

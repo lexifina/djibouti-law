@@ -1,2 +1,0 @@
-Mme Cuvelier (Denise) est engagée à l’essai pour deux mois à compter du 1er juin 1960 en qualité de dactylo-comptable auxiliaire et mise à la disposition du Ministre des Affaires Economiques et du Plan pour servir au Bureau des Affaires Economiques et du Plan en remplacement numérique de M. Gatignol, en instance de départ en congé.
-Mme Cuvelier est classée à la 2° catégorie, échelle X, 1er échelon, indice local 805.

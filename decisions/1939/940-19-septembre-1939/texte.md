@@ -1,1 +1,0 @@
-M. Fontaine (Mare), commis principal de l’Enregistrement, est nommé à titre provisoire receveur des Domaines, de l’Enregistrement et du Timbre, et curatenr aux Successions et biens vacants de la colonie, en remplacement de M. Pichon, mobilisé.

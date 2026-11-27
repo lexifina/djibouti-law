@@ -1,2 +1,0 @@
-M. Barra (Pierre), surveillant contractuel, débarqué à Dji bouti le 19 septembre 1953, est remis à la disposition du Directeur des Travaux publics pour servir à la Subdivision des Routes, pour compter de la même date.
-M. Beltrame (Edouard), comptable contractuel, arrivé au Territoire le 13 octobre 1953, est remis à la disposition du Directeur des Travaux publics pour être affecté à la Subdivision admi nistrative des Travaux publics, pour compter du 13 octobre 1953.

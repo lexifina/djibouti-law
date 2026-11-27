@@ -1,1 +1,0 @@
-M. Hubert Labeur, technicien supérieur des Travaux publics de l’Etat, volontaire de l’Aide technique, est, pour compter du 8 avril 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux publics et du port, pour servir au bureau d’études.

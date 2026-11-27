@@ -1,1 +1,0 @@
-M. Vié (oseph), chef de bureau des Secrétariats généraux des colonies, chargé par intérim de la direction des finances, est nommé censeur administratif près la Banque de l’Indochine, succursale de Djibouti, pour compter du 1er juillet 1940.

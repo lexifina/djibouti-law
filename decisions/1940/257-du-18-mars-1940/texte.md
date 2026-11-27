@@ -1,1 +1,0 @@
-M. Bontils d’Aluret (André), sous-directent de la Compagnie du chemin de fer franco-éthiopien, service armé, classe de mobilisation 1911, lieutenant de réserve d’artillerie, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

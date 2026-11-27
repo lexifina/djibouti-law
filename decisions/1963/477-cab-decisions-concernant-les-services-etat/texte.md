@@ -1,3 +1,0 @@
-M. Charlot Pierre, est nommé. à titre provisoire, agent comptable d’ « Electricité de Djibouti», en remplacement de M. Casabianca Charles, en instance de départ en congé de fin de séjour.
-M. Charlot Pierre avant son installation, justifiera la prestation de serment réglementaire. Il est dispensé de la constitution d’un cautionnement.
-La passation de service éntre M. Casabianca Charles, agent-comptable sortant, et M. Charlot Pierre, agent comptable entrant, aura lieu le 30 avril 1962, après la clôture des opérations de la journée. Elle sera constatée dans un procès-verbal établi et signé par les intéressés et visé par le Directeur d’ « Electricité de Djibouti », le Trésorier-Payeur de la Côte Francaise des Somalis et le Chef du Service des Finances.

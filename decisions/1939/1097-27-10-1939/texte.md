@@ -1,1 +1,0 @@
-M. Pauliac (Lucien), inspecteur du trafic à a Compagnie du chemin de fer franco-éthiopien. service armé, est placé dans l’affectation spéciale dans son emploi actuel pour une durée de trois mois, pour compter de la date de la présente décision.

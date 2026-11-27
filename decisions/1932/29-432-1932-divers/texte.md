@@ -1,2 +1,0 @@
-une somme de 200 francs, dont il devra justifier l’emploi dans la forme réglementaire, est mise, à la disposition de l’adjudant chef Brischoux, commandant le peloton méhariste, pour organisation de jeux et amélioration de l’ordinaire du peloton à l’occasion de la fête nationale du 11 novembre 1932.
-La dépense sera imputée au chapitre 15, article 4, paragraphe 1, « Fêtes nationales et diverses » du budget local de l’exercice 1932.

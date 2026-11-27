@@ -1,1 +1,0 @@
-Al. Paul Marill, commerçant à Djibouti, est nommé assesseur titulaire du Conseil d’arbitrage créé par le décret du 22 mai 1936, réglementant le travail indigène à la Côte française des Somalis, en remplacement de M. Phaure, démissionnaire.

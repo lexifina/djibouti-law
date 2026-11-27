@@ -1,1 +1,0 @@
-31 décembre 1926, une permission d’un mois à solde entière, à compler du 1er janvier 1927, est accordée à l’askari de de classe Moussa Houssei in, n° mie 48, qui n’a bénéficié d’aucune pe ‘emission ni congé depuis l’année 1923.

@@ -1,1 +1,0 @@
-est autorisé l’exhumation des restes mortels du chef de fanfare des troupes coloniales Moulin (Lucien), décédé a Djibouti le 12 mai 1931, ainsi que leur transfert en France, dans les conditions déterminées par l’arrêt 6 ministériel d u 29 juillet 1926.

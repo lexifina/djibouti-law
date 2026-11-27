@@ -1,1 +1,0 @@
-M.Cornuat ((Robert), opérateur radio contractuel assimilé à un ouvrier d’art principal du cadre’local «de» travaux publics), est mis à la disposition du chef du service météorologique pour compter du 15 octobre 3950, date de son retour de congé en Côte française des Somalis.

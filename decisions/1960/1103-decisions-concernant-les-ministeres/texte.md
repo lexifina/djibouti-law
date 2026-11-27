@@ -1,1 +1,0 @@
-M. Pichon (Claude), instituteur du 4e échelon du cadre métropolitain, précédemment en service au Cours Complémentaire, est affecté à titre provisoire au Lycée de Djibouti et chargé provisoirement de la direction de cet établissement, pour compter du 1er octobre 1960.

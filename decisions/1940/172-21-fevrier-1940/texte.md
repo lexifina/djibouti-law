@@ -1,1 +1,0 @@
-M. Alemant (Pierre). administrateur de 1re classe des colonies, chef des services de l’inscription maritime, du travail et des transports maritimes, lieutenant de réserve, service armé, classe de mobilisation 1909, est classé dans l’affectation spéciale, dans son emploi actuel, pour une nouvelle période de trois mots à compter du 2 mars 1940.

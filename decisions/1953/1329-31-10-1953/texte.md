@@ -1,1 +1,0 @@
-Mme Muzotte, institutrice auxiliaire 2e catégorie après 2 ans, en service à Djibouti, est admise à bénéficier de l’augmentation de salaire prévue par 1945, l’article 9 de l’arrêté n° 235 du 24 mars pour compter du 1er novembre 1953.

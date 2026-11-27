@@ -1,1 +1,0 @@
-M, Mohamed Ibrahim Maki, commis de 2e classe, 3e échelon, en service à la direction des Finances est, pour compter du 1er décembre 1976, mis à la disposition du ministre du Port et des Régies industrielles, pour servir au port de commerce de Djibouti.

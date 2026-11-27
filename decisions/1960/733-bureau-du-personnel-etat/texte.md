@@ -1,2 +1,0 @@
-Est constaté pour compter du 21 juin 1960 date de son retour dans le Territoire, la reprise par M. Lehr André, Administrateur 7° échelon des Affaires d’Outre-Mer (corps autonome) de ses fonctions d’adjoint au Commandant de Cercle de Djibouti et de Président du Tribunal du 1e degré de Djibouti.
-L’arrêté n° 322 du 16 mars 1960 nommant M. Andreucci, Président du Tribunal du 1 degré de Djibouti en remplacement de M. Lehr est abrogé.

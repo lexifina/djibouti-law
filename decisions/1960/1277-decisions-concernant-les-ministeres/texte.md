@@ -1,1 +1,0 @@
-Un congé de maternité de quatorze semaines pour compter du 24 octobre 1960 est accordé à Madame Grout (Andrée), institutrice de 4 échelon du Cadre Métropolitain détachée en Côte Française des Somalis, en service à l’école de Dikhil.

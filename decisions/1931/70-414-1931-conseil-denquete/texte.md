@@ -1,1 +1,0 @@
-M. Laplaiche est traduit devant une Commission d’enquête dont la composition sera fixée aussitôt que le département aura mis à la disposition de la colonie le fonctionnaire qualifié nécessaire pour le compléter.

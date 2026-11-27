@@ -1,3 +1,0 @@
-Le Ministre des colonies à MM. les gouverneurs généraux el gouverneurs des colonies.
-L’arlicle 7 de la loi du 30 janvier 1923 dispose « qu’aucune entreprise industrielle ou commerciale ne pourra, à l’avenir, obtenir une concession, un monopole où une suhyention de PR dd tient, de la commune, de l’Algérie el des colonies, qu’à la condition de réserver, aux invalides de guerre, un certain nombre d’emplois à déterminer au cahier des charves.
-» Les cahiers des charges énuméreront, à litre d’indication, les blessures ou les catégories de blessure ou d’infirmités compatibles avec les emplois, ainsi que les conditions d’aplilude physique el professionnelle à ces emplois. »

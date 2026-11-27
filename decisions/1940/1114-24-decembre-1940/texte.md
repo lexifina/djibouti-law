@@ -1,4 +1,0 @@
-M. François, instituteur de 4e classe, est nommé directeur de l’éducation physique dans les écoles de la Côte française des Somalis. Il établira un programme d’enseignement physique qu’il adressera à chaque école en te nant compte de l’horaire indiqué dans le T. O. 113 du 21 décembre 1940.
-Conformément au T. O. 113 précité, il assu rera le contrôle permanent des écoles de Dikhil et de Tadjoura.
-Ce contrôle s’applique au fonctionnement proprement dit des écoles et s’étend à toutes les parties de l’enseignement, tant au point de vue des programmes de l’instruction, de l’éduca tion et de la discipline, qu’en ce qui concerne les locaux, le matériel et l’hygiène scolaire.
-Il mentionnera dans un rapport écrit les observations recueillies, les constatations faites et proposera toutes suggestions qui lui paraî tront utiles. Il adressera ce rapport mensuellement au chef de Service de l’enseignement.

@@ -1,2 +1,0 @@
-Une subvention de vingt mille francs métropolitains (20.000 F.M.) est accordée à l’administration du «Cercle de la France d’Outre-Mer », 79, avenue des Champs-Elysées, Paris (8e), au titre de contribution aux frais de fonctionnement de cet organisme.
-La dépense visée à l’article ler est imputable à la section XVII chapitre XXXV, article 1er, paragraphe 2, du budget de fonctionnement du service local pour l’exercice 1953.

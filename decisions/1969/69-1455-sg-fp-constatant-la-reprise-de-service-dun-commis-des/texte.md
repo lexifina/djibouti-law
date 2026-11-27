@@ -1,1 +1,0 @@
-Est constatée, pour compter du 25 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service de l’Enregistrement (Ministère des Finances et du Plan), par M. Joseph Tamby, commis des S.A.F de 1er classe, 3e échelon du cadre territorial de l’Administration générale.

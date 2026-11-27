@@ -1,1 +1,0 @@
-M. IBlot, administrateur adjoint des colonies, en service aux affaires économiques, est adjoint à M. Rouland, administrateur Des colonies, délégué dans les fonctions d’inspecteur du travail du Territoire et sous la responsabilité de celui-ci pour tout, ce qui concerne les attributions dévolues à l’inspecteur du travail.

@@ -1,1 +1,0 @@
-8 janvier 1935, il sera pavé à M. Sébastien Noc éto la somme de 20, 000 francs, montant de l’indemnité définitive d’expropriation, fixée par le jury , ‘expropriat ion le 21 novembre 14, dédnetion de la somme de 865 fr, 95, charge de l’exproprié, faite par jugement du décembre 1954.

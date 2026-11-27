@@ -1,1 +1,0 @@
-Le médecin-commandant Vinh-Chi-Abel (Louis), désigné pour continuer ses services « hors cadres> en Côte Française des Somalis, embarqué le 6 janvier 1965 à destination de Dibouti, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour compter du 7 janvier 1965, date de son arrivée sur le Territoire, pour servir à l’hôpital Peltier.

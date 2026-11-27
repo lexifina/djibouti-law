@@ -1,2 +1,0 @@
-le pharmacien commandant Cosléou, en service dans les cadres de la Côte française des Somalis, est chargé provisoirement, en remplacement du pharmacien capitaine hors cadres Gasq, des pharmacies d’approvisionnement et de détail, des laboratoires de l’hôpital colonial et de la direction des Services d’hygiène de la ville de Djibouti, à compter du 15 mai 1939.
-Il aura droit aux indemnités réglementaires à compter de ln date de sa prise de service.

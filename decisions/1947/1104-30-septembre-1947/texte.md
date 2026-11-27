@@ -1,1 +1,0 @@
-Est nommé chef du service de santé, pour compter du 1er octobre 1947 : le médecin lieu tenant-colonel Charpentier, désigné pour servir « hors cadres » en Côte française des Somalis, en remplacement du médecin colonel Andrieu, rapatriable.

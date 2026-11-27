@@ -1,1 +1,0 @@
-Le marché passé avec M. Chehem Daoud pour:la construction à Obock de trois villas (marché approuvé le 25 juin 1964 et notifié le 29 juin 1964), est résilié par application de l’article 85 des Clauses et Conditions générales du 16-octobre 1946.

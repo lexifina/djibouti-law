@@ -1,1 +1,0 @@
-M. le Docteur Creignou, médecin major de 1re classe des Troupes Coloniales H. C., Chef du Service de santé, a été autorisé à rentrer en France par le paquebot des Messageries Maritimes attendu à Djibouti le 24 Mars 1915.

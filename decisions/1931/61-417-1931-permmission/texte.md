@@ -1,1 +1,0 @@
-17 août 1931, une permission de quinze jours, à compter du : 3 septembre 1931 est accordée au sergent Matin: (Yves), Mle 357, en service hors ne ‘adres au poste côtier de S.F. pour en jouir à DJIbouti.

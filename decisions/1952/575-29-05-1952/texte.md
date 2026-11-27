@@ -1,1 +1,0 @@
-Un congé à solde entière d’un mois et un congé sans solde de deux mois sont accordés, pour compter du 1er juin 1952, à M. Mohamed Ahmed Alkalaki, commis administratif auxiliaire en service au Tribunal du Charia de Djibouti.

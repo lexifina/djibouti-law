@@ -1,1 +1,0 @@
-M. DELTOUR Fernand, commis princi pal du Cadre Métropolitain des P. T.T. est mis à la disposition du Haut Commissaire de France à Tananarive. rejoindra sa nouvelle affectation par 1 il avion devant quitter Djibouti le 9 Mars 1943.

@@ -1,1 +1,0 @@
-Mme Cacciaguera ( Marguerite), sage-femme coloniale de 2e classe, débarquée à Djibouti le 18 juin 1953, est affectée à l’’Hôpital Principal (Service des Maternités) pour compter du jour de son débarqument.

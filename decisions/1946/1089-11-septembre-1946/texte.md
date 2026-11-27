@@ -1,1 +1,0 @@
-Une permission d’absence de, trente jours à solde entière, à passer en Ethiopie, pour raison de santé, est accordée à M. Vladimir Cechak, surveillant principal du cadre local des T. P. de la Côte française des Somalis, pour compter du 15 septembre 1946.

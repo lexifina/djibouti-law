@@ -1,1 +1,0 @@
-M. Trobas, commis de 1re classe des services civils, en service au Gouvernement, est provisoirement mis à la disposition du commandant de cercle d’Obock, pour servir notamment aux opérations d’achat du ravitaillement général.

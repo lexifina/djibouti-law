@@ -1,1 +1,0 @@
-M. Alain Le Bolzer, volontaire de l’Aide technique, est, pour compter du il décembre 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique pour servir à l’Hôpital Peltier, en qualité de médecin obstétricien, services comptant pour le ler décembre 1973.

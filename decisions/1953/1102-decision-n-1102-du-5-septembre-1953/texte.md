@@ -1,1 +1,0 @@
-M. Cloche (André), inspecteur I.R. de 1er classe après deux ans du cadre général des Postes et Télécommunications, est mis à la disposition du Chef du Service des Postes et Télécommunications pour compter du 31 août 1953, date de son arrivée à Djibouti,en remplacement numérique de M. Besset appelé à servir dans un autre territoire.

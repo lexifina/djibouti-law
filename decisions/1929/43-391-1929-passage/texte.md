@@ -1,1 +1,0 @@
-un passage de retour pour la France sur le paquebot Sphinx attendu à Djibouti le 25 juin courant, est accordé à M. Badin, administrateur de 1re classe des colonies, mis à la disposition du Gouverneur général de l’Afrique occidentale française.

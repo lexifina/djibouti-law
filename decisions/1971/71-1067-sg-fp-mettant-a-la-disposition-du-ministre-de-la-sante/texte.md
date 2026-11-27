@@ -1,1 +1,0 @@
-M. Jean-Claude Artus, médecin de 1″ classe, 3° échelon, en position «hors cadres » est, pour compter du 19 juillet 1971, date de Son arrivée au Territoire, mis à la disposition du Ministre de la Sänté publique et des Affaires sociales pour servir en qualité d’adjoint au chef du laboratoire de bactériologie de l’Hôpital Peltier et du service d’hygiène et d’épidémiologie.

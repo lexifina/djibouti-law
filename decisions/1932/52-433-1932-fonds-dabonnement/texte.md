@@ -1,1 +1,0 @@
-16 décembre 1932, le fonds d’abonnement menstiel alloné au trésorior-paveur par la décision n° 410, du 11 juin i951, pour le payement du personnel auxiliaire, est porté de 2.500 francs à 2.530 francs, pour cotfpter du1° » janvier 1995.

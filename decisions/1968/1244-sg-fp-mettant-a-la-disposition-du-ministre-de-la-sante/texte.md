@@ -1,1 +1,0 @@
-M. Gérard Crochet, médecin-commandant du Service de Santé des armées, en service hors cadre, est, pour compter du 28 juillet 1968, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir en qualité d’adjoint au chef des services chirurgicaux et de chirurgien résidant à hôpital Peltier, en remplacement du médecin-commandant Cerutti- rapatrié

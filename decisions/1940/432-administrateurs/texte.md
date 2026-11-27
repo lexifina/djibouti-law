@@ -1,1 +1,0 @@
-M. Henri Berger, administrateur des colo nies. licencié en droit, est nommé président y. i. du tribunal de 1″ instance de Djibouti, à compter du 9 mai 19440, en remplacement de M. André Ropagnol, juge suppléant titu laire. jouissant d’un congé de convalescence. M. Berger percevra les indemnités prévues par les textes en vigueur.

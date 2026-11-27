@@ -1,2 +1,0 @@
-M. Jean -Pierrè Prijacî£’conducteur de travaux publies de Etat, 3° échelon, indice nouveau 200, arrivé au Territoire le 12 juillet 1968, est, pour compter de la même date, mis à la disposition du Ministre des Travaux publics et du Port, pour servir aux Travaux publies en qualité de chef de réseau à la Subdivision des Eaux.
-L’intéressé sera pris en charge par le budget du Territoire à compter de la veille de son embarquement en Métropole à destination de Djibouti.

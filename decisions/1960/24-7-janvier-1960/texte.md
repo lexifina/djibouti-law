@@ -1,3 +1,0 @@
-Un congé administratif de neuf mois à passer à Ajaccio (Corse), 40, Cours Napoléon, est accordé à M. Desanti (Jean-Baptiste), Payeur de 1re classe, 2e échelon, des Trésoreries de la France d’Outre-Mer, en service à Djibouti.
-M. Desanti (Jean-Baptiste), classé au groupe II, indice 395, voyagera accompagné de sa famille composée de son épouse et de deux enfants; âgés de 5 ans et 2 ans, par première occasion maritime, à compter du 16 février 1960, date à laquelle il aura accompli un séjour administratif de trois ans dans le Territoire.
-Les frais de voyage et de transport sont imputables au Budget de l’Etat (Ministère des Finances).

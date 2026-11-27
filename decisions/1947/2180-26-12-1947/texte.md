@@ -1,1 +1,0 @@
-Le nommé Kamel Mohamed, précédemment planton au service du ravitaillement général, est affecté au bureau des affaires économiques pour compter du 1er janvier 1948, Il sera rémunéré sur les fonds du budget local.

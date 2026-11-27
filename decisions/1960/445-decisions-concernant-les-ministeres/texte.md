@@ -1,2 +1,0 @@
-Les restes mortels du Caporal-Chef d’Infanterie de Marine, Humbert Marc, décédé à Holl-Holl le 13 février 1960, actuellement au dépositoire de Diibouti. seront transférés au cimetière de Boncourt (Suisse).
-Les dépenses occasionnées par ce transfert seront à la charge du budget de l’Etat (Budget des Armées « Affaires d’Outre-Mer » chapitre 32-83 —— Transport du Personnel et Déplacements — article 1er).

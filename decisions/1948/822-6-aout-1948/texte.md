@@ -1,1 +1,0 @@
-Le milicien de 2e classe Issa Hassan, mle 1959, de la 1er compagnie de milice à Dikhil, décédé à l’hôpital de Djibouti le 31 juillet 1948, est rayé des contrôles de la milice indigène pour compter du 31 juillet 1948.

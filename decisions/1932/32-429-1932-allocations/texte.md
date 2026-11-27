@@ -1,1 +1,0 @@
-une somme de 906 francs est allouée à M. Icher, agent comptable de l’Exposition coloniale intercoloniale de Paris, pour rétribution accordée, pour l’établissement et la production de la comptabilité-matières pour l’exercice 1932.

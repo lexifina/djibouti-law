@@ -1,1 +1,0 @@
-ont été nommés gardiens de phare à la solde mensuelle de 35 francs et affectés au phare de RAS BIR, les dankalis Mohamed Badry, Gadaa Ahmed et Youfès Dagué.- Ont été nommés 1° allumeur du feu vert de la jetée, le dankali Mohamed Dini et allumeur de la bouée noire n°1,le dankali Nour Offrand, avec droit tous deux à une solde mensuelle de 35 francs.

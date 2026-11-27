@@ -1,1 +1,0 @@
-Mme Maas (Margaret), en religion sœur Elisabeth de la Trinité, est engagée à salaire journalier en qualité d’infirmière auxiliaire de première catégorie et affectée à l’hôpital colonial à compter du 7 décembre 1040, jour de son débarquement.

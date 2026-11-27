@@ -1,1 +1,0 @@
-Sont et demeurent rapportées jusqu’à nouvel ordre les décisions n° 805 et 804 du 18 août 1939 susvisées, accordant des congés administratifs à MM. Alemant, administrateur de 2e classe des colonies, et Merlo, sous-chef de bureau de 2e classe des Secrétariats généraux des colonies,

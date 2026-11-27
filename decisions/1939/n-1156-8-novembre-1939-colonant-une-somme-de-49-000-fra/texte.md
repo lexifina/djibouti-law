@@ -1,2 +1,0 @@
-Art, 1°, — La régle provisoire de la distribution d’énergie électrique de Djibouti est autorisée à payer la somme de trente cinq mille francs (35.000 francs) à M° Berhard Cothier au titre des honoraires dus pour son intervention au bénéfice de Ia colonie dans le rachat de la concession de distribution de l’énergie électrique
-Art, 2, —- Le Chef du Service des travaux publics est chargé de lPexécution de la présente décision, qui sera enregistrée et comnuniqueée partout où besoin sera

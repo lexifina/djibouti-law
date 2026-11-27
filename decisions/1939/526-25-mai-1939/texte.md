@@ -1,1 +1,0 @@
-M. Meyer (Paul), agent de la Compagnie du chemin de fer franco-éthiopien, service armé, classe de mobilisation 1919, classé dans l’affectation spéciale par décision n° 58 du 23 janvier 1936, est rayé de cette position pour compter de la date de la présente décision.

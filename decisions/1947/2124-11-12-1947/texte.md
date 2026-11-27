@@ -1,1 +1,0 @@
-Est engagé, pour compter du 1er décembre 1%M7, le nommé Mohamed Ahmed Saleh, en qualité d’aide-comptable, 7e échelon, est en qualité d’aide-comptable, 7e échelon, est admis provisoirement au salaire journalier de 56 francs; l’intéresse aura droit, en outre, à l’indemnité de cherté de vie.

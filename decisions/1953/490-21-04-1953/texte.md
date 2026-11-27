@@ -1,1 +1,0 @@
-MM. Nour Abdoul (dit Abdoul Claude), Ali Gouled, Aden Kayad, Saleh Mohamed, Mohamed Hassan Ainane, Houssein Ali (dit Gouedi), Farah Egueh, sont engagés à titre précaire et révocable, pour compter du 1er mai 1953, en qualité d’agents de contrôle, 6e échelon, et mis à la disposition de M. le Directeur du Port.

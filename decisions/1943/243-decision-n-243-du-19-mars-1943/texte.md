@@ -1,1 +1,0 @@
-Le Sergent Radio-Télégraphiste VENCELI de la Compagnie des Télégraphistes Colortiaux en service Hors-Cadres, est replacé dans les cadres et mis à la disposition du Lieutenant-Colonel Commandant Supérieur des Troupes pour compter du 1er Avril 1943.

@@ -1,1 +1,0 @@
-M. Saïd Ahmed Awalé, contrôleur de 2° classe, 2° échelon, du cadre. territorial, en service aux contributions indirectes, est autorisé à suivre un stage de perfectionnement professionnel en qualité d’auditeur-élève contrôleur des douanes, à l’Ecole Nationale des Douanes, 72, boulevard Bourdon, à Neuilly-sur-Seine, qui débutera vers la mi-janvier 1977.

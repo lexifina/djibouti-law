@@ -1,1 +1,0 @@
-Un congé de convalescence à solde entière de trois mois est accordé à M. Moussa Guire, planton stagiaire du cadre local lur échelon, en service à l’Ecole d’Ali-Sabieh, à l’issue duquel il devra se présenter au Bureau du Personnel.

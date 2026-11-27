@@ -1,1 +1,0 @@
-rendu exécutoire par arrêté n° 1299 du 7 septembre 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Hassan Ibrahim Abdoulkader la concession provisoire d’une parcelle de terrain d’une superficie de cent deux mètres carrés environ, sise À Diibouti. auartier 1. au prix de cent francs le mètre carré.

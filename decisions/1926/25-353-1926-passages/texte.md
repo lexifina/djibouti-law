@@ -1,1 +1,0 @@
-21 avril 1926, un passage de retour par anticipation est ac cordé à Mme Bonifaci, femme d’un comnis du cadre métropolitain des douanes, et à sa fille, à destination de l’Algérie, Mme Bonifaci prendra passage sur le paquebot des Messageries Marilimes attendu à Djibouti vers le 4 mai 1926.

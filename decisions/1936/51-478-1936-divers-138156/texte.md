@@ -1,1 +1,0 @@
-la retenue de garantie pour les travaux de première urgence de la batterie du Héron, objet du marché de gré à gré du 7 décembre 1935 passé avec la Société des constructions ds Batignolles et la Compagnie de l’Afrique orientale, est fixée à trente mille franes sum maximum.

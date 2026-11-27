@@ -1,1 +1,0 @@
-Le Sergent. d’Infanterie de Marine Malherbe Jean, attuellement en position « hors-cadres » à la 3e Compagnie de Milice de la Côte Française des Somalis, est mis à la disposition du Général Commandant Supérieur des Forces Armées en Côte Française des Somalis à compter du 1er mai 1963, pour servir dans les cadres.

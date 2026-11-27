@@ -1,6 +1,0 @@
-Sont suspendues pour le troisième trimestre scolaire, avril-mai-juin, 1962 les allocations scolaires suivantes :
-Ali Bouh Gadid, Ali Abdi Farah, Ali Barkat Dembil, Nour Abdi Méké, Abdillahi Omar Djama, Ali Hassan Ahmed, Aboubaker Djibril Tabet, Hassan Ibrahim Hassan, Hassan Maoulid Daoud, Haumad Maki, Omar Chirwa Djibril, Ali Nour Mouhoumed, Awad Ali Saleh, Ibrahim Mohamed Abdallah, Hassan Mohamed Abdi, Mohamed Abdoul Karim Mokbel.
-Est supprimée pour compter du ler avril 1962 l’allocation scolaire allouée à Sédik Ahmed Izzy Gohard, élève de l’Ecole privée Charles de Foucauld, qui a interrompu sa scolarité.
-Sont attribuées pour compter du jer avril 1962 au taux annuel de trente-six mille francs (36.000) les allocations Scolaires suivantes : Abdillahi Ahmed Olayé, Omar Osman Gueddi Mohamed Ahmed Salem, Mohamed Hassan Ahmed, Hassan Waïs.
-L’allocation scolaire allouée à Ismaël Mawel Dirié, élève de l’Ecole Charles de Foucauld est portée au taux annuel de quarante-huit mille francs, pour compter du 1er avril 1962.
-A titre exceptionnel un secours mensuel de deux mille francs, pour la période avril-mai-juin 1962 est attribué à Ali Hassan Ahmed, élève du Lycée de Djibouti et à Houmad Maki Arbahim, élève de la Section Commerciale publique.

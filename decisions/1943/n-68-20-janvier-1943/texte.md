@@ -1,1 +1,0 @@
-Le Milicien de 2ème classe YOUSSOUF NOUR N » Mle 133 est libéré du service actif pour fin de contract à compter du 10 Janvier 1943. Ce Milicien qui n’a pas atteint quinze ans de service ne peut prétendre à aucune indemnité.

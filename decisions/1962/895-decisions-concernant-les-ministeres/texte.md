@@ -1,1 +1,0 @@
-Est rapportée, en ce qui concerne les élèves Moussa Ismael Mouhoumed et Osman Moussa Oumar, la décision de suspension de paiement de l’allocation scolaire pour le quatrième trimestre 1961-1962 (juillet, août, septembre).

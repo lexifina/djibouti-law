@@ -1,1 +1,0 @@
-une indemnité globale et forfailaire de 1.000 francs est allouée à M. Noëell. rédacteur à adiministralion centrale du ministère des colonies pour avoir représenté la colonie à Ta conférence télégraphique internalionale de Paris en 1925.

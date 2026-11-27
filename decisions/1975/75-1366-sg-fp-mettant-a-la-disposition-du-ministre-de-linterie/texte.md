@@ -1,1 +1,0 @@
-M. Khaïreh Allaleh Hared, instituteur de 2° classe, 3° échelon du cadre territorial en service à l’école de Boulaos de Djibouti, est mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes pour servir au cercle d’Ali-Sabieh (poste administratif de Holl-Holl).

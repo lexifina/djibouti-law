@@ -1,4 +1,0 @@
-Il sera délivrée à M. Grout Michel, instituteur du 3e échelon (indice 280, groupe Ill), qui doit quitter Djibouti avec sa famille par avion du 2 juin 1961, une réquisition de transport par voie maritime, dans les conditions prévues par la règlementation en vigueur en cas de départ définitif du Territoire, pour les bagages de ses enfants, Philippe 8 ans et Anne 7 mois.
-Ces enfants selon les déclarations de leur chef de famille ne doivent plus revenir dans le Territoire.
-Par application des dispositions de l’article 5 de l’arrêté local n° 59/SPCG du 17 mai 1958 M. Grout Michel, instituteur, perd tout droit au transport des bagages des enfants désignés ci-dessus au titre des séjours consécutifs qu’il effectuera en Côte Française des Somalis dans la position de détachement.
-La dépense est imputable au budget local.

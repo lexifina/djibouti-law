@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 460 du ler avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Ibrahim Ali Ahmed la concession provisoire d’un terrain d’une super-ficie de mille cinquante mètres carrés sise à Djibouti (lot n° 560), au prix de quatre cents francs le mètre carré.

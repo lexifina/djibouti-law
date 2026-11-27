@@ -1,1 +1,0 @@
-M. Vaslin (Jacques), conseiller aux Affaires administratives de 2° classe, 6* échelon (indice nouveau 483) est, pour compter du 30 janvier 1964 date de son arrivée au Territoire, nommé adjoint au Commandant de Cercle de Djibouti.

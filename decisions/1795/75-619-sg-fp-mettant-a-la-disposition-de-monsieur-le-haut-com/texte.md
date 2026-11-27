@@ -1,1 +1,0 @@
-M. Djama Yassin Farah, instituteur principal de 2e classe- 3e échelon du corps territorial de l’Enseignement public degré, admis à l’Institut régional d’administration de lyon et qualité d’auditeur libre et titulaire d’une bourse du Territoire est placé en position de mise en disponibilité sans ttaitement pour la période du ler février 1975 au 31 décembre 1975.

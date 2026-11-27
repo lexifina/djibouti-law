@@ -1,1 +1,0 @@
-Le sergent infirmier des T. C. Michel (François) est mis à la disposition du Directeur du Service de Santé, en qualité d’infirmier-major au Dispensaire de Boulaos à compter du 31 décembre 1950, date de son débarquement sur le Territoire.

@@ -1,1 +1,0 @@
-Le Garde Territorial de 2° classe Abdillahi Amakak, matricule 573, en service à la section incendie du port, est licencié de la Garde Territoriale par mesure disciplinaire, pour compter du 16 décembre 1963.

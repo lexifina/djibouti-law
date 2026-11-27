@@ -1,2 +1,0 @@
-M. Gauthier (Fernand), secrétaire principal d’Administration est nommé à compter du 15 mai 1961 billeteur pour le paiement de la solde et allocations accessoires des personnels mensuels et journaliers du service des Travaux Publics et de la Régie des Eaux entretenus sur les fonds du budget local, du budget de l’Etat et du FIDES en remplacement de M. Gabourdès Louis, partant en congé.
-M. Gauthier pourra prétendre à l’indemnité prévue par l’arrêté 1004 du 31 décembre 1955.

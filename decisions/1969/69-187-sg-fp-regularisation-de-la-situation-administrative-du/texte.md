@@ -1,3 +1,0 @@
-Est constaté, pour compter du 1° janvier 1967, le passage au 3° échelon dans le grade des agents d’hospitalisation principal du cadre territorial du Service de Santé de M. Guiré Roblé Forah. agent d’hosvitalisation principal, 2e échelon.
-La sanction d’abaissement d’un échelon est infligée à M. Guiré Roblé Farah, agent d’hospitalisation principal, 3 échelon, du cadre territorial du Service de Santé, en service à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales).
-Pour compter de la date de signature de la présente décision, M. Guiré Roblé Farah sera rangé agent d’hospitalisation principal, 2e échelon.

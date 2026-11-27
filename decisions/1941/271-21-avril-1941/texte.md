@@ -1,1 +1,0 @@
-Le canonnier Grésillon, du groupement d’or tillerie coloniale de la Côte francaise des Somalis, détaché au Trésor, est relevé de son emploi et mis à la disposition du général commandant supérieur, pour compter du 25 avril 1941.

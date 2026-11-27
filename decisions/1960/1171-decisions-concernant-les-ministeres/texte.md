@@ -1,1 +1,0 @@
-La période d’engagement à l’essai de Mme Boyer Edmée en qualité de secrétaire-comptable auxiliaire en service au Bureau des Finances depuis le 18 août 1960, est prolongée de deux mois pour compter du 18 octobre 1960.

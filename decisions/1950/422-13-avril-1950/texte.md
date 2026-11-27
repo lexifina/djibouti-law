@@ -1,1 +1,0 @@
-Chet Abclou est recruté en qualité de boy à l’hôtel de M. le Secrétaire général, pour compter du 1er avril 1950, au salaire mensuel de quatre mille francs (4.000 francs) en remplacement numérique de Moussa Tabti, licencié pour compter de la même date.

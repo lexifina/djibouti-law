@@ -1,1 +1,0 @@
-M. Macé Gérard, inspecteur des Impôts, 4° échelon, est mis à la disposition du ministre des Finances, des Affaires économiques et du Plan, pour compter du 20 août 1963, date de son retour dans 1er territoire.

@@ -1,1 +1,0 @@
-La sanction de blâme avec inscription au dossier est infligée à M. Mohamed Hassan . Galeb, infirmier vétérinaire stagiaire (indice local 225) du Cadre Territorial du Service de l’Elevage pour mauvaise manière de servir.

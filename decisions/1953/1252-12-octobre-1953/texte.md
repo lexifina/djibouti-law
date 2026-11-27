@@ -1,1 +1,0 @@
-M. Pascal Frumence, secrétaire auxiliaire à salaire mensuel fixe de 5.620 francs, en service à l’Hôpital Principal de Djibouti, est licencié de son emploi pour « mauvaise manière de servir et indiscipline » pour compter du 15 octobre 1953.

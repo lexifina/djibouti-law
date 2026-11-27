@@ -1,1 +1,0 @@
-M. Bodin, employé auxiliaire au Service des Travaux Publics chargé du magasin du dit service a été considérécomme ayant droit à compter du 6 Décembre 1914 date de sa prise de service, à l’indemnité de responsabilité de 40 frs par an prévue par l’arrêté du 30 Septembre 1912.

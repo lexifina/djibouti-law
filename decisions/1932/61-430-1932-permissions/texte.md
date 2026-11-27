@@ -1,1 +1,0 @@
-une permission de quinze jours, valable à compter du 19 septembre 1932, pour en jouir en Abyssinie, est accordée à Mme Hamot (en religion sœur Marie du Calvaire). infirmière à l’hôpital intercolonial.

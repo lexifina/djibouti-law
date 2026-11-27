@@ -1,1 +1,0 @@
-Est constatée, pour compter du 25 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures au Secrétariat permanent de la Chambre des Députés par M. André Bizet, attaché de préfecture de 2e classe, 7e échelon.

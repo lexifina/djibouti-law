@@ -1,1 +1,0 @@
-M. Jean Aüïllaud, médecin de 2°-classe, en position cadre hors budget des Armées (indice nouveau majoré 495), est, pour compter du 29 août 1969, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, en remplacement du docteur Colin (Cercle d’Ali-Sabieh).

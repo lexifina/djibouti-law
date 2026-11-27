@@ -1,1 +1,0 @@
-M. Michel Borrel, inspecteur des douanes, volontaire de l’aide technique, est, pour compter du 12 décembre 1972, mis à la disposition du Ministre des Finances, pour servir aux Contributions indirectes.

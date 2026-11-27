@@ -1,1 +1,0 @@
-Un congé à solde entiére, d’une durée de trois mois, est accordé à M. Gass Mohamed, ouvrier de Maitrise auxiliaire 12° échelon, en service à la Direction des Postes et Télécommunications, pour compter du 21 septembre 1953.

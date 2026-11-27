@@ -1,1 +1,0 @@
-ont été déclarés Par décision du 16 février 1946 ont été dé sujets français, droits pour jouir de tous les et prérogatives attachés à cette qualité, les nommés Saïd Ahmed, dit « Abouchanab Mohamed Ahmed », et Farah Sherreh.

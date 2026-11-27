@@ -1,1 +1,0 @@
-M. Hua (Bernard), Secrétaire auxiliaire 2e catégorie, arrivé à Djibouti le 13 octobre 1953, est mis à la disposition de M. le Chef du Service judiciaire, pour servir en qualité de commisgreffier d’instruction par intérim, en remplacement de M. Nguyen Van. Ky, auxiliaire à 3e catégorie, titulaire d’une permission d’absence, pour compter du 27 octobre 1953.

@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Ahmed Moussa Sigad, contre Maître de 1re classe, 1échelon, du Cadre territorial des Travaux Publics et du Port en service au Port de Commerce de Djibouti (Ministère des Travaux publics et du Port) pour avoir été absent à son poste de manœuvre sans être autorisé.

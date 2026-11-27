@@ -1,2 +1,0 @@
-M. Georges, ingénieur principal ries transmissions coloniales, est mis en position de mission auprès du territoire de la Côte française des Somalis pour procéder à l’étude du plan de réfection du réseau téléphonique de Djibouti.
-Pendant, toute la durée de sa mission, M. Georges, classé à la 1er catégorie B, marié, aura droit, sur les fonds du budget local à l’indemnité journalière de déplacement; temporaire fixée à 360 francs par arrêté n° 1166 du 25 novembre 1948.

@@ -1,1 +1,0 @@
-M. Tatibouet, contrôleur prineipal de 1 classe des douanes, est chargé de la gestion du bureau central des douanes de Djibouti, pendant l’absence de M. Sauteron, inspecteur centrai des douanes, se rendant en Ethiopie.

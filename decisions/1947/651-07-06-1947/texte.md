@@ -1,1 +1,0 @@
-Est acceptée, pour compter du 3 juin 1947, la démission de son emploi offerte par M. Leuzy (Julien), inspecteur stagiaire du cadre local de la police, M. Leuzy sera rapatrié sur la France aux frais du budget local, ainsi que sa famille, par première occasion maritime.

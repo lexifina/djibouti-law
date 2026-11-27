@@ -1,1 +1,0 @@
-Le sergent Boutou (Jean), de l’infanterie coloniale, est affecté à la Milice de la Côte Française des Somalis pour compter du 26 décembre 1952 et mis à la disposition du Commandant du poste de Tadjoura pour assurer les fonctions d’adjoint du Commandant de la circonscription de Dorra et du peloton mobile de l’’Alta, en remplacement du sergent Botte, rapatrié.

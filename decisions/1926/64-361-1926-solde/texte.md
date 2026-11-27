@@ -1,1 +1,0 @@
-14 décembre 1926. il est infligé une retenue de solde de huit jours au nommé Saïd Ahmed, patron de ia « Pinasse », pour avoir Inissé monter à bord de cette vedelle des personnes non munies de l’autorisation réglementaire.

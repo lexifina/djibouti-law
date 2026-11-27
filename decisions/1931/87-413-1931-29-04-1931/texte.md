@@ -1,1 +1,0 @@
-M. le procureur de la République, chef du service judiciaire, est autorisé à employer Mlle Gire en qualité de dactylographe à la solde journalière de 30 francs (trente francs), pour compter du 8 avril 1931.

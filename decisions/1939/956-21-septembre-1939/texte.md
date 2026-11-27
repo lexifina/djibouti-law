@@ -1,1 +1,0 @@
-M. Perron (Michel), administrateur de 1er classe des colonies, de retour de congé, est nommé par intérim inspecteur des affaires administratives, en remplacement de M. l’administrateur en chef Jourdain.

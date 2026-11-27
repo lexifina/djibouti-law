@@ -1,1 +1,0 @@
-Par arrêté n° 390 du 19 mai 1945, l’Administrateur des Colonies de la Guéronnière, Inspecteur des Affaires administratives, est chargé de l’expédition des affaires courantes et urgentes durant l’absence du Gouverneur qui se rend en mission en Ethiopie.

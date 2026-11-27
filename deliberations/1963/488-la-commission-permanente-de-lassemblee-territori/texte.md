@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 1349 du 4 novembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à la Société Française des Pétroles de Somalie la concession provisoire d’une parcelle de terrain, d’une superficie de 16 m°, sise à Arta, au prix de 100 francslemètrecarré.

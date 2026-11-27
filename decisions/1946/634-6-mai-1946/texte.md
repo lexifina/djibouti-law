@@ -1,1 +1,0 @@
-Ont été nommés infirmiers stagiaires 3° échelon : 1” Pour compter du 1er mars 1946 les nom- I niés Ismaïil Arde et Abdilaye Douale, extirailleurs du batailion de marche somali: 2° Pour compter du 1er janvier 1946 le nommé Omar Dide..

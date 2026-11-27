@@ -1,2 +1,0 @@
-Le Sergent radiotélégraphiste LANFRHI, en service Hors Cadres, est replacé dans les cadres et mis à la disposition du Lieutenant-Colonel Commandant Supérieur des Troupes pour compter du 1er lévrier 1943.
-Le Sergent -Chef radiotélégraphiste DU – PONT Roger. du Dépôt des Isolés de DIRE DAOUA, est placé dans le position Hors Cadres pour compter du 1er l évrier 1943 et mis à la disposition du Capitaine Commandant le Cercle de Tadjoura.

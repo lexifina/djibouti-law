@@ -1,1 +1,0 @@
-une permission d’un mois est accordée au caporal Mohamed Obsieh, n° matricule 355, et au garde de 2e classe Miguel Obsieh, pour en jouir dans le Somaliland, du 1er juillet au 1er août (15 jours à solde entière et 15 jours à demi-solde),

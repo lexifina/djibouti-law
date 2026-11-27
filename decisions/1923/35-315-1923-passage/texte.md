@@ -1,1 +1,0 @@
-est autorisé le remboursement à M. Wargniez, de da somme de 1.443 frs 05 représentant le prix du passage en 2e classe de Colombo à Djibouti et les frais de chemin de fer de Pondichéry à Colombe de son fils René, dont il a fait l’avance.

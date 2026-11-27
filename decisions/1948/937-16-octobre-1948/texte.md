@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours pour en jouir à Addis-Abeba (Ethiopie), est accordée à M. Gardeur (François), dessinateur-projeteur contractuel en service aux travaux publics, pour compter du 6 octobre 1948.

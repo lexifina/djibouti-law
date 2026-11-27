@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 440 du 21 avril 1961 en ce qui concerne : Mohamed Youssouf Waberi, Issak Aberawal Aden Issa, né en 1930 à Madera (République Somalie), de Youssouf Wabéri et de feue Aïcha Hassan, charpentier, domicilié à Djibouti, quartier n° 3.

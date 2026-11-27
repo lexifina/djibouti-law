@@ -1,1 +1,0 @@
-M. Trobas, adjoint des Services civils en service au cercle de Djibouti, provisoirement chargé de l’administration des biens et de la gérance de l’imprimerie du condamné Costas, est titularisé dans cette charge, en remplacement de M. Ros.

@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Saïd Hassan Mohamed,infirmier dé 3° classe, 38 échelon du Cadre territorial du Service de Santé, en service au dispensairé Thrahim Balala (Ministère de la Santé publique et des Affaires Sociales) pour mauvaise Exécution dés ôrdonnences prescrites aux malades et cela, à plusieurs reprises, malgré de nombreux avertissements verbaux.

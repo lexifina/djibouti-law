@@ -1,2 +1,0 @@
-le quartier-maître radio de la Marine Hibri Abdoul Latif, matricule n° 11-36 remplace, pour compter du 1er décembre 1944, le quartier-maître radio de la Marine Abdou Mohamed matricule 2141 employé à d’autres fonctions.
-Une indemnité mensuelle de cinq cents francs (500 fr.) est allouée au quartier-maître radio de la Marine Hibri Abdoul Latif, pour travaux de radio effectués pour les besoins du service météollogiques et pour compter du 1er décembre 1944.

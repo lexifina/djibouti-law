@@ -1,1 +1,0 @@
-le sergent-chef Diko Malick. de da section des télégraphistes coloniaux, en service hors cadres à la Côte francaise des Somalis malis, qui comptera prochain quarante de séjour ininterrompu à la colonie, est rapatrié pour fin de campargne.

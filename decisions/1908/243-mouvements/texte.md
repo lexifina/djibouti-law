@@ -1,1 +1,0 @@
-M. Roque, rédacteur des Postes et des Té égrap hes, de relour dans la colonie reprend, à compter du 1er janvier 1909 ses fonctions de Chef du Service des Postes et des Télégraphes en remplacement de M. Bonhoure.

@@ -1,1 +1,0 @@
-Est constatée, pour compter du 9 mai 1968, date de son retour danS le Territoire, la reprise de ses fonctions antérieures par M. François Martinez, conducteur de travaux contractuel (catégorie €, 10e échelon) én service aux Travaux publics (Ministère des Travaux publics et du Port).

@@ -1,1 +1,0 @@
-M. Gabard Georges, ingénieur contractuel des Travaux publics, chef du bureau d’études, est habilité à constater les infractions à la réglementation sur la distribution de l’énergie électrique à Djibouti. M. Gabard (Georges) prêtera serment, conformément à la loi.

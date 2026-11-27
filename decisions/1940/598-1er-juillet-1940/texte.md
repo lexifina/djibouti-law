@@ -1,3 +1,0 @@
-M. Vié (Joseph), chef de bureau des Seeré- tariats généraux des colonies, chargé par intérim de la direction des finances, est délégué dans les fonctions d’ordonnateur du budget local, du budget annexe des grands travaux sur fonds d’emprunt et du budget de l’État.
-Il signera ou visera par délégation spé ciale les mandats les ordres de payement et les ordres de recette émis au compte tant du budget colonial, des budgets des divers minis tères que des budgets des autres colonies, et en général, tous les documents et pièces se rat- tachant à la comptabilité du trésorier-payeur, du bureau des finances et du bureau du matériel.
-La signature de M. Vié devra être précédée de la mention :

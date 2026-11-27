@@ -1,1 +1,0 @@
-Mme Terrisse est engagée en qualité d’institutrice auxiliaire (2e catégorie), en remplacement de Mme Muzotte, rentrée en congé et affectée à Ali-Sabiet. Cette nomination prendra effet du 6 décembre 1948.

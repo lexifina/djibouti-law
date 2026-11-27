@@ -1,1 +1,0 @@
-1. Adjudant-Chef d’Infanterie Coloniale LA FITTE Georges, en service hors cadres, est replacé dans les cadres et mis à la disposi tion du Lieutenant-Colonel Commandant Su périeur pour compter du 1er janvier 1943.

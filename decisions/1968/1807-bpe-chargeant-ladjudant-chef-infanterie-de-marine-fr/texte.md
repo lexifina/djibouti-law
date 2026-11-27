@@ -1,1 +1,0 @@
-L’adjudant-chef d’infanterie de marine François Faure, adjoint au Commandant de la 3e compagnie de la Milice à Ali-Sabieh, est, pendant les absences de M. Honoré Barrin, attaché de la France d’outre-mer de 2°classe, 4° échelon, commandant de Cercle d’Ali-Sabieh, chardé de l’expédition des affaires urgentes et courantes de la compétences de l’Etat dans le ressort dudit Cercle.

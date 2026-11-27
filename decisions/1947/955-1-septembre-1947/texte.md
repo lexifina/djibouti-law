@@ -1,1 +1,0 @@
-Sont engagés en qualité de commis adminisratifs, 7 échelon, et mis i la disposition du chef du service du personnel, des finances et de la comptabilité, pour compter du 1er août 1947, les nommés Houssein Mohamed et Abou baker Mohamed, en remplacement numérique de Mme M. Léger.

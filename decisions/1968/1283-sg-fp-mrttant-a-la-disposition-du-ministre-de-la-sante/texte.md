@@ -1,1 +1,0 @@
-D. Michel Bourges, médecin-commandant du Service de Santé des armées, est, pour compter du 31 juillet 1968, date de son arrivée au Territoire, mis à la disposition du Ministre de “ la Santé publique et des Affaires sociales pour servir en qualité de chef des services chirurgicaux à l’hôpital Peltier, en remplacement du médecin-colonel Charpin, rapatrié.

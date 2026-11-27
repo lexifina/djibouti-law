@@ -1,1 +1,0 @@
-pour compler du 16 du dit : to Le caporal lourrier Gras Auguste Antoine Nomle SL C. 1K026 à été replacé dans les cadres du bataillon Somalis : 20 Les sergents Monsacre et Bernusson du dépôt Somali, ont été placé hors cadre indigéne de Djibouti.

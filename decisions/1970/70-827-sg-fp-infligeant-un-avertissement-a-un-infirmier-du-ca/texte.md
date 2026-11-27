@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Mahmoud Omar Ahmed, infirmier de 3° classe, 1” échelon du cadre territorial de la Santé publique, en service à l’ûépital Peltier (Ministère de la Santé publique et des Affaires sociales), pour absence injustifiée de son service le mercredi 27 mai 1970.

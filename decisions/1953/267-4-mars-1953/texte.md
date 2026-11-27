@@ -1,1 +1,0 @@
-M. Manousso (Marcel) est engagé en qualité d’électricien à titre précaire et révocable, à la somme mensuelle de 40.000 francs, exclusive de toute indemnité, y compris les charges de famille, pour compter du 19 janvier 1953 et mis à la disposition du Directeur du Service des Travaux Publics.

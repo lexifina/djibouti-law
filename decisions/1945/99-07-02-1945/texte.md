@@ -1,1 +1,0 @@
-une gratification de neuf cent vingt francs (920 francs) est atribuée au réserviste Gron din Yves, sergent au Bataillon Somali de Souveraineté pour la période du 9 au 31 janvier 1945 durant laquelle il a été em ployé au Service des informations.

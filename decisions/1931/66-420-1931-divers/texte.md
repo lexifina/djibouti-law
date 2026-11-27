@@ -1,1 +1,0 @@
-Le nommé Youssouf Mohamed Haniff est nommé auxiliaire dactylographe au 2° bureau (bureau du matériel), pour compter du 1er novembre 1931, à la solde mensuelle de 300 francs, exclusive de toute indemnité,

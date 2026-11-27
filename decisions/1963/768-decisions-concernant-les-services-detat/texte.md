@@ -1,3 +1,0 @@
-Le Milicien de 2° Classe Abdi Ahmed Chire, mle 2386 de la 3° Compagnie de Milice à Ali-Sabieh arrivant en fin de contrat le 24 février 1964 est déclaré « déserteur » et licencié pour «rairon disciplinaire» le 10 juin 1963. L’intéressé qui totalise 3 ans 3 mois et 16 jours de services effectifs dans la Milice de la C.FS.
-étant licencié disciplinairement ne peut prétendre à aucune indemnité, Il sera rayé des contrôles de la Milice pour compter du 10 juin 1963, il recevra le certificat de libération.
-Les droits à Solde et Vivres de l’intéressé seront liquidés par les soins de l’Agent Spécial de la 3° Compagnie de Milice à Ali-Sabieh et le montant de la Solde versé au Trésor.

@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 1096 en date du 2-10-1961 en ce qui concerne lenommé Douale Abdi Guedi, Somali Abéraoual Djibril Abokor, né en 1984 à Guébié (R.S.) de f.Abdi Guédi et de Kadidja Awalé.

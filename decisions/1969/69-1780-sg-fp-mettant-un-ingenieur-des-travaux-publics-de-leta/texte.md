@@ -1,1 +1,0 @@
-M. Bernard Finet, ingénieur des Travaux publics de l’Etat,4° échelon, est mis à la disposition du Ministre des Travaux publics et du Port, pour compter du 5 novembre 1969, date de son arrivée dans le Territoire, pour servir à la subdivision construction dela Direction des Travaux publics.

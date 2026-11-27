@@ -1,1 +1,0 @@
-un congé de convalescence de 3 mois à passer à Le Puy en Velay (Haute Loire) a été accordé à M. Bellile, Administrateur de 3ème classe des Colonies, Chef du Cabinet et du Secrétariat du Gouverneur et archiviste du Conseil d’Administration, avec droit au passage, avec sa femme, sur le paquebot des Messageries Maritimes attendu à Djibouti le 6 Avril 1915.

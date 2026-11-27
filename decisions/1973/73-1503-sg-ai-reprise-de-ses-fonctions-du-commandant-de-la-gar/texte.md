@@ -1,1 +1,0 @@
-M. Rolant Fayet, commandant de la Police Nationale de retour dans le Territoire le 15 septembre 1973 reprend, pour compter de cette date, les fonctions de commandant de la Garde Territoriale et de régisseur de la caisse d’avance.

@@ -1,1 +1,0 @@
-une somme forfaitaire de trois cents francs, à imputer sur les crédits au chapitre 17, article 4, « Exposition coloniale », est allouée au nommé Ali Banabila, chargé d’accompagner le Sultan de Tadjourah à Exposition coloniale, pour lui tenir compte des dépenses effectuées en France à cette occasion.

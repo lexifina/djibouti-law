@@ -1,1 +1,0 @@
-Est constatée, pour compter du 1 octobre 1969, date de son retour dans le Territoire, la reprise dé ses fonctions antérieures d’adjoint a Chef de District de Djibouti (Ministère des Affaires intérieures), par M. André Datchary, attaché de la France d’Outre-Mer, 1″ classe, 2° échelon.

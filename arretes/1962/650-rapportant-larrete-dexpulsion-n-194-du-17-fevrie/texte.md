@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 194 du 17 février 1961 en ce qui concerne le nommé Daher Hersi Waberi, Somali Aberawal Djibril Abokor, né en 1938 à Argueissa (République Somalie), de Hersi Waberi et de Douho Farah, chauffeur.

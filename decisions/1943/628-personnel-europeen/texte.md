@@ -1,1 +1,0 @@
-Les salaires de MM. BORDES et BANAB1LA, opérateurs auxiliaires à la Station Intercoloniale de T.S.F. sont portés res pectivement à QUATRE MILLE CINQ CENTS FRANCS et a TROIS MILLE 1RS. exclusifs de toute indemnité, pour compter du 1er Août 1943.

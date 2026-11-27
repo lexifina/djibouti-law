@@ -1,1 +1,0 @@
-M. Riera Rémy, attaché d’administration centrale, est pour compter du 1er août 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre des Finances pour servir à la direction des Finances en qualité d’adjoint au Directeur.

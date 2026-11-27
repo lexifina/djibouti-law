@@ -1,1 +1,0 @@
-L’administrateur des colonies Liurette (Georges), chef du cabinet civil, inspecteur des affaires administratives, est chargé de l’expédition des affaires courantes et urgentes pendant la durée de la mission du gouverneur a Paris.

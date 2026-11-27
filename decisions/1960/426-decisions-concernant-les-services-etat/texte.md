@@ -1,1 +1,0 @@
-Est constatée, pour compter du 19 mars 1960, date de son retour dans le Territoire, la reprise par M. Daher Gouled, Commis des Services Administratifs et Financiers de la Côte Française des Somalis. 2e classe, 2e échelon. de ses fonctions au Service Judiciaire.

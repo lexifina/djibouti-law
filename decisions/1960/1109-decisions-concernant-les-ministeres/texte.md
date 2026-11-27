@@ -1,2 +1,0 @@
-Mme Audaire (Alberte), institutrice de 2e classe, détachée du cadre métropolitain, précédemment en service à l’Ecole Primaire du boulevard de Gaulle, est affectée en qualité d’adjointe au Centre de Formation Professionnelle à Djibouti, pour compter du 1er octobre 1960.
-M. Pareja (Jean), Lieutenant de Port, 4e échelon, est nommé Commandant de Port de Djibouti, à compter du 17 septembre 1960, en remplacement de M. Jehl (Jean-Paul), titulaire d’un congé administratif.

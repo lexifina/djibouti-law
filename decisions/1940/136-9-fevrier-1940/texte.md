@@ -1,1 +1,0 @@
-M, Fouache d’Halloy (Jean). commis du cadre métropolitain des Agences des Messagories maritimes, service armé, classe de mobilisation 1925, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter du 8 février 1940,

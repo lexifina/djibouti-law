@@ -1,1 +1,0 @@
-M. Lucas, administrateur ad joint de l r“ classe des colonies, précédemment commandant de cercle «les Adaëls, est chargé des fonctions d’inspecteur du travail à la Côte française des Somalis et dépendances, à comp ter du T’r avril 1937.

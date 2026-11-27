@@ -1,1 +1,0 @@
-La S.A. Hayel Saeed et Cie (Société étrangère), siège soial : Djibouti, est autorisée à acquérir un immeuble sis à Djibouti, à l’angle de la rue Marchand et du boulevard Bonhoure, et immatriculé au Livre foncier du Territoire sous le n° 60 au nom de l’American African Finance Corporation.

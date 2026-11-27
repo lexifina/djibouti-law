@@ -1,1 +1,0 @@
-Une subvention de deux cent mille francs Djibouti (200.000 F. D.) est accordée à l’Office des Anciens Combattants et Victimes de Guerre de la Côte Française des Somalis, au titre de contribution aux frais de fonctionnement.

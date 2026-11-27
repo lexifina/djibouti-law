@@ -1,1 +1,0 @@
-MM. Houssein Ahmed Bilal (6e catégorie) et Elmi Douale Iftin (5e catégorie), domestiques en service à l’Inspection du Travail et des Lois Sociales, percevront une indemnité compensatrice de congés payés de 21 jours ouvrables couvrant leurs droits acquis pendant la période de service du 25 octobre 1959 au 31 décembre 1960.

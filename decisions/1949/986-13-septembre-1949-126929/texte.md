@@ -1,4 +1,0 @@
-M. Philippe Rakotonaivo, écrivaininterprète principal de 3° classe du cadre spécial de l’administration générale de Madagascar, com mis-greffier auxiliaire près les tribunaux fran çais de Djibouti, est: intégré dans le cadre lo cal des commis-greffiers de la Côte française des Somalis, au grade de commis de 3′ classe, après 18 mois (3° catégorie), pour compter du 1er janvier 1949 au point de vue exclusif d’ancienneté.
-L’année de service prévue par l’article 8 de l’arrêté du 31 aout 1945 précité, pour être titu larisé dans son emploi sera décomptée du 1er janvier 1049.
-M. Philippe Rakotonaivo conservera sa solde de présence actuelle jusqu’à ce qu’il soit nom mé au grade supérieur:
-M. Philippe Rakotonaivo devra présenter sa démission de son cadre d’origine à partir de la date de son intégration dans le cadre local des commis-greffier de la Côte française des Somalis.

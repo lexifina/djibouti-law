@@ -1,1 +1,0 @@
-M. Sorrentino (Vincent), mécanicien, conducteur de pelle à la Société des Batignolles, service armé, classe de mobilisation 1929, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois, à compter de la date de la présente décision.

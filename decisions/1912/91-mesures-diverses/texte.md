@@ -1,1 +1,0 @@
-les nommés Abdilaé Omar et Ouarsama Hussein sont nommés agents de 6e classe des douanes et contributions, à la solde mensuelle de 30 francs, en remplacement numérique des agents Omar Sheyckmarki et Hussen Elmi, licenciés.

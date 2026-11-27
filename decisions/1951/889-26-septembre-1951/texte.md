@@ -1,1 +1,0 @@
-M. Pellois (Maxime), contrôleur de 2° classe des centraux téléphoniques et télégraphiques, de retour de congé, est mis à la disposition du chef de service des P.T.T. pour compter du 21 septembre 1951, date de son débarquement sur le Territoire.

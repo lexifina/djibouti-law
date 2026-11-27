@@ -1,1 +1,0 @@
-M. Maidane Amareh Igal, agent de contrôle auxiliaire (échelle V, 2e échelon, indice local 410) du Service des Contributions, est licencié de son emploi pour complicité du délit de diffamation à l’égard du Ministre des Finances, et rayé du contrôle des Agents auxiliaires du Territoire.

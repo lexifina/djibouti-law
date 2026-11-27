@@ -1,1 +1,0 @@
-L’adjudant-chef d’infanterie coloniale Elian (Antoine) est affecté à la Milice de là Côte Française des Somalis pour compter « du 11 novembre 1952 et mis à la disposition du Commandant de Al Cercle de Tadjoura pour assurer le commandement de la circonscription de Dorra et du peloton mobile de l’Alta en remplacement du lieutenant Puyot rapatriable.

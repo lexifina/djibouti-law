@@ -1,2 +1,0 @@
-Un congé administratif de sept mois à passer à Paris, 23, rue Poliveau, est accordé à compter du 10 février 1960, à M. Andrianarifetra (Gabriel), commis de 2e classé, 2e échelon du Cadre supérieur des Services Administratifs et Financiers de la Côte Française des Somalis (indice 160, groupe IV) qui aura accompli le 10 février 1960, un séjour ininterrompu, hors de son Territoire de résidence habituelle, de 2 ans 6 mois.
-La dépense est imputable sur le Budget local de l’exercice de 1960.

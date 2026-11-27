@@ -1,1 +1,0 @@
-M. Vigne (Jean), secrétaire d’Aministration de 1re classe, 2e échelon, du cadre supérieur des secrétaires des Services admiristratifs et financiers de la Côte Française des Somalis, est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan (Service des Contributions directes), pour compter du 12 décembre 1959, date de son retour à Djibouti.

@@ -1,3 +1,0 @@
-le chef du service des travaux publics a 6té chargé d’exercer, pour le compte de la marine nationale, le contrôle du stock de charbon constitué à Djibouti, dans le pare de la compagnie maritime de l’Afrique Orientale.
-Ladite compagnie sera tenue, chaque fois qu’elle puisera dans le stock réservé à la marine et qui sera en principe composé de tas d’environ 250 tonnes d’en aviser le chef du service des travaux publics, Elle devra, en outre,
-indiquer l’emplacement, dans le parc, des nouveaux tas destinés à remplacer ceux qu’elle aura utilisés et faire connaître, en même temps, ln date, de la réception de ce charbon.

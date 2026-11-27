@@ -1,1 +1,0 @@
-M. Calendini (Eugène), dragueur à la Société des Batignolles (travaux du port), service armé, classe de mobilisation 1929, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois, à compter de la date de la présente décision.

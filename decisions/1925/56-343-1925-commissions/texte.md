@@ -1,1 +1,0 @@
-la Commission prévue à l’article 22 du décret du G août 1921 se réunira sur la convocation de son président, Le chef du service des douanes remplacera le plus ancien des payeurs, M. Lippmann, commis des services civils, remplira les fonctions de secrétaire, sans voix délibérative.

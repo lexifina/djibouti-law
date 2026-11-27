@@ -1,1 +1,0 @@
-Art 1er-. Il sera alloué aux ayants droit de Farah Omar, ex-agent de contréle de ire classe, 3° échelon territorial des Contributions, décédé le 2 novembre 1974 capital-décés égal au quart du dernier traitement indiciair du cujus.

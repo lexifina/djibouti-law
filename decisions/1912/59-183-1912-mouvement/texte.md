@@ -1,1 +1,0 @@
-l’adjudant d’infanterie coloniale Duriau en activité H. C. à la Côte Française des Somalis qui a terminé sa période de séjour réglementaire prendra passage à destination de Marseille sur le paquebot des Messageries Maritimes attendu à Djibouti, le 4 février 1912.

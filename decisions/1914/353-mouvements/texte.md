@@ -1,1 +1,0 @@
-un congé de convalescence de six mois à passer à Chidrac, (Puy-de-Dôme) a été accordé à M. Vigier, Inspecteur de Police de 2me classe du cadre local de la Côte Française de s Somalis, avec autorisation de prendre passage ainsi que sa femme sur le paquebot des Messageries Maritimes attendu à Djibouti le 25 septembre 1914.

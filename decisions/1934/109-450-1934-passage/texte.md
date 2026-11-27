@@ -1,1 +1,0 @@
-le gendarme Tartaix (Augustin), du détachement de la Côte francaise des Somalis, qui compte 3 ans, 4 mois et 17 jours de séjour ininterrompu à la colonie, a été rapatrié pour fin de séjour. Il prendra passage sur le paquebot Bernardin-de-Saint-Pierre, de la Compagnie des messageries maritimes, attendu à Djibouti le 7 juin 1934.

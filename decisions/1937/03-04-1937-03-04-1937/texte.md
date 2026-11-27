@@ -1,1 +1,0 @@
-le médecin lieutenant-colonel des troupes coloniales Roussy, placé en activité hors cadres pour servir à la Côte française des Somalis. prend, à compter du 4 avril 1937, les fonctions de chef du Service de santé de la Côte française des Somalis, directeur comptable de l’hôpital.

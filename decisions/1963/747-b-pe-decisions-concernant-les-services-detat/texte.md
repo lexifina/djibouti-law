@@ -1,1 +1,0 @@
-M. Billaut Pierre, Attaché de la France d’Outre-Mer. 3° classe, 4° échelon, est nommé, à titre intérimaire et cumulativement avéc ses fonctions actuelles, Adjoint au Commandant de Cercle de Djibouti et Président du Tribunal du 1er degré (Contentieux et Gracieux) dam le ressort du dit Cercle. pour compter du 20 juin 1963.

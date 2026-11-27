@@ -1,1 +1,0 @@
-Le traitement mensuel de M Michel (Jérôme), ex-opérateur radiotélégraphiste auxiliaire, est fixé à 35.000 francs, pour compter du 3 octobre 1950. Cette, somme est exclusive de toutes indemnités ou allocations à quelque titre que ce soit.

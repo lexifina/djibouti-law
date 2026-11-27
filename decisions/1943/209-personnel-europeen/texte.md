@@ -1,1 +1,0 @@
-L’article lcr de la décision 202 susvisée est complétée comme suit : Pendant son séjour a Beyrouth M. TRO BAS aura droit à la solde d un fonction naire ayant même traitement de base 14.500 francs par an en service en cette ville.

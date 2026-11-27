@@ -1,3 +1,0 @@
-Le 2e classe Darar Guireh Obsie, mle 2469 de la 2e Compagnie de Milice, poste de Dorra, arrivant en fin de contrat le 17 octobre 1962, est licencié pour raisons disciplinaires pour compter du 11 février 1962, l’intéressé qui totalise 1 an, 3 mois et 24 jours de services effectifs dans la Milice ne peut prétendre à aucune indemnité.
-Les droits à solde. vivres et permission de l’intéressé seront liquidés par les soins de l’agent spécial de la 2e Compagnie de Milice à Tadjoura.
-Le 2e classe Darar Guireh Obsie. Mle 2469. sera rave des contrôles de la Milice à compter du 11 février 1962, il recevra le certificat de libération.

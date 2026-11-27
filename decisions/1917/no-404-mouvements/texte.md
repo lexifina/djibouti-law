@@ -1,1 +1,0 @@
-. – Par décision du 31 décembre 1915 et pour compter du 1er janvier 1918 la coutume mensuelle de Fokal Ovaizé Monuepb à été portée de 85 à 90 fr. par mois. La solde mensuelle de Bocraxe Inba agent de renseignement de 65 à 70 fr. et celle d’Issa Monaep, interprète de 55 à 60 fr

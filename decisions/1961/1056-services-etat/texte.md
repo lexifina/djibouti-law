@@ -1,3 +1,0 @@
-Le 2e Classe Moussa Douale, Mle 2438, de la 3e Compagnie de Milice à Ali Sabieh arrivant en fin de contrat le 11 octobre 1962, est licencié pour raisons disciplinaires pour compter du 1er octobre 1961, l’intéressé qui totalise 11 mois et 18 jours de services effectifs dans la Milice, ne peut prétendre à aucune indemnité.
-Les droits à solde et vivres de l’intéressé seront liquidés par les soins de lAdjoint Milice billeteur dé la 3e Compagnie de Milice à Ali Sabieh.
-Le 2e Classe Moussa Douale, Mle 2488, sera rayé des contrôles de la Milice à compter du 1er octobre 1961, il recevra le certificat de libération.

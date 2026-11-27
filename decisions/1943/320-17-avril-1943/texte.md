@@ -1,1 +1,0 @@
-Le nommé ABDALLAH OTMAN KALIFA est en agé en qualité d’écrivain interprète auxiliaire au Service des Contributions pour compter du 8 Avril 1943 en remplacement d’ABDEL KADER SAID démissionnaire, et au salaire mensuel de 1.000 frs.

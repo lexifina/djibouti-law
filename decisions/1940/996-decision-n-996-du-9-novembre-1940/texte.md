@@ -1,1 +1,0 @@
-M. Maury (Georges), vérificateur principal de 3e classe des douanes, est remis, à compter du 1er novembre 1940, date de sa démobilisation, à la disposition du chef du Service des douanes en qualité de chef du Bureau central de Djibouti, en remplacement de M. Bodin.

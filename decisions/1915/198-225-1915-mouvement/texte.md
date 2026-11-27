@@ -1,1 +1,0 @@
-M. Chabaud (Camille) a été titularisé dans son emploi de Commis de 3ème classe (lu cadre local des Postes el Télégraphes. L’effet de cette décision remontera au 1er Janvier 1915, mais en ce qui concerne seulement l’ancienneté de service.

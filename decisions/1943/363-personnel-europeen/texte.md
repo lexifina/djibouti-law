@@ -1,1 +1,0 @@
-La décision sus-visée du 3 Mai 1943 rela tive au détachement de M. CLOT en qualité de Chef du Service des Informations aura effet pour compter du 22 Avril 1943 date du débarquement de l’intéressé à la Colonie.

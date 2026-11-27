@@ -1,1 +1,0 @@
-une permission de trente jours, valable du 3 mars au 1er avril 1932 inclus, avec solde entière pendant les quinze premiers jours et demi-solde pendant les quinze derniers jours, est accordée aux gardes méharistes de 2e classe Mohamed Moussa, matricule 39, et Mursin Dijabel, matricule 88.

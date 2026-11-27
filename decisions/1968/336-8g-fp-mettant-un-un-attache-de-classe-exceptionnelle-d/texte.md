@@ -1,1 +1,0 @@
-M. Robert de Peralo, attaché de classe exceptionnelle de la France d’outre-mer est, pour compter du 7 février 1968, date de son arrivée au Territoire, mis à la disposition du Ministre des Affaires intérieures pour servir au District de Djibouti.

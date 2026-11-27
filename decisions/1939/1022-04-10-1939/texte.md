@@ -1,1 +1,0 @@
-Le sergent radiotélégraphiste Dupont (Roger), de la compagnie des télégraphistes coloniaux, est placé en position hors cadres à compter du 4 octobre 1939, et mis, à la mème date, à la disposition du capitaine commandant la milice indigène, en remplacement du sergent-chef Colin (Jean), réintégré dans les cadres.

@@ -1,2 +1,0 @@
-Un passage de retour par anticipation est accordé à Mme Périé (Michèle), épouse d’un inspecteur de la Sûreté nationale en service détaché à la Côte Francaise des Somalis.
-Une réquisition de passage par première occasion maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Perpignan ( Pyrénées-Orientales) seront délivrées à l’intéressée qui voyagera accompagnée de sa fille âgée de 5 ans et demi (groupe 3).

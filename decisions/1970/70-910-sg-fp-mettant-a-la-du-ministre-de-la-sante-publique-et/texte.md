@@ -1,1 +1,0 @@
-M. Hervé Guillemin, sergent-chef en position «cadres hors ,budget des armées » est, pour compter du 18 juillet 1970, date de son arrivée dans le Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour servir à l’Hôpital Peltier, en remplacement numérique de 1’adjudant-chef Danancher. rapatriable.

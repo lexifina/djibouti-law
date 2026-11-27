@@ -1,1 +1,0 @@
-Le nommé Djibril Djilane, interprète au cercle d’Ali-Sabieh, poursuivi devant le tribunal pour faux et usage de faux dans l’exervice de ses fonctions, est licencié de son emploi pour compter du 2 mars 1946.

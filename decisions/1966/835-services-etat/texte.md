@@ -1,1 +1,0 @@
-L’officier de Milice de 2e classe Ali Adou, matricule 931, de la 2e Compagnie de Milice à Tadjourah, arrivant en fin de contrat le25 mai 1966, est mis à la retraite à compter du 26 mai 1966, daté à laquelle il sera rayé des contrôles du Corps. Il recevra le certificat de bonne conduite.

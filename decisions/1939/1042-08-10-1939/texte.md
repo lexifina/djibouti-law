@@ -1,1 +1,0 @@
-M. Banabila (Abdourahman), contrôleur des P. T. T. du cadre local, service auxiliaire, classe de mobilisation 1910, est placé dans l’affectation spéciale, dans son emploi actuel, pour une durée de trois mois, pour compter de la date de la présente décision.

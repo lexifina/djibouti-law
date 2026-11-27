@@ -1,1 +1,0 @@
-M. Vernier, Inspecteur de Police de 2éme classe du cadre de la Côte française des Somalis, est élevé à la 1ère classe de son grade. L’effet de cette décision remontera au 1er Juillet 1915, mais au point de vue de l’anciennté seulement.

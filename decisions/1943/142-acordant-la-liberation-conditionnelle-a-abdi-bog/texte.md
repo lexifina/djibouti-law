@@ -1,1 +1,0 @@
-Le bénéfice de la libération conditionnelle est accordé pour compter du 10 Février 1943 à \BD! BOGORE, Issa Fourlaba, commer çant condamne à 6 mois de prison et 5.000 francs il amende le 29 Septembre 1942 et incarcéré le 29 Septembre 1942.

@@ -1,3 +1,0 @@
-Le 2° Classe Yacin Omar Robleh, mle 2677, de la 3° Compagnie de Milice à Ali-Sabieh arrivant en fin de contrat le 29 mars 1964 et licencié pour raison disciplinaire pour compter du 16 juin 1962, l’intéressé qui totalise 2 mois et 17 jours de services effectifs dans la Milice de la CFS. ne peut prétendre à aucüne indemnité:
-Les droits à solde, vivres et permissions de l’intéressé seront liquidés par les soins de l’agent spécial de 1a 3° Compagnie de Milice à Ali-Sabieh.
-Le 2° Classe Yacin Omar Robleh, mle 2677, sera rayé des contrôles de la Milice à compter du 16 juin 1962, il recevra le certificat de libération.

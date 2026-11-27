@@ -1,1 +1,0 @@
-M. François Chappelet, conseiller aux Affaires administratives de re classe, 2° échelon, adjoint au Commandant de Cercle, est, pendant les absences de M. Bergeron, commandant du Cercle de Djibouti, chargé de l’expédition des affaires urgentes et courantes de la compétence de l’Etat dans le ressort dudit Cercle.

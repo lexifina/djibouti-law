@@ -1,2 +1,0 @@
-La décision n° 604 du 22 avril 1965 est annulée.
-En application de larticle 32 de l’arrêté local n° 173 du 11 février 1937 portant réglementation de la circulation en Côte Française des .Somalis, M: Gabrielli Jean, ingénieur TPE. de 3° échelon, est chargé, à titre temporaire, des examens du permis de conduire dans le Territoire et percevra l’indemnité spéciale à cette charge qui est fixée à 100 francs Djibouti par examen.

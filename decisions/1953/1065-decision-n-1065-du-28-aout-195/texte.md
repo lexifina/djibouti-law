@@ -1,1 +1,0 @@
-M. Hared Farah, mécanicien 12° échelon du cadre local au Service des Postes et Télécommunications (Station Côtière), est mis à la disposition du Directeur ont dou à publics pour compter du 1er septembre 1953.

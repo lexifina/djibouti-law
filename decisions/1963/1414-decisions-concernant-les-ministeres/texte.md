@@ -1,1 +1,0 @@
-B. Le sergent-chef d’Infanterie de Marine Poliakoff Serge, en position « hors-cadres » à la 1re Compagnie de Milice de la Côte Française des Somalis, est remis à la disposition du Général Commandant supérieur des Forces aïmées en Côte Française des Somalis à compter du 1er octobre 1963, pour servir dans les cadres.

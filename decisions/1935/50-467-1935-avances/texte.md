@@ -1,1 +1,0 @@
-une somme de cinq cents francs (300 francs), dont il aura à justifier l’emploi dans los formes réglementaires, est mise àla disposition de M. Garçon (Lucien), adiministrateur de 1er classe des colonies chef du cabinet du gouverneur.

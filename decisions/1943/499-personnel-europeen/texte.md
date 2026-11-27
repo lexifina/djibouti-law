@@ -1,1 +1,0 @@
-M. ROUILLERE Abel, Inspecteur des Contributions directes est nommé, à titre provisoire. Président de la Commission des Prix et de la Commission prévue à l’article 9 de l’arrêté précité du 18 mai 1943, en remplacement de M. SALLER, Administrateur des CColonies en mission.

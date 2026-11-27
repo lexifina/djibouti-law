@@ -1,4 +1,0 @@
-Il sera délivré à M. Hanhart Paul, instituteur du 7e échelon (indice 294 – groupe III), qui doit quitter Djibouti avec sa famille par avion le 2 juin 1961, une réquisition de transport par voie maritime, dans les conditions prévues par la règlementation en vigueur en cas de départ définitif du Territoire, pour les bagages de son épouse et de sa fille âgée de 18 ans.
-Mme Hanhart et sa fille selon les déclarations de leur chef de famille ñne doivent plus revenir dans le Territoire.
-Par application des dispositions de l’article 5 de l’arrêté local n° 59/SPCG du 17 mai 1958, M. Hanhart Paul, instituteur, perd tout droit au iransport des bagages de Mme Hanhart et de sa fille désignés ci-dessus au titre des séjours consécutifs qu’il effectuera en Côte Francaise des Somalis dans la position de détachement.
-La dépense est imputable sur le budget local.

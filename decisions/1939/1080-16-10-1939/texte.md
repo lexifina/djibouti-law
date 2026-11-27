@@ -1,1 +1,0 @@
-M. Giely (Pierre-Marie-Joseph), agent général de la Compagnie de l’Afrique-Orientale, service auxiliaire, classe de mobilisation 1921, est placé dans l’affectation spéciale dans son emploi actuel, pour une durées de trois mois, pour compter de la date de la présente décision.

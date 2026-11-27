@@ -1,1 +1,0 @@
-Est acceptée pour compter du 9 mars 1951, date d’expiration du congé dont il était bénéficiaire, la démission de son emploi de commis-greffier de 3e classe après 18 mois, du Cadre local de la C.F.S. offerte par M. Rakotonaivo (Philippe).

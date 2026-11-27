@@ -1,1 +1,0 @@
-M. Louis Daniel, volontaire de l’Aide technique, est, pour compter du 14 septembre 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Finances, pour servir en qualité d’inspecteur des impôts, au service des Contributions indirectes.

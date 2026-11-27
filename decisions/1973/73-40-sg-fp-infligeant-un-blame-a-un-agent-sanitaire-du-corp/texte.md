@@ -1,1 +1,0 @@
-un blâme est inflisé à M. Mohamed Ali Kamil, agent sanitaire de 2e classe, 3e échelon, en service à l’Hygiène (Ministère de la Santé publique et des Affaires sociales) pour avoir rejoint son poste avec cinq jours de retard à l’issue de son congé.

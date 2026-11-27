@@ -1,1 +1,0 @@
-Un congé de convalescence de trois mois, valable à compter de la date d’arrivée à des tination est accorde au Chef de Bataillon d infanterie Coloniale CHEDEV II I E Edouard en service I lors-Cadres à la Côte Française des Somalis, pour en jouir en SYRIE.

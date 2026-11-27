@@ -1,1 +1,0 @@
-M. Goarin (Jean), Conseiller aux Affaires Administratives de 1er classe, 3e échelon, est nommé pour compter du 23 septembre 1960, date de son retour dans le Territoire, Chef du Service des Finances Etat et Ordonnateur secondaire du Budget Etat.

@@ -1,1 +1,0 @@
-M. le médecin lieutenant hors cadres Jugnet, arrivé à Djibouti le 19 juin 1939, est mis à la disposition du chef du Service de Santé et directeur de lhôpital de Djibouti pour compter du jour de son débaranmement.

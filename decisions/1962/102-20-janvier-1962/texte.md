@@ -1,2 +1,0 @@
-M. Luraschi Charles est autorisé à gérer l’établissement dit « Au Grillon » sis à Djibouti, Plateau du Serpent, et comprenant un restaurant et un débit de boissons dont M. Kull Arthur est propriétaire.
-L’autorisation d’exploiter dans cet établissement une licence de 1re classe pour la vente de boissons alcooliques ou hygiéniques à consommer sur place ou à emporter est transférée de Mme Terrien Gilberte à M. Luraschi Charles pour compter du 1re janvier 1962.

@@ -1,1 +1,0 @@
-Monsieur Dufaud Robert, Surveillant principal de 1ère classe retour de congé est mis à la disposition du chef du service des Travaux Publics pour compter du 28 décembre 1938, jour de son débarquement à la colonie,

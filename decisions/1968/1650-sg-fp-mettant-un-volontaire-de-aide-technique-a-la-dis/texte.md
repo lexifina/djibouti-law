@@ -1,1 +1,0 @@
-M. Gilbert Saby, volontaire de l’Aide technique est, pour compter du 19. septembre 1968, daté de son arrivée äu Territoire, mis à la disposition du directeur d’Electricité de Djibouti pour servir en qualité d’assistant au professeur technique du Centre de formation professionnelle.

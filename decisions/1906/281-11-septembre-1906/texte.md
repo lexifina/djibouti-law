@@ -1,1 +1,0 @@
-une indemnité annuelle de 720 francs est allouée au Secrétaire Général de la Côte Française des Somalis, à titre de frais de service pour les déplacements que ses fonctions l’obligent à effectuer à Djibouti.

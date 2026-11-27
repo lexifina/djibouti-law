@@ -1,1 +1,0 @@
-Une gratification, à titre exceptionnel, égale à deux mois du dernier salaire, est accordée à l’ex-commis contractuel des douanes Abdallah Mohamed Mokbei, dont le contrat est résilié pour raison de santé.

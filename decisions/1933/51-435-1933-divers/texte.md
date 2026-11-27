@@ -1,1 +1,0 @@
-es sommes dues à la « Compagnie aérienne française », pour l’étude d’une ligne aérienne entre Djibouti et Addis-Abeba, ont été imputées sur les crédits inscrits au chapitre XV : « Dépenses imprévues » du budget de l’exercice 1932.

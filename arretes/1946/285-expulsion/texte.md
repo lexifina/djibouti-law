@@ -1,1 +1,0 @@
-A été expulsé du territoire de la Côte fran çaise des Somalis et dépendances ; l’ex-milirien de 2e classe Mohamed Hassan, matri cule 1564 (sujet yéménite), Arabe Sailladi, né vers 1918. à El-Aond (Yémen), fils de Hassan Nadji et de Nahama Abdallah, domiciliés au Yémen.

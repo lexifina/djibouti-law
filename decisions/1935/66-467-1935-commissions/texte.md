@@ -1,1 +1,0 @@
-un Comité est chargé de l’organisation des réjouissances publiques à l’occasion de la fête du 11 novembre 1985, Le Comité se réunira sur convocatiof de son président et établira le programme des fôtes qui sern soumis à l’approbation du gouveneur.

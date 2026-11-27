@@ -1,1 +1,0 @@
-M. Giustiniani (Jean), adjoint technique des Ponts et Chaussées du cadre latéral est mis, pour compter du jour de la signature de la présente décision, à la disposition du Ministre des Finances pour occuper un emploi de géomètre au Service des Domaines.

@@ -1,1 +1,0 @@
-Une allocation de sept cent cinquante francs (750 fr.), une fois payée, pour premiers frais d’installation a été attribuée à chacun des agents dénommés ci-dessous débarqués a Djibouti les 9 août et 17 décembre 1945: Rakoto (Raphaël ), mécanicien en service aux Travaux publics; Ranorianasolo i Norbert I, observateur contractuel au Service météorologique.

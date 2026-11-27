@@ -1,1 +1,0 @@
-M. Arnaud (Bernard), Ingémeur-adjtfmt de 1er classe des T.P.C., est chargé pendant l’absence de M. Raffaneau, en mission en France, de l’expédition des affaires courantes et urgentes du Service des Travaux publics et des Régies industrielles (électricité, eau).

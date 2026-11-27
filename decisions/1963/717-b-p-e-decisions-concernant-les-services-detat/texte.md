@@ -1,1 +1,0 @@
-M. Balakichnaretty, Secrétaire principal d’Administration, ler échelon, est nommé, cumulativement avec ses fonctions actuelles, chef‘du Bureau du Personnel Etat par intérim et pour compter du 8 juin 1963 en remplacement de M. Depommier, titulaire d’un congé administratif.

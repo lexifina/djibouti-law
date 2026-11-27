@@ -1,1 +1,0 @@
-Un congé administratif d’un an, pour en jouir à Madagascar, est accordé à M. Razafindrainible (Samuel), mécanicien contractuel. Une réquisition de passage par voie maritime Djibouti-Tamatave et une réquisition par voie ferrée Tamatave-Tananarive sera délivrée à l’intéressé qui voyagera accompagné de son épouse (groupe V).

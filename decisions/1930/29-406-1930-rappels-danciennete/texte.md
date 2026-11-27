@@ -1,1 +1,0 @@
-M, Allarousse, administrateur de 1er classe des colonies, est nommé chef du bureau des affaires politiques et indigènes et du secrétariat permanent de la Défense nationale, pour compter du 8 septembre 1930.

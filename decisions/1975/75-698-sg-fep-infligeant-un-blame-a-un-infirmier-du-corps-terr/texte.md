@@ -1,1 +1,0 @@
-Un blôme est infligé à M. Abdou Mohamed Hassan, infirmier de 2° classe, 4 échelon du corps territorial de la Santé publique en service à l’hôpital Peltier, pour absence du service et attitude incorrecte envers ses supérieurs.

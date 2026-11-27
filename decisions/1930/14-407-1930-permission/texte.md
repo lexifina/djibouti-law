@@ -1,1 +1,0 @@
-1 octobre 1930, une permission de trente jours, dont quinze jours avec solde entière et jours avec demi-solde, valable du 1°au 30 novembre 1930 inclus, est accordée au garde méharist de 1″ classe Robleh Djama, matricule 22, et au garde méhariste de 2° clusse Kassim Ali, matricule 12.

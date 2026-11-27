@@ -1,1 +1,0 @@
-une permission de trente jours donnant droit à la solde entière de présence dans la limite de quinze jours et à la demi-solde pour les quinze derniers jours, est accorcée à Ravalé Banuir, matelot du boutre Saint-Elme, à compter du 1er avril 1931.

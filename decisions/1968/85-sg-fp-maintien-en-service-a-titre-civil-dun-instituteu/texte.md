@@ -1,3 +1,0 @@
-M. Daniel Cornette, militaire du contingent en service au Ministère de l’Enseignément, des Sports et de la Jeunesse au titre de l’Assistance culturelle, est, pour compter du 1er janvier 1968, date de sa mise en congé libérable, maintenu à la disposition de ce Ministère pour servir en qualité d’instituteur de 1er échelon (département de la Haute-Saône), indice net 230.
-Pour compter de cette même date, M. Cornette percevra les émoluments afférents à l’indice net 230 correspondant à son grade dans son cadre d’origine.
-Les dépenses résultant de la présente décision sont imputables au budget territorial.

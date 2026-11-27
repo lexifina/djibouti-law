@@ -1,1 +1,0 @@
-M. Toche (Jean), ingénieur du Bureau technique de la Compagnie du chemin de fer fran-éthiopien, lieutenant d’ artillerie, service armé, classe de mobilisation 1922, classé dans l’affection spéciale par décision n° 58, du 23 janvier 1936, est 1re rayé de cette position pour compter de la dite de la présente décision.

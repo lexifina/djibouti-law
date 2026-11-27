@@ -1,1 +1,0 @@
-M. Jean Lesaichot, médecin de 1re classe, en position hors cadre, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 9 août 1970, date de son arrivée au Territoire, pour servir en qualité de médecin-chef du Dispensaire Pierre-Pascal, en remplacement numérique du médecin de 2° classe Pieri, rapatrié.

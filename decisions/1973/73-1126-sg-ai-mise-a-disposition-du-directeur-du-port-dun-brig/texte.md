@@ -1,2 +1,0 @@
-M. Jean Cledel, brigadier-chef de police est pour compter du 1er juin 1973 date de son arrivée sur le territoire, affecté à la portion centrale de la Garde Territoriale.
-Mis pour emploi à la disposition du Directeur du port pour compter du 1er juillet 1973, il assurera les fonctions de chef de détachement de sécurité publique dans les conditions prévues aux articles 14 et 19 de la délibération n° 37/7° L du 20 mai 1969, modifié par délibération n° 250/7°L du 12 mai 1972.

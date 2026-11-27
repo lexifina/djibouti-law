@@ -1,2 +1,0 @@
-Le stage que M. Abdoulkader Abeba, employé au Service de lEnregistrement, accomplit dans leS Services de la Direction générale des Impôts du Ministère des Finances, est prolongé jusqu’au 30 avril 1963 pour lui permettre de passer l’examen de qualification de contrôleur des impôts.
-Les dépenses afférentes à cette prolongation de stage sont à la charge du Budget local de la C.F.S. (chapitre 22, article 3).

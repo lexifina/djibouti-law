@@ -1,2 +1,0 @@
-l’interprète Massio est désigné pour se rendre à Dikkil, comme interprête ad hoc de la circonscription de Dikkil-Gobad, en vue de la constatation, dans les formes régulières, des dommages causés, le 1er janvier 1932, par les Assaïmaras venus d’Ethiopie contre les ressortissants Débenehs et contre le peloton méhariste nomadisant dans la région de Timéro.
-L’interprète Massio, avant de partir à Dikkil, prétera serment devant le tribunal de 1er instance de Djibouti.

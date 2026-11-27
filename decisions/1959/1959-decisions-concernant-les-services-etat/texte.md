@@ -1,2 +1,0 @@
-M. Beyrand Raymond, Inspecteur de Police Principal, 3e échelon, est inscrit au tableau d’avancement de l’année 1960, pour le grade d’’Inspecteur de Police de classe exceptionnelle (hors péréquation) pour compter du 16 avril 1960.
-M. Bevrand Raymond. Inspecteur de Police Principal. 3e échelon, est promu pour compter du 16 avril 1960, au grade d’Inspecteur de Police Principal de classe exceptionnelle (hors péréquation).

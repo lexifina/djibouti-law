@@ -1,1 +1,0 @@
-Le caporal-chef Pidolie (Paul) en service à la milice indigène, est remis dans les cadres, et mis à la disposition du général commandant supérieur pour compter du 1er septembre 1940, pour raison d’excédent d’effectif.

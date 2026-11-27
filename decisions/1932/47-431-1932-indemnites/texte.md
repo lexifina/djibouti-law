@@ -1,2 +1,0 @@
-les décisions des 3 juillet 1930, allouant une indemnité de permanence aux plantons en s service au. cabinet du gouverneur et du 28 décembre 1931, portant augmentation de indemnité de permanence de allouée au personnel susvisé, , sont rapportées en ce qui concerne Hussein Bachir.
-Une indemnité mensuelle de permanence de 35 franes est accordée au planton de 2e classe Hussein Bachir , pour compter du 1er octobre 1932.

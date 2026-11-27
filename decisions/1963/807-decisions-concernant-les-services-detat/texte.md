@@ -1,3 +1,0 @@
-Le Maréchal-des-Logis d’artillerie de Marine Le Floch Jean-Pierre (BCS – B. 1/AEB) désigné pour-servir en Côte Frangaïse des Somalis et placé en position «Hors Cadres» pour compter du 4 juin 1963, date de son embarquement par avion à Paris, est affecté à la Milice de la Côte Française des Somalis pour compter du 5 juin 1963, date de son débarquement à Djibouti.
-Ce sous-officier est affecté provisoirement au Dépôt de la Milice en qualité d’Adjoint au Chef de Garage de la portion centrale et de la 4 Compagnie de Milice.
-L’entretien complet de ce sous-officier est à la charge du Ministère d’Etat Chargé des Départements et Territoires d’Outre-Mer.

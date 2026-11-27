@@ -1,1 +1,0 @@
-une gralification de 150 francs, à imputer au titre des dépenses politiques sur le chapitre 13, article 4, paragraphe 8, du budget pour l’exercice 1927, est accordée au notable Bourane Kassim de Tadjourah.

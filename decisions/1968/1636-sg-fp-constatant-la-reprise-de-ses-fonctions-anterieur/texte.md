@@ -1,1 +1,0 @@
-Est constatée, pour compter du 22 septembre 1968, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Jean Allard, attaché d’administration centrale Indice nouveau 523) commandant du Cerclé d’’Obock.

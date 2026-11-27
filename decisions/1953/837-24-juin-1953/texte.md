@@ -1,1 +1,0 @@
-Mme Rolland (Lydia) est engagée en qualité de dameemployée auxiliaire 3e catégorie à salaire journalier et mise à la disposition du Directeur du Service de Santé pour servir à la Pharmacie d’Approvisionnement, en remplacement numérique de Mn. Devaud, autorisée à cesser son service, pour compter du 15 juin 1953.

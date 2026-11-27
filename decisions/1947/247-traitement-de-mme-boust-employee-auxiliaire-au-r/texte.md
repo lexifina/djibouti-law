@@ -1,1 +1,0 @@
-Le traitement de Mme Boust, employée auxiliaire 3° catégorie, au traitement mensuel de six mille deux cent cinquante francs (6.250 fr.), précédemment à la charge du ravitaillement général, est imputé pour compter du 1er février 1947 au compte du budget local.

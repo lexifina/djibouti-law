@@ -1,2 +1,0 @@
-Un congé administratif de six mois, pour en jouir à Grand-ville (Manche), est accordé à M. Malenfant (Paul), secrétaire administratif de 1re classe de l’Inscription Maritime.
-M. Malenfant, classé au groupe III, voyagera accompagné de son épouse et de ses trois enfants âgés respectivement de 18, 14 et 8 ans, par voie maritime de Djibouti à Marseille et par voie ferrée de Marseille à Grandville (Manche) aux frais du budget local.

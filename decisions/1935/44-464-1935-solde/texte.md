@@ -1,1 +1,0 @@
-une somme de cinq mille francs, dont il devra justifier l’emploi dans les formes et déiais réglementaires, est mise à la disposition du commandant du peloton méhariste pour achat de chameaux et de bâts destines à cette formation militaire.

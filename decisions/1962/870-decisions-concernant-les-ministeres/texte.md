@@ -1,1 +1,0 @@
-L’autorisation d’exploiter au bar-restaurant « Palmier en Zinc » sis à Djibouti, avenue Albert-Bernard, une licence de 1’° classe pour la vente de boissons alcooliques où hygiéniques: à consommér sur place ou à emporter. est transférée de M. Cuccini Claude à Mme Fratacci Marcelle.

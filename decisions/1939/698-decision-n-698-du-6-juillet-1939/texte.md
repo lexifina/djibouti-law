@@ -1,1 +1,0 @@
-M. Dilly (Aime), inspecteur chef de garé à La compagnie du chemin de fer franco-éthiopien, service armé, casse de mobilisation 1921, classé dans l’affectation spéciale, par décision n° 5 du 23 janvier 1936, est rayé de cette position pour compter de la date de la présente décision.

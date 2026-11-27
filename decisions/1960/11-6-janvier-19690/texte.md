@@ -1,2 +1,0 @@
-Il est accordé pour les années scolaires 1958-1959 et 1959-1960, une aide scolaire annuelle de cent cinq mille francs Métro au jéune Abdourhaman Mohamed Ismaël, hospitalisé à l’Hôpital Trousseau à Paris et inscrit aux Cours de « Votre Ecole chez Vous ».
-Cette aide sera versée à Monsieur le Directeur de « Votre Ecole chez Vous », C.C.P. Paris 352.54. La dépense est imputable au Budget local, chap. 57, art. 1er, § 1.

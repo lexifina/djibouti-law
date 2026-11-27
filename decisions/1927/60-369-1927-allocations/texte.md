@@ -1,1 +1,0 @@
-il est alloué à MM. de Laage de Meux, agent de la Compagnie des Messageries maritimes, et Guinebault, agent de la Compagnie maritime de l’Afrique orientale, membres civils de la commission chargée de la réception définitive du phare de Musha, une indemnité de cent francs pour vacalion de la journée du 3 août 1927.

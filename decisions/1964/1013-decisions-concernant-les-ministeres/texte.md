@@ -1,2 +1,0 @@
-La décision n° 699 du 26 mai 1964 est annulée.
-En avnvlication de l’article 32 de l’arrêté local n° 173 du 11 février 1937 portant réglementation de la circulation en Côte Française des Somalis, M. Bouïssou, adjoint technique à la section «Etudes > des Travaux publics, est chargé des examens du permis de conduire dans le Territoire et percevra l’indemnité spéciale à cetté charse, qui est fixée à cent francs (100 FD) par examen.

@@ -1,2 +1,0 @@
-Par décision n°2023-306/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 21 août 2023, M. IBRAHIM KAHIYE AMARKAG, est engagé à la 4ème Catégorie B, de la Convention Collective du 26 décembre 2011, en qualité de Chauffeur, pour servir à la Résidence du Ministre du Commerce et du Tourisme, en remplacement numérique de M. ISSA AHMED MIGUIL, licencié.
-La présente décision prend effet à compter du 01 avril 2023.

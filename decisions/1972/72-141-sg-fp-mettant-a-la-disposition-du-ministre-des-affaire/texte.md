@@ -1,1 +1,0 @@
-M. Jean-Paul Guimbretière, volontaire de l’Aide technique est pour compter du 7 décembre 1971, date de son arrivée dans Territoire, mis à la disposition du Ministre des Affaires économiques pour servir en qualité de vétérinaire au service de l’élevage.

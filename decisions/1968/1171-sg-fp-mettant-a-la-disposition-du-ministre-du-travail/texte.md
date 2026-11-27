@@ -1,4 +1,0 @@
-M. Christian Bonnefoi, volontaire de l’aide technique est, pour compter du 13 juillet 1968, date de son arrivée au Territoire, mis à la disposition du Ministre du Travail pour servir en qualité d’instituteur au Centre de Formation professionnelle de Djibouti.
-Pour compter du 12 juillet 1968, date de son départ de Paris par voie aérienne à destination du Territoire, M. Bonnefoi percevra une indemnité forfaitaire d’entretien de 43 francs métropolitains par jour, les mois pleins étant payés sur la base de trente jours, payable pour sa contrevaleur en francs Djibouti.
-Pour compter de la date de son arrivée au Territoire, il lui sera versé une indemnité de logement dans les conditions fixées par l’arrêté ministériel du 12 juin 1967, chaque fois que l’intéressé ne bénéficiera pas d’un logement en nature.
-Les dépenses résultant de la présente décision sont imputables au budget du Territoire.

@@ -1,2 +1,0 @@
-Est accordée au ministre du culte qui procédera aux funérailles des fonetionnaires, militaires, marins ou indigents décéde à l’hopital intercolonial de Djiibouti, une allocation fixe de 50 franes par cérémonie funèdhre. nour comnter du 1er avril 1932.
-Lorsque les familles on les répondants désirtevont donner une plus grande pompe aux funérailles, les dépenses supplémentihires seront à leur charge.

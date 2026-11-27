@@ -1,1 +1,0 @@
-M.Cartier. (Alfred), inspecteur de police, service armé, classe de mobilisation 1926, est classé dans l’affectation spéciale dans son emploi actuel. pour une durée indéterminée, 4 compter de la date de la presente décision.

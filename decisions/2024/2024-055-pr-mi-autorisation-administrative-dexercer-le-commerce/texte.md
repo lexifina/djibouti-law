@@ -1,3 +1,0 @@
-Par décision n°2024-055/PR/MI, du Président de la République, chef du Gouvernement, en date du 25 février 2024, la Décision n°2011-882/MI/DAGR du 22 Décembre 2011 portant autorisation administrative d’exercer le commerce de boisson en faveur de Monsieur CHARLES NUCERA est annulée.
-Monsieur IDRISS DIRIR KHAIREH est autorisé à exploiter une autorisation administrative de commerce de boissons alcoolisé, licence de 1ère Classe Catégorie A dans son établissement dénommé : “RESTAURANT LA PERGOLA” sis à la route de l’Aéroport.
-La présente décision sera enregistrée, exécutée partout où besoin sera et publiée au Journal Officiel de la République de Djibouti.

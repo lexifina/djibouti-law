@@ -1,3 +1,0 @@
-Un congé administratif de sept mois à passer à Mary-sur-Marne (Seine-et-Marne) est accordé à M. Dauber (Marcel), Payeur de 2e classe. 4e échelon des Trésoreries de la France d’Outre-Mer en service à Djibouti.
-M. Dauber (Marcel), classé au groupe II, indice 360, voyagera accompagne de sa famille composée:de son épouse èt de sa fille née le 28 mai 1956, par voie maritime à compter du 24 avril 1960, date à laquelle il aura accompli un séjour administratif de 2 ans, 4 mois et 9 jours dans le Territoire.
-Les frais de voyage et de transport sont imputables au Budget de l’Etat (Ministère des Finances).

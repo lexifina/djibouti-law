@@ -1,1 +1,0 @@
-31 décembre 1925, une gralificalion de 300francs est accordée : au nommé Kamel Mola, jardinier d’Obock. pour les services qu’il a rendus à l’adgrimisitraliton pendant les mois d’octobre, novembre et décembre 1925.

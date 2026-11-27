@@ -1,1 +1,0 @@
-L’Etat Français (T.O.M, Services extérieurs) est autorisé à acquérir une parcelle dé terrain urbain bâti, d’une superficie de 659 mètres carrés, sise à Djibouti, plateau du Serpent, immetriculée au Livre foncier du Territoire sous le n° 696 au nom de la Société Immobilière de Djibouti et du T.F.A.I.T.

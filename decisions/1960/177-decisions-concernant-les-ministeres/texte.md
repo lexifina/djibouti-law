@@ -1,2 +1,0 @@
-M. Duet (Daniel), professeur d’enseignement commercial, sera chargé au cours du premier trimestre 1960 des cours supplémentaires aux élèves de troisième année commerciale placés en stage à l’extérieur de l’établissement.
-M. Duet percevra pour les mois de janvier, février et mars 1560 une indemnité forfaitaire mensuelle de dix mille francs. La dépense est imputable au Budget local, chap. 10, art. 1° », § 38 (heures supplémentaires).

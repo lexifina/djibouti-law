@@ -1,1 +1,0 @@
-Par décision du Gouverneur, en date du 1 mars 1906, le nommé Mohamed Saleh, Agent de 1″ classe de la police urbaine est nommé caporal de la même police pour compter de la même date à la solde mensuelle de 35 francs

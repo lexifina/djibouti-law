@@ -1,1 +1,0 @@
-L’Etat francais est autorisé à acquérir deux parcelles de terrains bâties, sises à Djibouti, boulevard du Maréchal-Foch, immatriculée au Livre foncier du Territoire sous le n° 125 et le n° 443, au nom du Crédit foncier immobilier.

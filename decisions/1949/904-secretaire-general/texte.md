@@ -1,1 +1,0 @@
-Pendant l’absence de CHamboredon (robert). administrateur des colonies, secrétaire général. M. Rouland (Maurice), administrateur de 2° classe des colonies, assurera l’expédition des affaires courantes du secrétariat général.

@@ -1,1 +1,0 @@
-Mme Beyrand (Anne-Marie) est engagée en qualité de dame-employée auxiliaire 2e catégorie, et mise à la disposition de l’Inspecteur du Travail pour compter du 1er avril 1953, en remplacement numérique de Mme Magne, démissionnaire de son emploi.

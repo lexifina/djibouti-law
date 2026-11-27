@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Mohamed Youssouf Elmi, infirmier de 2e classe -1er échelon du corps territorial de la Santé publique, en service à l’hopital Peltier, (Ministère de la Santé publique et des Affaires Sociales), pour manque de conscience professionnelle et refus d’obéir aux ordres du gestionnaire de l’hopital Peltier.

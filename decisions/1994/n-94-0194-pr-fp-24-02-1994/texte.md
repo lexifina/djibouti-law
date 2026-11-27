@@ -1,2 +1,0 @@
-chef du gouvernement, en date du 24 février 1994, M. Ali Farah Assoweh, administrateur civil de 2e cl 1er échelon du corps de l’Administration générale en service à l’Education nationale, est nommé chef du Bureau d’Etudes et d’Evaluation de la Direction générale de l’Education nationale à compter du 1er octobre 1993.
-A cet effet, l’intéressé bénéficiera de la bonification de 300 points d’indice prévue par le décret n° 89-063/PR.

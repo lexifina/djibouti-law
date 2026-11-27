@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Guirreh Roble Farah, agent d’hospitalisation principal, 2° échelon, du Cadre. territorial du Service de Santé, en service au Centre médical Paul-Faure, pour n’avoir pas été présent à son service le dimanche 27 août 1969, alors qu’il était de garde.

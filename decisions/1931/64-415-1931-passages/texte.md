@@ -1,1 +1,0 @@
-un passage de retour par anticipation à la famille de M. Faucilhon (Georges), vérificateur des douanes. Mme Faucilhon et son fils prendront passage sur le paquebot Chantilly, de la Compagnie des Messageries Maritimes, attendu à Djibouti, le 12 juin 1931.

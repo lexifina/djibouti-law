@@ -1,1 +1,0 @@
-Une Commission composée du Chef de l’Inscription Maritime, du chargé du Service des Travaux Publics, de M. Guillermic, patron au bornage et de M. Magaud, mécanicien breveté de la Marine, a été nommée pour procéder à la visite annuelle du remorqueur Abeille” et de la vedette à vapeur ”’Mouche” appartenant à la Compagnies des Messageries Maritimes.

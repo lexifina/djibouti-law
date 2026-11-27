@@ -1,1 +1,0 @@
-M. Rousseau (Georges), comptable à la Compagnie du chemin de fer franco-éthiopien, service armé, classe de mobilisation 1931, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

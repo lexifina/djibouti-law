@@ -1,1 +1,0 @@
-M. Abdoul (Antoine), infirmier stagiaire 10e échelon, en service à l’Hôpital principal, est licencié de son emploi pour compter du 8 février 1952, date à laquelle il a abandonné son poste sans autorisation.

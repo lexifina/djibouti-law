@@ -1,1 +1,0 @@
-et pour compter du 11 du même mois, le nommé Cheikh Saido a été nommé infirmier de 2ème classe et détaché au Service sanitaire maritime en remplacement numérique de l’Infirmier de 1ère classe Ismael Ouarsama licencié par décision du 26 Décembre 1914.

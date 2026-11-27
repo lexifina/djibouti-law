@@ -1,1 +1,0 @@
-M. Robleh Bœuh, chauffeur-mécanicien de 2e classe, 3e échelon du cadre local en service à la Base Aérienne, est mis à la disposition du Ministre de la Production, de l’Elevage et de l’Agriculture pour compter du 28 novembre 1960.

@@ -1,1 +1,0 @@
-M. Blondy Lucien, conducteur principal des Travaux Publics de l’Etat, 8 échelon, est, pour compter du 7 novembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics et du Port, pour servir à la Subdivision construction de la direction des Travaux Publics, (travaux neufs), en remplacement numérique de M. Pierre Duverneuil,rapatrié.

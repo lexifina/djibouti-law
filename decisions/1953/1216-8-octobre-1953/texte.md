@@ -1,1 +1,0 @@
-M. Thoue (Michel), instituteur de 6e classe, en service au Cours complémentaire de Djibouti, est nommé directeur de l’école d’Ali-Sabieh, pour compter du 1er octobre 1953, en remplacement de M. Goury, partant en congé.

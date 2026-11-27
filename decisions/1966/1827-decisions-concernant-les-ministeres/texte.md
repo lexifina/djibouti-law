@@ -1,1 +1,0 @@
-Une subvention de trois cent mille francs Djibouti (300.000 FD) est accordée au Comité antituberculeux d’entraide et d’éducation sanitaire de la Côte Française des Somalis à titre de participation à ses frais de fonctionnement.

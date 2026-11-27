@@ -1,1 +1,0 @@
-le nommé Hussein Bavaneh sujet abyssin, sera, à l’expiration de la peine d’emprisonnement qu’il purge, expulsé de 14 eGlonie et reconduit à la frontière de l’Ethiopie, les territoires de la Côte francaise des Somalis et dépendances lui restant interdits.

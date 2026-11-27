@@ -1,2 +1,0 @@
-La Banque Nationale pour le Commerce et l’Industrie (Océan Indien), ayant constitué le cautionnement prévu, est agréée pour se porter caution personnelle et solidaire de titulaires de marchés publics, en application des dispositions de la délibération n° 2/7°L du 12 décembre 1968 portant Code des Marchés publics.
-Les engagements à souscrire en qualité de caution devront être conformes au modèle annexé à l’arrêté n° 69-470/SG du 20 mars 1969.

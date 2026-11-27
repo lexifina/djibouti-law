@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est-inflisé-à M Ahmed Ali Bouh, moniteur de 2° classe, 3° échelon, du COrps territorial des Services de l’Agriculture et de l’Elevage, pour manque de conscience professionnelle et maivaise manière habituelle de servir.

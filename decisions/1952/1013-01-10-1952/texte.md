@@ -1,1 +1,0 @@
-M. Mohamed Saleh Ahmed est engagé à titre essentiellement précaire et révocable en qualité d’observateur auxiliaire au salaire mensuel de 10.000 francs, exclusif de toute indemnité, pour compter du 1er septembre 1952, et mis à la disposition du Chef du Service de la Météo.

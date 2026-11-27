@@ -1,2 +1,0 @@
-M. Omar Dorani, comptable auxiliaire, échelle VII, 1er échelon, indice local 655, en service aux Travaux Publics (Subdivision des Routes), est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan, pour servir à l’Enregistrement des Domaines et du Timbre, en remplacement numérique de M. Nasser Ayach, décédé.
-La présente décision prendra effet pour compter du 1er septembre 1960.

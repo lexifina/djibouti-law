@@ -1,1 +1,0 @@
-le pharmacien capitaine Gasq, désigné pour servir hors cadres à ia Côte française des Somalis, débarqu à Djibouti le 27 décembre 1936, est chargé, en remplacement du pharmacien lieutenant Monnet, de la pharmacie, des laboratoires et de la direction des services d’hygiène de la ville de Djibouti.

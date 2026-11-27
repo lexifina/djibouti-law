@@ -1,1 +1,0 @@
-Une autorisation administrative est accordée à Mie Anab Houssein Arab pour exercer le commerce des boissons, licence de 1er classe, sis au quartier n° 2, avenue de Brazzaville, maison n° 22 à Djibouti.

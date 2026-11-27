@@ -1,1 +1,0 @@
-M. Dupont Rémy, technicien de la Navigation aérienne, 11e échelon, est nommé chef du Service de la Navigation aérienne et commandant civil de l’Aérodrome de Djibouti à titre intérimaire, et pour la durée de l’absence de M. Gaudin Jean, titulaire à compter du 29 mai 1964 d’un congé de quatre mois à passer en métropole.

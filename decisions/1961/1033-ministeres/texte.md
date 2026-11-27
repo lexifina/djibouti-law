@@ -1,1 +1,0 @@
-L’autorisation d’exploiter au bar-restaurant «Le Grillon », sis à Djibouti au Plateau du Serpent, une licence de première classe pour la vente de boissons alcooliques ou hygiéniques à consommer sur place ou à emporter, est transférée de Mme Bergonzi Julie à Mme Terrien Gilberte.

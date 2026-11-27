@@ -1,1 +1,0 @@
-le personnel du poste de T. S. F. a ondes courtes est autorisé à employer les voitures de place dans ses déplacements de service, aux tarifs fixés par les arrêétés en vigueur. Ces dépenses seront remboursées par dizaine sur états certifiés exacts par le chef de poste.

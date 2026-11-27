@@ -1,1 +1,0 @@
-M. MARIANOS, mécanicien, .-ou.- chef d’atelier au service des Travaux publics est admis pour compter du 1er juillet 1943 au salaire mensuel de 5.400 traites exclusif de toute indemnité à l’exception des indem nité à l’exeption des indemnités pour char ges de famille.

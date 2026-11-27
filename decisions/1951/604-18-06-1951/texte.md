@@ -1,1 +1,0 @@
-M. Pouillart (Jean), inspecteur de la Direction des Renseignements généraux et des Jeux, détaché à la Côte Française des Somalis, arrivé à Djibouit le 11 juin 1951, est nommé chef du Service de la Sûreté.

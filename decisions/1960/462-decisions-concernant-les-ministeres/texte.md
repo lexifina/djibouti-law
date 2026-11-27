@@ -1,3 +1,0 @@
-Une indemnité pour décès des suites de maladie professionnelle, de trois cent cinq mille sept cent vingt-trois francs (305.723 fr.) est accordée aux enfants mineurs (Fathma Mohamed et Kako Mohamed) de Mohamed Aboubaker, journalier au laboratoire de bactériologie de l’Hôpital Peltier, décédé des suites d’une maladie professionnelle le 31 août 1959, lesdits enfants mineurs ayant pour mandataire délégué le nommé Ali Mirgane (ou Mirgent) Moumine.
-Le paiement de cette indemnité implique la renonciation par les bénéficiaires ou leur représentant à tout recours civil ou contentieux.
-La débense est imputable sur le Budget local. Exercice 1960.

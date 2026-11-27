@@ -1,1 +1,0 @@
-M. Casabianca Charles, secrétaire d’administration contractuel catégorie C, 10° échelon, en service au Cercle d’Ali Sabieh, est, pour compter du 1% mai 1965, nommé agent spécial, gérant de l’agence postale d’Al Sabieh.

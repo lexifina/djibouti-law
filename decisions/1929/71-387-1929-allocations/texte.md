@@ -1,1 +1,0 @@
-jusqu’à nouvel ordre, et à compter du 1er janvier 1929, une indemnité de soixante francs par mois est allouée à l’interprète Bourhane Abdul Kader, en service à Tadjourah, pour sa participation au fonctionnement de l’école indigène du poste.

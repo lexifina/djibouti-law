@@ -1,1 +1,0 @@
-Le Gendarme Segalas, Fernand, est nommée L’admisitratif comptable billeteur et Régisseur de la Caisse d’Avance de la Garde Territoriale, pour compter du 16 novembre 1963 en remplacement du Maréchal des Logis chef Jacquet, André, én instance rapatriement.

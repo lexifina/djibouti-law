@@ -1,2 +1,0 @@
-1° Les restes mortels de M. Razafindra manta (Paul), ex-charpentier employé au bervice des Travaux publics, décédé le 25 juin 1940 et inhumé à Djibouti, seront transférés à Mandrosoa, canton d’Ilafy, district de Tananarive-Banlieue:
-2° Les dépenses afférentes à l’exhumation et au transfert du corps du défunt Jusqu’au lieu de réinhumation, seront supportées par le budget de la Côte Francaise des Somalis:

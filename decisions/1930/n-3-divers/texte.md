@@ -1,1 +1,0 @@
-l’Abyssin Kabada Aoualé est nomme blanchisseur à Phôtel du Gouvernement pendant l’absence de Mohamed Ali, Il aura droit en cette qualité à une solde mensuelle de 250 franes, à compter du 1 avril 1930.

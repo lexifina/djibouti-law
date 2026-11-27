@@ -1,3 +1,0 @@
-Mme. DEKA BARKAD ABDI, est engagée à la 1ère catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique M. BARKAD ABDI ILMI (PB n°75CC).
-Mme. HOUDA IDRISS BACHIR, est engagée à la 1ère catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique de la regrettée. Fatouma Ahmed Djama, décédée (PB n°775 CC).
-La présente décision prend effet à compter du 08 janvier 2023.

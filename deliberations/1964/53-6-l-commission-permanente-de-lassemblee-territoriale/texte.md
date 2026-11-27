@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 460 du.ler avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à Mme Georges Gleyze la concession provisoire d’un terrain d’une superficie de mille trois cent dix-huit mètres carrés sise à Djibouti, lieu dit « Brise-de-Mer», au prix de un franc le mètre carré.

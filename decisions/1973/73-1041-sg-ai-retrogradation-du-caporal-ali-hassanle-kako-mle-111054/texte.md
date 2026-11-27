@@ -1,1 +1,0 @@
-La retrogradation du grade de 1er classe au grade de 2e est prononcé par mesure disciplinaire, à l’encontre du caporal Ali Hassanlé Kako, Mle 1013, la sanction prendra effet, pour compter du lendemain de la notification, à l’intéressé, de la présente décision.

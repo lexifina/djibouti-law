@@ -1,1 +1,0 @@
-M. Madi Youssouf Samatar. est autorisé à mettre en service les réservoirs souterrains devant contenir des liquides inflämmables et les installations servant à l’alimentation du four de la boulangerie située au centre commercial, Cité Einguela.

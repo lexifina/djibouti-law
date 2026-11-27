@@ -1,1 +1,0 @@
-L’adjudant Boyer, les sergents Rey, Boivin, Guillou et Dupuis du bataillon de tirailleurs sénégalais de la Côte française des Somalis, sont placés dans la position hors cadres à compter du 1er février 1938, et mis à la dispo sition du chef de bataillon commandant la milice.

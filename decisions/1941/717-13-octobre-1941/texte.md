@@ -1,1 +1,0 @@
-M. l’administrateur adjoint Febreau. lieutenant de réserve hors cadres, est provisoirement chargé du Bureau politique. Il assurera cet intérim cumulativement avec ses fonctions au Service des domaines.

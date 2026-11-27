@@ -1,1 +1,0 @@
-Un congé de quinze jours, valable du 1er au 15 mai 1941, est accordé à M. Rajaonarivony (jean), employé contractuel, en service aux contributions, pour en jouir dans le territoire de la Côte francaise des Somalis.

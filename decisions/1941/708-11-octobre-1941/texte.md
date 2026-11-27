@@ -1,1 +1,0 @@
-Les attributions confiées par arrêté n° 625 du 14 sepembre 1911 susvisé à M. l’administrateur des colonies Berger seront exercées à compter de ce jour par M. l’administrateur adjoint des colonies Febreau, actuellement mobilisé en qualité de lieutenant de réserve.

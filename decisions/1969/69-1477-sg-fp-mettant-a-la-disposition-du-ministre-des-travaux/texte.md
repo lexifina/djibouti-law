@@ -1,1 +1,0 @@
-M. André Reynaud, volontaire de l’Aide technique, est, pour compter du 22 septembre 1969, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir en qualité de technicien électronicien à Electricité de Djiobuti.

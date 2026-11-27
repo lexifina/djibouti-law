@@ -1,1 +1,0 @@
-une indemnité de route fixée à cinq francs par jour sera allouée à l’interprète-auxiliaire Abeba Mocroa, en service à Tadjourah, à l’occasion des tournées qu’il aura à effectuer avec le commandant de ce cercle.

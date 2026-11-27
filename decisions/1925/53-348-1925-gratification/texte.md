@@ -1,1 +1,0 @@
-une gratification de 75 francs est allouée à M. Duval, agent technique du service des travaux publics, pour travaux d’installations électriques, dans les immeubles du service local, pendant le mois d’octobre, et en dehors des jours ouvrables.

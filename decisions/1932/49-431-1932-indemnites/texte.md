@@ -1,2 +1,0 @@
-les décisions des 3 juillet 1930, allouant une indemnité de permanence aux plantons en service au cabinet du gouverneur, et du 28 décembre 1931, portant augmentation de l’indemnité de permanence allouée au personnel susvisé, sont rapportées en ce qui concerne Hassen Boeuh.
-Une indemnité mensuelle de permanence de 39 francs est accordée au planton de 3e classe Hassen Boeuh, en service au 1er bureau du gouvernement, pour compter du 1er octobre 1932.

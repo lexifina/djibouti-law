@@ -1,1 +1,0 @@
-L’aliocation viagère de dix mille deux cent vingt-cinq francs allouée par décision n° 122 du 25 janvier 1849, à Guelie Ali, acieén planten-chef au Gouvernement, qui a servi trente ans dans l’Admiänistration, est portée à vingt-huit mille cinq cent quatre-vingts francs (28.586 fr.), pour compter du 1 janvier 1951

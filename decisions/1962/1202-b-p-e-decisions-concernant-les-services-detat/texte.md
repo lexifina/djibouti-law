@@ -1,1 +1,0 @@
-La décision n° 97 du 18 janvier 1962 portant mutation de MM. Kedamy Youssouf, agent auxiliaire (échelle V, 3° échelon, indice local 435), en service à la Sûreté Générale et Omar Ahmed, planton auxiliaire (échelle IITI-2° échelon, indice local 260), en service à la Météorologie, est rapportée,

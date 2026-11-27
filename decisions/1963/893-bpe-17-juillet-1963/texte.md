@@ -1,1 +1,0 @@
-M. Serpaggi Jean, chef de bureau principal de classe exceptionnelle des Services administratifs et financiers est mis à la disposition du Ministre des Finances, des Affaires économiques et du Plan, pour compter du 5 juillet 1963, date de son arrivée dans le Territoire.

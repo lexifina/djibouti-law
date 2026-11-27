@@ -1,1 +1,0 @@
-le bénéfice de la libération conditionnelle est accordé au nommé chehem Ben Omar, dankali, condamné à 10 ans de travaux forcés, le 22 août 1922, peine commuée en dix années d’emprisonnement par décret du 30 mai 1925.

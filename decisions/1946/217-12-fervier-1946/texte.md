@@ -1,1 +1,0 @@
-Les nommés Hoummad Idriss Adora seol, Mirganto, Galanto) et Walao Ali (Debné, Arkaméla, Adanto), ont été engagés comme plantons stagiaires 1er échelon, si compter du 1er février 1946 et mis à la disposition du commandant de cercle de Dikhil.

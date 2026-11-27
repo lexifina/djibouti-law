@@ -1,2 +1,0 @@
-13 mai 1937, une commission se réunira au burean ‘enregistrement pour constater l’état des timbres 0 fr. 75 et de 3e francs et pro poser toutes mesures utiles.
-22 mai 1937, une commission se réunira sur la convecation de son président à l’effet d’étudier la proposition contenue dans la lettre en date du 15 mai 1937 du président de l’Associalion des fonctionnaires et agents coloniaux de la Côte française des Somalis et tendant à ‘attribution au personnel administrai if de la colonie d’une indemnité complémentaire de zone.

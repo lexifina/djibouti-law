@@ -1,1 +1,0 @@
-il sera délivré à M. Joulia, Joseph, Marie, Eugène, Administrateurs en chef de 1re classe des colonies, Gouverneur p. i. de la Côte française des Somalis, admis à faire valoir ses droits à la retraite, une réquisition de passage en 1re classe pour lui et sa femme.

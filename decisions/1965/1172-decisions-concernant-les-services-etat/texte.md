@@ -1,1 +1,0 @@
-Le milicien de 2° classe Omar Gueleh Iltreh, Mle 2626, de la 1 Compagnie de Milice à Dikhil, est licencié par mesure disciplinaire à compter du 10 juillet 1965. L’intéressé étant licencié disciplinairement, ne peut prétendre à aucune indemnité.

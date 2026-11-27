@@ -1,1 +1,0 @@
-M. Faverjon Georges, brigadier de police est pour compter du 4 juillet 1975 date de son arrivée dans le Territoire mis à la disposition du chef de District de Djibouti (ministère de l’Intérieur et des Affaires Musulmanes) pour l’encadrement du détachement de sécurité publique.

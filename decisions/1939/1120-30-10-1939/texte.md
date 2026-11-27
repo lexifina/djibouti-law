@@ -1,1 +1,0 @@
-M. Griveau (André), lieutenant de port, service arme, classe de mobilisation 1911, est classé dans l’affectation spéciale dans son emploi actuel pour une durée de trois mois, à compter de la date de la presente décision.

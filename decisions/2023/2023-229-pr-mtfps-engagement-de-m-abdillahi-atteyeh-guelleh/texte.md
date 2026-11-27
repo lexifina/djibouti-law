@@ -1,2 +1,0 @@
-Par décision n°2023-229/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 21 juin 2023, M. ABDILLAHI ATTEYEH GUELLEH, est engagé à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education National et de la Formation Professionnelle, en remplace numérique du regretté ABDI SAID GUELLEH, décédé.
-La présente décision prend effet à compter du 21 juin 2023.

@@ -1,2 +1,0 @@
-Le caporal Ali Kaim, mle 75, et le garde méhariste de 1re classe Regueh Aden. mle 351, sont libérés du service actif pour fin de contrat le 16 mars 1942, date à laquelle ils ont atteint quinze ans de services.
-Un pécule de deux mille cinq cents francs est alloué au garde méhariste de 1re classe Regueh Aden, mle 351, et un pécule de froix milh franc au caporal Ali Kaim, mle 75, pour leurs quinze ans de services accomplis au 16 mars 1942.

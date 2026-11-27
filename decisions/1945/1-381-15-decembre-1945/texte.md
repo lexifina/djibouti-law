@@ -1,1 +1,0 @@
-MM. Hauw, chef de l’exploitation de l’usine électrique, et Mitler, électricien contractuel, ont été habilités à dresser procès-verbal des infractions aux règlements en vigueur con cernant la distribution de courant électrique.

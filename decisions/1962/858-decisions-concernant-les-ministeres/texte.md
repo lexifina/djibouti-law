@@ -1,2 +1,0 @@
-M. Moussa Bourale, infirmier-vétérinaire auxiliaire du Service de l’Elevage, est nommé infirmier-vétérinaire stagiaire du Cadre Territorial de l’Elevage pour compter du 1 juin 1962.
-Au cas où la solde indiciaire de M. Moussa Bourale afférente à son emploi d’infirmier-vétérinaire stagiaire serait inférieure à celle qu’il percevait jusqu’au 31 mai 1962, la différence lui sera accordée, à titre personnel, sous forme d’indemnité compensatrice.

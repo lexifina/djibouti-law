@@ -1,1 +1,0 @@
-Mme Puche (Marguerite), dame employée auxiliaire à salaire journalier (2e catégorie), en service aux P. T. T., est nommée dame em ployée auxiliaire à salaire mensuel (2e catégorie), à compter du 2 novembre 1946.

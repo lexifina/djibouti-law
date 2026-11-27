@@ -1,1 +1,0 @@
-M. Idriss Bourhan Omar, aide-facturier auxiliaire, échelle III, 1er échelon, indice 235, en service à l’ « Electricité de Djibouti», est mis à la disposition du Ministre des Travaux Publics et du Port pour servir aux Travaux Publics pour compter du 1er octobre 1960.

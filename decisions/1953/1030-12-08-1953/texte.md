@@ -1,1 +1,0 @@
-M. S. Balakichenaretty, commis du Gouvernement de l’Inde française, détaché dans le cadre local des Travaux publics de la Côte Française des Somalis, est mis à la disposition du Chef de Cabinet du Gouverneur, Chef de Bureau du Personnel, pour compter du 9 août 1953, date de son arrivée à Djibouti.

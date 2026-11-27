@@ -1,1 +1,0 @@
-M. Saintol (Georges), juge suppléant près le tribunal de premiére instance de Djibouti, est chargé par intérim des fonctions de président dudit tribunal, en remplacement de M. Bargone, titulaire du poste, appelé à d’autres fonctions

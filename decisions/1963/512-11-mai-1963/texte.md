@@ -1,2 +1,0 @@
-M. Pierront Roger est autorisé à exploiter dans l’établissement le « Bar de l’Escale », sis à Djibouti, une licence de 2e classe pour la vente en gros de boissons alcooliques et hygiéniques et pour la vente au détail de boissons alcooliques et hygiéniques exclusivement à emporter.
-Le Commandant de Cercle de Djibouti et le Chef du Service des Contributions directes sont chargés, chacun en ce qui le concerne, de l’exécution de la présente décision qui sera enregistrée, publiée et communiquée partout où besoin sera.

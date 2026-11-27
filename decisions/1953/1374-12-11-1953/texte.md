@@ -1,1 +1,0 @@
-M. Clergue. (Marc), ingénieur-adjoint de 3e classe des Travaux Météorologiques, est mis à la disposition du Chef du Service Météorologique, pour compter du 3 novembre 1953, date de son débarquement sur le Territoire.

@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est infligé à M. Mohamed Houmed Mohamed, infirmier de 2° classe – 2° échelon du corps territorial de la Santé Publique, pour absence irrégulière et non motivée du 28 août et 2 septembre 1974 et pour mauvaise manière habituelle de servir.

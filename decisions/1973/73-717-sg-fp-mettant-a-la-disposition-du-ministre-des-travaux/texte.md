@@ -1,1 +1,0 @@
-M. Serge Philipponneau, conducteur principal des Travaux publics de l’Etat, 4e échelon (I.M. 275), est, pour compter du 18 mars 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir à la Direction des Travaux publics (subdivision infrastructure).

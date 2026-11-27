@@ -1,2 +1,0 @@
-M. Jean-Francis Carbonnières, attaché principal d’administration centrale de 1° classe, est, pour compter du 9 juin 1971, date de son arrivée dans le territoire, mis à la disposition du Président du Conseil de Gouvernement pour servir au District de Djibouti, en qualité de délégué spécial pour les matières d’état civil, d’identité et de nationalité.
-Les dépenses résultant de la présente décision sont imputables au budget de l’Etat.

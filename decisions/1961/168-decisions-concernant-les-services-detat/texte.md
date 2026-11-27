@@ -1,1 +1,0 @@
-M. Martialis Georges), payeur hors classe des Trésoreries d’Outre-Mer, dont le le séjour administratif arrive à expiration lé 16 février 1961 est autorisé à prolonger son séjour de quatre mois pour compter de la date précitée.

@@ -1,1 +1,0 @@
-M. Badri Mohamed Said, infirmier de 2e classe, 2e échelon du cadre territorial de la Santé publique, en service au dispensaire du cercle de Tadjourah, est, sur sa demande, placé en position de disponibilité sans traitement pour une durée de deux ans, à compter du ler septembre 1975, pour convenances personnelles, PB n° 127 CT

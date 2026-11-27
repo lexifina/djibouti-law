@@ -1,2 +1,0 @@
-M. Desanti (Jean), chef de division de Préfecture de 5° échelon, mis à la disposition du Ministre des Travaux publics et du Pert, président du Conseil d’administration d’Djbouti», pour occuper le poste de chef du Service administratif d’ «Electricité de Djibouti», est mis, cumulativement avec ses fonctions et à titre provisoire, à la disposition du Mnstre des
-Affares intérieures pour servir au Cercle de Djibouti en qualité d’adjoint au Commandant de Cercle.

@@ -1,2 +1,0 @@
-L’agent journalier de 5e catégorie Issa Mohamed Nour, précédemment en srevice à l’Hôpital Peltier en qualité de chauffeur, est licencié de son emploi pour compter du 23 juillet 1966.
-L’intéressé, qui comptait à la date de son licenciement 5 ans, 6 mois et 22 jours de service, bénéficiera d’une indemnité de licenciement égale à 30 jours de salaire en application des dispositions de l’article 16 de la Convention collective précitée.

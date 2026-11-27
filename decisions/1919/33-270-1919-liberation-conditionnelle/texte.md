@@ -1,1 +1,0 @@
-Est accordée après paiement de l’amende et des frais de justice, la mise en liberté conditionnelle du sieur Omar Saleh, condamné le 23 septembre 1918, à dix-huit mois de prison et deux cents francs d’amende, pour escroquerie et tentative d’escroquerie.

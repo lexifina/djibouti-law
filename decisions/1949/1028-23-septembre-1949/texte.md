@@ -1,1 +1,0 @@
-Abdi Bidar, chauffeur 12° échelon, au ser vice de l’enseignement, qui fait l’objet de poursuites judiciaires depuis le 8 septembre 1940, percevra la moitié de sa solde de pré sence, sans accessoires, pour compter de cette même date.

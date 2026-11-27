@@ -1,1 +1,0 @@
-M. Elmi Ahmed est engagé, à titre essentiellement précaire et révocable, en qualité de mécanicien auxiliaire au salaire mensuel de 12.400 francs (allocations à caractère familial non comprises), pour compter du 5 mai 1953 et mis à la disposition du Commandant de eCrcle de Diibouti pour servir à la Voirie, en remplacement numérique de M. Faraoni, licencié.

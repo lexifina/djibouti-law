@@ -1,1 +1,0 @@
-Un blôme est infligé à M. Aouled Waberi Bouh, technicien de 2e classe, 1e échelon (indice 450), du Cadre territorial de la Santé publique, en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales), pour manque de conscience professionnelle.

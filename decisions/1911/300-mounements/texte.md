@@ -1,1 +1,0 @@
-M. Carreau, Administrateur de 3e classe des Colonies est chargé de l’étude des dispositions à prendre pour assurer Fapplication, dans la Colonie, du décret du 1er mars 1909 portant organisation de la Propriété foncière à la Côte francaise des Somalis.

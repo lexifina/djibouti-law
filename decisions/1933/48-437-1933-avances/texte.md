@@ -1,1 +1,0 @@
-une avance renouvelable, sont le montant ne pourra excéder 50,000 francs et ont il aura à justifier l’emploi, sera mise à la disposition de M. Brossy (André), régisseur comptable du service des travaux publics, pour le payement des travaux extraordinaires exécutés au titre des fonds d’emprunt.

@@ -1,2 +1,0 @@
-M. Rassendren (Jules), Conseilled d’une Cour d’Appel de 1er classe, actuellement en service à Djibouti, est chargé, cumu lativement avec ses fonctions, des attributions de Chef du Ser vice Judiciaire de la Côte Française des Somalis, pendant l’ab sèncé du titulaire.
-M. Renaud (Alain), Substitut du Procureur de la République, est nommé Procureur de la République par intérim près le Tribunal Supérieur d’Appel de Djibouti. La présente décision aura effet pour compter du 8 juillet 1952

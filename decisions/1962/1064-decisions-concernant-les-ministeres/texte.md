@@ -1,2 +1,0 @@
-Le Sergent-Chef Mathias Joanny, désigné pour continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 4 juillet 1962 à destination de Djibouti est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 15 juillet 1962, date de son arrivée sur le Territoire.
-Ce sous-officier est désigné pour occuper les fonctions d’infirmier-major au Dispensaire Farah-Had pour compter du 15 juillet 1962 en remplacement du Sergent Donabedian, rapatrié pour fin de séjour.

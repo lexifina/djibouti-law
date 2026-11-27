@@ -1,1 +1,0 @@
-Est acceptée pour compter du 1er Mars 1943 la démission de son amploi présentée par M. GHALEB Paul, auxiliaire au Service de l’Enregistrement. M. GHALEB Paul qui compte environ seize années de service dans l’administration locale a droit à une indemnité de licen ciement égale à trois mois de solde globale.

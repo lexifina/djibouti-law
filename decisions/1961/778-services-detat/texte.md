@@ -1,1 +1,0 @@
-Un congé de maternité de quatorze semaines, dont huit à solde entière et six à demi-solde, est accorde, pour compter du 25 mai 1961, à Mme Natalis Etiennette, matrone auxiliaire en service à Hôpital Peltier.

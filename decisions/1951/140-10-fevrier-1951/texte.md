@@ -1,2 +1,0 @@
-1° Un congé administratif de six mois pour en jouir à Karikal (Indes françaises) est accordé à, M. Perianayagassamy (Pierre), chef de bureau de 1re classe des Secrétariats généraux des Colonies, dont le séjour outre-mer a expiré le 19 novembre 1950.
-2° Une réquisition de passage par voie maritime Djibouti-Colombo et une réquisition par voie ferrée (ou aérienne) Colombo-Pondichéry-Karikal) seront délivrées à M. Perianayagassamy (Pierre) qui appartient au groupe II.

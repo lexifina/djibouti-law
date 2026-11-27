@@ -1,1 +1,0 @@
-un témoignage officiel de satisfaction est accordé à MM. Colombani, Horace, commis des douanes, et Dubet, François, brigadier des douanes, pour le courage et le dévouement dont ils ont fait preuve à l’occasion de la capture de 3 boutres pratiquant de la contrebande dans les eaux territoriales.

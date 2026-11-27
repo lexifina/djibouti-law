@@ -1,1 +1,0 @@
-Du Gouvernement en date du 30 décembre 1909, la solde coloniale de M. Lassaigne, administrateur-adjoint de 3e classe des Colonies est portée de 5.500 à 6.000 fr. par an pour compter du 1er janvier 1910.

@@ -1,1 +1,0 @@
-M. Grandidier (Jacques), adjoint technique des Travaux Publics des Colonies, est mis à la disposition de M. le Directeur du Port, pour assurer le contrôle des travaux, pendant l’absence de M. l’Ingénieur Malescot, hospitalisé.

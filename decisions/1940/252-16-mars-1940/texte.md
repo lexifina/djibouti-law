@@ -1,1 +1,0 @@
-M. Merrier (Charles), directeur de la Société Somalisme, service armé, classe de mobilisation 1914, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

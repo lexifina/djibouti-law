@@ -1,1 +1,0 @@
-Les attributions confiées par arrêté n° 708 du 11 octobre 1941 à M. l’administrateur ad joint des colonies Febreau seront exercées, à compter du 1er janvier 1942 par M. l’adminis trateur de 2e classe des colonies Parthenay.

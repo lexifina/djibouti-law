@@ -1,1 +1,0 @@
-L’administrateur des colonies Chamboredon (Robert), chef du Cabinet civil, inspecteur des affaires administratives p. i., est chargé de l’expédition des affaires courantes et urgentes, durant l’absence du Gouverneur en tournée à l’intérieur de la colonie.

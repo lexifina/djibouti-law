@@ -1,2 +1,0 @@
-Par décision n°2023-199/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 25 mai 2023, Mme. MOMINA ALI KAMIL, est engagée à la 1ère Catégorie C, de la Convention Collective du 26 décembre 2011, en qualité de femme de ménage pour servir à la Primature, en remplacement numérique de Mme. KADIGA HOUSSEIN DAOUD, démissionnaire.
-La présente décision prend effet à compter du 25 mai 2023.

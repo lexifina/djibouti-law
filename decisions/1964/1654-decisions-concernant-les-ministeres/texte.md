@@ -1,2 +1,0 @@
-Le Médecin Capitaine Guiot (André). désigné pour servir «hors cadres» en Côte Française des Somalis, embarqué le 25 septembre 1964 à destination de Djibouti, est mis à la disposition. du Ministre des Travaux publics et du Port pour compterdu 7 octobre 1964, date de son arrivée sur le Territoire.
-Cet officier est désigné pour occuper les fonctions de médecin chef du Service médical du Port de Djibouti.

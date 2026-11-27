@@ -1,1 +1,0 @@
-congé de trois mois à demi-solde passer en pays Gadaboursi, a été accordé au planton du 1ère classe Guellé Ali, pour compter du 1er Mai 1915 ; le nommé Ahmed Godchié, arabe a été nommé, pour un période de trois mois, à comp ter du 1er Mai 1915, planton au Secrétariat Gé néral à la solde mensuellede 30 francs, pendant l’absence du planton Guellé Ali

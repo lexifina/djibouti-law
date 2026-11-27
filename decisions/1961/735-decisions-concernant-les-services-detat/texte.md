@@ -1,2 +1,0 @@
-Le Médecin Lieutenant-Colonel Bouche, directeur du service territorial de la Santé et médecin-chef de l’Hôpital Peltier, est remis à la disposition du Ministère des Armées, pour compter du 16 juin 1961.
-Pour compter de la date précitée et jusqu’à l’arrivée du remplacant du Médecin Lieutenant-Colonel Bouche, le Médecin-Commandant Orio, chef du Service d’Hygiène, est chargé, cumulativement avec ses fonctions actuelles, des affaires courantes de la direction du Service territorial de la Santé et des fonctions de Médecin-Chef de l’Hôpital Peltier.

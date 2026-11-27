@@ -1,3 +1,0 @@
-L’article 1er de la décision n° 10355 du 11 octobre 1055 est modifié ainsi qu’il suit :
-M, Monnier (Edouard), administrateur adjoint des colonies, est nommé président du tribunal indigène du 1er degré, La dépense pour solde et accessoires de ce fonctionnaire est entiérement à la charge du budget local.
-M Poisson (Georges), administrateur adjoini des colonies, assurera les fonctions d’adjoint à l’administrateur-maire de Djibouti cumulativement avec celles d’adjoint an commandant de Cercle, Sa solde sera imputée pur moitié aux budgets local et communal ne L’article de la décision n° 1217 du 20 novembre 1939 est modifié comme quit : la solde et les accessoires de solde de M. Cuzauban sont imputés par moitié au budget communal et au budget local

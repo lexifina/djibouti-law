@@ -1,1 +1,0 @@
-M. Ibrahim Aptidon Guedi, domestique au salaire mensuel de 5.200 francs, exclusif de toutes indemnités autres que celles pour charges de famille, mis précédemment à la disposition de M. l’Inspecteur général Monguillot, est affecté à l’Hôtel du Gouvernement, en remplacement numérique de M. Idriss Ahmed, boy, décédé, pour compter du 27 septembre 1953

@@ -1,1 +1,0 @@
-M. Maury (Georges), vérifica teur hors classe. chef du bureau central de Djibouti. est nommé chef du service des douanes par intérim à compter du 24 avril 1937, date de l’embarquement de M. Bodin, chef du service titulaire.

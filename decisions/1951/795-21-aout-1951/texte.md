@@ -1,1 +1,0 @@
-La valeur unitaire des outils courants dits « Petit outillage non mécanique de consommation courante,e qu ne doivent pas être pris en charge par les dépositaires-comptables est fixée à deux mille cina cents francs Diibouti (2.500 fr.).

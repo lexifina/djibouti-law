@@ -1,1 +1,0 @@
-une permission de deux mois, dont quinze jours à solde entière, quinze jours à demi-solde et un mois sans solde, valable du 1er novembre an 91 décembre 1931 inclus, est accordée au sergent méhariste Mle 75 Daoualé Ousman et au garde mébhariste de 2er classe Saïd Abdi, Mle 42.

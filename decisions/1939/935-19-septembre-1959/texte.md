@@ -1,1 +1,0 @@
-M. Fontaine (Marc), commis principal de l’enregistrement, uspirant, service armé, classe de mobilisation 1918, est classé dans l’affectation spéciale comme chef du Service de lenregistrement et des domaines, pou une durée de trois mois, pour compter du 17 septembre 1939.

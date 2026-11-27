@@ -1,1 +1,0 @@
-Un congé de maternité de quatorze semaines dont huit à solde entière et six à demi-solde est accordé pour compter du 6 mars 1961 à Mme Marchasson Elise, sage-femme auxiliaire en service à la maternité Andrieu.

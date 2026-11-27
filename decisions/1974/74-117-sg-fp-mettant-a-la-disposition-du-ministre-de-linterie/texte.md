@@ -1,1 +1,0 @@
-M. Armand Blanch, surveillant-chef de l’Administration pénitentiaire 3° échelon (indice majoré 321) est, pour compter du 9 décembre 1973, date de son arrivée dans le territoire, mis à la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir à la prison civile de Djibouti (District de Djibouti).

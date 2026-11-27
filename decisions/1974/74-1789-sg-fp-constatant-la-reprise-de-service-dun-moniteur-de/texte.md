@@ -1,1 +1,0 @@
-Est constatée, pour compter du 26 août 1974, la reprise de Service de M. Ibrehim Houmed Daoud, moniteur d’enseignement spéciel de 2° classe, 4° échelon du corps territorial de l’enseignement publie du 1er degré, en service à l’école primaire de Yoboki (cercle de Din).

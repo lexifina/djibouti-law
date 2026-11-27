@@ -1,1 +1,0 @@
-Les nommés Abbas Noba et Nour Roble, chauffeurs à salaire journalier en service au cercle de Dikhil, sont nommés chauffeurs auxiliaires de 2e classe, respectivement 15e et 14e échelons, pour compter du 1er juin 1947.

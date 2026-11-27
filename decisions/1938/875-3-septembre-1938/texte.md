@@ -1,1 +1,0 @@
-M. Nicolas François), inspecteur stagiaire du cadre local de police à la Côte francaise des Somalis, est détaché au poste frontière d’Ali-Sabiet en qualité de « commissaire à l’immigration », pour compter du 11 septembre 1938.

@@ -1,1 +1,0 @@
-une subvention de 10.000 francs est allouée au comité de l’Alliance française de Djibouti pour permettre le fonctionnement pendant le 2e semestre 1922 des deux écoles primaires placées sous son controle.

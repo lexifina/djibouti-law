@@ -1,2 +1,0 @@
-un témoignage officiel de satisfaction est accordé à M. le Médecin-major de 1re classe des troupes coloniales Cozanet, Chef du service de santé de la Colonie, pour le zèle, l’activité inlassable, la haute conscience, les capacités administratives et professionnelles dont il a donné d’éclatantes preuves dans l’organisation, la direction et l’exécution d’un service particulièrement chargé.
-Ampliation de la présente décision sera transmise à M. le Ministre de la guerre, pour être versée au dossier de l’officier supérieur interessé.

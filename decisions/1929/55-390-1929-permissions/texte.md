@@ -1,1 +1,0 @@
-la décision du 8 mars 1929 accordant le rapatriement du sergent-chef Roux est rapportée, Le sergent-chef Roux, du 2e régiment mixte, en service détaché à la Côte française des Somalis qui comptera le 7 avril 1929 deux ans et un mois de séjour ininterrompu à la colonie, est rapatrié pour fin de campagne.

@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours à solde entière pour en jouir au Harrar (Ethiopie), est accordée à M. Razafitsiaronava (Gabriel), contremaître du cadre spécial de l’enseignement de Madagascar en service à l’école publique de Djibouti, pour compter du 15 septembre 1948

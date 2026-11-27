@@ -1,1 +1,0 @@
-M. Bedène de Lalagade (Marcel), lieutenant de réserve d’artillerie, directeur de la Société des Batignolles, est placé en affectation spéciale pour une nouvelle période de deux mois pour compter du 2 octobre 1939.

@@ -1,2 +1,0 @@
-M. Bernard Sarazin, administrateur civil de 1re classe, 5e éche-lon, est nommé Commandant de Cercle de Tadjourah et Président du Tribunal du deuxième degré dans le ressort dudit Cercle, en remplacement de M. Jean Zebrowskik, Administrateur en chef des A.O.M. de 3e échelon, rapatrié sanitaire sur la Métropole.
-Avant de prendre ses fonctions de Président du Tribunal du deuxièmé degré du Cercle de Tadjourah, M, Bernard Sarazin prêtera par écrit le’serment prescrit par la loi.

@@ -1,1 +1,0 @@
-L’adjudant-chef Barreau (Edmond), n° Mle 1955, a été placé dans la position « hors cadres » pour compter du 16 février 1946 et affecté à la milice indigène de la Côtes française des Somalis en remplacement du sergent-chef Lamblain (Edouard) remis dans les cadres pour compter du 15 février 1946.

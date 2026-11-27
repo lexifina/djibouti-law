@@ -1,1 +1,0 @@
-M. Mohamed Ali Mohamed Mouti est autorisé à acquérir la part indivise de Mme Doubaya Bent Salem Abdallah Mouti, Sur limmeuble sis à Djibouti, avenue 13, et immatriculé au Livre foncier du Territoire sous le n° 459, aux noms de M. Houssein Ali Mohamed Mouti et de Mme Doubaya Bent Salem Abdallah Mout.

@@ -1,2 +1,0 @@
-Un passage de retour par anticipation pour la Métropole est accordé aux enfants de M. Giustiniani, surveillant principal de 3e classe du Cadre local des Travaux publics de la Côte Française des Somalis.
-Une réquisition de passage par voie maritime Djibouti-Marseille et Une réquisition par voie ferrée Marseille-Grimaud (Var) seront délivrées aux intéressés âgés respectivement de 9 et 6 ans (groupe IV).

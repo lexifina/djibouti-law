@@ -1,1 +1,0 @@
-M. Enouf dit Duval, agent technique des travaux publics, est chargé du réglage et de l’entretien de l’horloge de la ville; il aura droit à l’allocation mensuelle de 30 francs prévue au budget en cours (chapitre 12, article 2, paragraphe 2).

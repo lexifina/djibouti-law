@@ -1,1 +1,0 @@
-M. Trobus, commis stagiaire des services civils en service au cercle de Djibouti, est chargé concurremment des fonctions d’huissier près les tribunaux européens de Djibouti en remplarement du gendarme Germain.

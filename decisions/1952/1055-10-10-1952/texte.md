@@ -1,1 +1,0 @@
-M. Mohamed Rirach, titulaire du certificat d’études industrielles, est engagé à titre précaire et révocable en qualité d’ouvrier auxiliaire au salaire mensuel de 9.000 francs, exclusif de toutes indemnités, pour compter du 1er octobre 1952 et affecté à l’école professionnelle de Djibouti.

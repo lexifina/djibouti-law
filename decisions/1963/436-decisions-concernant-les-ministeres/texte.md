@@ -1,1 +1,0 @@
-Un secours exceptionnel de dix mille (10.000) francs est accordé au titre de 1963 à M. Djama Aden Charmarkeh, Somalis, Issa, Rer Moussa, ex-sergent policier, demeürant au Quartier n° 4, pour réparation de sa case détruite par le vent.

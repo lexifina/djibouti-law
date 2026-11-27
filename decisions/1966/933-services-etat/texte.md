@@ -1,2 +1,0 @@
-Est accordée, au Colonel, directeur du Service Matériel et Bâtiment de la Côte Française des Somalis, l’autorisation préalable de construire un casernement Troupe en rez-de-chaussée et deux étages de 14 chambres «carré n° 1003» au Groupe H sis à Boulaos.
-La présente autorisation ne vaut pas permis de construire qui sera délivré par le Commandant de Cercle de Djibouti suivant la procédure réglementaire.

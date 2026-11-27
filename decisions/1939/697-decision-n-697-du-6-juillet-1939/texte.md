@@ -1,1 +1,0 @@
-M. Crozet (Jean), chef magasinier de la Compagnie du chemin de fer franco-éthiopien, service armé, classe de mobilisation 1918, classé dans l’affectation spéciale par décision n° 58, du 23 janvier 1956, est rayé de cette position pour compter de la date de la présente décision.

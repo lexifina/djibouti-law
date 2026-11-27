@@ -1,1 +1,0 @@
-1° le garde Abeba Ooalïlde N, Mie. 79 a été licencie à compter du ler Mai 1917, pour le mouf suivant: Incarcération à la prison civile pour vol au préjudice d’un civil. 2 Le garde Abdaiah Ahmed Ne Mile. 24 a été licencié pour fin d’engagement à compter du 8 Mai 1917.

@@ -1,1 +1,0 @@
-Est engagé en qualité d’observateur météo rologiste, au salaire journalier de 210 franes, M. Andrianarifetra (Gabriel), pour compter du 1er septembre 1947. Intéressé a droit a l‘indemnité d’expat ria lion prévue par les règlements.

@@ -1,1 +1,0 @@
-AL Merlo (Henri). sous-chef de bureau stagiaire des Secrétariats généraux, débarqué du vapeur Explorateur-Gramdidier, le 10 août 1937, est mis à la dis position de M. le chef des bureaux du Secrétariat général pour compter du 11 août.

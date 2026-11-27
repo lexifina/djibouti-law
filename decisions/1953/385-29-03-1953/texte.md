@@ -1,2 +1,0 @@
-M. Mathieu (Pierre ), géomètre contractuel, affecté au Service des Domaines à Djibouti, est désigné comme geometre officiel de la Conservation foncière en remplacement de M. Udrisard, ingénieur-adjoint des Travaux publics, rapatrié sur la France.
-Avant d’entrer en fonctions, M. Mathieu prêtera le serment prescrit par l’article 28 de l’arrêté du 4 décembre 1917 fixant les détails de la réglementation pour l’exécution du décret du 1er mars 1909 portant organisation de la Propriété foncière à la Côte Française des Somalis.

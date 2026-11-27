@@ -1,4 +1,0 @@
-les nommés Arthé Elmi, chef du village de Dikkil ; Dirieh Mohamed, garde indigène de 1re classe; Kain Ibrahim, garde indigène de 1re classe; Fredda Youssouf, Ahmed Youssouf, Ahmed Bourliane, Djama Aden, Robleh Hoeuli, Mohamed Isma, sont désignés pour figurer à l’Exposition coloniale internationale de Yincennes (pavillon de la Côte française des Somalis).
-Ces indigènes percevront, en route et pendant leur séjour en France, une rétribution mensuelle de 50 francs, le surplus de leur solde étant délégué à leur famille et payé dans la colonie.
-Il sera, en outre, payé en France une indemnité journalière de 1 fr. 50 au nommé Arthé Elmi et de 1 franc aux gardes Dirieli Mohamed et Kain Ibrahim.
-La solde mensuelle est fixée à 200 francs pour les nommés Ahmed Youssouf, Fredda Youssouf, Ahmed Bourliane, Djama Aden, Robleh Hoeuch et Mohamed Isma.

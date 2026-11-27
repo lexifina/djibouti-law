@@ -1,1 +1,0 @@
-Le milicien de 2e classe Aden Obsieh, mle 2661, de la 4e compagnie de Milice à Damerdjog, ne désirant pas rengager, est libéré sur sa demande. L’intéressé, en fin de contrat depuis le 10 avril 1964, sera maintenu jusqu’au 26 avril 1964 inclus pour régularisation de ses droits à permission.

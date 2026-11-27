@@ -1,2 +1,0 @@
-Le nommé Saïd Samatar, planton de 1°° classe après 8ans, étant arrivé à la limite de l’avancement dans son emploi depuis le 1er janvier 1982, bénéticiera des dispositions de l’article & de l’arrêté n° 352 du « novembre 1912.
-En application des dispositions du susdit avrêtée n° 332 du S novembre 1912, Saïd Samatar, qui totalise 36 années de bons et loyaux services daus l’administration locale, recevra une augmentation de solde de 35 franes par mois, qui viendront s’ajouter à ses émoluments atuels à compter du 1er juillet 1934.

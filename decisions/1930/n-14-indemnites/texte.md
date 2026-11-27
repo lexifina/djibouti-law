@@ -1,1 +1,0 @@
-la décision du 16 juillet 1930 est complétée comme suit : M, Ghaleb, comptable auxiliaire des travaux publics, comptable du service local et dépositaire du mobilier de l’hôtel du gouvernement, aura droit, en cette qualité, aux indemnités de responsabilité réglementaires, à compter du jour de la remise du service et des inventaires par M. Armand lecointre

@@ -1,1 +1,0 @@
-Un congé à solde entière d’une durée de trente jours et un congé sans solde d’une durée de quinze jours sont accordés, pour compter du 1er juin 1952, à M. Barr Hussein, chauffeur auxiliaire en service à la Direction du Port.

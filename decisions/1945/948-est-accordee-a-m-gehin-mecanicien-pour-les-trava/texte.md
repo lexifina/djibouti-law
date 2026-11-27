@@ -1,1 +1,0 @@
-une allocation de deux mille cinq cents francs (2.500 fr.) est accordée à M. Gehin, mécanicien, pour les travaux de montage du moteur Diésel de 200 chevaux, exécutés pen dant le mois de juillet 1945. Cette dépense sera imputée sur le chapitre 10, article 4, paragraphe 3 du budget local.

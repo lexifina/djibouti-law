@@ -1,1 +1,0 @@
-M. Ali Abdou Mohamed, moniteur, admis aux épreuves écrites,orales et pratiques de l’examen d’intégration dans le Corps Territorial de l’Enseignement public, est titularisé instituteur de 2° classe, 1er échelon nour compter du 1er janvier 1962, et rarigé à l’indice 490.

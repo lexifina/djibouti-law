@@ -1,1 +1,0 @@
-L’adjudant Villutini, du régiment de tirailleurs sénégalais de le Côte française des Somalis, est nommé agent spécial d’Ali-Sabieh pour compter du 1er septembre 1139, en remplacement de l’adjudant-chef Pietrantoni, raptriè.

@@ -1,1 +1,0 @@
-il est alloué une indemnité mensuelle de 50 francs, dile de permanence, MM. Raharison et Ramiakalsoa, dactyforaphes contractuels au Cabinet du Gouverneur, Celle décision aura son effel à compter du 1er mai 1927.

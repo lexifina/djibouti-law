@@ -1,1 +1,0 @@
-La Société Electro-Entreprise est autorisée à acquérir un parcelle de terrain bâti, sise à Djibouti, plateau du Marabout route du Héron, immatriculée au Livre foncier du Territoire sous le n°417 au noms de la Société Crédit Foncier et immobillier

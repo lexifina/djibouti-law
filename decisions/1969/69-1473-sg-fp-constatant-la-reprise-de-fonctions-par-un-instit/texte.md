@@ -1,1 +1,0 @@
-Est constatée, pour compter du 25 septembre 1969, date de sun retour dns le Territoire, la reprise de ses fonctions antérues de recteur de lécole de Tadjoura par M. Zeinoulabedine Zeimou instituteur, 6e échelon.

@@ -1,1 +1,0 @@
-L’adjudant Lesage et le sergent-chef Thals, du bataillon de tirailleurs sénégalais de la Côte francaise des Somalis, sont places dans la position hors eudres à compter du 1er mai 1938 et mis à la disposition du chef de bataillon commandant la milice pour servir à la 2e compagnie.

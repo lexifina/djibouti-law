@@ -1,1 +1,0 @@
-Le milicien de 2° classe Hamed Ali, matricule 1422, de la 3e compagnie de milice à Djibouti, décédé à l’hôpital colonial de Djibouti le 27 mars 1948, est raxé des contrôles de la milice pour compter du 28 mars 1948.

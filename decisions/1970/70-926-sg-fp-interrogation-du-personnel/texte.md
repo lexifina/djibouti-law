@@ -1,1 +1,0 @@
-M. Saleh Abdallah Mohamed, commis des S.A.F. de 2° classe, 3° échelon, en service au port (Ministère des Travaux publics et du Port) est, à titre exceptionnel, intégré dans le cadre des rédacteurs ot nommé rédacteur de 2e classe, 1er échelon, pour compter du 1° janvier 1970.

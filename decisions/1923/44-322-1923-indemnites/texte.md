@@ -1,1 +1,0 @@
-il est accordé au Chef de poste d’Obock une indemnité forfaitaire de 300 francs, à titre d’abonnement pour le service de l’eau, à charge par lui de pourvoir aux dépenses auxquelles celte allocation doit faire face.

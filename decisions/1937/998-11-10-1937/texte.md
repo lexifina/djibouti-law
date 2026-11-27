@@ -1,1 +1,0 @@
-M. Brouillet, contrôleur du cadre local des P. T. T.. de re tour de congé et débarqué à Djibouti le 4 octobre 1937, est remis à la disposition du chef du Service des P. T. T. de la Côte française des Somalis.

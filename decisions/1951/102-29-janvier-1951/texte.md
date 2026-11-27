@@ -1,1 +1,0 @@
-L’adjudant-chef infirmier des T. C. Devaud (André) est mis à la disposition du Directeur du Service de Santé, en qualité d’infirmier du Dispensaire de Tadjoura, en remplacement de l’infirmier contractuel Saint-Eloy rapatriable, et pour compter du 10 janvier 1951, date de son débarquement sur le Territoire.

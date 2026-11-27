@@ -1,1 +1,0 @@
-L’autorisation de posséder et de gérer un débit de boissons (licence de 4° classe) dit « Au Bon Accueil» et sis boulevard 26, n° 30, accordé à M. Omar Egueh Hersi dit Arki Djirieh, par décision n° 559 du 14 maï 1960, est annulé.

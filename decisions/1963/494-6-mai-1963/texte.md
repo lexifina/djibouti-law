@@ -1,2 +1,0 @@
-M. Abdillahi Hassan Dembil est autorisé à exploiter, Maison n° 8, Boulevard 18, Quartier n° 2, une licence de 4e classe pour la vente à consommer sur place de boissons hygiéniques ou alcooliques ne titrant pas plus de 13° d’alcool.
-Le Commandant de Cercle de Djibouti et le Chef du Service des Contributions Directes sont chargés, chacun en ce qui le concerne, de l’exécution de la présente décision qui sera enregistrée, publiée et communiquée partout où besoin sera.

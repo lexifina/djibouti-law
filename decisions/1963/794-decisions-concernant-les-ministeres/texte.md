@@ -1,1 +1,0 @@
-Un secours exceptionnel de quinze mille francs (15.000 fr.) est accordé au titre de l’exercice 1963 à M. Ali Mohamed Kadada, ex contremaître contractuel des Travaux oublics demeurant à Djibouti, quartier 2, boulevard 24, maison n° 15/A.

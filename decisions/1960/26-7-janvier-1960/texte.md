@@ -1,3 +1,0 @@
-Le contrat de rengagement du Milicien de 1re classe Hassan Djama, Mle 1191, de la 2e Compagnie de Milice à Tadjoura, n’est pas renouvelé, l’intéressé ayant effectué 15 ans de services effectifs dans la Milice, sera libéré et rayé des contrôles de la Milice, pour compter du 24 février 1960, date de fin de contrat en cours.
-Ce Milicien, qui totalisera 15 ans de services effectifs sera admis au bénéfice d’une allocation viagère annuëlle de trente-six mille francs Djibouti (36.000 fr. Dj.), pour compter du 24 février 1960, payable trimestriellement à terme échu et sur le vu d’un certificat de vie délivré par les autorités compétentes.
-L’intéressé sera aligné en solde et indemnités jusqu’au 23 février 1980, et bénéficiera de ses droits en permission avant sa libération.

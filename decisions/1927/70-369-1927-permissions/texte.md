@@ -1,1 +1,0 @@
-une permission de deux mois, dont quinze jours avec solde entière, quinze jours à demi-solde et un mois sans solde, est accordée, à compter du 1er septembre 1927, au garde de deuxième classe Nadif Allaleh, matricule 181.

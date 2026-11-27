@@ -1,2 +1,0 @@
-un congé de convalescence de trois mois pour en jouir en France est accordé à M. Pougnaud Albert, Ingénieur Principal des Travaux Publics Coloniaux, Chef du Service des Travaux Publics de la Côte Française des somalis.
-L’intéressé qui est autorisé à rentrer en France par voie maritime via l’Egypte, pourra sur sa demande, percevoir avant son départ une avance de solde dans les conditions fixées à l’article 11 du décret du 1er août 1944 susvisé.

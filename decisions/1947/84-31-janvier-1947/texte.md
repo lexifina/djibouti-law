@@ -1,1 +1,0 @@
-Une indemnité mensuelle de trois mille francs payable sur les fonds du ravitaillement général est attribuée à M, Antonietti, agent auxiliaire du service de l’agriculture, chargé des cultures maraîchères du jardin d’essai de la colonie,

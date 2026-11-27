@@ -1,1 +1,0 @@
-M Tabreuil (Paul Constant). comptable contractuel en service à l’Electricité de Djibouti, est mis à la dispoistion de M. le Ministre des Financés,-des Affaires Economiques et du Plan, pour compter du 1er juillet 1960, pour servir aux Contributions directes en remplacement ñfumérique de M. Rajaonarivony (Jean), en instance de rapatriement.

@@ -1,1 +1,0 @@
-une permission de trente jours, dont quinze jours à solde entière et quiuze jours à demi-solde, a ôté accordée au sous-patron de boutres de 1er classe Ali Roblé, pour en jouir dans la brousse pour compter du 10 juin 1933.

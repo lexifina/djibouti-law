@@ -1,1 +1,0 @@
-une permission d’absence de huit jours, valable du 11 au 18 septembre 1945 inclus est accordée à M. Perronnette, adjoint principal de classe exceptionnelle des services civils en service à la Côte française des Somalis, pour en jouir en Ethiopie.

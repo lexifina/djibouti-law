@@ -1,1 +1,0 @@
-Le nommé MOHAMED ABDOU GAMIL employé à l’essai au Bureau des Finances au salaire journalier de 25 francs est admis à la solde mensuelle de NEUF CENT francs (900 frs) pour compter du 1er juillet 1943 exclusive de toute indemnité.

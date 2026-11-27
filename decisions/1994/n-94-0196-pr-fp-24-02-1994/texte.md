@@ -1,1 +1,0 @@
-chef du gouvernement, en date du 24 février 1994, M. Moussa Ali Meigague, conseiller 2e classe — 2e échelon du corps des Affaires étrangères est confirmé dans ses fonctions actuelles de chef de service de l’Administration générale et des Affaires consulaires.

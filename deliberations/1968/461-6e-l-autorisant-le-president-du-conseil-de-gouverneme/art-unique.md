@@ -1,2 +1,0 @@
-# Article unique
-— Le Président du Conseil de Gouvernement est autorisé à passer, au nom et pour le compte du Territoire Français des Afars et des Issas, avec M. A. V. Sahatdjian, un acte d’acquisition amiable de trois terrains urbains bâtis, d’une superficie de 3.795,62 mètres carrés, sis boulevard Bonhoure et immatriculés au Livre foncier du Territoire sous les numéros 242, 395 et 473 au nom de ce dernier, pour le prix global de trente millions de francs Djibouti.

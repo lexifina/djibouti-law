@@ -1,1 +1,0 @@
-à titre de sanction, l’aqel Wabberi Farah, de la fraction Odahgeb, tribu Rer Moussé, ne percevra pas en septembre et octobre 1945 le montant mensuel de l’allocation qui lui a été attribuée par décision n° 393 du 21 mai 1945.

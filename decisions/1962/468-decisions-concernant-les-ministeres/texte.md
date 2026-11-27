@@ -1,3 +1,0 @@
-Le 2° Classe Abdallah Ahmed Omar, Mle 2571, de la 1° Compagnie de Milice à Dikhil arrivant en fin de contrat le 1er juillet 1963 est licencié pour raison disciplinaire pour compter du 5 mai 1962, l’intéressé qui totalise 10 mois et 4 jours de services effectifs dans la Milice dela C.F.S. ne peut prétendre à aucune indemnité.
-Les droits à solde, vivres et permission dé l’intéressé seront liquidés par les soins de l’Agent spécial de la 1 Compagnie de Milice à Dikhil.
-Le 2° Classe Abdallah Ahmed Omar, Mle 2571, sera rayé des contrôles de la Milice à compter du 5 mai 1962, il recevra le certificat de libération.

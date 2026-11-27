@@ -1,1 +1,0 @@
-M. Henri Antona, lieutenant d’administration du service de santé des Armées, est, pour compter du 4 septembre 1974 date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique, pour servir en qualité d’adjoint au gestionnaire de l’hôpital Peltier.

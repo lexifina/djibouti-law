@@ -1,1 +1,0 @@
-M. l’arthenay, administrateur adjoint de 1er classes des colonies, de retonr de congé, est affecté provisoirement an Service du domaine, en remplacement de M. Berger, administrateur adjoint de 1er classe, affecté au enbinet du Gouverneur en qualité de chef adjoint du cabinet.

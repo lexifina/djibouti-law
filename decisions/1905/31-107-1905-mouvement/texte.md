@@ -1,1 +1,0 @@
-la solde des nommés Hamed Ali et Aïssama Kamil, ouvriers jardiniers du Jardin d’Ambouli, est portée à partir du ler septembre 1905 pour Hamed Ali de 22.50 à 27.50 pour Aïssama Kamil de 22.50 à 25 francs.

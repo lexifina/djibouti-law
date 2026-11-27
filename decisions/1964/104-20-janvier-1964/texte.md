@@ -1,1 +1,0 @@
-M. Aboubaker Mohamed Doualeh, contrôleur stagiaire du Cadre territorial de l’Office des Postes et Télécommunications, est licencié de son emploi, et rayé du contrôle du Personnel des Cadres territoriaux de la Côte Française des Somalis.

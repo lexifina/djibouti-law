@@ -1,1 +1,0 @@
-M. Bonneau (Robert), administrateur en chef de classe exceptionnelle des Affaires d’Outre-Mer, en service au Cabinet du Ministre des Travaux publics et du Port, est nommé, pour compter du 10 octobre 1966, chef du Service des Affaires administratives d’Etat, en remplacement de M. Beaux, appelé à d’autres fonctions.

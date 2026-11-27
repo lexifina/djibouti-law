@@ -1,1 +1,0 @@
-Une permission de repos de trois mois avec solde à passer au YEMEN est accordée au Cadi de DJIBOUTI, SAID ALI ABOUBAKER ASSAKAFE à compter du 22 juillet 1943. L’intérim des fonctions de Cadi sera exer cé par CHEIK TAYEB BEN ABDOURHAMAN BA-WAKRAMA qui percevra une al location mensuelle de DEUX MILLE Frs.

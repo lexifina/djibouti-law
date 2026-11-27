@@ -1,1 +1,0 @@
-Est et demeure apportée, jusqu’à nouvel ordre, la décision n° 791 du 12 août 1939 susvisée, accorda à Mlle Bichsl, employé auxiliaire à l’Inspection du travail, une permissio de 2S jours et l’autorisation de rentrer en France à ses frais.

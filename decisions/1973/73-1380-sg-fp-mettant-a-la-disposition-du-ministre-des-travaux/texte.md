@@ -1,1 +1,0 @@
-M. Puissegur Philippe, ingénieur des Travaux Publics de l’Etat – 4 échelon, est pour compter du 19 juillet 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics et du Port, pour servir à la direction dés Travaux Publics, en qualité de Chef du bureau d’urbanisme et d’habitat des Travaux Publics.

@@ -1,2 +1,0 @@
-pour le mois de mars 1923, le cours movent du thaler en février 1923 ayant été de 8.82, le taux du Thales prévu par l’arrété du 24 octobre 1920 est fixé à 5 — 2,50 (cours normal) soil 2,50.
-En ce qui concerne les indemnités accessoires corespondant à des dépenses effectuées sur place, fixées par arrêté du 1er décembre 1920 (art, 1er §§ A et B art, 2) et l’arrèté du 7 septembre 1921, elles seront décomptées sur le taux de 5 francs.

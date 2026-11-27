@@ -1,1 +1,0 @@
-Sont pris en charge par le budget du Territoire, les frais d’évacuation, de traitement et de séjour de M. Ahmed Mohamed Ahmed, député du TFAI à Djibouti, évacué sanitaire le 17 septembre 1974, par vol AF n° 460, sur l’Hôpital Laennec (Service du drofesseur Thomeret). n° 42, rue de Sèvres – 75007 – Paris (régulerisation).

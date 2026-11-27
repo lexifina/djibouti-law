@@ -1,1 +1,0 @@
-A compter du 18 février 19446, M. Bourhis (Eugène), assistant météorologiste stagiaire, est chargé de l’expédit ion des affaires courante s du service météorologique pendant l’absence de M. Lombardo, ingénieur adjoint météorologiste. rentrant en France.

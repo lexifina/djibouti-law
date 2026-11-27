@@ -1,1 +1,0 @@
-Le Miilicien de 2° classe Saïd Ibrahim. matricule 2575 de la 2° Compagnie de Milice à Tadjoura, est licencié pour «raison disciplinaire >» pour compter du 11 décembre 1963. L’intéressé qui totalise 2 ans, 2 mois, 21 jours de services effectifs dans la Milice de la C.FS. étant licencié pour raison disciplinaire, ne peut prétendre à aucune indemnité.

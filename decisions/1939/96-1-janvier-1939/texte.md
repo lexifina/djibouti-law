@@ -1,1 +1,0 @@
-Monsieur Dierricn, Paul, Gustave, Directeur de la Société Industrielle pour F alimentation en eau de Djibouti, service armé, classe de mobilisation 1910, est classé dans l’afFfectation spéciale dans son emploi actuel.

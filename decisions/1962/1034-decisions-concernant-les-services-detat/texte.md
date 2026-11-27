@@ -1,4 +1,0 @@
-Sont engagés dans la Milice de la Côte Française des Somalis pour 2 ans et pour compter du 10 juillet 1962 (comme 2° Classe) les Miliciens dont les noms suivent :
-Abdallah Ali Abdallah, mle 2746 — Abdillahi Ahmed Darar, mle 2747 — Kassim Houmed Ahmed, mie 2748 — Abdallah Mohamed Hamadou, mle 2749 — Mohamed Ali Nouho, mle 2750 — Ahmed Amousse Migane, mle 2751 — Mahamoud Bokore Fatah, mle 2752 — Adlieh Mähamoud Fahye, mle 2753 — Moumin Tallan Obsieh, mle 2754 — Ibrahim Mohamed Ibrahim, mle 2755 — Dirir Guireh Egue, mle 2756 — Roble Amare Samatar, mle 2757 — Hassan Abdallah Assowe, mle 2758 — Ahmed Ali Afkadi, mle 2759 — Moussa Farah Warsama, mle 2760 — Ali Moussa Abakari, mle 2761 —Warsama Abdillahi Youbeh, mle 2762 rs Saïd Idriss Houssein,
-mle 9783.
-Les contrats d’engagement sont souscrits à titre provisoire et deviendront définitifs dans un délai de six mois à compter de la date d’incorporation.

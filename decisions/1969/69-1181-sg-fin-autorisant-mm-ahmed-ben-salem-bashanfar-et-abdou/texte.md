@@ -1,1 +1,0 @@
-MM. Ahmed Ben Salem Bashanfar et: Abdoulkader Ben Salem Bashanfar sont autorisés à acquérir une parcelle de terrain bâti, dune superficie de 850 m2, sise à Djibouti, rue Bourhans Bey, et faisant partie du titre foncier n° 817, au nom de M. D. Salavouras.

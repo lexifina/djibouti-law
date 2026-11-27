@@ -1,3 +1,0 @@
-M. Jourdain, administrateur en chef des colonies, inspecteur des affaires administratives, de retour de congé, reprend les fonctions dont il est titulaire.
-Pour lui permettre de suppléer le Gouverneur en cas d’indisponibilité où d’absence momentanée, M. l’administrateur en chef Jourdain prendra connaissance du courrier à l’arrivée et au dépa rt, examinera et visera les pièces préparées par. les divers services du Gouvernement et présentées à la signature du chef de la colonie.
-Il assistera aux séances du Conseil d’administration et siégera en face du Gouverneur ou, le cas échéant, à la droits de l’inspecteur des colonies, chef de mission.

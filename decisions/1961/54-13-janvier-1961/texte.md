@@ -1,1 +1,0 @@
-Pour compter du 1er janvier 1961, le taux de la prime de risques et de sujétion accordée au personnel de la Garde Territoriale par arrêté n° 288 du 1er avril 1960, est porté de 12 à 25 % de sa solde de base telle qu’elle est fixée au tableau annexé à l’arrêté n° 1126 du 4 août 1956, modifié par l’arrêté n° 72/SPCG du 10 juin 1958.

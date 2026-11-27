@@ -1,1 +1,0 @@
-Une permission d’absence de trois semaines à solde entière pour en jouir à Djibouti, est accordée à Aicha Ahmed, infirmière, 7e échelon, en service à l’hôpital colonial, pour compter du 5 septembre 1948.

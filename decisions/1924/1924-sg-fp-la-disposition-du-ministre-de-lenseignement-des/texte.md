@@ -1,1 +1,0 @@
-Mme Michèle Berthélemy, institutrice du cadre métropolitain de 1er échelon du département de la Charente-Maritime (Académie de Poitiers), en instance de détachement à court terme, est, pour compter du 30 septembre 1968, mise à la disposition du Ministre de l’Enseignement, des Sports et de la jeunesse.

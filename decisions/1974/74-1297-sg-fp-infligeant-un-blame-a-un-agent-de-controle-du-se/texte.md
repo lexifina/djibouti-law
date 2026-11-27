@@ -1,1 +1,0 @@
-Un blâme, avec inscription au dossier, est infligé à M. Abdourahman Omar Hadji, agent de contrôle principal 1er échelon du cadre territorial, en service aux Contributions indirectes, pour refus d’obéissance, insultes et menaces à son supérieur hiérarchique.

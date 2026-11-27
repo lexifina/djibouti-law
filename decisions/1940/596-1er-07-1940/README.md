@@ -1,9 +1,0 @@
-# Décision n° 596 du 1er /07/1940
-
-Décision · Journal officiel de la République de Djibouti, n° 524 du 31/07/1940 · <https://www.journalofficiel.dj/texte-juridique/decision-n-596-du-1er-07-1940/>
-
-En vigueur : 1940-07-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) |  Vié (Joseph) chef de bureau de 2e classe des Secrétariats généraux des colonies, est chargé par intérim de la direction des tinances pendant l’absence de M. I erbés (Georges), chef de bureau hors classe des Secrétariats généraux des colonies, titulaire du poste, et bénéficiaire de trois mois de congé de convales- 1 cence. Il aura droit, en cette qualité et comme membre du Conseil d’administration de la co Ionie, à la rétribution globale prévue à l’art i cle 9, paragraphe 2 du décret du 2 mars 1910. M. Abdul Razack, comptable contractuel au bureau des finances, est chargé de la section des finances eli remplacement de M. Vié (Joseph). chef de hureau de 2e classe des Seerétariats généras des colonies, chef «le la setation des finances, chargé de la direction des finanq s. |

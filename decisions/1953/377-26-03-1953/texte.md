@@ -1,1 +1,0 @@
-Mme Duchet (Alice) est engagée, pour compter du 1er avril 1953, en qualité dè dame-employée auxiliaire 3e catégorie et mise à la disposition du Chef du Service des Contributions directes en remplacement numérique de Mile Cantini, autorisée à cesser son service.

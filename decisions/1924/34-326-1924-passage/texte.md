@@ -1,1 +1,0 @@
-il sera délivré une réquisition de 2 classe à M. Wargniez , (Julien, Fernand, René), Conducteur de L’e classe des travaux pub lics des colonies, nommé Chef du service des travaux publics de la Guyane pour compter de la veille de son embarquement de france.

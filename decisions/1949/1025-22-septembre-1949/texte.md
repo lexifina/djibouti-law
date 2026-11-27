@@ -1,1 +1,0 @@
-Ibrahim Taher, commis administratif 12° échelon, à l’inscription maritime, qui fait l’objet de poursuites judiciaires depuis le 1er février 1949, est suspendu de ses fonctions pour compter du 2 août 1940.

@@ -1,9 +1,0 @@
-# Décision n° 75-290-1920 Décisions diverses.
-
-Décision · Journal officiel de la République de Djibouti, n° 290 du 31/12/1920 · <https://www.journalofficiel.dj/texte-juridique/decision-n-75-290-1920-decisions-diverses/>
-
-En vigueur : 1920-12-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) | xant : Role coefficient à appliquer pendant le mois de janvier 1921, pour les divers droits et taxes; 2° le taux du thaler à appliquer pour le paiement de l’indemnité aux fonctionnaires. |

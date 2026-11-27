@@ -1,1 +1,0 @@
-M. Alain Page, ingénieur des Travaux publics, 5e échelon, est, pour compter du 25 janvier 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir au Port de Commerce de Djibouti en qualité de chef du Service Infrastructure et Ateliers.

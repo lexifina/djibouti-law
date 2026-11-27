@@ -1,9 +1,0 @@
-# Décision n° 1281 DECISIONS CONCERNANT LES SERVICES D’ETAT.
-
-Décision · Journal officiel de la République de Djibouti, n° 9 du 01/10/1964 · <https://www.journalofficiel.dj/texte-juridique/decision-n-1281-decisions-concernant-les-services-detat/>
-
-En vigueur : 1964-10-01 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) | nt engagés dans la Milice de la Côte Française des Somalis pour deux ans, comme miliciens de 2° classe, les recrues dont les noms suivant: |

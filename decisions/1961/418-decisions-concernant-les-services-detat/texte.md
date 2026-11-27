@@ -1,1 +1,0 @@
-Le Maréchal-des-Logis-Chef Viola Jean, débarqué le 8 avril 1961,est affecté à la Milice de la Côte Française des Somalis,pour compter de la date de son débarquement et mis à la disposition du Commandant de Cercle de Dikhil en qualité de Surveillant-de ravaux, du Cercle en! remplacement de l’Adjudant Maugis Lionel, rapatrié pour fin de séjour.

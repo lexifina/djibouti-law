@@ -1,1 +1,0 @@
-M. Mazaleyrat, inspecteur de 3e classe (2 échelon), du cadre métropolitain de la police judiciaire, détaché en qualité de chef de la sûreté de la Côte française des Somalis, est assimilé, au point de vue de la solde, à un inspecteur principal de 5e classe du cadre local européen de la police de la Côte fran çaise des Somalis.

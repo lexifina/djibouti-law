@@ -1,1 +1,0 @@
-Indemnité mensuelle de permanence accorde par la décision du 22 mars doi au sous-patron de boutre Djibril Haye, en service au gouvernement, est portée de 40 à 45 francs, à compter du 1er janvier 1930.

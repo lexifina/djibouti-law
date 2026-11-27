@@ -1,1 +1,0 @@
-M. Moreau Michel, attaché de l’I.N.S.E.Æ. 2° classe, 7° échelon est pour compter du 7 juillet 1975 date de son arrivée dans le Territoire mis à la disposition du ministre des Finances pour servir en qualité d’adjoint au directeur des Finances Territoriales.

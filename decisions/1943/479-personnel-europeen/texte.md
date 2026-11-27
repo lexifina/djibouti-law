@@ -1,1 +1,0 @@
-M. SALLER. Administrateur de 1ère Classe des Colonies, en mission temporaire, est chargé jusqu’à nouvel ordre, de l’expédition des affaires courantes de la Colonie pendant l’absence de M. BAYARDELLE, Gouverneur titulaire, chargé de mission en Afrique Equatoriale Française.

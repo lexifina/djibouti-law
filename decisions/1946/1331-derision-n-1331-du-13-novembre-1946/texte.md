@@ -1,1 +1,0 @@
-M. Jouffrey (Roger), chef de la section de la comptabilité générale du Bureau des finances, est désigné pour assister à la passation de caisse du gestionnaire de l’hôpital, qui aura lieu le mardi 12 novembre 1946.

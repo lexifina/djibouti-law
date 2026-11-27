@@ -1,1 +1,0 @@
-l’adjudant infirmier Mohamed dit Kébir, ayant huit ans de grade, droit à la solde de 1.560 francs l’an à compter du 1er juillet 1925, Le caporal infirimer Haroun Hanifa, garde militaire, ayant huit, ans de grade a droit à la solde de 1.020 francs l’an à compter du 1er juillet 1925.

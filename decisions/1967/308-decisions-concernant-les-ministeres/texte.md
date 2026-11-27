@@ -1,1 +1,0 @@
-Une subvention de neuf cent cinquante deux mille quatre cents francs Djibouti (952.400 FD) est accordée à la coopérative scolaire à titre de participation à lachat de livres destinés aux élèves des établissements d’enseignement du deuxième degré.

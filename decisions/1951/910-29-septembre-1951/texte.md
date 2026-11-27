@@ -1,1 +1,0 @@
-M. Lamarque (Roland), contrôleur de 1er classe des I.R.E. du cadre général des Transmissions coloniales, de retour de congé, est remis à la disposition du Chef du Service des P.T.T., pour servir à la Station côtière, à compter du 28 septembre 1951, date de son arrivée à Djibouti.

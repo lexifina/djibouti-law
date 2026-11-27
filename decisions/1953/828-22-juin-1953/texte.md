@@ -1,1 +1,0 @@
-Le sergent-chef infirmier Dubernard (Paul) est mis à la disposition du Directeur du Service de Santé, en qualité de sous-officier chargé du bureau des entrées à l’Hôpital Principal de Djibouti, à compter du 15 juin 1953, date de son débarquement sur le Territoire.

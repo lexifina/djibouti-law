@@ -1,1 +1,0 @@
-une permission d’absence une d’un mois pour en jouir en Fiance est accordée à M. Severain, nieur ingé hors classe des Travaux Publics. Il pourra sur sa demande percevoir avant son départ conditions une avance de solde dans les du prévues à l’article 11 du décret 1er août 1944 susvisé.

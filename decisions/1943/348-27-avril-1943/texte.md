@@ -1,3 +1,0 @@
-Est rapportée la décision n° 571 du 26 Août 1941, chargeant M. COLL, Ingénieur adjoint du Cadre Général des Travaux Pu blics des fonctions d Inspecteur de la Navigation et du ‘Travail Maritime.
-M ZOUAIN Jean. Commis Principal des P.T.T. en service au Cercle de Djibouti, est chargé provisoirement et cumulativement avec ses fonctions actuelles de celles d inspecteur de la Navigation et du Travail Maritime.
-Avant d’entrer en fonction d prêtera le serment d’usage conformément à la Loi l’aura droit aux iniemn des prévues par 1 arrêté du 26 janvier 1939 dans les con ditions fixées par le décret du 20 janvier 1935 si il 1.500 francs l’an.

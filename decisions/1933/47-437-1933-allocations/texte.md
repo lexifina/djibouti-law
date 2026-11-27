@@ -1,2 +1,0 @@
-une allocation journalière de deux francs cinquante centimes (2 fr. 50) a été accordée à la directrice du Dispensaire Chapon-Baissac, pour les dépenses d’entretien de la jeune Ouila Ataoué.
-Cette allocation sera mandatée sur certificat de présence effective au Dispensaire de la susnommée, établi par Ja directrice de cet établissement et imputée au chapitre 12, article 1er, paragraphe 4, du budget local de 1933.

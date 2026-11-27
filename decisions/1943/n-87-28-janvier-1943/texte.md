@@ -1,1 +1,0 @@
-M. le sous-lieutenant JUNK, des Forces Françaises Libres, est mis provisoirement à la disposition du Commandant de Cercle de Djibouti pour les travaux d’hygiène et d’assainissement du village indigène. La solde de M. JUNK sera supportée par le Budget Local.

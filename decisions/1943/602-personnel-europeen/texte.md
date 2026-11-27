@@ -1,1 +1,0 @@
-Le salaire mensuel de M. POISIGNON René, agent auxiliaire de l’admministration est porté pour compter du 1er juillet 1943 à TROIS MILLE francs exclusif de toute indemnité. Tant que M. POISIGNON demeurera le matin à la disposition de la Banque de l’Indochine, cet établissement remboursera au budget local la moitié du salaire de l’intéressé.

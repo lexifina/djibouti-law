@@ -1,1 +1,0 @@
-L’Adjudant d Infanterie Coloniale GALLION Hector, en service Hors Cadres, détache au Cabinet Militaire, est replacé dans les cadres et mis à la disposition du Lieu tenant-Colonel Commandant Supérieur des Troupes pour compter du 16 janvier 1943.

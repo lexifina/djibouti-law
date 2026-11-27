@@ -1,2 +1,0 @@
-Par décision n°2024-033/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 07 février 2024, M. HAMZA OMAR ALI, est engagé à la 2ème Catégorie B, de la Convention Collective du 26 décembre 2011, en qualité de gardien pour servir, au Ministère de l’Environnement et du Développement Durable, remplacement numérique de feu OMAR ALI ABDI, décédé (PB n°292/CC).
-La présente décision qui prendra effet à compter de la date de signature sera enregistrée, communiquée, exécutée partout où besoin sera et publiée au Journal Officiel de la République de Djibouti.

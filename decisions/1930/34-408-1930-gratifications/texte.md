@@ -1,1 +1,0 @@
-les gratifications suivantes sont accordées : 1° 200 francs à Bourhane Mohamed : 2° 90 francs à Aden Ali, tous deux cuisiniers employés en surnombre à l’occasion de la réception du maréchal Franchet-d’Espérey et des autres missions.

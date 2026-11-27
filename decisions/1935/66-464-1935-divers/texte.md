@@ -1,1 +1,0 @@
-Ali Farah, moniteur à l’école publique, est affecté pendant les grandes vacances scolaires (13 juillet au 1er octobre) au service de surveillance de la « Cité enfantine », en remplacement ces surveillants, autorisés à partir en congé.

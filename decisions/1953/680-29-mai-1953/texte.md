@@ -1,1 +1,0 @@
-M. Aidid Yacin esn engagé, à titre essentiellement précaire et révocable, en qualité de planton auxiliaire 1er échelon et mis à la disposition du Chef du Service des Postes et Télécommunications pour compter du 1er juin 1953, en remplacement de M. Mohamed Warsame, muté au Service des Finances.

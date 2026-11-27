@@ -1,1 +1,0 @@
-L’adiudant-chef d’Artillerie de Marine Rabaud Roger (S.O.C. B.S. artillerie), arrivé par avion à Djibouti le 10 mars 1963, est mis à la disposition du Commandant de Cercle d’Ali-Sabieh L’entretien complet de ce sous-officier supérieur sera à la charse du Ministère d’Etat chargé des Départements et Territoires d’Outre-Mer.

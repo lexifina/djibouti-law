@@ -1,4 +1,0 @@
-Le Sergent Abdallah Moussa, Mle 805, de la 1er Compagnie de Milice à Bikhil, maintenu par tacite reconduction de son contrat du 15 mai 1960 au 28 février 1961, totalisant 20 ans 9 mois 14 jours de services effectifs dans la Milice est admis à faire valoir ses droits à lallocation viagère annuelle en exécution de l’article 6 de l’arrêté 105 du 3 février 1943, il sera libéré et rayé des contrôles de la Milice pour compter du 1er mars 1961 il recevra le certificat de bonne conduite.
-Le Sergent Abdallah, Moussa, Mle 805, bénéficiera à compter du 1er mars 1961 d’une allocation viagère annuelle de quarante huit mille sept cent cinquante francs Djibouti (48.750 FD.)
-payable trimestriellement à terme échu et-sur le vu d’un certificat de vie délivré par les autorités compétentes.
-Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’agent spécial de la 1er Compagnie de la Milice-à Dikhil.

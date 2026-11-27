@@ -1,3 +1,0 @@
-Les Miliciens de 2° Classe : Moussa Arraita Hamadou, mle 2690,Ali Houssein Garisso, mle 2701, Dini Ali Houmed, mle 2711, de la 3° Compagnie de Milice à Ali-Sabieh, arrivant en fin de contrat le 6 avril 1964, sont licenciés pour inaptitude à l’emploi pour compter du 1er août 1962. Les intéressés qui totalisent 3 mois et 25 jours de services effectifs dans la Milice de la C.F.S. ne peuvent prétendreà aucune indemnité.
-Les droits à solde, vivres et permission des intéressés seront liquidés par les soins de Mi lice à Ali-Sabieh.
-Les Miliciens de 2° Classe Moussa Arraita Hamadou, mle 2690, Ali Houssein Garisso, mle 2701, Dini Ali Houmed, mle 2711, seront rayés des contrôles de la Milice de la C.F.S. à compter du 1°” août 1969 ils recevront le certificat de libération.

@@ -1,1 +1,0 @@
-à Moreigne Roger, attaché de préfecture de 2° classe,8 échelon est, pour compter du 19 juillet 1973, date de son arrivée dans le territoire, mis à la disposition du ministre des Affaires Intérieures, pour servir au District de Djibouti.

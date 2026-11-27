@@ -1,3 +1,0 @@
-Par décision n°2023-149/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 06 avril 2023, Mme. AYAN MOHAMED ROBLEH, est engagée à la 1ère Catégorie C, de la Convention Collective du 26 Décembre 2011, en qualité de femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt DJAMAL KAYAD ABDOU, décédé.
-Mme. HAMDA AHMED HASSAN, est engagée à la 1ère Catégorie C, de la Convention Collective du 26 Décembre 2011, en qualité de femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du défunt FAYCAL ROBLEH AOULED, décédé.
-La présente décision prend effet à compter du 06 avril 2023.

@@ -1,3 +1,0 @@
-Est résilié pour raisons de santé le contrat en date du 10 juillet 1947 engageant Mme Quintric en qualité d’infirmière-visiteuse.
-Une réquisition de passage en 2e classe pour Paris est accordée à Mme Quintric, infirmièrevisiteuse contractuelle Mme Quintric rejoindra son lieu de congé par première occasion maritime pour compter du 17 août 1948 et voyagera en 2° classe aux frais du budget local (assimilation : 3e caté gorie.)
-Conformément aux dispositions du paragra phe 2 de l’article 7 du contrat susvisé, Mme Quintric aura droit à un dédommage ment égal à deux mois de rémunération paya ble avant son départ de la colonie.

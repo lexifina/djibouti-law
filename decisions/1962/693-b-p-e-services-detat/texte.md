@@ -1,1 +1,0 @@
-M. Depommier Maurice, administrateur de 7e échelon de la France d’Outre-Mer, chef de Cabinet du chef de Territoire, est nommé chef du Bureau du Personnel Etat à titre intérimaire et pour la durée de Fabsence de. M. Cornet Paul, administrateur en chef de 2e échelon des Affaires d’Outre-Mer, titulaire, à compter du 30 mai 1962, d’un congé annuel de deux mois à passer en Métropole.

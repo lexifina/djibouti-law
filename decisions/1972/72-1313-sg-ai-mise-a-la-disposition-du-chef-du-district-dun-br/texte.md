@@ -1,1 +1,0 @@
-M, Marcel Rousselet, brigadier de police, est, pour compter du 6 août 1972,:date de son arrivée dans le territoire, affecté à la Portion centrale de Djibouti et mis pour emploi à la disposition du Chef de District de Djibouti, pour l’encadrement du détachement de sécurité publique, dans les conditions prévues aux articles 14 et 19 de la délibération n° 37/7° L du 12 mai 1970.

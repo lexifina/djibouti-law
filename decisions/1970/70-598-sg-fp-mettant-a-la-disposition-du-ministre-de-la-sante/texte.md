@@ -1,1 +1,0 @@
-M, Faul Abraini, adjudant en positlon «cadre Nors buaget des Armées», est, pour compter du 7 mai 1970, date de sont arrivée dans le Territoire, mis à la disposition du Ministre de le Santé publique et des Affaires sociales, pour servir à l’hôpital Peltier, en remplacement numérique de l’adjudant-chef Coffinrapatriable.

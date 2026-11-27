@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Hassan Houmed, agent d’exploitation de 1° classe, 6° échelon du cadre territorial de la Santé publique, en service au dispensaire Ibrahim Balala (Ministère de la Santé publique et des Affaires sociales), pour mauvaise manière habituelle de servir et abandon de poste le 29 maï 1970 à 10 heures.

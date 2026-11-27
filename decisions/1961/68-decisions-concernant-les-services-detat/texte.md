@@ -1,4 +1,0 @@
-Le Sergent Ibrahim Farah, matricule n° 1257 de la 2° Compagnie de Mifice à Tadjoura, arrivant en fin de contrat le 1er juin 1961 est licencié pour raison disciplinaire et pour compter du 1er février 1961. L’intéréssé qui totalise 17 ans et 8 mois de services effectifs dans la Milice est admis à faire valoir ses droits à l’allocation viagère annuelle en exécution de l’article 66 dé l’arrêté n° 105 du 3 février 1943.
-Le Sergent Ibrahim Farah, matricule n° 1257 bénéficiera pour compter du 1er février 1961 (date de sa radiation des contrôles de la Milice) d’une allocation viagère annuelle de 45.666 F,D. (quarante cinq mille six cent soixante-six francs Djibouti) payable trimestriellement à terme échu sur le vu d’un certificat de vie délivré par les autorités compétentes.
-Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’Agent Spécial de la 2° Compagnie de Miice à Tadjoura.
-L’intéressé recevra le certificat de libération.

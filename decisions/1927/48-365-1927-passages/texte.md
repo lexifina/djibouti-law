@@ -1,1 +1,0 @@
-un passage de retour par anticipation est accordé à Mme Rossat, femme de l’inspecteur de la garde indigène, et à son fils âge de 14 ans. Mme Rossat el son fils prendront passage sur le paquebot de la Compagnie des Messageries Maritimes attendu à Djibouti vers le 29 juin prochain.

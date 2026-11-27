@@ -1,1 +1,0 @@
-28 août 1931. une permission de détente, à passer en Ethiopie et valable du 9 au 30 septembre 1931 inclus, est accordée à M. Gouet, receveur du cadre métropolitain des P, TT. chef du service des P, FT. T.

@@ -1,1 +1,0 @@
-M. Doran Mohamed Ahmed (Chick) est engagé en qualité de domestique au salaire mensuel de 5.000 francs exclusif de toutes indemnités, y compris celles pour charges de famille, et mis à la disposition de M. l’Inspecteur du Travail et des Lois sociales, en remplacement de M. Mohamed Ibrahim Dini, licencié pour raison de santé.

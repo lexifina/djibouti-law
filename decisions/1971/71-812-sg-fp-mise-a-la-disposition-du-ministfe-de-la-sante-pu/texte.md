@@ -1,1 +1,0 @@
-M. Joseph Casanova, adiudant-chef des troupes de Marine, en position «cadre – hors budget des armées », est, pour compter du 10 mai 1971, date de son arrivée au Territoire, mis à la disposition du Ministre de la Santé publique et des Affaires sociales pour servir à l’Hôpital Peltier en remplacement numéridue de l’adjudant-chef Marrast rapatriable.

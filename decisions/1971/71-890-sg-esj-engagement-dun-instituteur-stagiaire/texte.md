@@ -1,1 +1,0 @@
-M. Nguyen Thuong Tho, admis à l’examen du certificat élémentaire de fin d’études normales, session du 17 mai 1971, est engagé à titre exceptionnel, pour compter du 1 octobre 1971, en qualité d’instituteur stagiaire à l’Enseignement du premier de gré.

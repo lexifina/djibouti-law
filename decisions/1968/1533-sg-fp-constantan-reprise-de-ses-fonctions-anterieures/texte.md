@@ -1,1 +1,0 @@
-Est constatée, pour compter du 18 septembre 1968, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Michel Goyat, administrateur civil de 1er classe, 6° échelon (indice net 600), inspecteur du Travail et des Lois sociales du Territoire Français des Afars et des Issas.

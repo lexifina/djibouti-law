@@ -1,2 +1,0 @@
-Mme Buisson (Simone), secrétaire dactylographe auxiliaire en service au Ministère des Affaires intérieures (Cercle de Djibouti), titulaire du diplôme d’Etat d’infirmière, est mise à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du ler janvier 1960 pour servir en qualité d’infirmière à l’Hôpital Peltier, en remplacement de Mlle Ledoux en instance de départ.
-Mme Buisson (Simone) percevra un salaire forfaitaire mensuel de quarante-cinq mille francs Djibouti (45.000 F. D.).

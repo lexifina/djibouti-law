@@ -1,1 +1,0 @@
-le sergent Despouy (Paul), de la section des télégraphistes coloniauix, en service hors cadres à la Côte française des Somalis, qui compte deux ans de séjour ininterrompu à la colonie, est rapatrié pour fin de campagne.

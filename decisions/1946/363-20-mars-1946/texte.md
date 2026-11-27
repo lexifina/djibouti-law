@@ -1,1 +1,0 @@
-M. Léger (Eugène-Paul), employé auxiliaire de 3° catégorie à la subdivision du port, a été reclassé à la 2e catégorie du tableau A de l’arrêté n° 1300 du 24 novembre 1945 au salaire mensuel de 4.150 francs pour compter du 1 er janvier 1940.

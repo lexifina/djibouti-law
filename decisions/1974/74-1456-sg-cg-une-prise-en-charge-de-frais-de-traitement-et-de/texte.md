@@ -1,2 +1,0 @@
-Sont pris en charge par le budget du Territoire, les frais d’hospitalisation et de séjour de l’enfant Hagira Houssein Ali
-Cassim, 8 ans, fille de M. Houssein Ali Cassim, opérateur du RGR (Réseau général radioélectrique) à Djibouti, évacuée sanitaire le 19 octobre 1974 sur l’Hôpital Broussais – La Charité (cliniqué cardiologique, service du professeur P. Maurice), n° 96, rue Diderot – 75674 – Paris CEDEX 14.

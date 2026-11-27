@@ -1,9 +1,0 @@
-# Décision n° 899 02/10/1940
-
-Décision · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decision-n-899-02-10-1940/>
-
-En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) | adjudant Tricoire, de la milice indigène, est nommé chef du poste administratif d’Obock, en remplacement de l’adjudant Petit, rapatriable. |

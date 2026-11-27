@@ -1,1 +1,0 @@
-28 juillet 1927. est accordée la libération condilionnelle de la nommée Bont Ali (Issa Aria), condamnée le 3 mars 1927. à six mois de prison el à trois ans d’interdiction de séjour par le tribunal indigène du 1 degré, pour coups el blessures volontaires,

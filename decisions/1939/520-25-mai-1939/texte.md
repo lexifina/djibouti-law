@@ -1,1 +1,0 @@
-M. Belau, ingénieur-adjoint de 1er classe du cadre général des travaux publics des colonies, de retour de congé, est mis à la disposition de M. le chef du Service des travaux publics pour compter du 14 mai 1939, jour de son débarquement à la colonie.

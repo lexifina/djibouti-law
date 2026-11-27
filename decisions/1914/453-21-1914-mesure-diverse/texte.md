@@ -1,1 +1,0 @@
-l’aide mécanicien des Postes et Télégraphes Goudal Gueddi a été révoqué pour compter du 1er Décembre 1914 et remplacé par Egué Wass nommé pour compter de la même date aide-mécanicien des Postes et Télégraphes, avec droit en cette qualité, à une solde mensuelle de 45 francs.

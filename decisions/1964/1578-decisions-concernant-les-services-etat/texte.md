@@ -1,1 +1,0 @@
-Le caporal Houmed Idriss, matricule 2413, de la 3e compagnie de Milice à Ali-Sabieh, reconnu inapte à servir dans la Milice par le Conseil de Santé de la C.F.S. du 3 novembre 1964, est licencié pour raison de santé à compter du 1er décembre 1964

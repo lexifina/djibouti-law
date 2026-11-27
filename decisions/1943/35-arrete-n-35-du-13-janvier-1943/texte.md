@@ -1,1 +1,0 @@
-Mr. LAGER, Gustave François, Com mandant de l’Armée de l’Air, est désigné comme Commandant de l’Air en Côte Française des Somalis et Ordonnateur Se condaire Matières et Finances des Serv ices de l’Air.

@@ -1,1 +1,0 @@
-M. Ravailler (lierre), procureur de la République, chef du Service judiciaire, capitaine de réserve, service armé, classe de mobilisation 1906, est rayé de l’affectation spéciale, pour compter de la date de la présente décision.

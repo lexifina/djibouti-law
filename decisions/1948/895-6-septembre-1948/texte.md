@@ -1,1 +1,0 @@
-Une permission d’absence de quinze jours à solde entière, pour en jouir à Bourama (Somaliland), est accordée à Abdi Bidar, chauffeur auxiliaire (11e échelon), en service à l’enseignement, pour compter du 5 septembre 1948.

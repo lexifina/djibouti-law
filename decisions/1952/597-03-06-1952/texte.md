@@ -1,1 +1,0 @@
-Une. indemnité mensuelle forfaitaire de mille cinq cent francs (1.500 fr.) est accordé à titre temporaire pour compter du 1er mai 1952 à Mansour Nasser, commis administratif, chargé de l’écoute de la presse radiodiffusée, en raison du nouvel horaire des émissions.

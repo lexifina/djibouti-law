@@ -1,1 +1,0 @@
-Un secours temporaire de deux mille franes est accordé au titre de l’année 1961 à Mme Daba Daleïta, Afar Sougagoda, veuve de l’’okal Afar Mohamed Moussa, domiciliée au quartier n° 3 Ce secours est payable en une seule fois sur bon de caisse et imputable sur le Budget local, exercice 1961.

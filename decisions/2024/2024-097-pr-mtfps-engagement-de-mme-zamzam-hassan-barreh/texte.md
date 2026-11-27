@@ -1,2 +1,0 @@
-Par décision n°2024-097/PR/MTFPS, du Président de la République, Chef du Gouvernement, en date du 10 mars 2024, Mme. ZAMZAM HASSAN BARREH, est engagée à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de Femme de ménage, pour servir au Ministère du Budget, en remplacement numérique du regretté FARAH AHMED ROBLEH, décédé.
-La présente Décision qui prendra effet à compter de la date de signature sera enregistrée, communiquée, exécutée partout où besoin sera et publiée au Journal Officiel de la République de Djibouti.

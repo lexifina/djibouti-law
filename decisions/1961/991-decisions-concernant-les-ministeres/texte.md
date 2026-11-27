@@ -1,3 +1,0 @@
-Une indemnité pour accident du travail de auatorze mille trente-trois francs Djibouti (14.033 FD.) est accordée à M. Amine Abdoul Aziz, employé aux Travaux Publics (Subdivision entretien des bâtiments), victime d’un accident du travail survenu le 12 avril 1961.
-Le paiement de cette indemnité implique la renonciation par l’intéressé de tout recours civil ou contentieux, sauf aggravation médicalement constatée de l’incapacité permanente partielle résultant de l’accident du travail.
-La dépense visée ci-dessus est imputable sur le budget local de l’exercice 1961, chapitre 1, article 3, paragraphe 1.

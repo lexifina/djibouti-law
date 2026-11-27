@@ -1,1 +1,0 @@
-Est constatée, pour compter du 4 octobre 1971, date de son retour dans le Territoire, la reprise de ses fonctions antérieures à l’hôpital Peltier (Ministère de la Santé publique et dés Affaires sociales), par Mme Annick Houmed Houssein,infirmière diplômée d’Etat, 1er échelon.

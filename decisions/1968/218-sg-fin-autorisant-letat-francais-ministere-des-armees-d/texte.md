@@ -1,1 +1,0 @@
-L’Etat français (Ministère des Armées – Direction du Service du Matériel et des Bâtiments) est autorisé à acquérir un immeuble, d’une superficie de 1.338,50 mètres carrés, sis à Djibouti, Plateau du Serpent, et immatriculé au Livre foncier du Territoire sous le n° 306, au nom de Mme Moreau.

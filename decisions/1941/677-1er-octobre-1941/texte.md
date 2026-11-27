@@ -1,1 +1,0 @@
-Est rapportée la décision n° 459 du 1er juillet 1941 chargeant M. Lucas d’une mission d’achat de bétail à l’intérieur de la colonie. M. Lucas, administrateur de 2e classe, est mis à la disposition du commandant de cercle de Djibouti en qualité d’adjoint.

@@ -1,1 +1,0 @@
-M Abdoulkader Aberba. emplové de bureau auxiliaire au Service de l’’Enregistrement, des Domaines et du Timbre, est nommé billeteur pour le paiement de la solde et des allocations accessoires du Personnel Autochtone du Service de l’Enregistrement en remplacement de M. Nasser Avyach décédé.

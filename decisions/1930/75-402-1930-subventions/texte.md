@@ -1,2 +1,0 @@
-La subvention de vingt-quatio mille francs (24.000), prévue au budget de l’exercice 1030 (chapitre XI, article 4), est accordée au Comité de l’Alliance française de Djibouti, pour le fonctionnement de l’Ecole maternelle durant l’année 1030.
-La moitié de cette somme sera mandatée immédiatement au nom du trésorier du Comité sur les prévisions budgétaires de l’exercice 1030; l’autre moitié sera payée au cours du deuxième semestre de l’année en cours.

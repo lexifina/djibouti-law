@@ -1,1 +1,0 @@
-La Société civile et immobilière « Plein Ciel » est autorisée à acquérir une parcelle de terrain bâti, sise à Djibouti, avenue de l’Administrateur Bernard et immatriculée au Livre foncier du territoire sous les n°* 182 et 113 au nom de la Société Crédit Foncier et Immobilier.

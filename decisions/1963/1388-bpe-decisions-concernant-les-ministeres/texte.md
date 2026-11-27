@@ -1,1 +1,0 @@
-M. Roura (Alain), ingénieur des Travaux agricoles de 2e échelon (indice net 250), est mis à la disposition du Ministre de la Production, de l’Agriculture et de l’Elevage, pour compter du 27 octobre 1963, date de son arrivée dans le Territoir.

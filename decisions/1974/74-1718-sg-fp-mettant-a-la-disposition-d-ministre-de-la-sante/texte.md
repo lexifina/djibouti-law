@@ -1,1 +1,0 @@
-M. Yves Gendron, médecin de 1er classe, en position «hors cadres » est, pour compter du 11 octobre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre de la Santé Publique en remplacement du médecin de 1er classe Pineaw, rapatriable pour fin de séjour.

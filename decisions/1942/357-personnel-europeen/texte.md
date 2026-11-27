@@ -1,1 +1,0 @@
-Une punition comportant une retenue de solde de quinze jours est infligée à l’agent contractuel Rarboaniaina (Raymond), en service à l’hôpital colonial, pour grave incorrection envers un chef de service.

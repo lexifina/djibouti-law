@@ -1,3 +1,0 @@
-l’exhumation de s restes mortels du quartier maître Joanne (Robert), du Waideck- Rousseau, décédé à Djibouti le 20 juin 1932, et leur transfert en France ont été autorisés dans les conditions déterminées par l’arrêté ministériel du 21 juillet 1916.
-La dépense résultant de ce transfert et des frais accessoires sera imputée au chapitre 23 (santé-matières), article 5, du budget de la marine, conformément aux prescriptions de la dépêche du Ministre de la marine,
-L’exhumation sera effectuée en présence du médecin capitaine Paute et du commissaire de police, qui dresseront le procès-verbal des opérations.

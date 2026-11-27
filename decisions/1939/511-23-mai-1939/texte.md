@@ -1,1 +1,0 @@
-M. Fontanel, sous-chef mécanicien du cadre local des P. T. T, après 2 ans, qui réunit depuis le 3 mai 1939 les conditions d’ancienneté et de séjour exigées par l’art icle 6, garagraphe b de l’arrêté du 26 avril 1928 réorganisant les cadres locaux européens, passe à l’échelon après 4 ans de son grade pour compter de cette date.

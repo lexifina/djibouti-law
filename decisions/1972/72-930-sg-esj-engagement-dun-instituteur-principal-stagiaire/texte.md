@@ -1,1 +1,0 @@
-M. Gérard Polycarpe, déclaré admis aux épreuves du Certificat de fin d’études normales, est engagé, à titre exceptionnel, pour compter du 1er octobre 1972, en qualité d’instituteur principal stagiaire au Service de l’Enseignement du Premier degré.

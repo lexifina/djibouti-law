@@ -1,1 +1,0 @@
-Un congé de maternité de quatorze semaïnes, dont huit à solde entière et six à demi-solde, est accordé, pour compter du 31 mars 1960 à Mme Rocka, secrétaire auxiliaire en service au Ministère des Finances, des Affaires économiques et du Plan (Service des Finances).

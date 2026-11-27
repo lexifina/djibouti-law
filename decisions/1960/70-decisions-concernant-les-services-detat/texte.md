@@ -1,3 +1,0 @@
-Le Cäporal Abdi Djama, Mle 1124, arrivant en fin de contrat et totalisant 17 ans de services effectifs dans la Milice, est admis à faire valoir ses droits à l’allocation viagère en exécution de l’article 6 de l’arrêté n° 105 du 3-février 1943
-Le Caporal Abdi Djama bénéficiera, pour compter du 7 février 1960, d’une allocation viagère annuelle de quarante mille huit cent francs (40.800 FD.) payable sur le vu d’un certificat de vie délivré par les autorités compétentes, trimestriellement à terme échu.
-L’intéressé sera aligné en solde et indemnités jusqu’au 6 février 1960 et sera rayé des contrôles de la Milice pour compter du 7 février 1960.

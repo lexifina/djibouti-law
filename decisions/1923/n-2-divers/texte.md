@@ -1,2 +1,0 @@
-pour le mois de juillet 1923 le cours du thaler en juin ayant été de 8 frs 26, le taux du thaler prévu par arrêté du 25 octobre 1920, est fixé par application de l’arrêté du 11 mars 1999 à 5 frs — 250 (cours normal) soit 2,50.
-| En ce qui concerne les indemnités accessorse correspondant à des dépenses effectuées sur place fixées par les arrêtés des 1° » décembre 1920 (art. 1e°$ B et art. 2) 7 septembre 1921 et 31 mai 1923 elles seront décomptées sur le taux de 5 francs

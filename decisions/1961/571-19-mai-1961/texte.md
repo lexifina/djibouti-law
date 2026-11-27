@@ -1,3 +1,0 @@
-Au titre du congé annuel prévu par l’arrêté n° 59/SPCG du 17 mai 1958, une autorisation d’absence pour la durée dés vacances scolaires à passer à Rognac, rue des Borys (Bouches-du-Rhône), est accordée à M. Liecioni René, instituteur du 9e échelon.
-M. Liccioni René (indice net 380 – groupe II) qui voyagera accompagné de son épouse et de ses trois enfants (Michèle 15 ans, Roger 13 ans, Sylvie 3 ans) quiitera Djibouti par avion le 2 juin 1961 A l’issue de son congé M. ILäccioni René regagnera son poste dans: les mêmes conditions suivant les instructions qui lui seront données.
-La dépense est imputable sur le budget local, exercice 1961.

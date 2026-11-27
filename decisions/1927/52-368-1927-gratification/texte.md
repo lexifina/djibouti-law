@@ -1,1 +1,0 @@
-15. juillet 1927, l’occasion du 14 juillet 1927, une gralification de 20 francs est attribuée à chacun des ?1 okals du district Issa, à cinq okals du district Dankali et aux six ù!chefs de quartier du village indigène,

@@ -1,1 +1,0 @@
-M. Fillonneau (Etienne) Directeur de la Régie provisoire des chemins de fer éthiopiens, a élé nommé Ingénieur principal de 2e classe du cadre auxiliaire des Travaux Publics de la Côte française des Somalis.

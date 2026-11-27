@@ -1,1 +1,0 @@
-M. Maubert (Georges), contrôleur de 2e classe des cadres généraux des installations radio électriques, est nommé chef du service des informations pour compter du 15 novembre 1946, date de son débarquement à Djibouti.

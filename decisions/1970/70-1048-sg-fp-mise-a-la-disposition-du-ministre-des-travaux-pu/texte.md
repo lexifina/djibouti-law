@@ -1,1 +1,0 @@
-M. Jean-Pierre Guilbert, volontaire de l’Aide technique, est, pour compter du 23 août 1970, date de son arrivée au Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir en qualité d’adjoint technique des travaux publics au Port de commerce de Djibouti, en remplacement de M. Théolaire, rapatrié.

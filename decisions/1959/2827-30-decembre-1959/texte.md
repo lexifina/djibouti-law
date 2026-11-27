@@ -1,1 +1,0 @@
-Est constatée, pour compter du 12 décembre 1959, date de son retour dans le Territoire, la reprise pâar M. Castellani (Charles), Inspecteur principal 3e échelon, de ses fonctions d’Inspecteur de Police à la Sûreté Générale de la Côte Française des Somalis.

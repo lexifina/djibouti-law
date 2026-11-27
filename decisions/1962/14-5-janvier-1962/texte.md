@@ -1,1 +1,0 @@
-M. Mohamed Kamil est nommé Akel appointé de la Tribu Airolasso Garaissa Séwédo, pour compter du 1er avril 1961, en remplacement de M. Houmed Mohamed décédé, Il percevra une indemnité mensuelle de 6.000 francs.

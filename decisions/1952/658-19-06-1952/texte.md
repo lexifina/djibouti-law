@@ -1,2 +1,0 @@
-Mme Maublanc (Jeanne), précédemment en service dans l’Administration en qualité de dame-employée auxiliaire 1er catégorie, est admise à reprendre du service pour compter du 1er juin 1952 et mise à la disposition du Directeur du Service de Santé (Bureau de l’Hygiène) en remplacement de Mme Huon.
-Mme Huon, dame-employée auxiliaire, précédemment en service au Bureau de l’Hygiène, est affectée au Dispensaire Pierre Pascal.

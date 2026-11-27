@@ -1,1 +1,0 @@
-M. Abdoul Gafar Abdoul Aziz, comptable contractuel de retour de congé, est remis à la disposition du Chef du Service des Finances et de la Comptabilité, pour compter du 30 juin 1953, date de son retour à Djibouti.

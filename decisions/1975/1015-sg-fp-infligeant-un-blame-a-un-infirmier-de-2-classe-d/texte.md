@@ -1,1 +1,0 @@
-Un blôme est infligé à M. Ahmed Abdillahi Elmi. infirmier de 2° classe, 3° échelon, du Corps territorial de la Santé publique en service au bloc opératoire de l’hôpital Peltier, pour attitude incorrecte envers un chef de l’hôpital Peltier et allégations mensongères,

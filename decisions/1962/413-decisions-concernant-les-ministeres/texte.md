@@ -1,2 +1,0 @@
-Les restes mortels du Sergent-Chef Ancel Robert, décédé à Djibouti le 14 juillet 1961 et se trouvant actuellement au dépositoire de cette ville seront transférés au cimetière de Montmachoux par Montereau (Seine-et-Marne).
-Les dépenses occasionnéés par ce transfert seront à la charge du Budget de l’Etat (Budget des Armées, Affaires d’Outre-Mer,Chap. 32-98, Transport du personnel et déplacements, art. 1er).

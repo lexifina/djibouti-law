@@ -1,1 +1,0 @@
-M. Miniconi, ingénieur principal de 1er classe du cadre général des travaux publics des colonies, est nommé, à compter du 8 juin 1942, chef du service intérimaire des travaux publics pendant l’absence de M. l’ingénieur en chef des travaux publics des colonies Verdun, hospitalisé.

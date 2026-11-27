@@ -1,1 +1,0 @@
-Une indemnité journalière de route fixée à 5 francs payable sur les crédits politiques, àn été accordée à l’interprète auxilaire Abeba Mocréa, Tadjourah à l’occasion de la tournée qu’il a effectuée du 4 au 14 janvier 1933 inclus dans la région du massif du Goudda.

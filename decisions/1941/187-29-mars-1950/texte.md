@@ -1,1 +1,0 @@
-M. Bahuaud, agent auxiliaire du Service du ravitaillement général, est mis provisoirement à la disposition du lieutenant pharmacien. en remplacement de Al. Delande, sergent infirmier, affecté au Service des viandes.

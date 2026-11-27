@@ -1,1 +1,0 @@
-M. Félix Evariste, secrétaire-comptable auxiliaire, en service au Cercle de Djibouti, nommé agent intermédiaire pour la perception des droits et produits énumérés à l’article 1er de l’arrêté susvisé n° 1339 du 18 novembre 1954 par décision n° 633 du 3i mai 1960, recevra à ce titre une indemnité mensuelle de caisse de mille francs (1.000 F.).

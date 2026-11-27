@@ -1,1 +1,0 @@
-Le sergent-major Nicolas (René) exercera, a compter du 1er août 1947, les fonctions d’agent spécial du cercle de Tadjoura et de préposé des douanes en remplacement de l’adjudant Delpuech, remis à la disposition «lu commandant de la 2e compagnie de milice.

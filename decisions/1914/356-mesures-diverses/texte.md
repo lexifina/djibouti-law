@@ -1,1 +1,0 @@
-a été rapportée pour compter du 1er octobre prochain la décision du 20 juillet 1914 nommant à titre provisoire Mme Indélicat lingère à l’hopital de Djibouti. A partir de la mème date Mme Dufaud reprendra les fonctions dont elle est titulaire.

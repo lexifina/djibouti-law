@@ -1,1 +1,0 @@
-M. Gauthier (Fernand), Chef comptable de 2e classe au Service des Travaux publics (Usine Électrique) est désigné provisoirement comme agent intermédiaire du Trésor pour la per ception des produits de la régie administrative de la distribution d’eau à Djibouti, en remplacement de M. Rhodes (Pierre), comptable auxiliaire, actuellement en congé.

@@ -1,1 +1,0 @@
-Monsieur Robin, Ingénieur – Adjoint de 1er classe du cadre local des Travaux Publies, retour de congé, est mis à la disposition de Monsieur le chef des Travaux Publies pour compter du du 10 janvier 1939 Jour de son débarquement à la Colonie

@@ -1,1 +1,0 @@
-Un avertissement avec inscription au dossier est infligé à M. Youssouf Mohamed Houmed, infirmier de 3e classe, 1° échelon, du cadre territorial de la Santé publique en service à l’hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour attitude incorrecte et insolence envers le gestionnaire de l’hospital peltier.

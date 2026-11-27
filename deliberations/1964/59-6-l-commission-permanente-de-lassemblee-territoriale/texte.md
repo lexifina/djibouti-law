@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 460 du 1er avril 1964, la Commission permanente de l’Assemblée Territoriale a accordé à M. Abdou Jean la concession provisoire d’un terrain d’une superficie de mille deux cent vingt-cinq mètres carrés sise à Djibouti,boulevard Bonhoure (lots n° » 13, 15 et 17), au prix de deux cents francs le mètre carré.

@@ -1,2 +1,0 @@
-Un congé administratif de six mois, pour en jouir à Grenoble (Isère), est accordé à M. Carton (Albert), Commandant de camp de 1er classe du corps d’encadrement des pionniers de Madagascar en service détaché à la Côte Française des’Somalis.
-Une réquisition de passage par voie maritime Djibouti-Marseille et une réquisition par voie ferrée Marseille-Grenoble seront délivrées à l’intéressé, qui voyagera accompagné de son épouse, et qui appartient au groupe IÏI.

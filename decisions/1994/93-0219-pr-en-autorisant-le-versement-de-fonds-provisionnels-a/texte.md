@@ -1,4 +1,0 @@
-une somme de quatre millions francs français (4.000.000 FF) sera versée au Centre international des Etudiants et Stagiaires, 28, rue de la Grange aux Belles 75.010 Paris.
-Cette somme est destinée au réglement par cet organisme des allocations aux étudiants et stagiaires, de leurs frais de scolarité ainsi que leur frais de voyage.
-Le CIES établira, dans les conditions habituelles, le situation comptable pour iustifier l’utilisation de ces fonds.
-La somme afférente à cette dépense est imputable au budget de l’Etat chapitre 46-00-10-00-07.

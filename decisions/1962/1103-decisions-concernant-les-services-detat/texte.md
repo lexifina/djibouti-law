@@ -1,3 +1,0 @@
-Sont engagés dans la Milice dela Côte Française des Somalis pour 2 ans et pour compter du 30 juillet 1962 (comme 2° Classe),et affectés au Dépôt de la Milice les Miliciens dont les noms suivent :
-Ahmed Cheik Areh, mle 2785 — Moussa Nagueye Waberi, mle 2786 — Moussa Darar Miguil, mlel2787 — Darar Mohamed Fourreh, mle 2788-— Aden Darar Ali, mle 2789 — Ahmed Ibrahim Are, mle 2790 —- Kamil Nour Hoche, mle 2791 — Elmi Wallieh Boreh, mie 2792 — HaSSan Ismail Chirdon, mle 2793 — Ahmed Miguil Okie, mle 2794.
-Les contrats d’engagement sont souscrits à titre provisoire et deviendront définitifs dans un délai de six mois à compteride la date d’incorporation.

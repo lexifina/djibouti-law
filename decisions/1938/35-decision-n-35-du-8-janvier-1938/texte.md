@@ -1,1 +1,0 @@
-Un témoignage de satisfaction est décerné à M. Belau, ingénieur adjoint des travaux publics, chef de la subdivision des travaux neufs, et assurant cumulativement l’intérim de la subdivision administrative, pour le soin apporté dans l’exécution des travaux de construction du bâtiment des fonctionnaires, dit « Villa du Serpent », dont il a assuré la surveillance et le contrôle.

@@ -1,1 +1,0 @@
-il a été donné main-levée au Comptoir de Djibouti du cautionnement de cinq cents francs qu’il a constitué le 19 Décembre 1913 suivant récépissé n° 308 en garantie de l’éxécution des clauses de son marché pour la fourniture, pendant l’année 1914, de l’essence, du pétrole, de la graisse et du carbure de calcium nécessaires à l’Administration.

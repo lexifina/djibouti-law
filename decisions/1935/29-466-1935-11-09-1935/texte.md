@@ -1,1 +1,0 @@
-M. Verger (Francis) lieutenant de port de 1re classe, de retour de congé, est mis à la disposition de M. le chef du service des travaux publics, pour compter du 8 septembre 1935, jour de son débarquement.

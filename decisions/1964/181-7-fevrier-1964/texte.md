@@ -1,1 +1,0 @@
-M. Abdillahi Ali Houssein, agent de contrôle stagiaire du Cadre Territorial du Service des Contributions, qui ne réunit pas les conditions nécessaires pour exercer un emploi public en raison de sa condamnation par le Tribunal correctionnel (flagrant délit) à trois mois d’emprisonnement pour vol, est licencié de son emploi et rayé du contrôle du Personnel des Cadres Territoriaux.

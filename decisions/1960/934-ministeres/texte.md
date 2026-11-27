@@ -1,1 +1,0 @@
-Une allocation viagère de reversion d’un montant annuel de 18.150 francs est accordée à compter du 21 juillet 1960 à Madame Fatma Bent Zabel Ben Salem Al Zouhari arabe demeurant au quartier 6, Maison n° 12, veuve de l’ex-milicien de 1er classe Ali Abdou, Mie 603, décédé à Djibouti, le 20 juillet 1960.

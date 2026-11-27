@@ -1,1 +1,0 @@
-La rémunération globale mensuelle allouée à lM. Ra jaonarivony (Jean). a été portée de trois mille sept cent (3.750 fr.) à cinq mille sept franes (5.867 fr.L 15 avril 1915, cinquante francs huit cent soixante pour compter du 15 avril 1945.

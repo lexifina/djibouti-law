@@ -1,1 +1,0 @@
-L’article 2 de la décision n° 691 du 30 mai 1953 est et demeure rapportée en ce qui concerne M. Houssein Ahmed. L’intéressé continue à percevoir les indemnités à caractère familial dont il est bénéficiaire en vertu de la décision n° 86 du 23 janvier 1951.

@@ -1,1 +1,0 @@
-A titre de sanction l’okai Hoummad Gadito, de la fraction Oumarto, tribu Adorassou, ne percevra pas en février et mars 19441 le montant de l’allocation qui lui a été attribuée par décision n° 198 du 8 février 1946.

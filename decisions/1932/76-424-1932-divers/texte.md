@@ -1,1 +1,0 @@
-le receveur-comptable est autorisé à continuer l’emploi, en qualité d’auxiliaire, du nommé Ismaïl Ercy. Cet agent recevra un salaire de 200 francs par mois, qui lui sera payé sur certificat de service fait établi par le chef du service des P.T.T.,

@@ -1,1 +1,0 @@
-et pour compter du ler juin 1914, le garde de brigade indigéne Diric a été chargé de l’entretien de la conduite du corbillard du Service local, avec allocation d’une indemnité mensuelle de 10 francs imputable sur le chapitre II art.5.

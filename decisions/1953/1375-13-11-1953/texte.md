@@ -1,1 +1,0 @@
-Est constaté, à compter du 1er octobre 1953, tant au point de vue de la solde que de l’ancienneté, le passage de M. Rabibizaka (Marcel), commis-greffier principal avant deux ans, à l’échelon « après deux ans » de son grade.

@@ -1,1 +1,0 @@
-M. Gouillaud René, commissionnaire divisionnaire de 2e échelon (indice net 260) de la Sûreté nationale, en service à Djibouti, est nommé, pour compter du 15 juillet 1964 chef du Service de la Sûreté générale de la Côte Française des Somalis, en remplacement de M. Valette Eugène, commissaire divisionnaire de 2e échelon (indice net 620), titulaire d’un congé administratif.

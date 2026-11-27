@@ -1,2 +1,0 @@
-# Préambule
-Art 1. M Habib Ali Adouna, maître principal d’Enseignement de l’arabe, 2° classe, 2° échelon, est chargé, sous l’autorité de Messieurs ‘les Inspecteurs de l’Education en résidence à Djibouti (pour les cercles de Dikhil et d’Ali-Sabieh) et à Tadjourah (pour les cercles de Tadjourah et d’Obock) des fonctions d’adjoint Pédagogique, en vue de collaborer à l’organisation et au contrôle pédagogique de l’enséignement spécial de l’Arabe.

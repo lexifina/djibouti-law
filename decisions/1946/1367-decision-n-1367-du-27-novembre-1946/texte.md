@@ -1,1 +1,0 @@
-Le menuisier contractuel Ratsimandresy (Norbert), sera mis, pour compter du 1er décembre 1946, à la disposition du Service des Finances (Section du matériel) pour les tra vaux ayant trait au mobilier.

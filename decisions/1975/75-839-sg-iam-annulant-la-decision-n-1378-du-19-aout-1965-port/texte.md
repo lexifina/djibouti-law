@@ -1,1 +1,0 @@
-Est annulée, à compter du 1er janvier 1975, la décision n° 1378 du 19 août 1965 autorisant Mme Vuong Thi Tuong à exercer le commerce des boissons, licence de 3° classe, sis au plateau du Serpent, avenue Pasteur, n° 6, Djibouti.

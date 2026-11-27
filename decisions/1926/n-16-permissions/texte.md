@@ -1,1 +1,0 @@
-une permission de trent jours à solde entière el indeminité est accordée au garde de 2 classe Mohamed Obaker, Mle 397: une perinission de quinze jours sans aucune relentue de solde est accordée au garde de 2 classe Saïd Saleh.

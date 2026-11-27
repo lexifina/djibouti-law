@@ -1,1 +1,0 @@
-Est accordée à Madame HAMOT, en religion Sœur Marie du Calvaire, infirmière contractuelle une nouvelle prolongation de congé de convalescence de six mois à solde entière valable du 18 Mai au 17 Novembre 1943.

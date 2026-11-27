@@ -1,1 +1,0 @@
-Est constatée, pour compter du 1°octobre 1970, la reprise de ses fonctions antérieures de Chef du Service des Affaires administratives territoriales (Ministère des Affaires intérieures par M. Mohamed Aden Ahmed Dini, administrateur de la rontour Gadres territorial.

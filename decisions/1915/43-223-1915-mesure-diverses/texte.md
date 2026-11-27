@@ -1,1 +1,0 @@
-une suspension de solde de quinze jours a été infligée a l’Agent de 5ème classe des Douanes et Contributions. Ouarsama Hussein poui rixe sur la voie publique ayant nécessité l’intervention de la police

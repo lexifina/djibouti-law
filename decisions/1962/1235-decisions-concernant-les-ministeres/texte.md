@@ -1,3 +1,0 @@
-Une huitième prolongation de congé de longue durée de trois mois valable-à partir du 17 juin 1962 est accordée à M. Mohamed Warsama Dirieh, expéditionnaire d’Administration de 1 classe, 3° échelon du Cadre Territorial de l’Administration générale.
-Pendant la durée de cette prolongation, M. Mohamed Warsama Dirieh, aura droit en application du deuxième paragraphe de l’article 18 de l’arrêté susvisé n° 61/19/SPCG du 24 février 1961 à la moitié de sa rémunération.
-M. Mohamed Warsama Dirieh, reconnu apte à reprendre son service pour compter du 17.septembre 1962, est mis à la disposition du Ministère de la Santé Publique et des Affaires Sociales pour servir à l’Hôpital Peltier.

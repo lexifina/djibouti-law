@@ -1,1 +1,0 @@
-L’agent auxiliaire de la sûreté, Ahmed Ibrahim, est licencié par mesure disciplinaire pour n’avoir pas rejoint son poste le 1er décembre, date d’expiration du congé sans solde qui lui avait été attribué par décision n° 546 du 13 août 1941.

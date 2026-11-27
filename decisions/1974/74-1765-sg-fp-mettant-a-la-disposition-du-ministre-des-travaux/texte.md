@@ -1,1 +1,0 @@
-M. Christian Darles, volontaire de l’aide technique est, pour compter du 12 septembre 1974, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics, des Transpoïts et du Tourisme, pour servir en qualité d’architecte B.U.H.). Poste budgétaire n° 3/V.AT.

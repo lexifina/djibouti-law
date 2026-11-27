@@ -1,1 +1,0 @@
-L’Office de Radiodiffusion Télévision française est autorisée à acquérir une parcelle de terrain bâti, d’une superficie de 1.196,60 mètres carrés, sise à Djibouti, Plateau du Marabout, et immatriculée au Livré foncier du Territoire sous le n° 702 au nom de M. Manni Fernando.

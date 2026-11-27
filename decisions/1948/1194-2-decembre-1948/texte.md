@@ -1,1 +1,0 @@
-Le salaire de Diakite Samba, mécanicien de compresseur et chauffeur du service d’hygiène, est porté de seize mille deux cents francs (16.200 francs) à vingt mille francs (20.000 francs) par mois, exclusif de toutes indem nités, pour compter du 15 novembre 1948.

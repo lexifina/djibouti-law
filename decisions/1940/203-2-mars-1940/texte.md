@@ -1,1 +1,0 @@
-M. Ravailler (Pierre), procureur de la République, chef du Service judiciaire, service armé, classe de mobilisation 1904, capitaine de réserve, est classé dans l’affectation spéciale pour une durée indéterminée, dans son emploi actuel, à compter de la date de la présente division.

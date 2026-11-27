@@ -1,1 +1,0 @@
-M. Batihias (Jean) est engagé en qualité de mécanicien diéseliste auxiliaire, au salaire journalier de mille deux cent, cinquante francs (1.250 francs) par jour de travail effectif, exclusif de toutes indemnités. L’intéressé’ est mis à la disposition du directeur du service des travaux publics.

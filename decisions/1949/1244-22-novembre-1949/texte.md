@@ -1,1 +1,0 @@
-Le chef de bataillon, Labarsonque, chef du cabinet militaire du gouverneur, est nommé, à compter du 1er novembre 1949, commissaire français à la commission mixte d’abornement des frontières franco-éthiopiennes.

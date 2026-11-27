@@ -1,1 +1,0 @@
-Le sergent d’infanterie coloniale Le Ricousse (Fiérdinand), désigné pour servir « hors-cadres» en Côte Française des Somalis et arrivé à Djibouti le 30 octobre 1952, est affecté à la Milice de la n° C.F.S. (2° Compagnie) pour compter du jour de son débarquement.

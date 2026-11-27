@@ -1,1 +1,0 @@
-Le lieutenant Fournier (René), débarqué à la colonie le 21 août 1938, est mis à la disposition du capitaine commandant la milice indigène et affecté à ln 2° compagnie de milice, À compier du jour de son débarquement

@@ -1,1 +1,0 @@
-réndue exécutoire par arrêté n° 1126 du 7 septembre 1963, la Commission permanente de l’Assemblée Territoriale a autorisé M. Omar Ibrahim Hadom, Président de la Commission permanente, à se rendre en mission à Pris au cours de la première quinzaine du mois de septembre1963.

@@ -1,1 +1,0 @@
-Le traitement global de M. CAILLAUD Pierre, Délégué de la Caisse Centrale de la France Combattante fixé à 10.000 francs par mois aux termes de la lettre susvisée du 17 Mai 1943 sera imputée pour moitié a compter du 1er Mai 1943 au Bud get Local, chapitre IV, article 1.

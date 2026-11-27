@@ -1,1 +1,0 @@
-Le milicien de 1re classe Youssouf Hamadou, matricule 2242, de la 3e Compagnie de Milice à Ali-Sabieh, arrivant en fin de contrat le 9 juillet 1964, est mis à la retraite pour compter du 9 juillet 1964.

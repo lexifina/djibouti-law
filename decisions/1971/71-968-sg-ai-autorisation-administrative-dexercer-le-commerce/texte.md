@@ -1,2 +1,0 @@
-Est rapportée la décision n° 1385 du 5 iuin 1967 autorisant M. Frédéric Galland (alias Gulen Ferruh) à exploiter en gérance libre. la licence de 1’° classe du bar-restaurant « Ston-Bar > dont la propriétaire est Mme Germaine Nicoletto.
-Me Germaine Nicoletto est autorisée à reprendre, pour compter du 1°” juillet 1971, l’exploitation de la licence se 1° classe de son bar-restaurant «Stop-Bar», sis rue Ras-Makonnen, à Djibouti.

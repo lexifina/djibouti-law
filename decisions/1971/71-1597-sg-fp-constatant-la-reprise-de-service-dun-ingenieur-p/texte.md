@@ -1,1 +1,0 @@
-Est constatée, pour compter du 28 octobre 1971, date de son retour dans le Territoire, la reprise de ses fonctions antérieures de Directeur des Travaux publics (Ministère des Travaux publics et du Port) par M. Frédéric Malecamp, ingénieur principal des Travaux publics «hors classe », 3° échelon.

@@ -1,2 +1,0 @@
-M. Abdillahi Farah Djama, surveillant de travaux de 2e classe, 2e échelon, du Cadre territorial des Travaux publics et du Port, en service au District de Djibouti (Ministère des Affaires intérieures) est, pour compter du 16 septembre 1970, mis à la disposition du Haut-Commissaire de la République.
-Pour compter de la même date, les émoluments de M. Abdillahi Farah Djama seront pris en charge par le budget de\ l’Etat.

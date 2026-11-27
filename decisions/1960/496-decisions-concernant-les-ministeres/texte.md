@@ -1,1 +1,0 @@
-Est admis à salaire mensuel et rangé dans la hiérarchie du personnel auxiliaire, pour compter du 1er janvier 1960, en qualité d’aide ouvrier auxiliaire à l’Imprimerie Administrative, à la 5e catégorie, échelle I, 2e échelon, indice local 125, M. Saïd Djama Hourri, agent à salaire journalier.

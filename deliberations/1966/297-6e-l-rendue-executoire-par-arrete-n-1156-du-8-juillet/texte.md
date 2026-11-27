@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 1156 du 8 juillet 1966, la Commission permanente de l’Assemblée Territoriale a accordé aux Héritiers Hassan Ibrahim la concession provisoire ou définitive d’une parcelle de terrain sis à Djibouti, boulevard de Gaulle, immatriculée au Livre foncier sous le n° 452.

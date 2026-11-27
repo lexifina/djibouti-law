@@ -1,2 +1,0 @@
-Il est attribué à Mme Kadra Farah, veuve et héritière du Caporal Mohamed Ismaël, mle 386 de la Garde Territoriale, décédé suite de maladie à l’hôpital de Djibouti le 20 avril 1962, une indemnité égale à 3 mois de solde nette, soit vingt et un mille deux cent trente et un francs (21.231 fr.) payable en une seule et unique fois.
-Ce sarde totalisait à cette date 8 ans, 6 mois et 14 jours de service dans les Forces Locales.

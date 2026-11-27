@@ -1,1 +1,0 @@
-M Raymond Jean, adjoint des Services Civils des Colonies, mis à la disposition du Chef du Bureau des Finances par décision n° 766 en date du 14 décembre 1944, est nommé dépositaire-comptable du Magasin du Service Local.

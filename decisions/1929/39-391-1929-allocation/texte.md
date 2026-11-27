@@ -1,1 +1,0 @@
-il est accordé à titre exceptionnel, à la Société sportive de Djibouti, une allocation de mille francs, qui sera mandatée au nom de son président, cette somme sera prélevée sur le montant de la subvention prévue en faveur du « Comité des fêtes de Djibouti ».

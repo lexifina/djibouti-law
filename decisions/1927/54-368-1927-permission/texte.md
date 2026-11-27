@@ -1,1 +1,0 @@
-10 juillet 1927, une permission d’absence de trente jours, à compter du 13 juillet 1927, est accordée à M. Ollier (Jean), procureur de la République, chef du service judiciaire, pour en jouir à Diré-Daoua (Ethiopie).

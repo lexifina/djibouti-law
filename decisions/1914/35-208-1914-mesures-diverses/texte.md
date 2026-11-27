@@ -1,1 +1,0 @@
-et pour compter du 6 mars de la même année, MM. Baixas Augustin et Allès Robert, Conrmnis de troisième classe du cadre local des Postes et Télégraphes, sont élevés à la deuxième classe de leur emploi.

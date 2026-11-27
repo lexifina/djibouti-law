@@ -1,1 +1,0 @@
-M. Ropagnol (Julien-Marie-Emile-André), juge au tribunal de 1er instance, lientenant de réserve, service armé, classe de mobilisation 1927, est placé duns l’affe ctation spéciale dans son emploi actuel, pour une durée de un mois, à compter de la date de la présente décision.

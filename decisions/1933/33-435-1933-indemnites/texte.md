@@ -1,1 +1,0 @@
-l’indemnité journalière normale Sans logement, fixée par le décret du 27 août 1930, a été attribuée à l’adjudant Dongradi (Simon) et au sergent- chef Bozzi ( Paulin) et ce, à compter du 11 février 1933, date de leur débarquement, jusqu’a 22 février 1933 exclu, date à compter de laquelle ils ont été logés et meublés par les soins de l’Administration.

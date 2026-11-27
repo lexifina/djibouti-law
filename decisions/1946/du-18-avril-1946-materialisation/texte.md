@@ -1,1 +1,0 @@
-ont été déclaré sujets français droits pour jouir de tous les droit et prérogatives attachés à cette qualités les nommés : Saïd Chamsan, Mohamed Salem, Saïd Abdou Abdallah, Kassim Saïd. et Hassen Ezan.

@@ -1,4 +1,0 @@
-Une réquisition de passage par voie maritime en classe touriste Djibouti-Marseiïlle au compte du Budget du Territoire, sera délivrée à M. Bontemps (Guy), Adjoint technique de 6e classe du cadre général des Travaux Publies de la Erance d’Outre-Mer (indice 230, groupe III), remis à la disposition du Ministre des Travaux Publics et des Transports.
-M. Bontemps (Guy) sera mis en route par première occasion maritime à partir du le avril 1960. Il voyagera accompagné de son épouse et de sa fille Sophie, née le 19 septembre 1959.
-M. Bontemps (Guy) devra se présenter. dans les metrlleurs délais au Service Administratif Central du Département : 27, rue Oudinot, Paris (7°), pour régularisation de sa situation administrative.
-M. Bontemps (Guy) aura droit au remboursement de ses frais de voyage de Marseille à Paris pour lui même et de Marseille à Reims pour les membres de sa famille.

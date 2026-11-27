@@ -1,1 +1,0 @@
-une Commission composée de MM. le Secrétaire Général, Président, le Chef du Service de Santé, le Chef du Service des Travaux Publics, Messieurs Hardy, Kordel Peschier, Veit, Vorperian, Ali Saïd, Barout, Bazarah, Benine, Johar Abdallah, Mohamedally, membres se réunira en vue d’étudier les installations projetées pour le traitement des peaux.

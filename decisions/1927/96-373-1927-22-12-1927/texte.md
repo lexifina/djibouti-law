@@ -1,1 +1,0 @@
-l’interprète du Gouvernement Saïd Ali, qui cesse ses fonctions en vertu d’une décision en dale de ce jour, et qui compte plus de 43 ans de services, aura droit, à compter du 1er janvier 1928, à un secours temporaire annuel de 3.000 francs, payable par trimestre.

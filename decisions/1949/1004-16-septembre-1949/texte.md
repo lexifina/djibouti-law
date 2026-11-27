@@ -1,1 +1,0 @@
-M. MiiKotte (Lucien), instàtuteur de 4e classe, directeur de l’école die Tadjourah, est nommé directeur de l’école d’Ali-Sabieli pour compter du 1er octobre 1940, en remplacement de M, Terrisse, appelé à une autre des tination. Il aura droit à l’indemnité de direction prévue par les règlements.

@@ -1,1 +1,0 @@
-un secours de trois cent soixante francs (260 francs) l’an, payable par trimestre échu, valable pour la durée d’un an, à compter du 1er octobre 1935, est accordé à flassan Bœuh, ex-planton du gouvernement.

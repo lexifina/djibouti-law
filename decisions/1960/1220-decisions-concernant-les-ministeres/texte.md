@@ -1,1 +1,0 @@
-M. Pichon Claude, directeur du Lycée de Djibouti, est nommé billeteur pour le paiement des allocations scolaires allouées aux élèves poursuivant leurs études au Lycée La présente décision prendra effet pour compter du ler octobre 1960.

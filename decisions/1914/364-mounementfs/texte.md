@@ -1,1 +1,0 @@
-M. Blanchard, écrivain auxiliaire au Greffe, a été appelé à remplir les fonctions de commis-greffier près les tribunaux indigènes du ler et du 2me degré, en remplacement de M. Léveillé décédé, avec droit a une indemnité annuelle de 180 frs à titre de supplément de fonctions,

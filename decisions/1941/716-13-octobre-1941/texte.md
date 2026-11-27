@@ -1,2 +1,0 @@
-Un congé de repos de six semaines, avec solde entière de présence, est accordé au mécanicien auxiliaire des douanes Hassen Guele pour en jouir dans la colonie à compter du 16 octobre 1941.
-Un congé pour affaires personnelles, d’une durée de trois mois, sans solde, est accordé aux commis auxiliaires des douanes Abdal lah Othman Kalifa et Ahmed Abdallah Coubêche pour en jouir au Yémen à compter du 16 octobre 1941.

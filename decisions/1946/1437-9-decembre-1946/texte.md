@@ -1,1 +1,0 @@
-L’administrateur des colonies Robert Chamboredon, chef du cabinet civil, inspecteur des affaires administratives, est chargé de l’expédition des affaires courantes et urgentes, pon dant la durée de la mission du Gouverneur en France.

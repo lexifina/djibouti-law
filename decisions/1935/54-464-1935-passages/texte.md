@@ -1,1 +1,0 @@
-un passage de retour par anticipation en 2e classe à destination de la Réunion est accordé à M. Hivière (Francis), fils d’un adjoint principal de classe exceptionnelle des services civils, qui prendra passage sur s/s Angers, attendu le 14 juillet 1935.

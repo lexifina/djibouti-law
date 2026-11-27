@@ -1,1 +1,0 @@
-Un blame avec inscription au dossier est infligé a M. Ali Miguil Waberi, agent de 2° classe, 3° échelon du corps territorial et des Postes et Télécommunications, en service a l’Office des Postes et Télécommunications pour manque de conscience professionnelle, mauvaise maniére habituelle de servir.

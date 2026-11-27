@@ -1,1 +1,0 @@
-M. Roble Boulale est désigné pour suivre les cours sur «les problèmes sanitaires et sociaux de l’écolier africain» organisés par le Centre international de l’Enfance du 6 au 19 avril 1964, à Abidjan (Côte d’Ivoire).

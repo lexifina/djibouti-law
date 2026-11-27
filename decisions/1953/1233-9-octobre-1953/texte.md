@@ -1,1 +1,0 @@
-M. Houmed Rezk, est engagé en qualité de domestique au salaire mensuel de 6.000 francs, exclusif de toutes indemnités, y compris celles pour charges de famille, et mis à la disposition de M. l’Inspecteur du Travail et des Lois sociales, pour compter du 1er octobre 1953.

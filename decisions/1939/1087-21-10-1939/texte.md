@@ -1,1 +1,0 @@
-M. Bodin (Gérard-Jean-Baptiste). chef du Service des douanes, sergent de réserve, classe de mobilisation 1918, service armé, est place dans l’affectation spéciale dans son emploi actuel pour une durée de trois mois à compier de la date de la présente décision.

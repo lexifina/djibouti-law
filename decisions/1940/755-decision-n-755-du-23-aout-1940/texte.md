@@ -1,1 +1,0 @@
-M. Emile (Edouard), commis principal de 1re classe après 4 ans du Secrétariat général de la Côte française des Somalis, est maintenu dans la position de disponibilité sans traitement pour une durée maximum de six mois à compter du 21 février 1940.

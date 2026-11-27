@@ -1,1 +1,0 @@
-Un congé pour expectative de réintégration dans son corps d’origine de trois mois est accordé à M. Santenach (André), instituteur de 6e échelon, délégué dans les fonctions d’Inspecteur primaire, actuellement én congé à Saint-Germain-la-Montagne, par Chauffailles (Saône-et-Loire), pour compter du 1er octabre 1960.

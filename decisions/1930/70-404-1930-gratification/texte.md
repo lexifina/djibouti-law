@@ -1,1 +1,0 @@
-une gratification de 150 francs est accordée au dactylographe contractuel Raharison, pour la conscience qu’il a apportée à l’exécution des travaux qui lui ont été confiés durant le premier semestre 1930.

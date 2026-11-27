@@ -1,1 +1,0 @@
-M. le docteur Passa médecin aide-Major de 1er classe des Troupes coloniales, en service à Djibouti, est chargé provisoirement et en attendant l’arrivée du titulaire. des fonctions de Chef du Service de Santé qu’il remplira cumulativement avec ses autres attributions.

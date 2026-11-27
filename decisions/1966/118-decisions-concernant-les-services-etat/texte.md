@@ -1,1 +1,0 @@
-M. Mahätoud Mohamed Dabiro, commerçant, de nationalité française, démeurant à Djibouti, est autorisé à acquérir un immeuble siskà Djibouti, rue Soleillet, et immatriculé au Livre foncier sous Jeln° 258 au nom de M. Mohamed Ibrahim Tayeb.

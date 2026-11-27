@@ -1,1 +1,0 @@
-Omar Moussa Waiss, somalie issa ourweiné, né à Ouéah (Cercle de Djibouti) en 1946, est engagé à la Voirie du Poste administratif d’Arta en qualité de manœuvre 1re catégorie de la Convention collective territoriale du 16 mars 1956 (P.B. n° 302).

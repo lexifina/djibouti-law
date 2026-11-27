@@ -1,2 +1,0 @@
-# Préambule
-Art, 1er. — Il est fait concession provisoire à M. Abdourhaman Banabila. propriétaire français demeurant et domicilié à Djibouti, «l’une parcelle «le terrain de 300 mètres carré’ attenante au lot n » 73 bis immatriculé à son nom au Livre foncier de la colonie sous le n » 217. dont les limites nord et sud d’une longueur de quinze mètres seront dans le prolongement des murs de l’immeuble édifié sur le lot n » 73 bis, telle au surplus qu’elle est déterminée au plan annexé au présent arrêté.

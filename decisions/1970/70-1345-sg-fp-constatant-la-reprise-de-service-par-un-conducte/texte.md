@@ -1,1 +1,0 @@
-Est constatée, pour compter du 24 octobre 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures au Service de la Voirie (District de Djibouti – Ministère des Affaires intérieures) par M. Maxime Letouze, conducteur des Travaux publics de l’Etat.

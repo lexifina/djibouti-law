@@ -1,1 +1,0 @@
-M. Rousset (Max), directeur général du chemin de fer franco-éthiopien, service arme, classe de mobilisation 1911, capitaine de réserve, est classé dans l’affectation spéciale, dans son emploi actuel, pour une durée indéterminée à compter de la date de la présente décision.

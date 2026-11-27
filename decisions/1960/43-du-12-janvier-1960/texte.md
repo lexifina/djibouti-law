@@ -1,1 +1,0 @@
-M. Idriss Bourhan, planton auxiliaire, échelle 1, 2e échelon, indice local 125, en service au Ministère de l’Enseignement, des Sports et de la Jeunesse, est mis à la disposition du Ministre des Travaux Publics et du Port, pour compter du 1er décembre 1959.

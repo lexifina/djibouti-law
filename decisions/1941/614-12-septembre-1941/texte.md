@@ -1,1 +1,0 @@
-Abdallah Saïd Salem est engagé à titre d’essai, en remplacement numérique de Hilaire (Charles), licencié, pour servir au Bureau des finances (Section du matériel), au salaire de 20 francs par jour ouvrable.

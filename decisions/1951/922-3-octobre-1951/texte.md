@@ -1,1 +1,0 @@
-M. Depouilly (Roland), instituteur de 2e classe du cadre métropolitain, détaché à la Côte Française des Somalis, est affecté au Groupe scolaire de Djibouti pour servir au Cours complémentaire à compter du 20 septembre 1951, date de son débarquement à Djibouti.

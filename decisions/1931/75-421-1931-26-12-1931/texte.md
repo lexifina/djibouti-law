@@ -1,1 +1,0 @@
-M. Alemant, administrateur adjoint des colonies, est chargs, cumulativement avec les fonctions qu’il occupe au 1er bureau, des services des archives, des fournitures de bureau et de la surveillance de l’atelier de reliure.

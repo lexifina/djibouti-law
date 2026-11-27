@@ -1,1 +1,0 @@
-L’adjudant-chef infirmier Billiec (Jean), comptable à la pharmacie centrale de l’hôpital colonial, est placé dans la position « hors cadres » à compter du 1er mai 1949 et maintenu dans son affectation actuelle.

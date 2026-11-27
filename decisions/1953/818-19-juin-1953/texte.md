@@ -1,1 +1,0 @@
-La décision n° 594 du 13 mai 1953, portant engagement du nommé Abdourahman Ahmed en qualité d’infirmier stagiaire 10e échelon du cadre local de la Côte Française des Somalis, pour compter du 1er juin 1953, est et demeure rapportée.

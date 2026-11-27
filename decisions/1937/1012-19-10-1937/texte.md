@@ -1,1 +1,0 @@
-Une réquisition de passage, en premiere classe, sera délivrée à M. Pigneur (Emile), instituteur de 5e classe du cadre métropolitain, détaché à la Côte française des Somalis, évacué sur l’hôpital militaire Michel Lévy de Marseille.

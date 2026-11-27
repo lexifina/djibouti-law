@@ -1,2 +1,0 @@
-Le salaire mensuel de M. Eliazarian, comptable en service au ravitaillement général, qui avait été fixé à 30.000 francs pour compter du 1er avril 1948, est porté à 39.650 francs à l’exclusion de toutes indemnités, pour compter du 1er octobre 1948.
-Le montant de ce salaire sera susceptible d’être révisé en conformité avec les variatiens des taux des salaires alloués au personnel des cadres locaux, sur proposition du chef du service du ravitaillement général et par décision du Gouverneur du territoire.

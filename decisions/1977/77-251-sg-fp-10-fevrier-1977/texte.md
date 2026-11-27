@@ -1,1 +1,0 @@
-M. Ali Mohamed Ahmed, élève de 2e, qui assure les fonctions d’enquêteur à la direction de la Police, est intégré dans le cadre des enquêteurs de police et nommé enquêteur de police 2e échelon pour compter du 1er janvier 1977.

@@ -1,1 +1,0 @@
-les fonctions de chef du ser vice de l’aéronautique civile, à la Côte française «les Somalis, seront provisoirement exer cées par le commandant de l’air à la Côte française des Somalis et dépendances.

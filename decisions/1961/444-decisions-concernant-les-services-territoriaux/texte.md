@@ -1,1 +1,0 @@
-M. Saïd Mohamed Ali, chauffeur auxiliaire à l’échelle IV,2e échelon en service au Ministère de l’Enseignement, des Sports et de la Jeunesse, hospitalisé pour comptèr du 25 novembre 1960 et reconnu inapte à reprendre son service, est placé en position de congé sans solde pour une période de huit mois à compter du 25 mars 1961.

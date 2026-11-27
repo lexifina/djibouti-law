@@ -1,9 +1,0 @@
-# Décision n° 371 Décisions concernant les Services Territoriaux
-
-Décision · Journal officiel de la République de Djibouti, n° 4 du 30/04/1961 · <https://www.journalofficiel.dj/texte-juridique/decision-n-371-decisions-concernant-les-services-territoriaux/>
-
-En vigueur : 1961-04-30 (date du Journal officiel qui le publie).
-
-| Fichier | Disposition |
-| --- | --- |
-| [texte.md](texte.md) | e somme de quatre cent mille francs Djibouti (400.000:F.D.) sera versée À M. Mohamed Ahmed Saïd, Arabe Zeidi, employé de commerce demeurant à Djibouti, rue de Rome. |

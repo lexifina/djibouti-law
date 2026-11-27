@@ -1,1 +1,0 @@
-M. Jean-Jacques Touzeau, volontaire de l’Aide technique, est, pour compter du 9 juin 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Information et du Tourisme, pour servir en qualité de journaliste-reporter au Service de l’Information.

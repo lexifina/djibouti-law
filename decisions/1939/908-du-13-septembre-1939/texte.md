@@ -1,1 +1,0 @@
-M. Buffier (Jean), employé comme chef de gare à la Compagnie du chemin de fer franco èthiopien, service armé, classe de mobilisation 1931, est claseé dans la position d’appel diflerè dans son emploi actuel, pour une durée de soixante jours à compter du jour de la mobilisation.

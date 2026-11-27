@@ -1,1 +1,0 @@
-M. Emile, com mis principal des Secrétariats généraux, est mis a la disposition de l’administrateur des colonies, inspecteur du travail, chargé du service de l’inscription maritime, pour compter du 6 octobre 1937.

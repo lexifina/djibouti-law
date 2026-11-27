@@ -1,1 +1,0 @@
-Est constatée, pour compter du 11 septembre 1969, date de son retour au Territoire, la reprise de ses fonctions antérieures à la Direction du Port de Commerce de Djibouti (Ministère des Travaux publics et du Port), par M. Michel Rousseau, administrateur civil de 1er classe, 7e échelon.

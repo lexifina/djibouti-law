@@ -1,1 +1,0 @@
-Barah Gouled, engagé en qualité de guide interprète pour la reconnaissance de la route Djibouti -Ouéa, aura droit à un salaire journalier de 10 francs pour la période du 17 avril au 25 mai 1933 inclus.

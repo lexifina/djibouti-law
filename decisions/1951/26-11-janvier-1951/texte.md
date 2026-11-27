@@ -1,1 +1,0 @@
-M. Gailiano (Antonio), ouvrier d’art contractuel, est mis à la disposition du Directeur du Service des Travaux publics pour servir à l’Usine électrique pour compter du 23 décembre 1950, date de son débarquement à Djibouti.

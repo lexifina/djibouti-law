@@ -1,1 +1,0 @@
-26 avril 1934, M. le capitaine d’infanterie coloniale Fareues. en service hors cadres à la Côte francaise des Somalis, reprend les fonctions de chef du bureau militaire à compter dn 3 avril 1934. qui étaient assurées provisoirement par M. le lieutenant Rodolphe,

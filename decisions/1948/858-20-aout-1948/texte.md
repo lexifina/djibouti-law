@@ -1,1 +1,0 @@
-Le médecin capitaine des troupes coloniales Torresi (Félix) désigné pour servir hors cadres en Côte française des Somalis est nommé médecin résident et médecin inspecteur de l’Assistance médicale indigène en Côte fran çaise des Somalis pour compter du 10 août 1948.

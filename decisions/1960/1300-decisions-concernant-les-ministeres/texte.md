@@ -1,4 +1,0 @@
-Est constatée pour la période du 11 juillet 1960 au 10 octobre 1960 inclus, l’absence pour cause de maladie de Mme Lariau
-(Paule, Simone), secrétaire-dactylographe auxiliaire en service aux Contributions directes.
-En application des dispositions des articles 47 et 48 du Code du Travail des Territoires d’Outre-Mer, Mme Lariau (Paule, Simone) aura droit à une indemnité d’un montant égal à deux mois de salaire (durée du préavis auquel elle pouvait prétendre à la date du 10 juillet 1960, pour une ancienneté de service effectif de 5 ans 10 mois 28 jours).
-Mme Lariau qui a repris ses fonctions le 24 octobre 1960, n’aura droit à aucun traitement pour la période du 11 au 23 octobre 1960 inclus prises pour régler la situation de Mme Lariau pendant la période du 11 juillet au 10 octobre 1960 inclus.

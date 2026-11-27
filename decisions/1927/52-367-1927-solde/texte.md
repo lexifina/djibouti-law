@@ -1,2 +1,0 @@
-pendant la durée de la permission qui lui a été accordée par la décision n° 230 du 21 mai 1927 précitée, le planton Beder Ami aura droit à sa solde enlière pour un mois et à la demi-solde pour les quinze derniers jours.
-Le nommé Ahmed Ali, qui remplace provisoirement le planton titulaire, aura droit, pendant la durée de la permission de ce dernier, à la solde mensuelle nette de 175 francs, dégagée de toute indemnité.

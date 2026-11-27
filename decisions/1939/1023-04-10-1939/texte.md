@@ -1,1 +1,0 @@
-M. Duret (François Paul), service armé, classe de mobilisation 1913, contrôleur de 1er classe des douanes, est classé dans l’affectation spéciale dans son emploi actuel pour une durée de trois mois à compter de la date de la présente décision.

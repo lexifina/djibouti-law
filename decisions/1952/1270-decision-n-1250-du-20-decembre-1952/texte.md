@@ -1,1 +1,0 @@
-M. Kamitsos (Louzis), dessinateur auxiliaire 3° catégorie, en service aux Travaux Publics, est admis à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisé,pour compter du 1er juillet 1952.

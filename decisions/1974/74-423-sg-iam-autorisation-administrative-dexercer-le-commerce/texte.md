@@ -1,1 +1,0 @@
-Est rapportée, pour compter du 1° mars 1974, la décision n° 72-931/SG/IA du 15 juin 1972, autorisant M »° Amina Omar Rowah à exercer le commerce des boissons, licence de 5° classe, au Bar-Restaurant sis à Ambouli (derrière le Provençal).

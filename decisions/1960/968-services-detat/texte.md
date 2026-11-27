@@ -1,1 +1,0 @@
-M. Sauvageot (Henri), Attaché de la France d’Outre-Mer de 3e classe, 3e échelon, affecté au Service des Affaires Administratives et Adjoint au Chef du Service Territorial de l’Administration Générale, est nommé cumulativement avec ses fonctions actuelles, Chef du Bureau du Personnel Etat par intérim pendant la durée de l’absence de M. Coindard (Henri) titulaire d’un congé annuel.

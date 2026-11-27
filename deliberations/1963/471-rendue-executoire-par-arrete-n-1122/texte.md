@@ -1,1 +1,0 @@
-rendue exécutoire par arrêté n° 1122 du 7 septembre 1963, la Commission permanente de l’Assemblée Territoriale a accordé à M. Saïd Ali Ahmed Sauremi la concession provisoire d’un terrain d’une superficie de 25 mètres carrés, sis Quartier 2 à Djibouti, au prix de 100 francs le mètre carré.

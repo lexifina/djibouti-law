@@ -1,1 +1,0 @@
-pour compter du même jour les gardes de la Brigade indigène ci-après désignés ont été lincenciés pour inaptitude physique : Djama Roblet No Mle 53 Farah Cherdon No Mle 167 Resgallah Moubarak No Mle 198, Goama Saad No Mle 217.

@@ -1,1 +1,0 @@
-M. Remezy Roger, adjoint-administratif contractuel est, pour compter du 14 mai 1975, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Economie Rurale, pour servir au Génie Rural.

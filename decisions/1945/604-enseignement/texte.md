@@ -1,1 +1,0 @@
-M. Alemayehou Euchète, Abyssin, titulaire du C.E.F.È., session 1945. est nommé moniteur à l Ecole publique de Djibouti, pour compter du 1er octobre 1945. Egagé comme moniteur auxiliaire, il tou chera. à compter de cette date, une solde correspondant à celle de moniteur adjoint (3 échelon indigène).

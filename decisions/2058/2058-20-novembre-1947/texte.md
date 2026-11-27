@@ -1,1 +1,0 @@
-L’agent spécial du poste administratif d’Ali-Sabieh, est chargé cumulativement avec propres fonctions, du poste météorologique d’Ali-Sabieh, pour compter du 1er octobre 1947. h intéressé aura droit à une gratification mensuelle de 1.000 francs.

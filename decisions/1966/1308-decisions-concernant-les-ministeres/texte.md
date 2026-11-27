@@ -1,2 +1,0 @@
-M. Pichon Henri, inspecteur central des impôts, 4e échelon, groupe 1, chef du Service des contributions, propriétaire de la voiture Fiat 850, 5 CV, numéro minéralogique 640 D6, est autorisé à utiliser ce véhicule personnel pour les besoins du Service dans la limite de 400 km par mois.
-Fs M. Pichon Henri percevra à ce titre une indemnité mensuelle de sept mille deux cent vingt-huit francs (7.228 FD)

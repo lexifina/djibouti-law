@@ -1,1 +1,0 @@
-l’ad de gendarmerie Blin. remplira mulativement cu avec ses fonctions actuelles celles du commissaire de Djibouti, de police de la ville pendant l’absence de M. Riboud, titulaire d’un congé de convalescence.

@@ -1,1 +1,0 @@
-l’indemnité annuelle de permanence allouée au pharmacien lieutenant des troupes coloniales Bonnet, pour délivrance des médicaments, est portée de 1.200 à 1.800 francs, pour compter du 1er janvier 1929.

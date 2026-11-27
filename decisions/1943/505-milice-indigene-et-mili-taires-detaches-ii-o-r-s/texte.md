@@ -1,1 +1,0 @@
-Le Sergent-Chef Marcerou Robert, en service « Hors-Cadres », est replacé dans les cadres et mis à la disposition du Lieutenant- Colonnel, Commandant Supérieur des Troupes pour compter du 1er juillet 1943.

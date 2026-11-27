@@ -1,1 +1,0 @@
-M. Loïc Marjou, médecin de 2e classe, en position hors cadres, est mis à la disposition du Ministre de la Santé publique et des Affaires sociales, pour compter du 24 septembre 1970, date de son arrivée au Territoire, pour servir en qualité de médecinrésident de l’hôpital Peltier en remplacement numérique du médecin Cesari, rapatrié.

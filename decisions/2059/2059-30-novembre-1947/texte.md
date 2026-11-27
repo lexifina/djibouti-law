@@ -1,1 +1,0 @@
-Est engagé, pour compter du 15 octobre 1947a titre précaire, M. Eliazarian (Edouard), en qualité de comptable du service du ravitaillment général, au salaire mensuel de 12.000 francs, net de tous accessoires et indemnités.

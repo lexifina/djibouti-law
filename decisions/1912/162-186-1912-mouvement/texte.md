@@ -1,1 +1,0 @@
-licenciant par suite de suppression d’emploi, pour compter du 1er mai 1912, les sieurs Abdi Feroussi, cocher et Hassen Eusman, palfrenier, attachés aux écuries du service local et leur allouant à chacun une indemnité de licenciement égale à un mois de solde.

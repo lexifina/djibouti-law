@@ -1,1 +1,0 @@
-M. Aubel, géomètre contractuel, de retour de congé, débarqué à Djibouti le 9 décembre 1929, du paquebot Sphinr, venant de France, est remis à la disposition du chef du service des travaux publics, pour compter du jour de son débarquement.

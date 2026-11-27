@@ -1,1 +1,0 @@
-M. Plattier (Jean-Baptiste), controleur adjoint des P. T. T. du cadre métropolitain, serVice armé, classe de mobilisation 1917, classé duns l’affectation spéciale par décision n° 1095 du 8 novembre 1938 est ravé de cette position pour compter de la date de la présence décision.

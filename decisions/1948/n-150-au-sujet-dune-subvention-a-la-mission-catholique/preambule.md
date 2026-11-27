@@ -1,2 +1,0 @@
-# Préambule
-Art, 1°, — Une subvention de vingt-cinq mille francs (25.000 francs) est accordée à l’Orphelinat de la mission catholique (garçons)

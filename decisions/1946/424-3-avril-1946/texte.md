@@ -1,1 +1,0 @@
-Un passage par voie maritime de Djibouti à Marseille a été accordé à Mme Cabouat, dame-commis des P. T. T., autorisée à accompagner son mari, titulaire d’un congé administratif de trois mois à passer en France.

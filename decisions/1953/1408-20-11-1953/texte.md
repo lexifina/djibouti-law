@@ -1,1 +1,0 @@
-M. Cantini (Pierre), comptable contractuel, de retour de congé, est mis à la disposition du Chef du Service des Contributions directes, pour compter du 11 novembre 1953, date de son débarquement sur le Territoire.

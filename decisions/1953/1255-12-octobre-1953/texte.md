@@ -1,1 +1,0 @@
-Mme Thoué, institutrice de 6e classe du cadre métropolitain, est engagée en qualité d’institutrice auxiliaire de 1re catégorie pour compter du 1re octobre 1953. Elle est affectée à l’école primaire d’Ali-Sabieh en remplacement de M. Ahmed Abdi, qui a reçu une autre affectation.

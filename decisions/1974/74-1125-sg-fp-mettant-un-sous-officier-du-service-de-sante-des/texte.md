@@ -1,1 +1,0 @@
-M. Louis Cucchiaro, adjudant «Cadre hors budget des armées » est, pour compter du 3 juin 1974, date d’arrivée au Territoire, mis à la disposition du Ministre de la Santé publique pour servir à l’Hôpital Peltier, en remplacement de l’adjudant-chef Gros, rapatriable pour fin de séjour.

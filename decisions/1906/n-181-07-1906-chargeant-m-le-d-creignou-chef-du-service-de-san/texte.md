@@ -1,2 +1,0 @@
-Par décision du Gouverneur en date du 20 juin 1906, M. le Dr Creignou, médecin major de 2° cl. des troupes coloniales, Chef du Service de Santé, est chargé des arraisonnements et du dispensaire en remplacement de M. le D° Lacroix, rentré en congé
-Il touchera en cette qualité l’indemnité de 1200 fr. allouée pour les arraisonnements par la décision du 16 février 1906 et les frais de bureau prévus au budget de l’exercice en cours

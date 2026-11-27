@@ -1,1 +1,0 @@
-une gratification exceptionnelle de 100 francs est accordée au dactylographe Rajoeline Bernard, pour heures supplémentaires effectuées en dehors du jour de la permanence (acquis en avril et mai 1929).

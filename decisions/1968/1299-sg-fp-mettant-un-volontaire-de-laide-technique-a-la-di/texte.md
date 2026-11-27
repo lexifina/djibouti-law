@@ -1,1 +1,0 @@
-M. Jean-Michel Chauzeix, volontaire de l’Aide technique, est, pour compter du 1 septembre 1968, date de son incorporation, mis à la disposition du Ministère des Travaux publics et du Port, pour servir au port en qualité d’adjoint administratif au port de commerce de Djibouti en remplacement numérique de M. Saadane, en instance de libération.

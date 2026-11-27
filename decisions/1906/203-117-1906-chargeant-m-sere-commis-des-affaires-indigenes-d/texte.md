@@ -1,1 +1,0 @@
-et sur la proposition du Secrétaire Général, M. Séré Joseph, commis de 2e classe des Affaires Indigènes, remplira les fonctions de Chef du 1er Bureau du Secrétariat Général : de Commissaire de l’Inscription Maritime et de Curaleur aux successions et biens vacants.

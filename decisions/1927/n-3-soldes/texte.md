@@ -1,1 +1,0 @@
-le nommé Harouimn-Hanifa caporal garde sanitaire à la solde de 1.020 francs lan (après huit ans), est nommé au grade de sergent, pour compler du 15 mai 1927 il aura droil en celle qualité à la solde aunuelle de 1.020 francs (avant cinq ans).

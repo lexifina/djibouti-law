@@ -1,1 +1,0 @@
-Il est accordé à M. Jourdain, administrateur en chef des colonies, ins pecteur des affaires administratives, administrateur-maire et commandant du cercle de Djibouti, une permission d’absence de huit jours à passer dans le cercle de Tadjoura.

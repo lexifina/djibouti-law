@@ -1,1 +1,0 @@
-Pour compter du 1er juillet 1951, le salaire mensuel de M. Gauthier, compositeur typographe auxiliaire, en service à l’Imprimerie administrative de Djibouti, est porté à vingt-quatre mille francs (24.000).

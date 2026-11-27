@@ -1,1 +1,0 @@
-M. Munie (Victor), commis des P. T.T. du C. M., est nommé, pour une période de deux ans, membre du Conseil de classement chargé de dresser les propositions d’avancemnt de grade et de classe du personnel métropolitain des P. T. T., détaché à la colonie.

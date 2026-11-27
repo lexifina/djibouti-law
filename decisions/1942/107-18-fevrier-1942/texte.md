@@ -1,1 +1,0 @@
-Est nommé au grade de sergent avant quatre ans de grade et pour compter du 1 er février 1942, le caporal Abdi Douale, n° mle 232, du P. M. 1, en remplacement du sergent Ahmed Moussa, n° mle 163, cassé de son grade et remis garde méhariste de 2e classe, pour compter de la même date.

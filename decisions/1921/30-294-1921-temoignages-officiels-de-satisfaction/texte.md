@@ -1,2 +1,0 @@
-un témoignage officiel de satisfaction est accordé à M. Grémillet, Administrateur-adjoint de 2e classe des colonies, en raison des services exceptionnels rendus alors qu’il était délégué dans les fonctions de Commissaire de police à Djibouti, du 17 mars au 22 novembre 1920. Dans la réorganisation, puis dans l’exécution de ce service M, Grémillet, a fait preuve d’autorité, d’une grande activité et d’un dévouement au-dessus de tout éloge.
-Ampliation de la présente décision sera versée au calepin de notes de M. Grérmillet.

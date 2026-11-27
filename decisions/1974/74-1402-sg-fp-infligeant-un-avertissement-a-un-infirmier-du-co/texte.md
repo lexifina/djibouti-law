@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Ali Omar Saleh, infirmier de 2e classe 2e échelon du corps territorial de la Santé Publique, en service au Dispensaire de Tadjourah pour absence non motivée de la matinée du 22 juillet et de la journée du 25 juillet 1974.

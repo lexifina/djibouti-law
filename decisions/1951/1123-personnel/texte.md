@@ -1,1 +1,0 @@
-M. Jiabary (Jean-Louis), comptable principal de 3″ classe du Cadre local des Travaux Publics de la Côte Française des Somalis, de retour de congé, est affecté aux bureaux du Cabinet pour compter du 3 décembre 1951, date de son débarquement sur le Territoire.

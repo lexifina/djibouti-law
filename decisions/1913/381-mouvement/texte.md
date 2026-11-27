@@ -1,1 +1,0 @@
-et pour compter dudit, les nommés Kamil et Ali Farah sont nommés matelots de 2e classe et affectés aw boutre Tadjourah, en remplacement numérique des matelots Osman Charoua et Elmi Boeuh qui sont licenciés.

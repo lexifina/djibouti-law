@@ -1,1 +1,0 @@
-M. Terrien (Georges), surveillant de Travaux, contractuel, est mis à la disposition du Ministre des Affaires Intérieures, pour servir à la Voirie de Djibouti, à compter du 12 mars 1960, date de son arrivée à Djibouti.

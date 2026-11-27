@@ -1,3 +1,0 @@
-M. Derbes, chef de bureau hors classe des secrétariats généraux est nommé chef du bureau des finances de la colonie, À titre transitoire, M. Derbes conserve les diverses attributions qui lui étaient dévolues par les textes en vigueur en tant que chef des bureanx du secrétariat général.
-M. Vie, chef de bureau des secrétariats généraux, est nommé chef de la section finances du bureau des finances de la colonie, A titre transitoire également, M. Vie conserve ses fonctions de censeur de la Banque de l’Irdo-chine.
-M. Calydon, chef de bureau des secrétariats généraux, est nommé chef de la section matériel du bureau des finances.

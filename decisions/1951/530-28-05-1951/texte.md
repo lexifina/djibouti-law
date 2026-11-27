@@ -1,1 +1,0 @@
-Un congé de convalescence à solde entière de trois mois est accordé à M. Ahmed Aloui Riachi, chauffeur auxiliaire 11e échelon, employé au Service des Finances, à l’issue duquel il devra se présenter au Bureau du Personnel.

@@ -1,1 +1,0 @@
-Le contrat provisoire d’engagement souscrit à compter du 25 novembre 1964 par le milicien de 2e classe Mohamed Abdallah Ahmed, mle 2984, en service au dépôt de la Milice à Djibouti, ne sera pas reconduit en application de l’artiele 15 susvisé. L’intéressé sera licencié pour inaptitude à l’emploi et mauvaise manière de servir pour compter du 1er mars 1965.

@@ -1,1 +1,0 @@
-Mlle Grospas est nommée sténo-dactylographe et affectée au service des travaux publics, pour compter du jour de la prise de service de l’intéressée, Elle percevra, en cette qualité, un salaire mensuel de sept cents franes exclusif de tonte indemnité.

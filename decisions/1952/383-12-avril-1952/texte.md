@@ -1,1 +1,0 @@
-La rémunération mensuelle de M. Deruyter, employé auxiliaire à la Sûreté de la Côte Française des Somalis, est porté de trente-sept mille francs à quarante mille francs pour compter du 1er avril 1952.

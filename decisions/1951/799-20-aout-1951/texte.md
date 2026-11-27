@@ -1,1 +1,0 @@
-M. Ahmed Hassan dit «Gouhad» est engagé en qualité d’agent actif de la Sûreté stagiaire au 6* échelon, pour compter du 20 août 1951. L’intéressé est mis à la disposition du chef du Service de la Sûveté.

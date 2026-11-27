@@ -1,1 +1,0 @@
-Le sergent infirmier Forestier (Paul), désigné pour servir « hors cadres » en Côte française des Somalis, est affecté pour compter du 10 septembre 1948, date de son débarquement, à l’hôpital colonial de Djibouti.

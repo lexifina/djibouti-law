@@ -1,1 +1,0 @@
-une permission de quinze jours à solde entière valable du 22 septembre au 6 octobre 1945 et pour en jouir en Ethiopie est accordée à M. Cassim Saïd Ali, commis comptable contractuel, en service à l’Inscription Maritime.

@@ -1,1 +1,0 @@
-Mme Jeannine Berthelot, institutrice du département des Yvelines, est, pour compter du 24 septembre 1969, date de son retour dans le Territoire, mise à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir au Lycée de Djibouti.

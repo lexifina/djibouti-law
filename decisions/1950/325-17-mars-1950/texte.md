@@ -1,1 +1,0 @@
-Le sergent infirmier Le Mouel (Marcel), dé barqué en Côte française des Somalis le 2 mars 1950, en position « hors cadres », est affecté pour compter du jour de son débarque ment à l’hôpital colonial de Djibouti, en qualité d’infirmier major.

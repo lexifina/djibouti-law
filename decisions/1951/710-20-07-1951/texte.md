@@ -1,2 +1,0 @@
-Un congé administratif de sept mois quinze jours, pour en jouir à Bagnols-sur-Cèze (Gard), est accordé à M. Dugas, Inspecteur principal de 2e classe du Cadre local de police de Madagascar, détaché à la Côte Française des Somalis.
-Une réquisition de passage par voie aérienne Djibouti-Paris et une réquisition par voie de terre Paris-Bagnols-sur-Cèze (Gard) seront délivrées à M. Dugas, qui appartient au groupe II.

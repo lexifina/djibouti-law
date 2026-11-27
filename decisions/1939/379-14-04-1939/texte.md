@@ -1,2 +1,0 @@
-l’adjudant de gendarmerie Pontacqg, prendra, à compret du 22 avril 1939, le commandement du détachement de gendarmerie de la Côte française des Somalis, en remplacement de l’adjudaut Sajous, bénéficiaire d’un congé administratif, à l’expiration de son séjour colonial.
-L’adjndant de gendarmerie Pontacq exercera, en outre, les fonctions de commissaire de police, en remplacement de l’adjudant Sajous.

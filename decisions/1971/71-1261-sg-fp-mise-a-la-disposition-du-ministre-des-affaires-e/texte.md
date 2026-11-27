@@ -1,1 +1,0 @@
-Est constatée, pour compter du 5 septembre 1971, date de pour sont retour dans le territoire la reprise de ses fonctions anterieur de conseiller technique du Ministre des Affaires économiques par M. Daniel Moignard, contrôleur financier départemental de classe exceptionnelle.

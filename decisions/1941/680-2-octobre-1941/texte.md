@@ -1,1 +1,0 @@
-Mlle Jabelin (Marcelle), est engagée en qualité d’auxiliaire au salaire journalier de cinquante francs pour compter du 1er octobre 1941. Mlle Jabelin est mise à la disposition du commandant de cercle de Djibouti.

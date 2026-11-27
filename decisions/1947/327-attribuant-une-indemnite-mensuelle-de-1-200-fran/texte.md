@@ -1,1 +1,0 @@
-Une indemnité mensuelle de mille d ux cents francs (1.200 francs), payable sur les fonds du ravitaillement général, est attribuée au secrétaire-archiviste contractuel Raouf Magid qui remplit, cumulative m nt avec fonctions à l’Inspection du travail celles de commis d’ordre au ravitaillement général.

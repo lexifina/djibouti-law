@@ -1,1 +1,0 @@
-M. Djama Ibrahim, ex adjudant-chef, matricule 1759, arrivé en fin de contrat le 21 octobre 1971 et rayé des contrôles du Corps du Groupement Nomade Autonome, est admis au bénéfice d’une allocation viagère pour compter du ‘22 octobre 1971.

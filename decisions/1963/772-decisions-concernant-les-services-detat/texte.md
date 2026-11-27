@@ -1,2 +1,0 @@
-Une allocation viagère annuelle de reversion d’un montant de vingt quatre mille trois cents francs Djibouti (24.300 fr. Dj.) est accordé à Mme Hawa Gueddi, veuve de Ibrahim Guirreh, milicien de 1’° classe, mle 2233, décédé à l’Hôpital Peltier de Djibouti, le 23 mars 1963.
-Cette allocation viagère annuelle dé reversion est payée trimestriellement et à terme échu sur présentation d’un certificat de vie délivré par les autorités compétentes du Territoire.

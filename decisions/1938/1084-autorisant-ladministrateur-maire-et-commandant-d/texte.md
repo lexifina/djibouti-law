@@ -1,1 +1,0 @@
-Durant la période d’organisation et les débuts de fonctionnement de la commune mixte de Djibouti, l’administrateur-maire et commandant de cercle est autorisé à se faire remplacer à la présidence du tribunal du 2e degré, par son premier adjoint.

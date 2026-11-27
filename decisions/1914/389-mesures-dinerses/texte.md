@@ -1,1 +1,0 @@
-M. Cabasso (Isaac) Commi:-Greffier provisoire, à été désigné pour remplir provisoirement les fonctions de Greffier-Notaire près les Tribunaux de Djibouti pendant la durce de l’absence de M. Taulier mobilisé.

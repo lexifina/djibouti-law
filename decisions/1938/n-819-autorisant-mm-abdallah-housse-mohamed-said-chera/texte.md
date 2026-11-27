@@ -1,1 +1,0 @@
-M Abdallah Hussein, Mohamed Saïd Cherai. Abdul Magid Ahmed, Mohamed Ghaleb, Houmad Abdallah, Ali Ahmed-cl-Kohlant, Mohamed Saleh Elger et Ali Abdon Mohsen sont autorisés, sous réserve des droits des tiers, à occuper à titre provisoire, un terrain non loti d’une superticie de 3.000 mètres Carrés environ sis à l’est de la route d’Ambouli.

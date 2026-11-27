@@ -1,2 +1,0 @@
-M. Mohammed Aouad Omar, menuisier auxiliaire (échelle V, 2e échelon, indice local 410) en service au Ministère de la Santé Publique et des Affaires Sociales (Hôpital Peltier) atteint par la limite d’âge et réunissant 30 ans 6 mois de services effectifs au 1er juillet 1963, est admis, pour compter de cette date, au bénéfice d’une allocation viagère d’ancienneté, payable trimestriellement et à terme échu, sur présentation d’un certificat de vie.
-M. Mohamed Aouad Omar aura droit à une indemnité compensatrice de congé payé non pris égale à 35 jours de salaire.

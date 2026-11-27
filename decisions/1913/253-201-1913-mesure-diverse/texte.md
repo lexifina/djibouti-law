@@ -1,1 +1,0 @@
-et pour compter du 1er juillet 1913, une augmentation de solde de 15 fr. par mois est accordée au sergent de la police rurale Liban Ismaël, une augmentation de solde de 10 fr. par mois est accordée au sergent de la police rurale Good Guellé.

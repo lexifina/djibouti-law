@@ -1,1 +1,0 @@
-Mademoiselle JABELIN Marcelle et M. FLINDIN Jacques sont licenciés de leur emploi pour compter respectivement des 30 Avril et 10 Mai 1943 dates auxquelles les in téressés auraient du, après expiration de leur permission, reprendre leur service au Ra vitaillement Général.

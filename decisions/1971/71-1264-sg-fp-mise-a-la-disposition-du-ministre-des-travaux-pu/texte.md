@@ -1,1 +1,0 @@
-M. André Camuzat, ingénieur des travaux publics de l’Etat, 4 échelon, est, pour compter du 14 septembre 1971, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir à la Direction des Travaux publics, en remplacement numérique de M. Gabriel Fremaux, qui a quitté définitivement le Territoire,

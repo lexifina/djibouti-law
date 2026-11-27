@@ -1,1 +1,0 @@
-Est acceptée, pour compter du 1er avril 1966, la démission de leur emploi de MM. Abdallah Mohamed Hassanle et Arbahim Hamad Arbahim, aides agents d’hygiène, journaliers au Service d’Hygiène, et la démission de M. Hassan Omar Farah, chauffeur journalier au Service d’Hygiène, pour compter du 14 avril 1966.

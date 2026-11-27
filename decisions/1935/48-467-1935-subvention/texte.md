@@ -1,1 +1,0 @@
-une subvention de quatre mille francs ( 1.000 francs), est alloué pour l’année 1985, au journal Le Courrier d’Ethiopie, Cette somme sera mandatée à M. de Robillare, direct eur de ce journal, demeurant place de l’Eglise, Erne (Mayenne).

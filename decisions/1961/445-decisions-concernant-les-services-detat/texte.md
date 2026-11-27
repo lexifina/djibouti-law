@@ -1,1 +1,0 @@
-Est constatée pour compter du 14 avril 1961, date de son retour dans le Territoire, la reprise par M. Amourda (Richard) Secrétaire de 1re classe, 2° échelon du Corps Supérieur des secrétaires d’administration de la Côte Française des Somalis de ses fonctions au Trésor.

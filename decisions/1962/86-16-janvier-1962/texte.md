@@ -1,1 +1,0 @@
-Le Sergent d’Infanterie de Marine Fargeot Henri, désigné pour servir «hors-cadres » en Côte Française des Somalis, arrivé à Djibouti le 6 janvier 1962 est affecté à la Milice de la Côte Française des Somalis pour compter de la date de son débarquement (Dépôt Milice) en qualité de sous-officier chargé du matériel.

@@ -1,1 +1,0 @@
-Le Médecin-Commandant des troupes coloniales «hors cadres» Charrançon (Jean), débarqué le 26 mai 1953, est mis à la disposition du Médecin-Colonel, Directeur du Service de Santé, et affecté à l’Hôpital Principal de la Côte Française des Scmalis à Djibouti, en qualité de médecin charge du service d’oto-rhirolaryngologie et ophtalmologie.

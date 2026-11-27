@@ -1,1 +1,0 @@
-M. Maury (Georges-Joseph}, chef du service des douanes, lieutenant de réserve, service armé, classe de mobilisation 1923, est rayé de l’appel différé et placé dans l’affectation spéciale pour une durée de un mois à compter du 2 octobre 1939.

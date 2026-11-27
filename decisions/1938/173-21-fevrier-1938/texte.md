@@ -1,1 +1,0 @@
-M. Bodin, vérificateur principal de 2e classe des douanes reprend, à compter du 23 février 1938, date de son débarquement à Djibouti, ses fonctions de chef du service des douanes. M. Maury, vérificateur hors classe, chef de service par intérim reprend, à compter du même jour, ses fonctions de chef du bureau central de Djibouti.

@@ -1,1 +1,0 @@
-le planton Said Samatar a eté licencie pour inaptitude physique, à compter du 1er Mai 1917. Une somme de 120 1rs. représentant deux mois de solde, lui a été allouee à titre d’indemnite de licenciement.

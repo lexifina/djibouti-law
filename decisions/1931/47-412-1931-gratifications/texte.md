@@ -1,1 +1,0 @@
-une gratification de 1.000 francs est accordée an dactylographe contractuel Rajoelina (Bernard), pour la conscience qu’il a apportée à l’exécution des travaux qui lui ont été confiés par la mission d’inspection, depuis le mois de septembre 1930.

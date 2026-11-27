@@ -1,1 +1,0 @@
-Une permission de deux mois, à solde en tière, pour raison de santé, pour en jouir à Hargueissa (Somaliland), est accordée à Ahmed Moussa, chef du quartier n° 5, Pendant l’absence de Ahmed Moussa, le chef du quartier n° 3, Aden Ismail, assurera cumulativement avec ses fonctions celles de chef du quartier n° 5.

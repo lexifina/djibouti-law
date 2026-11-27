@@ -1,1 +1,0 @@
-Est rapportée la décision du 11 avril en ce qu’elle concerne l’affectation de M. Vivient en qualité de commis greffier au Service judiciaire. M. Vivient est mis à la disposition du chef du Bureau des finances

@@ -1,1 +1,0 @@
-M. Blajan (Julien), commis stagiaire des services civils, qui compte, au 1er octobre 1930, une année de présence et de service effectif dans la colonie, est titularisé et nommé commis avant dix-huit mois, à compter du 1er octobre 1930.

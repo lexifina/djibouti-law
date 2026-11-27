@@ -1,2 +1,0 @@
-1° Les restes mortels du militaire Rambeloson, décédé le 7 septembre 1944 et inhumé au cimetière militaire de Djibouti seront transférés au cimetière d’Ambodihady, Canton d’Ambohamanarina,Tananarive (Madagascar) ;
-2° Les dépenses occasionnéespar l’exhumation et le transfert des restes mortels du défunt jusqu’au lieu de réinhumation seront réglées par les soins du Ministère des Anciens Combattants et Victimes de la Guerre.

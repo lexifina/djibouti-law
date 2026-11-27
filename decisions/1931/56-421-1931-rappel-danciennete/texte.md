@@ -1,1 +1,0 @@
-M. Zouain (Jean), commis des P. T. T. après trois ans du 6 novembre 1929, qui réunit les conditions d’ancienneté et de séjour colonial exigées par l’article 6, paragraphe B, de l’arrêté du 26 avril 1928, passe automatiquement à l’échelon après cinq ans à compter du 6 novembre 1931.

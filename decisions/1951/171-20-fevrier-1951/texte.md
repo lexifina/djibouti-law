@@ -1,1 +1,0 @@
-La rémunération mensuelle de Madame Moussard (Jacqueline), licenciée es lettres, professeur au cours complémentaire, est fixée à trente-sept mille francs pour compter du 1er janvier 1950, et à trente-neuf mille francs pour compter du 1er juillet 1950.

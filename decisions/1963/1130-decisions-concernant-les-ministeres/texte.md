@@ -1,2 +1,0 @@
-L’adjudant-chef d’Infanterie de Marine Christophe Paul, arrivé par avion à Djibouti le 1e septembre 1963, est affecté à la Milice de la Côte Française des Somalis et mis à la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions de chef de poste de Milice et de chef de poste administratif de Yoboki, en remplacement du sergent-chef Poliakoff Serge, appelé à d’autres fonctions.
-Ce sous-officier prendra ses fonctions à compter du 10 septembre 1963.

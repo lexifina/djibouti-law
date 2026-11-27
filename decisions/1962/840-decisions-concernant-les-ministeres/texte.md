@@ -1,3 +1,0 @@
-Le Sersent Aouale Nour Obsieh. mile 83: de la Garde Territoriale est admis à faire valoir ses droits à l’allocation viagère d’anCienneté pour compter du 11 juin 1962.
-Il sera ravé des contrôles de la Garde Territoriale le dit jour et recevra le certificat de bonne conduite.
-Ce gradé comptant à cette date 5 ans de service militaire et 15 ans 2 jours de service dans les Forces Locales, soit un total de 20 ans 2 jours de service, percevra une allocation viagère d’ancienneté de soixante douze mille francs (72.000 fr.) payable trimestriellement par le Service des Finances de Djibouti, sauf avis contraire dece Service.

@@ -1,1 +1,0 @@
-la solde de l’Agent de port Mokbel est portée de 175 à 200 francs par mois pour compter de 14 juillet 1911. — Celle du planton du Gouvernement Guelle Ali de 55 à 60 fr. par mois pour compter de la même date.

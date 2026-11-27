@@ -1,1 +1,0 @@
-Mme Lefinfe est engagée pour compter du 1er octobre 1941 en qualité de dactylographe auxiliaire et mise à la disposition du chef du Service des travaux publics. Mme Lefinfe percevra une rémunération globale journalière de 60 francs.

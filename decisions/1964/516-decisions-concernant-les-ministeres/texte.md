@@ -1,1 +1,0 @@
-L’adjudant-chef Benatou Mohamed est nommé chef du Service administratif, comptable billeteur et régisseur de la caisse d’avance de la Garde territoriale, pour compter du 1er mai 1964, en remplacement du gendarme Segalas (Fernand), en instance de rapatriement.

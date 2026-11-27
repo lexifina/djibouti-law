@@ -1,2 +1,0 @@
-une indemnité, pour heures supplémentaires de travail effectuées en de hors des heures normales, afin d’assurer la continuité du contrôle des travaux du port, sera payée aux agents du service des travaux publics chargés dudit contrôle, à raison de 7 francs par heure, pour compter du 1er décembre 1931.
-Pour le mandatement de cette indemnité des états de payement, certifiés exacts par le chef du service des travaux publies, seront établis mensuellement.

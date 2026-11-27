@@ -1,1 +1,0 @@
-Est acceptée, pour compter du 1er octobre 1950, la démission de son emploi offerte par Mme Forestier (Charlotte), sécrétaire-comptable auxiliaire, 3e catégorie, en service à la Pharmacie centrale de ï’hôpitiil colonial de Djibouti.

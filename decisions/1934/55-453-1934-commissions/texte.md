@@ -1,1 +1,0 @@
-la commission dont la composition est fixée par l’article 1er de l’arrêté du 25 novembre 1914 examinera la situation administrative de M. Bouvier, adjoint technique de 4e classe à titre provisoire, en vue de donner son avis sur l’admission éventuelle à titre définitif de l’intéressé dans le cadre général des travaux publics et des mines des colonies.

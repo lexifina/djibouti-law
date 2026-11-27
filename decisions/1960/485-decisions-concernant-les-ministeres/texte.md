@@ -1,2 +1,0 @@
-Un secours temporaire de 4000 francs est accordé au titre de l’année 1960 à Mme Kaibo Warsama Nour, veuve de Ali Robleh Said, domiciliée au quartier n° 4.
-Ce secours est payable en une seule fois sur bon de caisse et imputable sur le Budget local. exercice 1960.

@@ -1,1 +1,0 @@
-18 octobre 1920, une somme de 645 francs, égale à trois mois de solde du sous-patron de boutre Migani Guellé, sera payée, à titre de Secours exclusif de, tout, autre avantage et sur les fonds du budget local de la Côte francaise des Somalis, à la nommée Maryam Ouar-sana, veuve de cet agent.

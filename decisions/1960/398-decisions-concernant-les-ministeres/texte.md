@@ -1,2 +1,0 @@
-M. Abdulkader Abeba est engagé à l’essai pour deux mois à compter du ler avril 1960, en qualité d’employé de bureau auxiliaire et mis à la disposition du Ministre des Finances, des Affaires économiues et du Plan pour servir à l’Enregistrement en remplacement numérique de M. Gauthier (Jacky), démissionnaire.
-M. Abdulkader Abeba est classé à la 4e catégorie. échelle VI. 2e échelon. indice local 495.

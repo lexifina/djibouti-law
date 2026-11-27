@@ -1,1 +1,0 @@
-M. Achard (Gaston), chargé d’enseignement du 5e échelon précédernment en service au Centre de Formation Professionnelle, est affecté, à titre provisoire, au Lycée de Djibouti, pour compter du 1er octobre 1960.

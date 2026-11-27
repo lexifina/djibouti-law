@@ -1,1 +1,0 @@
-M .David Pierre, contrôleur des installations électro-mécaniques du cadre métropolitain des P.T.T. aura droit sur, le Budget colonial, à une avance de deux mois de solde, dans les conditions prévues par le paragraphe 4 de l’article 144 du décret du 2 mars 1910 susvisé.

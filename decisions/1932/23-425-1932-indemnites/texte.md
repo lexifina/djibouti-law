@@ -1,1 +1,0 @@
-Une indemnité forfaitaire de pcéordée à M. Allarousse, administrateur des colonies, pour le dédommager des dépenses faites par lui au cours du voyage qu’il a effectué pour le service d’Addis-Abeba à Djibouti du 5 au 7 novembre 1930.

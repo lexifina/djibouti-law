@@ -1,1 +1,0 @@
-MM. les inspecteurs de la Sûreté du cadre local. Alfred Cartier et Pierre Durand, sont provisoirement et exceptionnellement mis à la disposition de l’administrateur-maire, commandant le cercle de Djibouti.

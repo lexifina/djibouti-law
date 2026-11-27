@@ -1,1 +1,0 @@
-M. Spinnato Nicolas, instituteur, est pour compter du 5 septembre 1975, date de son arrivée dans le Territoire, mis à la disposition du Ministre du Travail pour servir à la section préprofessionnelle du Centre de formation pour adultes de Djibouti.

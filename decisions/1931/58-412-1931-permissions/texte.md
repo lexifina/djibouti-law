@@ -1,1 +1,0 @@
-une permission de un mois, valable du Ad au 50 avril 1951 inclus, dont quinze jours avec solde entière, quinze jours avec demi-solde, est accordée au garde méhariste de 2e classe Mohamed Aïd. numéro mle 58.

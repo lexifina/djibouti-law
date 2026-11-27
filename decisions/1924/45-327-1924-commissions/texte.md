@@ -1,1 +1,0 @@
-la commission de taxation des denrées pour l’année 1924 est composée de : MM. le Secrétaire général du gouvernement, le Chef des districts, le Chef du service des douanes, le Chef du 1er bureau le Commissaire de police, Marill, T, Mohamedally,. Ahmed ben Ahmed, Bazara et Rague Moussa.

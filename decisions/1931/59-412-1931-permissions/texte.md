@@ -1,1 +1,0 @@
-une permission de denx mois, valable du 1er avril au 81 mai 1951 inclus, dont ouinze jours avec solde entière, quinze jours avec demi-solde, un mois sans solde, est accordée au garde méhariste de 2e classe, mle 43, Aschi Gouled et au garde méhariste de 2e classe, mle 44, Adam Ouman.

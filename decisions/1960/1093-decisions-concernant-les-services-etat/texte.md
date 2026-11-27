@@ -1,2 +1,0 @@
-Mme Claire (Suzanne), ex-secrétaire dactylographe auxiliaire en service à l’Inspection du Travail est réengagée à compter du 1er octobre 1960 en la même qualité pour la durée de l’absence de Mme Casabianca (Janine) titulaire d’un congé annuel et d’un congé de maternité.
-L’intéressée, classée à la 2e catégorie, échelle X, 2e échelon (indice local 835) conserve dans son échelon une ancienneté de cinq mois.

@@ -1,1 +1,0 @@
-M. Pla (Armand), ingénieur adjoint des tra vaux publics, est mis à la disposition de M. le chef du Service des travaux publics, pour compter du 23 février 1938, date de son débar quement à la colonie.

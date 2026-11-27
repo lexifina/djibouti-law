@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Mohamed Abdi Warsama, infirmier de 2° classe, 1° échelon du corps territorial de la Santé Publique, en service à l’hôpital Peltier, (ministère de la Santé Publique et des Affaires Sociales), pour manque de conscience professionnelle.

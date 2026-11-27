@@ -1,1 +1,0 @@
-M. Gnanadicom (Emmanuel), commis-greffier contractuel du service judiciaire de la Côte française des Somalis, est autorisé, pour rejoindre son poste à la colonie, à s’embarquer à Marseille, d’où il sera mis en route par les soins du service colonial.

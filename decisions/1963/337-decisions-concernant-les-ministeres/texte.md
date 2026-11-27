@@ -1,1 +1,0 @@
-M Uros Gabriel. mécanicien dieseliste contractuel, est mis à la disposition du Ministre des Travaux publics et du Port pour servir au Port à compter du 3 mars 1963, date de son retour dans le Territoire.

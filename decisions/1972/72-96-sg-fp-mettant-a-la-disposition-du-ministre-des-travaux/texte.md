@@ -1,1 +1,0 @@
-M. Jean-Pierre Boussagne, volontaire de l’Aide technique est, pour compter du 7 décembre 1971, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port pour servir en qualité d’ingénieur au Port de Commerce de Djibouti, en remplacement numérique de M. Jean-Pierre Lalain rapatrié.

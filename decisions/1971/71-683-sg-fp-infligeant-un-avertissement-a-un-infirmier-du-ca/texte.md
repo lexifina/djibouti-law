@@ -1,1 +1,0 @@
-Un avertissement avec inscription au dossier est infligé à M. Hassan Daoud Ahmed, infirmier de 2° classe, 1° échelon du Corps territorial de la Santé publique, en service à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales), pour négligences dans l’exercice de ses fonctions d’infirmier de garde.

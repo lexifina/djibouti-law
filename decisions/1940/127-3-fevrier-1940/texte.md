@@ -1,1 +1,0 @@
-Le Bahuaud ( Joseph ), conducteur de travaux à l’entreprise Camilli e Pacchiotti, service anxilinire, classe de mobilisation 1924, est classé dans l’affectation spéciale, dans son emploi actuel, pour une nouvelle période do trois mois à compter du 1er février 1940.

@@ -1,1 +1,0 @@
-Le milicien de ire classe Houmed Hamad Bourhan, Mle 2488 de la 5° compagnie de Milice à ÂAli-Sabieh, arrivant en fin de contrat le 16 octobre 1966, et ne désirant pas rengager, est rayé des contrôles du corps le 17 octobre 1966. Il recevra le certificat de bonne conduite.

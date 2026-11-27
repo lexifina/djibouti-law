@@ -1,1 +1,0 @@
-Madame Novak Crète est engagé en qualite de Secrétaire traductrice auxiliaire au Service des Informations pour compter du 8 juin 1943 et au salaire mensuel de 3.000 frs Trois mille exclusif de toute indemnité.

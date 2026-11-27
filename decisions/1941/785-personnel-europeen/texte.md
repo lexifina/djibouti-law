@@ -1,1 +1,0 @@
-Mlle Marcelle Jabelin, engagée à l’essai à 50 francs par jour comme auxiliaire à la Boucherie municipale par décision susvisée, est titularisée dans son emploi au traitement men suel de 1.500 francs pour compter du 1er novembre 1941.

@@ -1,1 +1,0 @@
-M. Dominique Nicolini, adjudant-chef des Troupes de Marine,en position « Cadre hors budget des Armées », est, pour compter du 17 juillet 1972, date de son arrivée dans le Territoire, mis à la disposition du Ministre du Travail, Président du Conseil d’administration du Service médical interentreprise, pour servir en qualité d’infirmier major.

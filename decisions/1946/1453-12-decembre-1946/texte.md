@@ -1,1 +1,0 @@
-M. Pichon (Henri), inspecteur de l’enregis trement du cadre métropolitain, assurera, à compter du 16 décembre 1946 (avant l’ouver ture des bureaux), les fonctions dont il est titulaire de receveur de l’enregistrement, des domaines et du timbre, de conservateur de la propriété foncière et de curateur aux succes sions et biens vacants.

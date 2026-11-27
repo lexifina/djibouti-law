@@ -1,1 +1,0 @@
-M. Paris (Jean) est engagé, pour compter de la notification de la présente décision, en qualité d’observateur météorologiste au salaire mensuel de 12.500 francs en remplacement numérique de M. Taffara AVoldeyes, qui cessera son travail le 1er mars 1951.

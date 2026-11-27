@@ -1,1 +1,0 @@
-Est engagé en qualité de mécanicien auxilinire, à salaire journalier, 10e échelon, au service de la sûreté, le nommé Mohamed Abdallah, dit « Mibouk », pour compter du 15 novembre 1948. en remplacement numérique de Saleh Abdallah, licencié.

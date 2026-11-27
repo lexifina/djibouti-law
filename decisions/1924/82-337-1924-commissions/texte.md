@@ -1,1 +1,0 @@
-la commission de classement prévue à d’arrêté du 30 décembre 1924, se réunira ce jour, au lieu et à l heure fixés par son président, à l’effet de dresser le tableau d’avancement, pour l’année 1925, pour le cadre local des secrétariats généraux des colonies.

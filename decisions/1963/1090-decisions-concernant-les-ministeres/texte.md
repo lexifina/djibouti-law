@@ -1,2 +1,0 @@
-Le milicien de 1re classe Abdi Ali, mle 2261, de la 2 Compagnie de Milice à Tadjoura, est licencié pour «raison disciplinaire» pour compter du ler septembre 1963.
-L’intéressé qui totalise au le septembre 1963 12 ans 11 mois 7 jours de services effectifs dans la Milice de la Côte Française des Somalis peut prétendre à un pécule d’un montant de vingt cinq mille huit cents francs Djibouti (25.800 francs Djibouti).

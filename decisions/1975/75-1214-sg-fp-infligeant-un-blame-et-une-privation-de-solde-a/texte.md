@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Ahmed Abdallah Houmed, agent de 2e classe, 2e échelon du cadre territorial des Postes et Télécommunications pour absence irrégulière non motivée du 28 avril 1975 au 2 mai 1975 inclus.

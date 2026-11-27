@@ -1,1 +1,0 @@
-Le sons-lieutenant des troupes coloniales Brischonx (Othen), en service hors cadres à la Côte française des Somalis, qui compte deux ans de séjour ininterrompu à la colonie, sera rapatrié sur le paquebot Jean Laborde, de la Compagnie des Messageries maritimes, attendu à Djibouti le 23 juillet 1934.

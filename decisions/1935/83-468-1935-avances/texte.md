@@ -1,1 +1,0 @@
-le salaire mensuel du dactylographe Ahmed Saleh, en service au bureau des Affaires politiques et économiques, à des Affaires politiques et économiques, est porté à deux cent vingt-cinq francs, passible des prélèvements, pour compter du 1er janvier 1946.

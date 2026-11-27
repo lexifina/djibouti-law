@@ -1,1 +1,0 @@
-M. Ali Taher Saleh est autorisé à acquérir une partie d’un immeuble, sis à Djibouti, avenue de Brazzaville, immatriculé au Livre foncier du Territoire sous le n° 54 au nom de la succession de M. Saleh Ahmed Gafour.

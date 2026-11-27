@@ -1,1 +1,0 @@
-Est rapporté l’arrêté d’expulsion n° 1044 du 31 juillet 1962 en ce qui concerne Osman Ismaïl Mohamed, Somali Issak Abéraoual Moussa Djibril Abokor Bahabar Aden, né vers 1941 à Djibouti, fils de Ismail Mohamed et de Ardo Iman.

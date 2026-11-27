@@ -1,2 +1,0 @@
-M Abdillaehi Waberi Assoweh. fourlaba rer mahamoud est nommé, pour, compter du ler janvier 1966, cadi de Holl-Holl (Cercle d’Ali-Sabieh) en remplacement de M. Osman Houssein révoaué par arrêté no 64/9/SPCG du 24 janvier 1964 :
-M. Abdillahi Waberi Assoweh percevra à ce titre une indemnité mensuelle de dix-huit mille cinq cént trente-cinq FD (18.535 FD) y compris la majoration prévue par décision n° 65/119/SPCG.

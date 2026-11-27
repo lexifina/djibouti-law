@@ -1,1 +1,0 @@
-20 janvier 1921, nommant une commission chargec de procéder au rappochement des écritures de l’administration avec celles du Trésor en ce qui concerne les recettes et les dépenses des exercices 1914 et 1945.

@@ -1,1 +1,0 @@
-M. Bernard Buffier, volontaire de l’aide technique, est, pour compter du 11 décembre 1974, date de son arrivée dans le Terrtoire, mis a la disposition du Ministre des Travaux publics à Transports et du Tourisme pour servir a la Subdivision l’instructure, pour servir en qualité d’ingénieur des Travaux pulblic service comptant au 1er décembre 1974.

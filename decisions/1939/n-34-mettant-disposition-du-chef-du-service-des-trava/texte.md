@@ -1,1 +1,0 @@
-Monsieur Liéron, Surveillant contractuel des Travaux Publies, nouvellement arrivé à la colonie, est mis à lu lisposition de Monsieur le chel du Service des Travaux Publies pour compter du .5 janvier 1939 jour de son débarquement. 10

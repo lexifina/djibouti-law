@@ -1,1 +1,0 @@
-a été ordonné le remboursement à M. le capitaine Fargues, commandant a milice indigène, do la somme de 107 fr. 15 centimes avancée par lui et représentant le montant d’une fourniture d’ingrédients et d’outillages destinés à la réparation des armes de la milice indigène.

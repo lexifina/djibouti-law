@@ -1,2 +1,0 @@
-nommant Monsieur MERLO, Sous-Chef de Bureau des Secrétariats Généraux. licencié en droit, président p.i. du Tribunal Supérieur d’Appel est rapporté pour compter du 1er juin 1943.
-Monsieur MERLO reprendra à compter de cette date les fonctions de Président p.i. du Tribunal de première instance de Djibouti auxquelles il a été nommé par l’arrêté n. 132 du 10 Février 1943 modifié parl’arrêté n. 228 du 11 Mars 1943 qui sont remis en vigueur.

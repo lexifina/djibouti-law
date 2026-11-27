@@ -1,1 +1,0 @@
-Les gratifications mensuelles des okals Gued di Amarre, Issa Ourweiné, akel (cercle de Djibouti) et Awale Waliye, akel général des tribus Issa Dallol (cercle d’Ali Sabieh), ont été portées à 1.5100 franes pour compter du 1erjuin 1946.

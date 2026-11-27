@@ -1,1 +1,0 @@
-M. Delahaye (Marcelle) est recrutée à titre essentiellement provisoire et pour une durée de deux mois, en qualité de dame dactylographe auxiliaire 2e catégorie à salaire journalier. M.Delahaye (Marcelle) est mise à la disposition de’M. le commandant de la milice, pour compter du 8 mai 1950.

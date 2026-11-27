@@ -1,2 +1,0 @@
-Un congé administratif de sept mois pour en jouir à Tananarive (Madagascar), est accordé à M. Raharijaona (Victor), sous-gouverneur de 4e classe des cadres spéciaux de Madagascar, en service au cercle de Djibouti.
-M. Raharijaona. accompagné de son épouse et de ses deux enfants âgés respectivement de 7 et 3 ans, rejoindra son lieu de congé par première occasion maritime pour compter du 17 avril 1948 et voyagera en 3e classe aux frais du budget local (assimilation : 4e caté gorie)

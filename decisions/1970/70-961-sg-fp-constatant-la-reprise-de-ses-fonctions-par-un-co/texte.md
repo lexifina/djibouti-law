@@ -1,1 +1,0 @@
-Est constatée, pour compter du 9 août 1970, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Daniel Moignard, conseiller financier départemental de classe exceptionnelle, conseiller technique du Ministre des Affaires économiques.

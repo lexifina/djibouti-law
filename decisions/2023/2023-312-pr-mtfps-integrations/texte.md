@@ -1,2 +1,0 @@
-Par décision n°2023-312/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 24 août 2023, M. ADEN ABDI SALAN, conventionné, service au Fonds de Développement Economique de Djibouti, du Ministère de l’Economie et Finances chargé de l’Industrie, est intégré dans le Cadre des administrateurs civils du Corps de l’Administration Générale, au grade d’administrateur civil de 1°classe-4°échelon.
-La présente décision prend effet à compter du 24 août 2023.

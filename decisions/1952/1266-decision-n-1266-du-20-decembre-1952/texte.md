@@ -1,1 +1,0 @@
-Meme Schmidt, dame employée auxiliaire l’° catégorie, en service au Trésor, est admise à bénéficier de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisée, pour compter du 8 septembre 1992.

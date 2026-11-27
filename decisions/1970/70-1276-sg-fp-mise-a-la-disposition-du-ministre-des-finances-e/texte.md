@@ -1,1 +1,0 @@
-M. Alain Joly, volontaire de l’Aide technique, est, à compter du 15 octobre 1970, date de son arrivée au Territoire, mis à la disposition du Ministre des Finances et du Plan, pour servir en qualité d’Inspecteur des Impôts au Service des Contributions.

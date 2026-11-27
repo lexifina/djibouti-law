@@ -1,1 +1,0 @@
-M. Mohamed Saïd Awale, infirmier de 3° classe, ler échelon, du Cadre territorial de la Santé publique, est placé, sur sa demande, pour compter du 17 mai 1968, dans la position de disponibilité sans traitement.

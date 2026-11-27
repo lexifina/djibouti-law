@@ -1,1 +1,0 @@
-. Par décision du 29 décembre 1917 et pour compter du fer janvier 1918 les nominations suivantes ont été prononcées dans le personnel de la police urbaine : au grade de sergent : le caporal Mouauen Hassex : au grade de caporal : l’ascari de fre classe Anemb Das au grade d’ascari de fre classe, les ascaris de 9me classe Azr Ouansauas, Kaix Ant, Abex Ismaël, Cuert Omar, Bogua Dir

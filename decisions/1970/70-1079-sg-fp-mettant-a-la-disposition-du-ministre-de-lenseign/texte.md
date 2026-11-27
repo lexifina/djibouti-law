@@ -1,1 +1,0 @@
-M. Jean Giard, volontaire de l’Aide technique, est, pour compter du 21 août 1970, date de son arrivée au Territoire, mis à la disposition du Ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir en qualité d’instituteur.

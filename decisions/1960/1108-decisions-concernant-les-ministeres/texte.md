@@ -1,2 +1,0 @@
-Mme Houeix (Yvette), institutrice de 5e classe, est considérée comme étant détachée du cadre métropolitain, pour compter du 1er octobre 1960 ; date de son recrutement. Mme Houeix est mise à la disvosition de M. le Ministre de l’Enseignement, des Sports et de la Jeunesse.
-En attendant la régularisation de la situation de l’intéressée la solde et accessoires seront liquidés sur la base de l’indice métropolitain afférent à la 5e classe.

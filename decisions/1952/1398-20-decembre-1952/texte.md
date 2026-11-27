@@ -1,3 +1,0 @@
-M. Richaud (Paul), inspecteur du cadre métropolitain des Postes, Télégraphes et Téléphones, est nommé receveur comptable du bureau des Postes et Télécommunications de Djibouti, pour compter du 1er janvier 1953, en remplacement de M. Banabila (Abdourahman), receveur supérieur hors classe des Postes et Télécommunications, admis à faire valoir ses droits à la retraite.
-M. Richaud percevra, en cette qualité. l’indemnite de gérance et de responsabilité réglementaire.
-La coupure de gestion aura lieu le 1es janvier 1953 à 8 heures, en presence de M. Murat, Chef du Service des Postes et Teélecommunications.

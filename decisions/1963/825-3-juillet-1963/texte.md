@@ -1,2 +1,0 @@
-Une indemnité pour accident du travail de six mille neuf cent dix-sept francs Djibouti (6.917 F.D.), est accordée à M. Abdi Boulale Saïd, manœuvre auxiliaire à la Régie des Eaux, victime d’un accident du travail survenu le 23 janvier 1963.
-Le paiement de cette indemnité implique la renonciation par l’intéressé à tout recours civil ou contentieux sauf aggravation médicalement constatée de l’incapacité permanente partielle résultant de l’accident du travail.

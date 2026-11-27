@@ -1,1 +1,0 @@
-MM. Ahmed Farah et Assowe Ali, infirmiers auxiliaires 10e échelon du Service de Santé, qui ont subi avec succès les épreuves du brevet ordinaire d’infirmier, sont intégrés dans le cadre local en qualité d’infirmiers 11e échelon pour compter du 1er janvier 1953.

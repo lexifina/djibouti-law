@@ -1,1 +1,0 @@
-Mme Correa (Céline) est engagée, pour compter du 22 avril 1953, en qualité de dame-employée auxiliaire 2e catégorie et mise à la disposition du Chef de Cabinet pour servir au Bureau d’Ordre, en remplacement numérique de M. Rabary (Régis), titulaire d’un congé administratif.

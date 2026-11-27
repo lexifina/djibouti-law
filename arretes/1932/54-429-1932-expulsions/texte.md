@@ -1,1 +1,0 @@
-le nommé Mohamed Abdou, Arabe, est expulsé de la Côte française des Somalis et devra quitier, dans un délai expirant le 18 septembre 1932, le territoire de la colonie, qui lui reste interdit, ainsi que celui de ses dépendances.

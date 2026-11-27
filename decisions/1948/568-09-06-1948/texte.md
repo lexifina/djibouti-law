@@ -1,3 +1,0 @@
-L’administrateur des colonies Boutonnat, directeur du port. est chargé du contrôle des Magasins généraux prévu a l’article 23 de la convention du 18 avril 1901, pour compter du 1er mai.
-Il soumettra au Gouverneur, au début de chaque trimestre pour le trimestre écoulé, un rapport sur les conditions d’exploitation de la concession par le concessionnaire.
-L’administrateur Boutonnât percevra une indemnité annuelle de 24.000 francs, payable mensuellement sur la contribution que le concessionnaire est tenu de verser chaque année pour frais de contrôle et de surveillance prévue à l’article 54 de la Convention du 18 avril 1901 et portée à 50.000 francs palavenant n° 4 du 31 octobre 1947.

@@ -1,1 +1,0 @@
-Sont abrogés les arrêtés sus-visés du 27 Décembre 1942 portant promotion de M. DUBOIS. Albert, instituteur du Cadre Local de l’Enseignement de Madagascar à la 2ème classe de son grade pour compter du 1er janvier 1943 et de M. LEBRAUD, Louis, Commis principal du Cadre Local des Con tributions de Madagascar à la 1ère classe de son grade pour compter du 1er janvier 1943.

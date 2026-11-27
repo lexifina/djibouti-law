@@ -1,1 +1,0 @@
-Sont licenciés de leur emploi, pour compier du jour de leur absence irrégulière, les indi gènes ci-après : Abdillahi Sougal, interprète auxiliaire au Service de l’hygiène, absent depuis le 1er octobre 1941 ; Abdou Mabrouck, planton de 3* classe au cercle de Djibouti, absent depuis le 1e octobre 1941.

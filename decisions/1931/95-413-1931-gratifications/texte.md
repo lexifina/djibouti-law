@@ -1,1 +1,0 @@
-une gratification de 1.000 francs est accordée à Mme Laloubère, dactylographe auxiliaire, pour la conscience qu’elle a apportée à l’exécution des travaux qui lui ont été confiés par la mission d’inspection.

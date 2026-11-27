@@ -1,1 +1,0 @@
-M. Blajan, commis des services civils avant dix-huit mois, qui réunit les conditions d’ancienneté et de séjour colonial exigées par le paragraphe A de l’article 6 de l’arrêté du 26 avril 1928, passe automatiquement commis après dix-huit mois, pour compter du 1er octobre 1930.

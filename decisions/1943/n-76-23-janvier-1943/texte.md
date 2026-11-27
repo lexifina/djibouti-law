@@ -1,1 +1,0 @@
-Mr. TROBAS Marcel, Adjoint de 2ème classe des Services Civils des Colonies, est nommé à titre provisoire et par intérim cumulativement avec les fonctions dont il est charge au Cercle de Djibouti, Juge Suppléant près le Tribunal de Première Instance de Djibouti en remplacement de Mr.FRANCHETTE. Avant d entrer en fonction Mr. TROBAS prêtera le serment prévu par la loi.

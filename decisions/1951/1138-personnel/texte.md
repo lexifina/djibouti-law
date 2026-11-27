@@ -1,1 +1,0 @@
-Une gratification de six mille francs (6.000 fr.) pour services rendus à l’Administration, est accordée à M. Omar Abdallah, Agent de contrôle du Port Cette dépense est imputable au chapitre 1 XIII, art. 2, § 1″ de l’exercice 1951.

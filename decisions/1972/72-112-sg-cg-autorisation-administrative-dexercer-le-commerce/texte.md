@@ -1,2 +1,0 @@
-L’autorisation administrative d’exercer le commerce des boissons (licence de 3° classe) accordée à M. Ahmed Hassan Liban, par décision n° 71-1094/SG/AI en date du 7 août 1971, est rapportée.
-Dérogation est accordée à Mme Askale Gochou, de nationalité éthiopienne, pour exploiter, en gérance libre, une licence de 3° classe, au bar-restaurant sans dénomination commerciale sis à l’angle de la rue de Brazzaville et du boulevard De Gaulle.

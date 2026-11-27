@@ -1,3 +1,0 @@
-en attendant l’arrivée à la colouie d’un agent du cadre métropolitain de l’enregistrement, M. La Rivière a été concurremment avec ses fonctions actuelles, chargé provisoirement, à titre intérimaire et pour compter de sa prestation de serment, du service de l’enregistrement, des domaines, du timbre, de la conservation de la propriété foncière, de la curatelle et des contributions, pendant l’absence du titulaire rentrant en congé.
-Avant d’entrer en fonctions, M. La Rivière prêtera le serment prescrit par la loi.
-Il aura droit, en cette qualité, aux indemnités de fonctions, remises et salaires prévus par les textes locaux en vigueur et gardera l’entière responsabilité de sa gestion.

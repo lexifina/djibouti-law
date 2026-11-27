@@ -1,2 +1,0 @@
-L’adjudant-chef d’artillerie de marine Perret Maurice, débarqué à Djibouti le 1er juin 1964 est mis à la disposition du Commandant de Cercle d’Obock pour assumer cumulativement les fonctions d’adjoint au Commandant du Détachement autonome de Milice et d’adjoint au Commandant de Cercle, en remplacement de l’adjudant-chef Besson, rapatriable.
-Ce sous-officier prendra ses fonctions à compter du 15 juin 1964.

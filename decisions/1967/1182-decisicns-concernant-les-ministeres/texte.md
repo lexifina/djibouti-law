@@ -1,1 +1,0 @@
-M. Roger Pierront, importateur-grossiste, demeurant à Dijibouti, est autorisé à acquérir une parcelle de terrain, d’une superficie de 874 mètres carrés, faisant partie d’un terrain plus vaste, sis à Djibouti, plateau du Marabout, et immatriculé au Livre foncier du Territoire sous le n° 397, au nom de la Société Immobilière du Marabout.

@@ -1,1 +1,0 @@
-M. Félix Evariste, secrétaire-comptable auxiliaire, est nommé cumulativement avec ses fonctions d’agent-comptable, secrétaire des Tribunaux du droit coutumier de Djibouti, en remplacement de M. Victor Andriamiandravola, titulaire d’un congé administratif.

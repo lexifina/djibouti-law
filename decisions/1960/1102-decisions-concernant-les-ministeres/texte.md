@@ -1,1 +1,0 @@
-M. Morancais (Claude), instituteur du 4e échelon, détaché du cadre métropolitain, précédemment en service à l’Ecole du boulevard de Gaulle en qualité d’adjoint, est affecté, à titre provisoire, au Lycée de Djibouti, pour compter du 1er octobre 1960.

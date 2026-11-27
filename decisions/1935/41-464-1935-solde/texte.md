@@ -1,1 +1,0 @@
-un secours, une fois payé, de 340 francs (trois cent quarante francs), correspondant à deux mois de solde du de cujus, est accordé à la nommée Kadidja Miguack veuve du milicien Mohamed Kéré, n° matricule 130, décédé le 30 juin 1935.

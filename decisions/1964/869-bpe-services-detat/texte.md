@@ -1,1 +1,0 @@
-M. Deloof André, sous-prote de 2e échelon à l’Imprimerie Nationale (indice net ancien 280), qui a quitté Paris le 13 mai 1964 à destination de la Côte Française des Somalis, est, pour compter du 14 mai 1964, date de son arrivée au Territoire, nommé gérant de l’Imprimerie Administrative de la Côte Française des Somalis.

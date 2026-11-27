@@ -1,1 +1,0 @@
-Le nomme HADJI ALL Debné, Harka Mêla, Arbahinto, chef des Debnés, est li cencié de ses fonctions d’Okal du cercle de D1KHIL à compter du 15 Décembre 1941. date à laquelle il a abandonné ses fonctions.

@@ -1,1 +1,0 @@
-le nommé Ghamdou Comda, gardien de phare, a été licencié de son emploi par mesure disciplinaire et remplacé parAbdoullah Karre,ancien allumeur de réverbères, nommé gardien de phare, à la solde mensuelle de 50 frs.

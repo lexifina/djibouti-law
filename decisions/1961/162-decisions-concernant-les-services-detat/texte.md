@@ -1,2 +1,0 @@
-L’Adjudant dArtillerie de Marine Racroul Jacques, affecté à la Mülice de la Côte Francdise des Somalis pour compter du 3 février 1961, est mis à-la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions de chef de poste d’As-Eyla, en remplacement du Sous-Lieutenant Edange Jacques, remis à la disposition du Général commandant supérieur des Forces Armées de la Côte Française des Soraalis pour compter. du 15 février 1961.
-Le’ passage .de ‘commandement enfre le Sous-Lieutenant Edange et l’Adiudant Racroul. s’efféctuera le 14 février 1961.

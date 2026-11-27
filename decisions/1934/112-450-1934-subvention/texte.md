@@ -1,2 +1,0 @@
-la subvention annuelle de trois mille francs (3.000 francs) allouée en 1933 à Hadji Ali Sarem, entrepreneur de transports automobiles à Dikkil a été renouvelée pour l’année 1934.
-Dans le cas où Hadji Ali Sarem cesserait d’effectuer les transports par automobiles dans la région de Dikkil, au cours de l’année 1934, la subvention susvisée ne lui sera pas allouée pour le trimestre au cours duquel il aura cessé lesdits transports.

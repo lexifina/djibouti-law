@@ -1,1 +1,0 @@
-Un blâme avec inscription au dossier est infligé à M. Hassan Mallow Habane, préposé du cadre territorial, en service à la station côtière de Diibouti, pour retards importants à la prise de service et mauvaise manière habituelle de servir.

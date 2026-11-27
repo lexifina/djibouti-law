@@ -1,1 +1,0 @@
-M Cabourdes (Louis), comptable contractuel du service des travaux public est nommé, pour compter du 1er juillet 1938, régisseur comptable de la Caisse d’avance des travaux publies, en remplacement de M. Vivient, appelé à d’au tres fonctions.

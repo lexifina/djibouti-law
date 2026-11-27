@@ -1,1 +1,0 @@
-l’arrêté du 7 novembre 1911 concernant l’expulsion des nommés Abdallah Mohamed Kassim dit Abdallah Karani et Said Salem Saïd a été rapporté et ces deux indigènes ont été autorisés à résider dans la colonie à compter du 15 octobre 1917.

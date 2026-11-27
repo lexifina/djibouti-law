@@ -1,1 +1,0 @@
-M. Calmettes (Maurice), ingénieur-adjoint stagiaire du cadre général des météorologistes coloniaux, titulaire du diplôme d’ingénieur d’a gronomie coloniale, est chargé cumulativement avec ses fonctions de l’étude des questions relatives à agriculture de la colonie.

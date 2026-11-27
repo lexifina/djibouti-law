@@ -1,1 +1,0 @@
-M. Sauteron ( Marcel), inspecteur central des douanes, chef du service des douanes de la Côte française des Somalis, est nommé chef p. i. du Bureau central des douanes, en remplacement de M. Godefroy (Louis), contrôleur principal hors cadres des douanes, rentrant en France.

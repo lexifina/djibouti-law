@@ -1,1 +1,0 @@
-L’Adjudant-Chef d’Infanterie de Marine Cuer Pierre, André, désigné pour servir «hors-cadres» en Côte Française des Somalis, arrivé à Djibouti le 24 décembre 1960, est affecté à Ali-Sabieh en qualité d’Adjoint au Commandant du Détachement Autonome, pour compter de la date de son débarquement sur le Territoire.

@@ -1,1 +1,0 @@
-L’employé civil ex-milicien de 1 classe Ismaël Abdi est libéré du service actif pour lin de contrat et pour compter du 16 janvier 1942, date à laquelle il a atteint 15 ans et 1 mois de services. Un pécule de deux mille cinq cents francs est alloué à l’exmilicien de lre classe Ismaël Abdi pour ses 15 ans et 1 mois de services accomplis au 16 janvier 1942.

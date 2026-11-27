@@ -1,1 +1,0 @@
-M. Morin Didier, volontaire de l’aide technique, est, pour compter du 13 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Affaires Intérieures, pour servir au service des Affaires administratives, services comptant au 1er septembre 1973.

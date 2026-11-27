@@ -1,1 +1,0 @@
-Les nommés ALI MAHMOUD, DIRIR BANE. SALEH AOUAD et MOHAMED SAID sont engagés en qualité de préposés stagiaires des douanes à la solde annuelle de 3.000 francs à compter du 20 juillet 1943 en remplacement de trois agents licenciés ou démissionnaires et en complément d effectif.

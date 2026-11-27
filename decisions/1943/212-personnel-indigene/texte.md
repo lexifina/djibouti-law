@@ -1,2 +1,0 @@
-MOHAMED OMAR, assesseur au Tribunal du 2ème degré, est nommé membre de la Commission de Surveillance des Prisons en remplacement de HADJI SALEM SOHEL ..
-Par décision n. 214 du 6 Mars 1943 . HASSAN CHAMARRE boy au Gouverne ment est licencié pour faute grave et pour compter du 6 Mars 1943. Par décision n. 216 du 8 Mars 1943. Le salaire ojurnalier du chauffeur DIRIE en service au Gouvernement est porté à 30 francs.

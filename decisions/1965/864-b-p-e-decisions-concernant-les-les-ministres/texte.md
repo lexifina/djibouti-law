@@ -1,1 +1,0 @@
-« M. Beaux Henri, Conseiller aux Affaires administratives de 1° classe, 7° échelon, est chargé, cumulativement avec ses fonctions actuelles, de l’expédition des affaires courantes du Secrétariat général du Territoire, pour compter du 29 mai 1965 et pour la durée de l’absence de M. Levallois, Secrétaire général titulaire d’un congé annuel à passer en Métropole.

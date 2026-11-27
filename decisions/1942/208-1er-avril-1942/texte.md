@@ -1,1 +1,0 @@
-Est constaté pour compter du 27 mars 1942 le passage de l’échelon après 3 ans de M. Banabila Abdourahman, contrôleur principal avant 3 ans du cadre local des P. T. T., qui réunit à cette date les conditions d’ancienneté et de séjour exigées par les articles 6 et 32 de l’arrêté du 29 avril 1928 susvisé

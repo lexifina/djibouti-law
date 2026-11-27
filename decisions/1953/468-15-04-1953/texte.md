@@ -1,1 +1,0 @@
-M. Réveillault (Gaston), linotypiste contractuel, gérant de l’Inprimerie Administrative, est désigné comme agent intermédiaire du Trésor pour la perception des produits de la régie de l’Imprimerie Administrative, pour compter du 27 mars 1953.

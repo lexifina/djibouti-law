@@ -1,1 +1,0 @@
-M. Naguib Ahmed Ben Ahmed est autorisé à acquérir un immeuble, sis: à Djibouti, avenue Georges-Clemenceau, et immatriculé au Livre foncier du Territoire sous le numéro 88 au nom de M. Ahmed Ben Ahmed Abed.

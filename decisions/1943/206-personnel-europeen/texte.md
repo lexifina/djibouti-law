@@ -1,1 +1,0 @@
-M. AUTIER Albert, commis principal de 5e classe des Douanes, est chargé provisoire ment, à compter du 8 mats 1943, de la direc tion du bureau central de Djibouti en rem placement de M. le Vérificateur principal MAURY en instance de départ.

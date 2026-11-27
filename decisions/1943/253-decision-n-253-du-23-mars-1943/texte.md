@@ -1,1 +1,0 @@
-DAHER LIBAN, planton de 20 classe et OMAR AHMED, planton de 4° classe tous les deux en service au Gouvernement, auront droit pour compter de la date de leur prise de service, à l’indemnité de permanence pré vue par la décision n. 564 du 17 Novembre 1942 susvisée.

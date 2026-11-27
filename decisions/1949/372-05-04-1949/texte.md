@@ -1,3 +1,0 @@
-M. Toiron (Marcel), comanis principal du Trésor métropolitiin de 5e classé, détaché en Côte française des Somalis, est mis disposition de M. le trésorier-payeur, pour compter du 27 mars 1948, jour de son arrivée à
-Djibouti.
-M Toiron (Marcel), est assimilé au point de vue traitement à un commis ordinaire de 2e classe du cadre local. Traitement : soixante-huit mille francs (68.000). Ne bénéficiant pas dans l’appréciation. de son assimilation d’une sodle supérieure à celle qu’il percevait en France, le point de départ de son ancienneté. est fixé au 1er juillét 1948, date de sa nomination à la 5e classe de commis principal.

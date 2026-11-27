@@ -1,2 +1,0 @@
-Pendant l’absence de M. FEBREAU, titu laire dune permission valable du 14 Août au 4 Septembre, le Lieutenant NEYRAND, Chef du. Cabinet Militaire est chargé cumu. lativement avec ses fonctions de 1 expédition des affaires .courantes du Cabinet Civil.
-Il lui sera fait pendant cette même période, délégation spéciale pour légaliser les signa tures apposées sur les actes à transmettre hors de la Colonie ou venant de l extérieur et pour la .délivrance des. passeports.

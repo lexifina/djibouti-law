@@ -1,1 +1,0 @@
-La S.A.R.L. «Quincaillerie B. Moskos», société étrangère dont le siège est à Djibouti, rue d’Ethiopie, est autorisée à acquérir un immeuble, sis à Djibouti-Boulaos, immatriculé au Livre foncier du Territoire sous le n° 957 au nom de la S.A.R.L. «Entreprise G. Prévitéra».

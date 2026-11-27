@@ -1,1 +1,0 @@
-et pour compter du 1er du dit, l’agent de 3e classe des douanes Hadji Aden, est nommé agent de 2e classe à la solde mensuelle de 50 fr. L’agent de 4e classe Saïd Hussen, est nommé agent de 2e classe à la solde mensuelle de 45 fr.

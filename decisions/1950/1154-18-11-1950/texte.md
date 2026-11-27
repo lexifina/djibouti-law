@@ -1,1 +1,0 @@
-M. Morin (Maurice), contrôleur de 3e classe du cadre général des transmissions coloniales, est mis à la disposition du chef du service des P. T. T. (service général) pour compter du 5 novembre 1950, date de son retour de congé.

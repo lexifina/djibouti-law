@@ -1,1 +1,0 @@
-M. Abdi Hui est engagé, à titre essentiellement précaire et révocable, en qualité de planton auxiliaire 1er échelon pour compter du 1er juin 1953 et mis à la disposition du Chef du Service des Postes et Télécommunications.

@@ -1,1 +1,0 @@
-M. Daniel André, gardien de la paix, 6° échelon, est, pour compter du 10 janvier 1974, date de son arrivée dans le territoire, mis à la disposition du ministre de l’Intérieur et des Affaires musulmanes pour servir au Commissariat central de police.

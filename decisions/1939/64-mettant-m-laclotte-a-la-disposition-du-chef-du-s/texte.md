@@ -1,1 +1,0 @@
-Mr. Lacrotte, ouvrier d’article principal de 1er classe du service des Travaux Publics, retour de congé est mis à la disposition du chef du Service des Travaux Publics pour compter du 17 janvier jour de son débarquement à la Colonie.

@@ -1,3 +1,0 @@
-Le Milicien de 1’° classe Idriss Douale. mle 2090. de la 2° Compagnie de Milice à Tadjoura, arrivant en fin de contrat le 21 mai 1964 est licencié pour raison de santé « non imputable au service » pour compter du 7 septembre 1962. L’intéressé qui totalise 3 mois et 17 jours (deuxième rengagement) de services effectifs dans la Milice de la CFS. ne peut prétendre à aucune indemnité.
-Les droits à solde, vivres et permission de l’intéressé seront liquidés par les soins de l’’Agent spécial de la 2° Compagnie de Milice de Tadjoura.
-Le Milicien de 1’° classe Idriss Douale, mle 2090, sera rayé des contrôles de la Milice de la C.F.S. à compter du 7 septembre 1962. Il recevra le certificat de libération.

@@ -1,1 +1,0 @@
-il est attribué à M. Blajan (Julien), commis des services civils avant dix-huit mois, du 1er octobre 1929, un rappel d’ancienneté de 1 an 6 mois, pour service militaire obligatoire, en application de l’article 7 de la loi du 1er avril 1928 sur le recrutement.

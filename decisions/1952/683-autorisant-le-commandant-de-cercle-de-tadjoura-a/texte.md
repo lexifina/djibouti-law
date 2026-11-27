@@ -1,3 +1,0 @@
-Le Commandant de Cercle de Tadjourah est autorisé à ven dre aux enchères publiques, par délégation du Chef du Service c des Domaines, deux épaves d’avion sises à Obock.
-La date de la vente sear fixée par le Commandant de Cercle de Tadjourah après les mesures de publicté réglementaires. En sus du prix.principal de vente, il sera perçu 9 % pour c droits d’enregistrement et frais de criée.
-Le produit de la vente, déduction faite des frais de criée (1 %) sera versée à la Caisse du Service des Domaiens en même temps qu’un procès-verbal d’adjudication, établi en trois exemplaires dans les formes habituelles

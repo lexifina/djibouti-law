@@ -1,1 +1,0 @@
-Le Capitaine d’Artillerie Coloniale FOR TOUL Noël, en service hors cadres, est re placé dans les cadres et mis à la disposition du Lieutenant-Colonel Commandant Supé rieur des Troupes pour compter du 1er janvier 1943.

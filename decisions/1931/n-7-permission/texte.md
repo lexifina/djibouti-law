@@ -1,1 +1,0 @@
-une permission de deux mois est accordée au sergent Dagal Meck n° matricule 636, pour en jouir dans le Somaliland. du 1° » octobre au 30 novembre inclus, dont quinze jours à solde entiere quarante-cing jours sans solde ni indemnités.

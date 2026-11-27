@@ -1,1 +1,0 @@
-MM Ali Ibrahim et Fouad Salem, instituteurs stagiaires de 2e classe, admis au Certificat Elémentaire d’Aptitude Pédagogique sont titularisés instituteurs de 2er classe, 1er échelon du Corps Territorial de l’Enseignement Public pour compter du 1er janvier 1962 et rangés à l’indice 490.

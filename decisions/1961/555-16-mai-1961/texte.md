@@ -1,3 +1,0 @@
-Le Sergent-Chefd’Infanterie de Marine Ballart Jean, est affecté à la Milice de la Côte Française des Somalis et mis à la disposition du Commandant de Cercle d’’Ali-Sabieh, commandant la 3e Compagnie de Milice en qualité de Chef de Poste Administratif de Hol-Hol pour compter du 8 mai 1961.
-Ce sous-officier a droit à ce titre, à la charge du Budget territorial, à l’indemnité de frais de représentation au taux annuel de 36.000 francs, prévue par l’arrêté n° 1175 du 3 septembre 1955 susvisè.
-La dite indemnité sera perçue sur certificat délivré par le Commandant de Cercle-d’Ali-Sabieh, constatant les dates d’exercice de fonctions administratives.

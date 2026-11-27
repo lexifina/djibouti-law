@@ -1,2 +1,0 @@
-M. Ahmed Moussa, garcon de salle auxiliaire (échelle VIII. 1er échelon, indice local 655) en service à l’Hôpital Peltier (Ministère de la Santé Publique et des Affaires Sociales), atteint par la limite d’âge et réunissant 35 ans 8 mois de services effectifs au 1er juillet 1963, est admis, pour compter de cette date, au bénéfice d’une allocation viagère d’ancienneté, payable trimestriellement à terme échu, sur présentation d’un certificat de vie.
-M. Ahmed Moussa aura droit à une indemnité compensatrice de congé payé non pris égale à 75 jours de salaire.

@@ -1,1 +1,0 @@
-M. Roque, adjoint principal des services civile , est désigné pour faire partie du Conseil prévu au déc ret du 2 mars 1912, pour la formation du tableau d’avanres du pe rsonnel mé tropolitain des brigades pour l’année 1925.

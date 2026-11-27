@@ -1,1 +1,0 @@
-M. RUIZ, Commis des P.T.T. en service à la Station Intercoloniale de P.T.S. est mis provisoirement et pour compter du 15 Juillet 1943 à la disposition du Délégué de la France Combattante a Addis-Abeba qui sera, chargé d’administrer ce fonctionnaire pen dant la durée de son détachement.

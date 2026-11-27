@@ -1,1 +1,0 @@
-A été licencié pour inconduite et rayé des contrôles de la Brigade à compter du 112 Mai 11114: le garde de 2éme classe Abdou Aly mle 701; le garde de 2ème classe Alaoui Ibeny Mohamed en congé de trois mois sans solde à à compter du 1er Février 1915, ont été placés, sur leur demande, en congé, valable jusqu’à leur libération, à compter du 1er Mai 1915.

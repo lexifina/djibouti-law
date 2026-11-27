@@ -1,1 +1,0 @@
-Mme Riboud, institutrice auxiliaire à l’école publique de Djibouti, est autorisée ainsi que ses deux filles à rejoindre M. Riboud. missaire com de police, titulaire d’un congé de convalescence à passer à Harrar (Ethiopie).

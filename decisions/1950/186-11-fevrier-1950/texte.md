@@ -1,1 +1,0 @@
-Est libéré du service actif par fin de contrat; 332 Warsama Farah, sergent-chef, 2e compagnie, pour compter du 7 février 1950 Ce sous-officier ayant accompli quinze ans de service effectif, percevra un pécule de vingt et un mille deux cents francs (21.200 francs).

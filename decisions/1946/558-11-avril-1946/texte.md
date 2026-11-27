@@ -1,1 +1,0 @@
-Mme Mongin, secrétaire comptable, a été nommée régisseur-comptable de la Caisse des menue recettes et dépenses, en remplacement du gendarme Sayde (René), remis à la disposition du commandant du détachement de gendarmarie de la Côte française des Somalis.

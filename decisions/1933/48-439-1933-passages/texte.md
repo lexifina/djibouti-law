@@ -1,1 +1,0 @@
-un passage de retour par anticipation a 6t6 accordé à Mme Lepoix, femme d’un lieutenant de la section radiotélégraphiste coloniale, Mme Lepoix, qui Voiyage accompagnée de ses deux enfants âgés respectivement de 12 et ans, prendra passage sur le paquebot Explorateur-Grandidier. attendu à Djibouti vers le 26 juin 1933 à destination de Marseille.

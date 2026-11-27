@@ -1,1 +1,0 @@
-M. Kermeur, chef du service de l’enregistrement, du timbre et des domaines, est nommé, cumulativement avec ses fonctions actuelles, chef par intérim du service des contributions directes, en remplacement de M. Martel, pour compter du 24 juin 1948.

@@ -1,1 +1,0 @@
-L’élève Duproz Raoul bénéficiera une bourse scolaire d 2.916 francs Côte francaise des Somalis. au titre du lycée Buffon, à Paris, pour l’année scolaire 1945-1916. Cette bourse lui sera payée pour compter du 15 mai 1946.

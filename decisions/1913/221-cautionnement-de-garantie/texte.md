@@ -1,1 +1,0 @@
-Par arrêté du 25 juin 1913, il est donné main-levée à la Cie de l’Afrique Orientale du cautionnement de garantie de 676 fr. qu’elle a constitué le 14 octobre 1911 pour la construction de deux hangars sur le quai de la douane.

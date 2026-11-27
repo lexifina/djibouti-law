@@ -1,1 +1,0 @@
-Article uniqué. — Le Budget spécial du plan d’enseignement ét de développement économique et social de la Côte Française des Somalis pour la tranche 1961 est modifié conformément au tableau ci-dessous,Délibéré et adopté en séance du 22 août 1962.

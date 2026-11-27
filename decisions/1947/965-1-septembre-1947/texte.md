@@ -1,1 +1,0 @@
-Est acceptée la démission de son emploi offerte par Mme.Roland (Laure), institutrice auxiliaire à l’Ecole publique de Djibouti. La présente décision aura effet à compter du jour de la veille de l’embarquement de M Roland.

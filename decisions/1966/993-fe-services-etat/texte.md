@@ -1,1 +1,0 @@
-En Cas d’empêchement ou en l’absence de M. Lorans (Ray-mond), administrateur en chef de classe exceptionnelle des Affaires d’outre-mer, chef du Service des Finances-Etat, ordonnateur-délégué titulaire, M. Larré (Jean) et M. Billaut (Pierre), attachés de la France d’outre-mer, adjoints au Chef du Service des Finances, sont nommés ordonnateurs-délégués du Budget de l’Etat.

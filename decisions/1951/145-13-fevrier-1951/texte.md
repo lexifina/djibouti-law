@@ -1,1 +1,0 @@
-M. Martel (Georges), Inspecteur centrai de 2e catégorie des Contributions directes, détaché du cadre métropolitain, Chef du Service des Contributions directes du Territoire, est nommé cumulativement avec ses fonctions actuelles Chef du Service des Finances et de la Comptabilité par intérim, en remplacement de M. Perianayagassamy (Pierre), en instance de départ en congé.

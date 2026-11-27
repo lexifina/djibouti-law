@@ -1,1 +1,0 @@
-Une rémunération de 1.000 francs pour travaux supplémentaires effectués en dehors des heures réglementaires de service est accordée à AI. Collât, sous-chef de bureau des secrétariats généraux, qui a établi le compte définitif de l’exercice 1928.

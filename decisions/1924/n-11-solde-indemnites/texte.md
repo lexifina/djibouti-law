@@ -1,1 +1,0 @@
-il est alloué à M. Pla.commis des travaux publics, chargé provisoirement des fonctions de chef du service des travaux publics, du 18 avril 1922 au 2 janvier 1923 inclus, un complément de solde de 2000 fr, L’an.

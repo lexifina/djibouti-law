@@ -1,3 +1,0 @@
-Nonobstantles.dispositions de l’article 2 de l’arrêté n° 856 limitant à 15 p. 100 de l’effectif réel du cadre, le nombre des personnes autorisées à effectuer des travaux supplémentaires te celles de l’article 8 limitant à une heure par jour ouvrable et par agent la durée de ces travaux, le personnel du cadre des Transmissions coloniales est autorisé à effectuer des travaux supplémentaires, dans la limite de :
-— 3 contrôleurs des Transmissions coloniales ;
-— 1 vérificateur des Transmissions coloniales, sans que le nombre total mensuel dépasse ia moyenne de deux heures par jour ouvrable et par agent.

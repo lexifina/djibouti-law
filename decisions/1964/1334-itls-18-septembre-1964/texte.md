@@ -1,1 +1,0 @@
-Pour compter du 1er octobre 1964, la Société Maritime Savon et Ries est autorisée à assurer elle-même le service de toutes les prestations consécutives aux accidents du travail ou aux maladies professionnelles survenues à son personnel.

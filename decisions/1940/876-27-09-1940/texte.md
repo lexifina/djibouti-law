@@ -1,1 +1,0 @@
-Le capitaine Sanner, les lieutenants Gory, Coullet, Fournier et Sicard, en service hors cadres à la milice indigène, en instance de rapatriement, sont replacés dans les cadres et mis à la disposition du général commandant supé rieur, pour compter du 1er octobre 1940.

@@ -1,1 +1,0 @@
-30 avril 1924. les fonctions dévolues au Secrétaire général en matière d’élections des membres de la Chi imbre de commerce, notamment celles qui sont fixées par le pari graphe de l’arrêté du 3 novembre 1912, seront remplies, en ce qui concerne les opérations électorales 1934, par 7 Derbhès, chef des bureaux du Secrétariat général.

@@ -1,1 +1,0 @@
-L’arrêté n. 35 du 13 Janvier 1943 est rapporté. Le Capitaine COLLET DE CANTELOUP de l’armée de l’Air, est désigné comme Com mandant de l’Air en Côte Française des Somalis et Ordonnateur Secondaire Matières et Finances des Services de l’Air en rempla cement du Chef de Bataillon LA GER.

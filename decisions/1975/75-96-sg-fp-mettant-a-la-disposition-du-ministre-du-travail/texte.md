@@ -1,1 +1,0 @@
-M.Jean-Jacques Kieffer, volontaire de l’aide technique, est, pour compter du 11 décembre 1974, date de son arrivée dans le Territoire, mis a la disposition du ministre du Travail.pour servir au Centre de Formation Professionnelle des Adultes à Arta en qualité de moniteur adjoint-hétellerie, service comptant au 1er décembre 1974. poste budgétaire VAT n°1.

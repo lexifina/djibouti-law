@@ -1,1 +1,0 @@
-Madame André Odette, dame employée, est nommée billetrice pour le paiement de la solde et des allocations accessoires du personnel mensuel et journalier du Service de la Sûreté en remplacement de Madame Fratacci Marcelle.

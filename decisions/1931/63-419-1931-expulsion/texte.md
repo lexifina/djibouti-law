@@ -1,1 +1,0 @@
-le nommé Téclé Mail,Abyssin, est expulsé de la Côte francaise des somalis et devra quitter, dans un délai expiront le 1er novembre 1931, le territoire de la colonie qui lui reste interdit, ainsi que celui de ses dépendances.

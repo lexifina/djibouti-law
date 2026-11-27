@@ -1,1 +1,0 @@
-M. Abdourhaman Saleh Koubati, élève de troisième du Cours Complémentaire de Djibouti, est engagé pour compter du 1er janvier 1960, en qualité d’auxiliaire à l’échelle VIII, échelon 1 et mis à la disposition de M. le Chef du Service de l’Enseignement.

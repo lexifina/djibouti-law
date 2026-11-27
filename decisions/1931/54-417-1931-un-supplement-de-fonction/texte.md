@@ -1,1 +1,0 @@
-29 août 1951, il est accordé à M. Burel, chef du bureau militaire de Djibouti, un supplément de fonction de 600 francs par mois, pour le travail supplément: à ire qu’il accomplit au service de: s travi aux pub lics, en qualité de régisseur comptable, à compter du 1°° juin 1931.

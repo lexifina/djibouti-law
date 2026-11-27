@@ -1,2 +1,0 @@
-Les restes mortels de l’ex Caporal-Chef Rajaonah (Victorien), décédé le 10 octobre 1959 à Djibouti, actuellement au dépositoire de Djibouti, seront transférés au cimetière d’’Ambobhitrantenaina, cañton d’’Ambohidrabiby. district de Tananarive-Banlieue.
-Les dépenses occasionnées par ce transfert seront à la charge dé l’Etat : Budget des Armées « Affaires d’Outre-Mer », chap. 32-83 – Transport du Personnel et Déplacements – art, 1er.

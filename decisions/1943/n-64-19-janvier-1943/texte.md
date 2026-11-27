@@ -1,1 +1,0 @@
-Le Sergent-Chef FUSELIER Henri, n. Mle 2741 de la 4ème Compagnie du Batail lon de Tirailleurs Sénégaleais de la Côte Française des Somalis est placé dans la position hors cadres pour compter du ter Janvier 1943 et mis à la disposition du Chef de Bataillon Commandant le cercle de DIKKIL.

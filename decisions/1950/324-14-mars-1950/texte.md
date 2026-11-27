@@ -1,1 +1,0 @@
-Abdi Bidar, commis administratif du 11e échelon, est réintégré dans ses fonctions pour compter du 1er mars 1950. Abdi Bidar est mis. pour compter de cette date, à la disposition de M. le directeur du port.

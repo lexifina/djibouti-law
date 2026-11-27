@@ -1,1 +1,0 @@
-M. Jenin Jeañ-Michel, volontaire de l’aide technique est pour compter du 9 séptembre 19/9, date de son arrivée dans le Territoire, mis à la disposition du Ministre du Port et des Régies industrielles, pour servir en qualité d’ingénieur des Travaux publics au port de commerce de Djibouti, service comptant du ler septembre 1975.

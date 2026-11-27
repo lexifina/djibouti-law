@@ -1,1 +1,0 @@
-Est constatée, pour compter du 18 janvier 1971, date de son retour au Territoire, la reprise de ses fonctions antérieures au Commissariat central de police (Ministère des Affaires intérieures) par M. René Puyhardy, brigadier de police, 3e échelon.

@@ -1,1 +1,0 @@
-La démission de son emploi offerte par M. Saleh Saïd Ahmed, commis administratif 11e échelon, du Cadre local du Service de l’Enregistrement, des Domaines et du Timbre, est acceptée pour compter du 1er avril 1952.

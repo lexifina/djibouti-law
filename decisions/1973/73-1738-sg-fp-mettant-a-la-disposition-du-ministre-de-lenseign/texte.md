@@ -1,1 +1,0 @@
-M. Raymond Cappôni, instituteur du Département de l’Indreet-Loire, 10° échelon, est, pour compter du 7 novembre 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre de l’Enseignement, des Sports et de la Jeunesse, pour servir à la direction de l’Enseignement (ministère de l’Enseignement, des Sports et de la Jeunesse).

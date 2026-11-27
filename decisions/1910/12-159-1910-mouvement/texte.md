@@ -1,1 +1,0 @@
-un congé de trois mois sans solde est accordé à M. Bignotti, commis de 2e classe du Cadre Local des Postes et des Télégraphes de la Côte Française des Somalis, pour en jouir dans la Colonie, Cette décision aura son effet à compter du 22 janvier.

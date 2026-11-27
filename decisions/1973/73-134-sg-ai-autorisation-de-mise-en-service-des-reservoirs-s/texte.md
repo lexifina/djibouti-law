@@ -1,1 +1,0 @@
-M. Ali Mohamed Ahmed, est autorisé à mettre en service les réservoirs souterrains devant contenir des liquides inflammables et les installations de délivrance implantés à la stationservice à l’enseigne «Mobil», située boulevard périphérique, lotissement de l’Aviation, Ambouli.

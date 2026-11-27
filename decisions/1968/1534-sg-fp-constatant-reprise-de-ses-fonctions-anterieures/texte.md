@@ -1,1 +1,0 @@
-Est constatée, pour compter du 18 septembre 1968, date de son retour au Territoire, la reprise de ses fonctions antérieures par M. Fernand Mamo, proviseur licencié certifié, 2e catégorie, 11° échelon (indice nouveau 652).

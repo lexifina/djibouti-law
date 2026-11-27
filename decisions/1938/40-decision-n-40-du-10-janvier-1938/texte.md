@@ -1,1 +1,0 @@
-M. de Gaillande, ingénieur principal de 4e classe des travaux publics des colonies, assurera, à compter du 10 janvier 1938, l’intérim de M. Meunier, chef du service des travaux publics, pendant l’absence de ce dernier.

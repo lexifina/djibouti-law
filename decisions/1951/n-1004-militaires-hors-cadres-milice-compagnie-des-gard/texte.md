@@ -1,1 +1,0 @@
-Le gendarme Grimmer (Lucien), arrivé en Côte Française des Somalis le 13 septembre 1950, est affecté à la Compagnie de gardes-cercle de Djibouti pour compter du 20 mai 1951, date à laquelle il a commencé son service à cette unité.

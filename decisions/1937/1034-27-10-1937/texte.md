@@ -1,1 +1,0 @@
-M. Trobas, commis des services civils stagiaire, est mis à la disposition de M. l’administrateur comman dant le Cercle de Djibouti, pour compter du 17 octobre 1037. jour de son débarquement dans la colonie.

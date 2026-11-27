@@ -1,1 +1,0 @@
-Est constatée la reprise de service, au Service de l’Enseignement du premier degré, de Mile Thérèse Noël Abdi, institutrice, 2e classe, 2° échelon, pour compter du 1° août 1967, à l’expiration de son stage à l’Ecole normale de Nîmes.

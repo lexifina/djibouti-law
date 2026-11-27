@@ -1,1 +1,0 @@
-L’ingénieur adjoint de 1re classe du cadre général des travaux publics Cazaban Mazerolles, antérieurement en service au cercle de Djibouti, est mis à la disposition du chef du Service des travaux publics.

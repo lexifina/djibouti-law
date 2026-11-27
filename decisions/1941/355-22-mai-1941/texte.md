@@ -1,2 +1,0 @@
-Une gratification annuelle de neuf cents francs (900 francs) est accordée aux sous officiers nommés par décision du Gouverneur, comme charge des observations météorologiques de Tadjoura et d’Obock.
-Cette gratification, qui sera payée par trimestre et pour compter du 1er janvier 1941, cessera d’avoir effet du jour de l’approbation par le Département de l’arrêté leur attribuant un supplément de fonctions.

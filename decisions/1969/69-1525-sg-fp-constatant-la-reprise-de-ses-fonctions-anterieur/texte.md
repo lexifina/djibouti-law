@@ -1,1 +1,0 @@
-Est constatée. pour combter du 8 octobre 1969. date de son retour dans le Territoire, la reprise de ses fonctions antérieures au Service des Travaux publics (Ministère des Travaux publics et du Port), par M. Pierre -Duverneuil, conducteur des Travaux 2410publics de l’Etat, 9° échelon.

@@ -1,1 +1,0 @@
-M. Houssein Hassan, instituteur adjoint stagiaire, qui a subi avec succès les épreuves du Certificat Elémentaire d’Aptitude Pédagogiqué est titularisé instituteur adjoint de 6° classe du Corps Supérieur de l’Enseignement de la Côte Française des Somalis, pour compter du 1er janvier 1960.

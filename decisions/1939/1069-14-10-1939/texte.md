@@ -1,1 +1,0 @@
-M. Griveau, lieutenant de port du cadre général des colonies, nouvellement arrivé, est mis à la disposition du chef du Service des travaux publics pour compter du 11 octobre 1939, jour de son débarquement à la colonie.

@@ -1,2 +1,0 @@
-L’Ad;udant d’Infanterie de Marine Paoli André, arrivé à Djibouti par avion le 17 février 1963 et affecté à la Milice de la Côte Française des Somalis, est mis à la disposition du Commandant de Cercle de Dikhil pour assurer les fonctions de chef de poste d’As-Eyla, en remplacement de l’adjudant-chef Christophe, rapatriable.
-L’entretien complet de ce sous-officier sera à la charge du Ministre d’Etat chargé des Départements et Territoires d’Outre-Mer.

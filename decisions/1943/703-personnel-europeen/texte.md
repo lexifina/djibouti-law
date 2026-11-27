@@ -1,1 +1,0 @@
-Madame SAUTERON est engagée pour compter du 3 septembre 1943 en qualité d’employée auxiliaire au service des doua nes, au salaire mensuel de 3.000 frs. ex clusif de toute indemnité en remplacement numérique de M. DUFAUD.

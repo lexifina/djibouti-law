@@ -1,1 +1,0 @@
-M. du Bourg (Ciaude), commis principal de 3° classe des Trésoreries de la France d’Outre-Mer, de retour de congé, est mis à la disposition du Trésorier Payeur, pour compter du 28 décembre 1951, date de son arrivée à Djibouti.

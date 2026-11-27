@@ -1,1 +1,0 @@
-le capitaine d’infanterie colo niale Cédé est nommé commandant de cercle des Adaëls, en remplacement de M. l’adminis trateur adjoint des colonies Lucas, appelé à d’autres fonctions, à compter du 1er avril 1937.

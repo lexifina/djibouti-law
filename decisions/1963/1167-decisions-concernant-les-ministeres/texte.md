@@ -1,2 +1,0 @@
-Le Médecin-Lieutenant Le Bras Michel, désigné pour Continuer ses services hors-cadres en Côte Française des Somalis, embarqué le 7 septembre 1963 à destination de Djibouti, est mis à la disposition du Ministre de la Santé Publique et des Affaires Sociales pour compter du 8 septembre 1963, date de son atrivée sur le Territoire.
-Cet officier est désigné pour occuper les fonctions de Médecin Résident à l’Hôpital Peltier.

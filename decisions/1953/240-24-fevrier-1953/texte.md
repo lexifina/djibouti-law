@@ -1,1 +1,0 @@
-M. Thoué (Michel), instituteur de 6e classe, détaché du Cadre métropolitain, est affecté au Cours complémentaire de Djibouti, en qualité d’Adjoint, pour compter du 13 février 1953, jour de son débarquement, en remplacement de M. Vignon, rentrant en congé.

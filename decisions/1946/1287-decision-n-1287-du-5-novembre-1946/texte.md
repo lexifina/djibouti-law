@@ -1,1 +1,0 @@
-Une allocation de sept cent cinquante francs (750 francs), une fois payée pour premiers frais d’installation est attribuée à M. Randriambololona (Georges), mécanicien contrac uel au service des travaux publics.

@@ -1,1 +1,0 @@
-M. Joseph Ruiz, brigadier de Police, est, pour compter du 8 janvier 1975, date de son arrivée au Territoire, mis a la disposition du ministre de l’Intérieur et des Affaires Musulmanes, pour servir a ’encadrement de la Garde Territoriale, en remplacement da M. Armunds Rebb.

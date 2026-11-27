@@ -1,1 +1,0 @@
-une gratification exceptionnelle de cent cinquante francs (150 fr.) est accordée au dactylographe Raharison Henri, pour copie du compte définitif des recettes et des dépenses du service local, pour l’exercice 1925.

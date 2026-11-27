@@ -1,1 +1,0 @@
-Mme Guillemoot (Julienne) est engagée en qualité de dame-employée auxiliaire 3e catégorie à salaire journalier et mise à la disposition de l’Inspecteur du Travail et des lois sociales, pour compter du 1er juin 1953.

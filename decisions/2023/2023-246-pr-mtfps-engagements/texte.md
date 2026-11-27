@@ -1,3 +1,0 @@
-Par décision n°2023-246/PR/MTFPS, du Président de la République, Chef du Gouvernement, en date du 20 juillet 2023, M. ABDILLAHI YACCIN DIRIR, est engagé à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de gardien, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement Numérique du feu ABDI HASSAN DIHIN, décédé (PB : 252/CC).
-Mme. HASNA MOUMIN ALI, est engagée à la 1ère catégorie C, de la convention collective du 26 décembre 2011, en qualité de Femme de ménage, pour servir au Ministère de l’Education Nationale et de la Formation Professionnelle, en remplacement numérique du feu EBO ARBAHIM EBO, décédé (PB : 2356/CN).
-La présente décision prend effet à compter du 20 juillet 2023.

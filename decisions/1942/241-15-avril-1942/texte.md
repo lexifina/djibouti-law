@@ -1,1 +1,0 @@
-L’adjudant Petit, le sergent-chef de réserve Lecourt, le sergent de réserve Colas et le bri gadier de réserve Bouissou en service hors ca dres, sont replacés dans les cadres et mis à la disposition du général commandant supérieur pour compter du 17 avril 1942.

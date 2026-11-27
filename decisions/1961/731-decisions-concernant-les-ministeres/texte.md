@@ -1,2 +1,0 @@
-Une cinquième prolongation de congé de longue durée de six mois à passer dans le Territoire est accordée à compter du 17 mai 1961 à M. Mohamed Warsama Dirieh, expéditionnaire d’administration de 1er classe, 2° échelon du cadre territorial.
-Pendant la durée de ce congé, M. Mohamed Warsama Dirieh, aura droit, en application de l’article 18, $ 3 de l’arrêté n° 61/19/SPCG du 24 février 1961 à l’intégralité de sa rémunération.

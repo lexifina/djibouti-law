@@ -1,1 +1,0 @@
-est rapportée la décision du 21 mars 1924, M, Lippmann (Alphonse), commis de ?e classe des services civils, est chargé d’assisler aux opéralions de bornage exigées pour l’immatriculation des immeubles au Livre Foncier de la colonie, afin de veiller à la sauvegarde des intérêts de l’administration.

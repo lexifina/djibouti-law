@@ -1,2 +1,0 @@
-Un congé sans solde d’une durée de six mois est accordé du 1er mars au 1er sep tembre 1943 à Madame MARCEROU ex Mlle YAZIDJIAN, employée auxiliaire auservice du Ravitaillement Général.
-Par décision n. 222 du 10 Mars 1943. M. CALLOUSTIAN, employé auxiliaire au Ravitaillement Général, engagé dans les For ces Françaises Libres cesses d’appartenir au personnel du Ravitaillement Général pour compter du 1er mars 1943.

@@ -1,1 +1,0 @@
-le nommé Elmi Louis, Somali a été nommé sous-brigadier des Douanes, à la solde de 65 francs par mois pour compter du ler Septembre 1914, à titre exceptionnel en raison des connaissances de l’intéressé qui parle et éérit le français, parle l’anglais, l’arabe et le somali.

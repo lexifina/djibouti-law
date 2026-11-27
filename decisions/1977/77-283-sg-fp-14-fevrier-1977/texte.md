@@ -1,1 +1,0 @@
-M. Ahmed Liban Ismail, agent principal, 2e échelon du cadre territorial des Postes et Télécommunications, est, sur sa demande, admis à faire valoir ses droits à la retraite pour compter du 1er avril 1977.

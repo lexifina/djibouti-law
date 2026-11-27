@@ -1,1 +1,0 @@
-M A V. Sahatdjian, ex-député du T.F.A.I, ayant exercé des mandats d’une durée totale de 18 ans 7 mois 5 jours au titre de la Chambre des Députés et des anciennes assemblées, est admis à faire valoir ses droits à une pension normale pour compter du. 17 novembre 1968,

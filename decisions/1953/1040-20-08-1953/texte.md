@@ -1,2 +1,0 @@
-Un congé administratif de six mois (6), pour en jouir à Griselles (Loiret), est accordé à M. Huguet (Roger), ingénieur hors-classe des Travaux publics de la France d’Outre-Mer, qui aura accompli le 28 septembre 1953, un séjour effectif ininterrompu de deux ans dans le Territoire.
-M. Huguet, qui appartient au groupe Il, voyagera, accompagné de son épouse, par la voie maritime de Djibouti à Marseille et par voie ferrée de Marseille à Griselles (Loiret), aux frais du budget local de la Côte Française des Somalis.

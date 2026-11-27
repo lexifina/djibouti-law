@@ -1,1 +1,0 @@
-Mme Herraye (Antoinette) est engagée en qualité de dame- employée auxiliaire 3e catégorie à salaire journalier et mise à la disposition du Directeur du Service de Santé, pour compter du 15 juin 1953, en remplacement numérique de Mme Agostini qui a reçu une autre affectation.

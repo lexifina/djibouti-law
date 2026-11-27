@@ -1,1 +1,0 @@
-une gratification de 1.000 francs est accordée à M. Dupont (Christian), adjoint principal des services civils, qui a participé à l’établissement et à la rédaction du rapport général exposant l’effort accompli par la section de la Côte francaise des Somalis à l’Exposition coloniale intercoloniale de Paris de 1931.

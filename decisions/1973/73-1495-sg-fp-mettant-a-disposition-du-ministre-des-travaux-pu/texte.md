@@ -1,1 +1,0 @@
-M. Gaquère François, volontaire de l’Aide technique, est, pour compter du 13 septembre 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir à la subdivision Infrastructure des Travaux publics en qualité d’ingénieur des T.P.E.

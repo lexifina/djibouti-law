@@ -1,1 +1,0 @@
-M. Michel Marino, assistant technique des Travaux publics de l’Etat, 6e échelon (I.M. 259), est, pour compter du 28 janvier 1973, date de son arrivée dans le Territoire, mis à la disposition du Ministre des Travaux publics et du Port, pour servir à la Direction des Travaux publics (subdivision construction).

@@ -1,2 +1,0 @@
-Le sergent radiotélégraphiste Fiquet (Jacques), en service hors cadres, est replacé dans les cadres et mis à la disposition du général commandant supérieur des troupes, pour comp ter du 1er avril 1942.
-Le sergent radiotélégraphiste Lanfranchi, de la compagnie des télégraphistes coloniaux est placé dans la position hors cadres, pour compter du 1er avril 1942 et mis à la disposiTion du capitaine inspecteur des pelotons méharistes.

@@ -1,1 +1,0 @@
-Une nouvelle autorisation administrative d’exercer le commerce de boissons licence de 1er classe A est accordée à Mme Fatma Abdi Mohamed pour l’exploiter dans son établissement le bar «AU CAPRICE », sis avenue Georges Clemenceau à Djibouti.

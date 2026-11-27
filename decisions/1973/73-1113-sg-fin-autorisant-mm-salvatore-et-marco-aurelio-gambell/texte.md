@@ -1,1 +1,0 @@
-MM. Salvatore et Marco Aurelio Gambelli sont autorisés à acquérir une parcelle de terrarin non bâti, d’une superficie totale de 7085 m2, sis à Djibouti — zone industrielle— et faisant partie d’un terrain plus vaste, immatriculé au Livre foncier du Territoire sous le n° 201 au nom de la Compagnie des Salins du Midi et des Salines de l’Est.

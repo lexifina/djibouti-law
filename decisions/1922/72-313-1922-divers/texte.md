@@ -1,2 +1,0 @@
-pour le mois de janvier 1923 Le cours moyen du thaler en décembre 1922, avant éle de 7,45, le taux moyen prévu à l’arrêté du 25 octobre 1920, est fixé par application de l’arrèté du 11 mars 1992 à 5 fr. 2,50 (cours normal) soit 2,50.
-En ce qui concerne les indemnités correspondant à des dépenses effectuées sur place fixées par arrèté du 1er décembre 1920 (art. 1er, §§ A. B. art. 2 et l’arrêté du 7 septembre 1924, elles seront décomptées sur le taux de 5 frs.

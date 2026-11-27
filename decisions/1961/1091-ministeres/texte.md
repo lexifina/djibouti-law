@@ -1,1 +1,0 @@
-Mme Laurent, Madeleine, Marie, née Ratte, titulaire du diplôme d’Etat d’Infirmière, est autorisée à exercer la profession d’infirmière à Djibouti, dans les conditions prévues à l’article 473 du Code de la Santé Publique.

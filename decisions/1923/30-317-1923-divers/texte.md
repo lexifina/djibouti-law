@@ -1,2 +1,0 @@
-pour le mois de mai 1923 le sur place. fixées par arrêlé du décembre art.1er a et b, art. 2 et l’arrété du 7 septembre 1921 elle seront décomptées sur le taux de franc.
-En ce qui concerne les indemmilés accessoilres correspondant à des dénenses effecluées sur place, fixées par arrèlé du ( décembre 1920. art, 1er et b, art. 2 et l’arrêté du 7 septembre 1921, elles seront décomptées sur le taux de 5 francs.

@@ -1,1 +1,0 @@
-M. Vernhet Bernard, attaché de la FOM de 1er classe,1er échelon, (indice majoré 436) est, pour compter du 28 août 1973, date de son arrivée dans le Territoire, mis à la disposition du ministre des Travaux Publics et du Port, pour servir en qualité de chef de la Subdivision administrative et comptable à la direction des Travaux Publics.

@@ -1,1 +1,0 @@
-M. Ahmed Farah Aden, technicien de 1e classe, 2e échelon du Cadre Territorial de la Santé Publique, en service à l’Hygiène, est déféré devant le Conseil de Discipline pour complicité de diffamation à l’égard du Ministre des Finances

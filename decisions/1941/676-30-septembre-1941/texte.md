@@ -1,2 +1,0 @@
-M. Carratero, mis à la disposition du Service du ravitaillement général par les soins de la Compagnie du chemin de fer franco-éthiopien, est engagé en qualité de comptable, à compter du 1er octobre 1941, en remplacement de M. Philippe, démissionnaire. M. Carratero percevra une allocation men suelle de deux mille cinq cents francs à l’exclu sion de toute autre indemnité.
-La dépense sera imputée au compte du Service du ravitaillement général.

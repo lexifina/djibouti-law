@@ -1,1 +1,0 @@
-la décision n° 470 du 19 juin 1945 nommant le capitaine Gay, commandant par intérim de la milice indigène de la Côte française des Somalis, cessera d’avoir effet à compter du 3 septembre 1945 date du retour du chef de bataillon du Vachat.

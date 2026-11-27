@@ -1,1 +1,0 @@
-une somme de cinq cents francs, dont il devra justifier l’emploi, a été mise à la disposition du commandant du cercle de Dikkil-Gobad à l’occasion de la célébration, le 11 novembre 1933, de la fête de la Victoire.

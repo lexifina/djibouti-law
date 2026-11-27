@@ -1,1 +1,0 @@
-M. Casteilla (André), instituteur, service auxiliaire, classe de mobilisation TOUS. est classé dans l’affectation spéciale, dans son emploi actuel, de la date de la présente décision au 30 juin 1940 inclus.

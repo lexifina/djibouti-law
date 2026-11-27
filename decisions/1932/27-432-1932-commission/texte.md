@@ -1,3 +1,0 @@
-le Comité chargé d’élaborer le programme de la fête de la Victoire du 11 novembre 1952 est composé ainsi qu’il suit pour le cercle de Djibouti :
-MM. Jourdain, administrateur des colonies, commandant le cercle, président; Cottet, comptable au service du port, ancien combattant ; Diderrich, adjoint principal des services civils, ancien combattant: Cope, commis principal de la trésorerie, ancien combattant, et Rivière, adjoint principal des services civils, ancien combattant, membres.
-Une somme de 1.000 francs, à prélever sur le chapitre 13, article 4 paragraphe 1er, du budget de l’exercice en cours, est mise à la disposition du Comité.

@@ -1,2 +1,0 @@
-M. Dublineau Pierre est autorisé à exploiter à Ambouli, route d’Arta, dans l’établissement «La Palmeraie», une licence de 3e classe pour la vente à consommer sur place de boissons alcooliques et hygiéniques.
-Le Commandant de Cercle de Djibouti et le Chef du Service des Contributions Directes, sont chargés, chacun en ce qui le concerne de l’exécution de la présente décision qui sera enregistrée, publiée et communiquée partout où besoin sera.

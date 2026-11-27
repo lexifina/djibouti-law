@@ -1,1 +1,0 @@
-M. Oman Bouralé Adar, commis des S.A.F. de 1re classe, 2e échelon du cadre territorial dé l’Administration générale en service aux Finances, est affecté pour compter du 1er janvier 1977, en qualité de chef de section à la Caisse locale des retraites en remplacement numérique de M. Ahmed Dirié Ahmed dit Michel.

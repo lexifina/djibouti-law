@@ -1,3 +1,0 @@
-un témoignage de satisfaction est accordé au médecin capitaine Huchon, en service à la Côte francaise des Somalis pour le motif suivant :
-»A assuié bénévolement avec le plus parfait dévoiement la surveillance médicale du dispensaire des femmes et des enfants de Djibouti » Aïmant les indigènes, s’intéressant à eux, a su, par sa patience et sa bienveillance naturelle, vaincre peu à peu les timidités et les préventions, attirant chaque jour à lui une clientèle plus nombreuse,
-»Type parfait du médecin colonial avant la plus haute conception de son devoir qu’il accomplit toujours avec zèle et bonne humeur. »

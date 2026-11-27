@@ -1,1 +1,0 @@
-une allocation forfaitaire de 100 frs est attribuée à M. Laloubère, mécanicien des P, T. T. pour travaux d’installations électriques effectuées hors des heures de service dans divers immeubles du service local en 1920 et 1921.

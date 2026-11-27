@@ -1,1 +1,0 @@
-Un avertissement est infligé à M. Mohamed Saïd Awale infirmier de 3: classe, 2° échelon, du cadre territorial du Service de Santé, en service à l’Hôpital Peltier (Ministère de la Santé publique et des Affaires sociales) pour n’avoir pas pratiqué les soins prescrits pour un malade pendant huit jours.

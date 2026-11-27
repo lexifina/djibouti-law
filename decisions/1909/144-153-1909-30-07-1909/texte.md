@@ -1,1 +1,0 @@
-le bénéfice de l’entrepôt fictif, pour toutes les marchandises admissibles à cet entrepôt, est accordé, dans les conditions prévues par les règlements en vigueur, à MM. Gros Pétiaux et Cie, négociants à Djibouti.

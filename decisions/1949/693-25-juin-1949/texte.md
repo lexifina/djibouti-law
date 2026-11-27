@@ -1,1 +1,0 @@
-Est acceptée pour « raisons de santé » la démission de son emploi offerte par Ibrahim Mohamed, opérateur radio, 10e échelon, en service à la station entière. La présente décision aura effet pour compter du 1er juillet 1949.

@@ -1,1 +1,0 @@
-M. Serge Pancrazzi, maître principal marin-pombpier est, pour compter du 13 mai 1974, date de son arrivée dans le Territoire, mis à la disposition du Ministre de l’Intérieur et des Affaires musulmanes pour remplir les fonctions de chef de détachement Incéndie-Ville.

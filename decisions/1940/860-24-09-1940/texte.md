@@ -1,1 +1,0 @@
-Le capitaine Fortoul (Noël), de l’artillerie coloniale, est placé dans la position hors cadres et nommé chef du cabinet militaire et chef du secrétariat permanent de la défense nationale, pour compter du 25 septembre 1940, en remplacement du colonel Guillon, rapatriable.

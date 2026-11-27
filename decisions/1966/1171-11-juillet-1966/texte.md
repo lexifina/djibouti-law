@@ -1,2 +1,0 @@
-En application des dispositions de l’article 12, alinéa 2, de l’arrêté n° 61/19/SPCG du 24 février 1961, est autorisée la prise en Charge des frais de prothèse pour M. Abdou Mohamed Bourhan, commis des S.A.F., interprète au Cercle de Djibouti, victime d’un accident du travail survenu en juin 1960.
-Cette dépense est imputable au budget du Service local pour l’exercice 1966, chapitre 9, article 6, paragraphe 19.

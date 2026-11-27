@@ -1,1 +1,0 @@
-Est constatée pour compter du 2 février 1960, date de son retour dans le Territoire, la reprise par M. Devigne (Georges), Administrateur en Chef de la France d’Outre-Mer, 3° échelon, de ses fonctions de Commandant de Cercle de Dikhil et de Président du Tribunal du 2° degré dans le ressort dudit Cercle. 7.

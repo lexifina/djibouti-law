@@ -1,1 +1,0 @@
-Mme Lefranc (Monique), secrétaire dactylographe auxiliaire, 2° catégorie, échelle X, 1e échelon, indice 805, en service au Secrétariat général, est mise à la disposition de M. le Ministre de 13 Santé publique et des Affaires sociales, pour compter du 1er février 1960, en remplacement de Mme Filippi (Simone), appelée à d’autres fonctions.

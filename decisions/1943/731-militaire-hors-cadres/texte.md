@@ -1,2 +1,0 @@
-Le Capitaine COULLET, en service Hors Cadres, Commandant du Cercle de TADJOURA, quitte le Commandement de ce Cercle et est remis à la disposition du Lieutenant-Colonel, Commandant Supérieur des Troupes de la Côte Française des Somalis pour compter du 13 Septembre 1943.
-Le Lieutenant PERRIQUET, en service Hors-Cadres, Commandant le Peloton Méhariste de l’Alta, prendra provisoirement le commandement du Cercle de TADJOURA pour compter de la même date.

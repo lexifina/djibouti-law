@@ -1,1 +1,0 @@
-M. Bellot, Commis de 2e classe des Secrétariats Généraux, attaché au cabinet du Gouverneur, remplira par intérim, en l’absence de M. Administrateur de Bonchamps, les fonctions de Chef du Secrétariat du Gouvernement.

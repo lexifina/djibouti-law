@@ -1,2 +1,0 @@
-M. Guiot (Daniel) licencié en droit, chef de bureau de 1re classe de l’Administration générale des colonies, est nommé À titre procisoire président par intérim du Tribunal de 1er instance de Djibouti, fonctions qu’il cumuera avec ses fonctions actuelles an service des finances.
-Avant d entrer en fonctions, M. Guiot prétra le serment prescrit par la M. Guiot percevra l’allocation prescrite par l’article 2 du décret du 26 novembre 1946 susvisé.

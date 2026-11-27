@@ -1,1 +1,0 @@
-M. le pharmacien lieutenant Laviec (Jean), en service hors cadres à la Côte française des Somalis, sera rapatrié sur le paquebot Chenonceaux, de la Compagnie des Messageries maritimes, attendu à Djibouti le 25 novembre 1934.

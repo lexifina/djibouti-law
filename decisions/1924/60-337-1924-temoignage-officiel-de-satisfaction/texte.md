@@ -1,1 +1,0 @@
-un témoignage officiel de satisfaction est décerné à M. Bouron, chef de brigade de 3e classe de gendarmerie, commissaire de police de la ville de e Djibouti, pour le zèle, l’activité, le tact et la haute conscience dont il à fait preuve dans l’exercice de ses délicates et difficiles fonctions.

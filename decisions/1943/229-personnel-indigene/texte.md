@@ -1,1 +1,0 @@
-YACIN ABOUBAKER est réintégré dans son emploi d écrivain auxiliaire et mis à la disposition du Chef du Service de l’Enre gistrement, des Domaines et du Timbre pour compter du 12 Mars 1943. Sa solde mensuelle reste fixée à 1.250 frs. Le secrétaire contractuel Pierre RAZA FINDRAKOTO est mis à la disposition du Capitaine de Port.

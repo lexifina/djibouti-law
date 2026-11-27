@@ -1,1 +1,0 @@
-Le Sergent GIRRI Gabriel, du Dépôt des Isolés de DIRE-DAOUA, est placé dans la position Hors Cadres pour compter du 1er Février 1943, et affecté a la même date a la Section Nomade de l’Alta, en remplacement du Sergent THIEBEAL tué a l’ennemi.

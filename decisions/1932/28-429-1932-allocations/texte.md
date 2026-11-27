@@ -1,3 +1,0 @@
-il est accordé une allocation, de 50 francs par mois, pour frais d’études, au nommé Abdillahi Liban, fils de l’ex-sergent Liban Erey, décédé.
-Cette allocation sera payée mensuellement, à compter du 1° juillet 1932, au nommé Doalé Ali, chargé d’assurer la nourriture et l’entretien de Abdillahi, sur la présentation d’un certificat de scolarité et d’assiduité délivré par le directeur de l’école laïque à Djibouti. Pendant les vacances scolaires, ce certificat ne sera pas exigé.
-La décision accordant au sergent Liban Erey un secours annuel de 1.200 franes est et demeure rapporiée, pour compter du 1er juillet 1932.

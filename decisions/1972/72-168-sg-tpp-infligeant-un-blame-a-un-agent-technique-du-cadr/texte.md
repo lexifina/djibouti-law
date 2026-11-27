@@ -1,1 +1,0 @@
-Un blâme est infligé à M. Djama Guedi Afdeb, agent technique du cadre territorial en service au port de commerce de Djibouti pour «absences irrégulières. non motivées et retards répétés à l’arrivée au travail ».

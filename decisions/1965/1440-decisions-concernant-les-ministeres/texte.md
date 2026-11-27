@@ -1,1 +1,0 @@
-Le gendarme Trotabas (Louis) est chargé de l’expédition des affaires courantes du Commissariat de police de Djibouti,durant l’absence de l’adjudant Grand-Moursel (Guy), titulaire d’une permission du 28 aoûtau 17 septembre 1965.

@@ -1,1 +1,0 @@
-Le nommé Mohamed Houmed, Dankali, est affecté au Service de l’enseignement comme coolie de l’école de Tadjourah, au traitement mensuel global de quatre cent quatre-vingts francs, pour compter du 1er octobre 1946.

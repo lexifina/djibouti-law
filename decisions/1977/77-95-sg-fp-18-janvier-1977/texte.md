@@ -1,2 +1,0 @@
-M. Hassan Omar Dirieh, infirmier D.E. de 1re classe, 1er échelon, du cadre territorial de la Santé Publique, assurant les fonction d’aide-anesthésiste à l’hôpital Peltier, est autorisé à poursuivre un stage de perfectionnement professionnel à l’hôpital Baujon à Paris, dans le département de réanimation.
-A la fin de son stage, M. Hassan Omar Dirieh devra servir l’Administration du Territoire pendant une période de cinq années, faute de quoi, il devra rembourser au Territoire la totalité des frais engagés pour ses études.

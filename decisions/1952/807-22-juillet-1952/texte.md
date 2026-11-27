@@ -1,1 +1,0 @@
-Est admise à bénéficier à nouveau de l’augmentation de salaire prévue par l’article 9 de l’arrêté n° 235 susvisé, l’infirmière auxiliaire 1er catégorie, après 4 ans de service, ci-après désignée : Mme. Maas (Margaret), en religion Soeur Elisabeth de la Tri nité, pour compter du 1er janvier 1952.

@@ -1,1 +1,0 @@
-le nommé Mohamed Farchjhey, A rabe musulman, sans nationalité connue, est expulsé de la Côte française des Somalis et devra quitter le territoire de la colonie, qui lui reste interdit. ainsi aue celui de ses dépendances.

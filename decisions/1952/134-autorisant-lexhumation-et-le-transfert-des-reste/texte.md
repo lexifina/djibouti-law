@@ -1,2 +1,0 @@
-1° Les restes mortels du caporal Andrianarivelo Jacques, décédé le 24 novembre 1945 et inhumé au cimetière de Djibouti seront transférés au cimetière d’Ankadikoly, District de Tananarive, Canton de Hafy (Madagascar) ;
-2° Les dépenses occasionnées par l’exhumation et le transfert des restes mortels du défunt jusqu’au lieu de réinhumation seront réglées par les soins du Ministère des Anciens Combattants et Victimes de la Guerre.

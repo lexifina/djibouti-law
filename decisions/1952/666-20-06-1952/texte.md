@@ -1,1 +1,0 @@
-Le sergent de l’infanterie coloniale Jacquemin (René), désigné pour servir « hors cadres » en Côte Française des Somalis et arrivé à Djibouti le 13 juin 1952, est affecté à la Milice de la C.F.S. (1er compagnie, Dikhil) pour compter du jour de son débarquement.

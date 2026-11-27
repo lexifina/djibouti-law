@@ -1,2 +1,0 @@
-les décisions du 3 juillet 1930, allouant une indemnité de permanence aux plantons en service au cabinet du gouverneur, et du 23 décembre 1931, portant augmentation de l’indemnité de permanence allouée au personnel susvisé, sont rapportées en ce qui concerne Djama Hassen, planton de 1re classe.
-Une indemnité mensuelle de permanence de 40 Francs est accordée au planton de 1re classe Djama Hassen, en service au cabinet du gouverneur pour compter du 1er octobre 1932.

@@ -1,1 +1,0 @@
-M. Ismael Hersi, commis contractuel des douanes, est versé dans le cadre administratif créé par l’arrêté susvisé en qualité de commis de 1re classe des douanes (17e échelon), avec une ancienneté conservée de 1 an 3 mois, au 1er janvier 1947.

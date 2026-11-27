@@ -1,1 +1,0 @@
-Mlle Jane Georges-Richard, titulaire du certificat d’études secondaires et du diplôme commercial de l’Académie dactylographique de France, a été employée à la trésorerie au salaire mensuel de 1.500 francs, en qualité d’auxiliaire, à compter du 15 octobre 1933.
