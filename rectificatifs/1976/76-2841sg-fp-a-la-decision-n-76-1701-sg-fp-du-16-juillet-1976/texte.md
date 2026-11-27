@@ -1,1 +1,0 @@
-À l’article 1er de la décision n° 76-1701 SG/FP du 16 juillet 1976 portant intégration de M. Abdallah Guedi Al, agent d’exploitation qualifié, et son admission à la retraite, ajouter «Principal – 3e échelon» à «M. Abdallah Guëdi agent d’exploitation qualifié ».

@@ -1,1 +1,0 @@
-M. Michel Lionet, médecin de 2° classe hors cadre, médecin chef du Dispensaire du cercle d’Obock, est chargé de l’expédition des affaires courantes dudit cercle pendant l’absence de M. Roger Moreigne.

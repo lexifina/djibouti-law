@@ -1,1 +1,0 @@
-M. Meunier (Stéphane), ingénieur principal de 2e classe du cadre général des travaux publics des colonies, chef du service des travaux publics de la Côte française des Somalis. est placé dans la position de mission en France, pour une durée de trois mois, à compter du jour de son débarquement dans la métropole.

@@ -1,1 +1,0 @@
-M. Renaud (René), inspecteur de 2e classe de la Sûreté nationale, en service détaché en Côte Française des Somalis,, officier de Police Judiciaire, auxiliaire du Procureur de la République, prêtera serment conformément à la loi.

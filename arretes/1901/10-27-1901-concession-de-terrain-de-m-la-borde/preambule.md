@@ -1,3 +1,0 @@
-# Préambule
-_ Article Premier. — Il est fait concession définitive à M. Laborde, Directeur du Comptoir de Djibouti, des six lots de terrain situés sur la route d’Ambouli dont ils sont distants de 10 mètres, partant de la grande place du village de Bender-Gueddid, placés à la suite les uns des autres, sur une longueur de 146 m. 20 à l’Est, 151 m. 50 à l’Ouest, de 17 m. au Nord, et 52 m. 40 au Sud, défalcation faite des cinq ruelles de 7 m. séparant chaque lot.
-Art. ?.— La Colonie ne fournit au concessionnaire aucune garantie contre les troubles, évictions ou revendications des tiers, non plus que pour la contenance indiquée au plan.

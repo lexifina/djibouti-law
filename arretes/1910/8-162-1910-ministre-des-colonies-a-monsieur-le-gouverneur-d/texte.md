@@ -1,4 +1,0 @@
-Les comptes définitifs du budget de la Colonie que vous administrez parviennent au Département après leur approbation en Conseil d’Administration c’est-à-dire plus de 6 mois après la clôture de chaque exercice.
-D’autre part, les relevés mensuels de la situation financière surtoutceux quiconcernent le dernier mois de l’exercice, me sont également adressés trop tardivement.
-Il résulte de ces lenteurs que je ne suis pas en mesure, au moment de la discussion du budget colonial, de connaître et de fournir éventuellement aux membres du Parlement les résultats du dernier exercice clos pour la Colonie dont vous avez la direction.
-En vue de remédier à cet inconvénient, j’ai l’honneur de vous prier de vouloir bien m’adresser annuellement, et de façon à ce qu’il arrive à Paris dans le courant du mois d’octobre au plus tard, un état conforme au modèle ci-joint, des résultats généraux de l’exercice écoulé pour le Budget de la Colonie.

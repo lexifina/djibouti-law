@@ -1,1 +1,0 @@
-par décision du Gouverneur en date du 19 juin 1906, M. Paul Patté, Secrétaire Général des Colonies cessera, à compter du 19 juin 1906, date d’arrivée dans la Colonie du Gouverneur titulaire. de remplir les fonctions de Gouverneur par intérim il repren ra. à compter du même jour, les fonctions de Secrétaire Général

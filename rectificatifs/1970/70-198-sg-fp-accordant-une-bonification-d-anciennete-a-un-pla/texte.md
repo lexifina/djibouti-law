@@ -1,2 +1,0 @@
-Une bonofication d’ancienneté civile de 7 mois est accordée à M. Doubad Wais Bouh, planton de 1″ classe, 2e échelon du Cadre territorial de l’Administration générale, en service à l’Enseignement (Ministère de l’Enseignement, des Sports et de a Jeunesse).
-Compte tenu de cette bonification, M. Doubad Wais Bouh est classé, pour compter du l°’ juin 1969, planton de 1er classe, 3e échelon, ancienneté civile épuisée,

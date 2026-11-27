@@ -1,2 +1,0 @@
-# Préambule
-Arl. 1er. — Est rendue exécutoire la dé libération du Conseil représentatif de la Côte française des Somalis en date du 21 janvier 1919 relative a la concession définitive a titre onéreux faite au cheik Omar Al-Azhary, demeurant et domicilié a Addis-Abéba, d’une parcelle de terrain d’une superficie de deux mille dix mètres carrés (2.010 m2), immatriculée au Livre foncier de la colonie au nom de l’Etat français, sous le n° 207 pour partie dudit titre.

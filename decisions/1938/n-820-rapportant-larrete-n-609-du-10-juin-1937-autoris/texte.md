@@ -1,1 +1,0 @@
-L’uvrôté n° 609 du 10 juin 1937 autorisant le sjeur Abdallah Houssein Ali Nour à occuper un terrain domanial non loti d’une supervie de 1.250 mètres carrés, sis à l’est de la route d’Ambouli, est rapporté purement et simplement

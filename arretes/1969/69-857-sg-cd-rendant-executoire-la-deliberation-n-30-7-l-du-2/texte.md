@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 30/7° L du 20 mai 1969 de la Chambre des Députés du Territoire Français des Afars et des Issas régularisant la mission d’information effectuée en Métropole par M. Idriss Farah Abané, membre de la Chambre des Députés.

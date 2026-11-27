@@ -1,4 +1,0 @@
-Art, 1er — Le sieur Mohamed Hanil est autorisé à céder à la dame Zarah Bint Abdallah Hummed Cadi, les droits provisoires qu’il détient sur une parcelle de terrain 194 55. sise à Bender-Djedic droit qui lui ont étlé concédés par arrté du 10 mai 1924.
-Art 2 — Le titre définitif de propriété ne pourra être délivré à la dame Zarah Bint Abdallah Hummed Cadi, que lorsqu’’elle aura fait procéder à l’immatriculation de la concession au â »ln re foncier de la colonie.
-Art -3— Du seul fait de l’acceptation de la présente autorisation ‘la dame Zarah Bint Abdallah Hummed, prend l’engagement formel de se ÎsonmæUw ‘aux lois, décrets arrêtés et réclements en vigueur ou à intervenir, concernant tant les concessions que la voirie et l’alignement.
-Art 4— Le présent arrété sera enrecistiré publié, communiqué parlout! où besoin sera inséré au Journa! de la Colonie.

@@ -1,1 +1,0 @@
-M. Saleh Omar Ildid, rédacteur de 2° classe, 2° échelon, du cadre territorial de l’administration générale, adjoint au Commandant de Cercle d’Ali-Sabieh, est, cumulativement avec ses fonctions actuelles, chargé de l’expédition des affaires courantes du Cercle d’Ali-Sabieh, pendant la durée d’absence de M. Roger Gloagen.

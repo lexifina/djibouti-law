@@ -1,1 +1,0 @@
-M. Mirhan Mouradian est mis en demeure de se conformer, dans un délai de trois mois, aux prescriptions de l’arrêté du 2 décembre 1913 lui accordant la concession provisoire des lots n° 221, 222, 223, 224 du Plateau du Serpent, faute de quoi il sera déchu de ses droits sur lesdits lots.

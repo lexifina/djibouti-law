@@ -1,1 +1,0 @@
-Il est fait retour, au Domaine du Territoire, d’une parcelle de terrain, sise à Djibouti, boulevard Bonhoure (lots n° 3 et 4) et immatriculée au Livre foncier du Territoire sous le n° 818 du 30 septembre 1961 de la Commission permanente de l’Assemblée Territoriale, le concessionnaire n’ayant pas réalisé la mise en Valeur de ladite parcelle dans le délai prévu.

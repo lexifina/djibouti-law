@@ -1,2 +1,0 @@
-M. C. Rhigas, négociant à Djibouti, à entreprendre et à poursuivre, pendant la duree d’une année, à dater du présent permis, des explorations dans la région dont l’étendue et les limites sont fixées par la demande présentée et le croquis y annexé.
-Le permissionnaire, en ce qui concerne les droits qui peuvent lui compléter et les oblications qui lui incomberont, sera tenu de se conformer strictement à toutes les prescriptions du décret du 6 juillet 1899 et notamment à celles du titre II du dit décret.

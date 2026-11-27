@@ -1,8 +1,0 @@
-Au sujet des fonctionnaires rentrant en congé et ne pouvant être renvoyés dans la colonie où ils sont en service.
-Le Ministre des Colonies à Messieurs les Gouverneurs généraux de l’Indo-Chine, de L’Afrique Occidentale Française, de Madagascar, le Commissaire Géncral dans les possessions du Congo français et Dépendances, les Gouverneurs des Colontes et l’Administrateur des Îles St-Pierre et Miquelon.
-Ministère des Colonies.— Direction du Personnel.— 1er Bureau.
-Des fonctionnaires rentrant en France, en congé, sont parfois signalés par le Conseil de santé de la Colonie d’où ils proviennent comme. inaptes physiquement à continuer leurs services dans cette possession, Or, le plus souvent, cette indication figure seulement sur le certificat constatant les résultats de la visite subie par les intéressés avant leur embarquement.
-Cette pièce ne parvient d’ailleurs pas toujours au Département et, même dans le cas de sa transmission, il y a encore lieu de craindre que la mention relative à l’inaptitude du fonctionnaire au service colonial passe inaperçue, alors que rien ne la signale à l’attention.
-résulte que des agents, dont le retour dans la colonie est de nature à présenter des inconvénients, peuvent ètre invités à rallier leur poste.
-En vue de rendre impossible celle éventualité, j’ai l’honneur de vous prier de me signaler à l’avenir, par lettre spéciale, tous les fonctionnaires el agents qui, pour raison de santé, ne paraissent pas devoir être renvoyés dans la colonie à l’expiration de leur congé.
-Vous voudrez bien observer scrupuleusement cette prescription et m’accuser réception de la présente circulaire.

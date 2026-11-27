@@ -1,2 +1,0 @@
-Art, 1er. — Est rendue exécutoire la délibération du Conseil représentatif de la Côte française des Somalis, en date du 13 avril 1949, relative À la concession définitive à M. Farah Samatar, demeurant
-et domicilié à Djibouti, d’une parcelle de terrain d’une superficie de 117 m2 12, sise à Djibouti, formant le lot n° 3 de la place Arthur-Rimbaud, immatriculée au Livre foncier sous le n° 186, qui lui a été accordée en concession provisoire par arrêté n° 271 du 13 mars 1948.

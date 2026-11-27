@@ -1,2 +1,0 @@
-M. Charmetant à entreprendre et à poursuivre des explorations dans la région, dont l’étendue et les limites sont fixées par la demande présentée et le croquis y annexé.
-sai Le permissionnaire, en ce qui concerne les droits qui peuvent lui compéter et les obligations qui lui incomberont, sera tenu de se conformer strictement à toutes les prescriptions du décret du 6 Juillet 1899 et notamment à celles du titre II du dit décret.

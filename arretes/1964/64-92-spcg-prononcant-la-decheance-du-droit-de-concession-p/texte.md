@@ -1,1 +1,0 @@
-Il est fait retour, au Domaine du Territoire, d’une parcelle de terrain sise à Djibouti, plateau du Marabout (lot n° 560), ce en application de l’article 5 de la délibération n° 57/6e L du 27 mars 1964 de la Commission permanente de l’Assemblée Territoriale, le concessionnaire n’ayant pas acquitté le prix fixé dans le délai prévu.

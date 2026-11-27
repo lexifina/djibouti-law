@@ -1,1 +1,0 @@
-M. Ferry Robert, chef du bureau des Statistiques et de Documentation, est, cumulativement avec ses fonctions, chargé de l’expédition des affaires courantes du Service des Affaires économiques et de l’Office d’Approvisionnement des Magasins-Témoins, pour compter du 26 juillet 1974, et pendant l’absence de MM. Vernhet et Houmed Aboubaker, titulaires d’un congé.

@@ -1,1 +1,0 @@
-_ M. Artaxet est autorise à acquérir une parcelle terrain non bâti, d’une superficie de 6.000 m2, sise à Djibouti, lotissement de la Zone industrielle Sud et faisant partie d’un terrain plus vaste immatriculé au Livre foncier du Territoire, sous le n° 1263 au nom de M. Joachim Moustris.

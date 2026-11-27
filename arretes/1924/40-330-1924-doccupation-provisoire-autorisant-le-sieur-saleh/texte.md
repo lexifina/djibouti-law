@@ -1,5 +1,0 @@
-Le sieur Saleh Ahmed demeurant à Bender Djedid est autorisé à occuper à titre précaire et révocable, au village de Bender Djedid une parcelle de terrain de forme rectangulaire, d’une superficie de 158 m2. 20 environ, mesurant 11 m. 30 de longueur sur 14 m. de largeur et bornée au nord par l’avenue n°5, au sud par un terrain libre la séparant de l’avenue n° 6, à l’ouest par le boulevard no 24 et à l’est par le terrain vague de Boulaos.
-L’alignement sera donné par le service des travaux publics après paiement au commissariat de police du droit fixe de cinq francs prévu par l’arrêté du 23 juin 1900.
-Le présent permis est personnel et ne peut être transféré sans l’agrément de l’administration .
-La parcelle occupée doit recevoir, dans le délai de trois mois à dater de ce jour, une maison en planches dont les dimensions seront proportionnées au nombre d’individus à abriter.
-L’administration se réserve expressément le droit de retirer la présente autorisation lorsque l’intérêt public ou toutes autres circonstances, qu’elles qu’elles soient, l’exigeront sans que le bénéficiaire puisse prétendre à une indemnité quelconque.

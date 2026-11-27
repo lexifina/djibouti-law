@@ -1,1 +1,0 @@
-Il est fait concession définitive à M. Abdi Dembil Egal, ministre de la Production et de l’Elevage, demeurant à Djibouti, d’une parcelle de terrain sise à Djibouti, Plateau du Serpent (lot n° 413) et immatriculée aw Livre foncier sous le n° 832.

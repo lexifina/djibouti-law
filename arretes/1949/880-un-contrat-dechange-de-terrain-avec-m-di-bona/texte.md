@@ -1,2 +1,0 @@
-Art 1er : Est rendue exécutoire la délibération du Conseil représentatif de la Côte française des Somalis en date du 26 uillet 19 {9 fs relat ive à un contrat d’échange de terrain entre la colonie et M. Di Bona (Salvator), à Djibouti, pour rectification du titre foncier n° 59 au plateau du Serpent (aménagement de l’ilot n°5)
-Art 2, ne Le présent arrété scra inséré au Journal officiel de la colonie, enregistré et publié partout où besoin sera.

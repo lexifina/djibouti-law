@@ -1,2 +1,0 @@
-ART. L La concession provisoire accordée à Ambouli au sieur Mokbel, par arrêté du 21 Novembre 1903, est transformée en concession détinitive.
-ART . 2. — Les formalités d’enregistrement et de transeriplion du présent arrèté seront remplies aux frais du concessionnaire et par ses soins, dans le délai d’un mois, à compter de la date du présent arrêté qui sera publié, communiqué et enregistré partout où Hesoin sera.

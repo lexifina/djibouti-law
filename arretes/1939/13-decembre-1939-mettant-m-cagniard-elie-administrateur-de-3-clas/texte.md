@@ -1,1 +1,0 @@
-Par arrêté du Ministre des colonies en date du 13 décembre 1959, M. Cagniard (Elie), administrateur de 4° classe des colonies, en service Madagascar, ax été mis à la disposition du Gouverneur de la Côte francaise des Somalis à compter de la veille du jour de son embaraueméent à destination de sa nouvelle colonie d’affectation.

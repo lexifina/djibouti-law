@@ -1,1 +1,0 @@
-M. Jacques Martin, compositeur-typographe contractuel, est, pour compter du 3 septembre 1974 et jusqu’à la date d’arrivée au Territoire de M. André Deloof, chargé de l’expédition des affaires courantes du Service de l’Imprimerie administrative, en remplacement de M. Jacques Mahaut qui a quitté définitivement le Territoire.

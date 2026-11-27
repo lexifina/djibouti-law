@@ -1,2 +1,0 @@
-# Préambule
-Délivrance des warrants

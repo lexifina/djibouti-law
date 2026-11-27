@@ -1,2 +1,0 @@
-# Préambule
-Art, 1er. — Est rendue exécutoire la délibération du Conseil représentatif de la Côte française des Somalis en date du 22 décembre 1948 relative à la concession provisoire à titre onéreux faite à la Société « Union iCommcrciale et Industrielle de Djibouti », de rois parcelles de terrain d’une superficie globale de 779 mètres carrés, sises an quartier de l’Ancien-Abattoir (lots n°12 et 13, et ruelle comprise entre les lois n° 8 et 13), (elles au surplus qu’elles sont figurées au plan ci-annexé.

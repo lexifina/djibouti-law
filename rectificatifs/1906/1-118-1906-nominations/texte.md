@@ -1,1 +1,0 @@
-Le lot accordé au nommé Xavier Idlé par arrêté n° 172 du 15 juin 1906 porte le n° 75 du plan cadastral de Djibouti et a été désigné par erreur sous le n° 315 dans le Journal Officiel n° 116 du 1er juillet 1906.er

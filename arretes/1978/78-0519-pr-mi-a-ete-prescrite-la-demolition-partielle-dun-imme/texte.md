@@ -1,1 +1,0 @@
-Article ler. – L’immeuble sis à Djibouti, avenue 13, numéro 26, titre foncier n° 503, appartenant à M. Saïd Farah, dont l’état de délabrement risque par effondrement de compromettre la sécurité publique devra être démoli complétement.

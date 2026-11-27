@@ -1,1 +1,0 @@
-M. Hano, directeur de la Société des salines, de retour de congé, reprend ses fonctions de membre suppléant du Conseil d’administration de la Côte française des Somalis, pour compter du 9 octobre 1938.

@@ -1,1 +1,0 @@
-M. le Dr Creignou, médecin major de 2 classe des Troupes coloniales, qui à terminé sa période de séjour réglementaire, prendra passage sur le paquebot des Messageries Maritimes qui passera à Djibouti le 43 juillet courant.

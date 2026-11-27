@@ -1,1 +1,0 @@
-M. Beyrand (Raymond), inspecteur de 3e classe du cadre local de police de la Côte Française des Somalis, officier de Police Judiciaire et auxiliaire du Procureur de la République, dans les limites de ses fonctions de Commissaire spécial de police de l’Aérroport, prêtera serment conformément à la loi.

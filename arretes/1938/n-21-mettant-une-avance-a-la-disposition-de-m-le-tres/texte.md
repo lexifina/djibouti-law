@@ -1,1 +1,0 @@
-Une avance de (rois cent mille francs est mise à la disposition de M. le payeur,receveur municipal de la commune mixtedel , pour permettre à cette collectivité de parer à ses premières dépenses vité de parer à ses premiersres dépenses

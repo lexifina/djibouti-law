@@ -1,2 +1,0 @@
-# Préambule
-Art 1er- Le Trésorier-Payeur est autorisé à faire emploi dans ses écritures de la sommie de six cent soixante francs montant de la patente à laquelle à été assujetti M. Croisier pendant les années 1914, 1915 et 1916, ce contribuable est en conséquen ce exonéré du pavement de ladite contribution, mais à titre purement gracieux et sans préjudice de son inscription définitive au Role de l’annee couranté.

@@ -1,1 +1,0 @@
-Par arreté du Ministre des colonies date du décembre 1939, M. Roussel (Adolphe-Auguste), adjoint principal de 2° classe des services civils des colonies, en service en Afrique occidentale francaise, a été mis à la disposition du Gouverneur de la Côte francaise des Somalis.

@@ -1,2 +1,0 @@
-# Préambule
-Art.- 1er — Est rendue exécutoire la délibération çlu Conseil représentatif de la Côte française des Somalis en date du 29 septembre 19501 relative à la concession provisoire à titre onéreux faite à M. Sarian, commerçant à Djibouti, d’une parcelle de terrain d’une superficie de 1.000 mètres carrés environ formant le lot 377 du plan cadastral du plateau du Marabout de Djibouti, telle au surplus qu’elle est figurée au plan annexé.

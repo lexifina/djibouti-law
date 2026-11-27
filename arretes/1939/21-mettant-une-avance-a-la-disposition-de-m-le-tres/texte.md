@@ -1,1 +1,0 @@
-Une avance de trois cent mille francs est mise à la disposition de M. le Trésorier-paveur,receveur municipal de la commune mixte de Djibouti, pour permettre à cette collectivité de parer à ses premières dépenses.

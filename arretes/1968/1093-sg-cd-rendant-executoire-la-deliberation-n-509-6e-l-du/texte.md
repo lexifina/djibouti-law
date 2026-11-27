@@ -1,1 +1,0 @@
-Est rendue exécutoire la délibération n° 509/6e I, du 6 juillet 1968 de la Commission permanente de la Chambre des Députés autorisant la Société V.H. Condayan (S.ARL.), à céder à M. le docteur Bouche, son droit de concession provisoire sur une parcelle de terrain, sise à Djibouti, angle des rues A. Bernard et P. Pascal (titre foncier n° 1048).

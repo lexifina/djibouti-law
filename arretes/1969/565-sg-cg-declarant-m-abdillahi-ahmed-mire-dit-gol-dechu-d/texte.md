@@ -1,2 +1,0 @@
-M. Abdillahi Ahmed Mire, dit GOL, est déchu de son droit de concession provisoire sur une parcelle de terrain, d’une superficie de 2.500 mètres carrés, sise à Djibouti-Boulaos, lot n° 9, du lotissement de l’Abattoir (titre foncier n° 1052), et ce, en application de l’article 5 de la délibération n° 262/0° L au 24 mai 1966 le concessionnaire n’ayant pas réalisé la mise en valeur de la dite parcelle de terrain dans le délai imparti.
-Le Domaine reprend la parcelle de terrain libre de tous droits et de toutes charges.

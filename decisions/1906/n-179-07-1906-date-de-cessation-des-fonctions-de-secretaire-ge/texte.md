@@ -1,1 +1,0 @@
-Par décision du Gouverneur en date du 19 juin 1906, M Vennat, Sous-Chef de bureau de et des secrélariats Généraux des Colonies cessera à compter du 19 juin de remplir les fontions de Secrétaire Général pi. et costinuera à être chargé de la direction du bureau des Finances.

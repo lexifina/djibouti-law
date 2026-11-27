@@ -1,3 +1,0 @@
-# Préambule
-Art, 1°, — Il est attribué en toute propriété aux héritiers de Judas Menahem Mécha et de Menahem Mécha Ménahem Mécha et MM, Salem Mécha et Tob Meécha une parcelle de terrain d’une superficie de 215 mq. 60 attenante au lot n° 11 du plateau de Djibouti, déclassée du domaine publie par arrète du 27 avril 1940, moyennant le payement à la caisse du receveur des domaines, dans les vingt jours de la date d’approbation du présent arrété, d’une
-somme de vingt-quatre mille sept cent quatre-vingt-quatorze franes (CHA Franes), représentant la valeur du terrain à raison de 115 francs le metre carré.
