@@ -19,7 +19,9 @@ de 1 000 entrées. Chaque texte a un fichier par article (`art-001.md`, `art-012
 (titre, numéro du Journal officiel, visas, signature).
 
 Les mesures individuelles (nominations, carrières, congés, décorations, attributions nominatives) et les circulaires
-ne sont pas reprises : ce ne sont pas des règles de droit.
+ne sont pas reprises : ce ne sont pas des règles de droit. Les décisions et délibérations ne sont reprises que si
+leur intitulé montre une règle (fixant, réglementant, portant création ou organisation, tarifs, budgets, modifiant…) ;
+les décisions du Conseil constitutionnel sont dans un dépôt distinct de jurisprudence.
 
 ## Dates
 
