@@ -13,6 +13,17 @@
 | `accords/<année>/` | Accords, conventions et protocoles publiés au Journal officiel |
 | `rectificatifs/<année>/` | Rectificatifs, errata et additifs |
 
+Le Code civil et le Code de commerce, trop longs pour un seul dossier, sont rangés par livre et par titre :
+`codes/code-civil/livre-1/` (art. 1 à 649), `livre-2/` (art. 650 à 813) et `livre-3/titre-01/` à `titre-21/`
+(art. 814 à 2411), selon les intitulés de livre et de titre du code ; `codes/code-de-commerce/livre-<A>/titre-<B>/`
+selon le numéro de l'article, qui porte le livre et le titre (L.2214-1 : livre 2, titre 2 ; les numéros à trois
+chiffres, comme L.301-1, sont dans `livre-<A>/`).
+
+La Constitution (`constitution/`) est le texte publié par la Présidence, qui intègre la révision faite par la loi
+constitutionnelle n° 192/AN/25/9ème L du 6 novembre 2025 (Journal officiel n° 05 du 6 novembre 2025) : en vigueur le
+7 novembre 2025, lendemain de cette publication. Son premier commit portait le jour où la page a été lue
+(29 octobre 2026) ; un commit `Kind: correction` donne la vraie date.
+
 Une année qui compte plus de 1 000 textes est divisée par mois (`arretes/<année>/<mm>/`). Aucun dossier ne compte plus
 de 1 000 entrées. Chaque texte a un fichier par article (`art-001.md`, `art-012-bis.md`, `art-unique.md`), un
 `preambule.md` pour ce qui précède le premier article, ou un seul `texte.md` s'il n'a pas d'articles, et un `README.md`
@@ -41,14 +52,15 @@ trailer `In-force:`. `In-force-basis:` dit d'où vient ce jour :
 Les textes qui ne viennent pas d'une source officielle portent le trailer `Source-status: secondary copy (...)` ;
 `Text-source: publisher OCR` signale une couche texte issue d'un OCR fait par l'éditeur du PDF (jamais par nous).
 
-Aucune date de ce dépôt n'est le jour où nous avons lu une page, sauf le premier commit de `constitution/`, daté du jour
-où le texte de la Présidence a été lu (la page ne donne pas de date). Un texte sans numéro du Journal officiel ni date
+Aucune date de ce dépôt n'est le jour où nous avons lu une page (le premier commit de `constitution/` l'était ; il est
+corrigé, voir ci-dessus). Un texte sans numéro du Journal officiel ni date
 propre est retenu (non publié). Avant 1970, que git ne sait pas dater, le commit porte le 1er janvier 1970 et le vrai
 jour figure dans le titre et le trailer `In-force:`.
 
 # Structure (English)
 
-`constitution/`, `codes/<code>/`, `lois/<year>/<no>-an-<yy>-<subject>/`, `ordonnances/<year>/`, `decrets/<year>/`,
+`constitution/`, `codes/<code>/` (Code civil and Code de commerce by `livre-N/` and `titre-NN/`, from the code's own
+headings and article numbers), `lois/<year>/<no>-an-<yy>-<subject>/`, `ordonnances/<year>/`, `decrets/<year>/`,
 `arretes/<year>/`, `decisions/<year>/`, `deliberations/<year>/`, `accords/<year>/`, `rectificatifs/<year>/`; one file
 per article. Dates: noon Africa/Djibouti on the in-force day; `In-force-basis` is `fixed-in-text`, `signature`,
 `publication` or `day-after-publication` (Code civil art. 1, for texts published after the 2018 Code civil).
