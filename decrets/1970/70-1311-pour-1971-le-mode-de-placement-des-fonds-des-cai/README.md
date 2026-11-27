@@ -1,6 +1,6 @@
 # Décret n° 70-1311/ fixant pour 1971 le mode de placement des fonds des caisses d’épargne des territoires d’outre-mer äutres que les Comotres (J.O.R.F. du 1-1-1971- page 35) [promulguée par arrêté n° 46. .SLAG du 21-1-1971]
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1311-fixant-pour-1971-le-mode-de-placement-des-fonds-des-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comotres-j-o-r-f-du-1-1-1971-page-35-promulgue/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/02/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1311-fixant-pour-1971-le-mode-de-placement-des-fonds-des-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comotres-j-o-r-f-du-1-1-1971-page-35-promulgue/>
 
 En vigueur : 1971-02-10 (date du Journal officiel qui le publie).
 

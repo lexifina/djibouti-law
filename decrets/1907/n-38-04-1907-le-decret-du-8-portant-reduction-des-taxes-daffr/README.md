@@ -1,6 +1,6 @@
 # Décret n° 38-04-1907 le décret du 8 portant réduction des taxes d’affranchissement des colis postaux à destination de la Perse, de l’Inde Portugaise, de la Rhodésie el de Somaliland acheminés par li voie de l’Inde Britannique,.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 125 du 01/04/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-38-04-1907-le-decret-du-8-portant-reduction-des-taxes-daffranchissement-des-colis-postaux-a-destination-de-la-perse-de-linde-portugaise-de-la-rhodesie-el-de-somaliland-achemines-p/>
+Décret · Journal officiel de la République de Djibouti, n° 125 du 01/04/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-38-04-1907-le-decret-du-8-portant-reduction-des-taxes-daffranchissement-des-colis-postaux-a-destination-de-la-perse-de-linde-portugaise-de-la-rhodesie-el-de-somaliland-achemines-p/>
 
 En vigueur : 1907-04-01 (date du Journal officiel qui le publie).
 

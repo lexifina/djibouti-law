@@ -1,6 +1,6 @@
 # Décret n° 81- 028/PR relatifs aux primes de qualification de la FNS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-028-pr-relatifs-aux-primes-de-qualification-de-la-fns/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-028-pr-relatifs-aux-primes-de-qualification-de-la-fns/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 70-632 relative à une contribution nétionale à l’indemnisatiôn des Français dépossédés de biens situés dans un territoire antérieurement placé sous la souveraineté le protectorat ou la tutelle de la France (JORF. du 3 novembre 1970, p. 10149)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 25/11/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-632-relative-a-une-contribution-netionale-a-lindemnisation-des-francais-depossedes-de-biens-situes-dans-un-territoire-anterieurement-place-sous-la-souverainete-le-protector/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 25/11/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-632-relative-a-une-contribution-netionale-a-lindemnisation-des-francais-depossedes-de-biens-situes-dans-un-territoire-anterieurement-place-sous-la-souverainete-le-protector/>
 
 En vigueur : 1970-11-25 (date du Journal officiel qui le publie).
 

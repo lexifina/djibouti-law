@@ -1,6 +1,6 @@
 # Décret n° 2020-067PR/MEFI relatif à l’agrément d’une société d’assurance islamique Tamini insurance SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-067pr-mefi-relatif-a-lagrement-dune-societe-dassurance-islamique-tamini-insurance-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-067pr-mefi-relatif-a-lagrement-dune-societe-dassurance-islamique-tamini-insurance-sa/>
 
 En vigueur : 2020-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

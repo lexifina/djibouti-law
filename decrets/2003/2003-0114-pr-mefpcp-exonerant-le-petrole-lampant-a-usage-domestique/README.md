@@ -1,6 +1,6 @@
 # Décret n° 2003-0114/PR/MEFPCP exonérant le pétrole lampant à usage domestique et utilisé pour la cuisine de surtaxe et redevance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0114-pr-mefpcp-exonerant-le-petrole-lampant-a-usage-domestique-et-utilise-pour-la-cuisine-de-surtaxe-et-redevance/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0114-pr-mefpcp-exonerant-le-petrole-lampant-a-usage-domestique-et-utilise-pour-la-cuisine-de-surtaxe-et-redevance/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 09-452-1934 08 juin 1935
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 452 du 31/07/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-452-1934-08-juin-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 452 du 31/07/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-452-1934-08-juin-1935/>
 
 En vigueur : 1934-07-31 (date du Journal officiel qui le publie).
 
@@ -27,5 +27,5 @@ GERMAIN-MARTIN,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

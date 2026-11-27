@@ -1,8 +1,8 @@
 # Décret n° 2005-0053/PRE abrogeant le décret n° 2004-0026 relatif à l’approbation du Contrat d’Aménagement Urbain de la Zone Haramous.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0053-pre-abrogeant-le-decret-n2004-0026-relatif-a-lapprobation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0053-pre-abrogeant-le-decret-n2004-0026-relatif-a-lapprobation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
 
-En vigueur : 2005-04-18 (date fixÃ©e par le texte).
+En vigueur : 2005-04-18 (date fixée par le texte).
 
 ## Visas
 

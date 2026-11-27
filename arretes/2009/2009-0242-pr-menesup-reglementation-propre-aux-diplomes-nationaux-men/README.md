@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0242/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence Appliquée mention “Maintenance Industrielle”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0242-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-maintenance-industrielle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0242-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-maintenance-industrielle/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

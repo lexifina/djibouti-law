@@ -1,6 +1,6 @@
 # Décret n° 2017-373/PR/MENFP portant création, organisation, attributions et fonctionnement d’un Observatoire de la qualité des enseignements apprentissages.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-373-pr-menfp-portant-creation-organisation-attributions-et-fonctionnement-dun-observatoire-de-la-qualite-des-enseignements-apprentissages/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-373-pr-menfp-portant-creation-organisation-attributions-et-fonctionnement-dun-observatoire-de-la-qualite-des-enseignements-apprentissages/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

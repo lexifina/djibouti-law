@@ -1,6 +1,6 @@
 # Décret n° 11-475-1936 promutguant dauns la colonie le décret du 31 mai 1936, rendant applicables aux colonies le décret du 30 octobre 1935, modifiant l’article 254 du Code de justice millitaires
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-475-1936-promutguant-dauns-la-colonie-le-decret-du-31-mai-1936-rendant-applicables-aux-colonies-le-decret-du-30-octobre-1935-modifiant-larticle-254-du-code-de-justice-millita/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-475-1936-promutguant-dauns-la-colonie-le-decret-du-31-mai-1936-rendant-applicables-aux-colonies-le-decret-du-30-octobre-1935-modifiant-larticle-254-du-code-de-justice-millita/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Rectificatif n° 817 concernant les services d’Etat.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1961 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-817-concernant-les-services-detat/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 7 du 31/07/1961 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-817-concernant-les-services-detat/>
 
 En vigueur : 1961-07-31 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Article ler : Peuvent seules exercer la profession de médecin, de chirurgien dentiste en République de Djibouti, les personnes qui :
 A – De nationalité djiboutienne,
 a) sont munies d’un diplôme de docteur en médecine ou en chirurgie dentaire reconnus par la République de Djibouti ;

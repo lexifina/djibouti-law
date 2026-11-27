@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0474/PR/MERN portant modification des Tarifs de Vente d’Énergie Électrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0474-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0474-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2001-06-26 (date fixÃ©e par le texte).
+En vigueur : 2001-06-26 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0266/PR/MCC portant création d’un Comité de Préparation du Colloque National sur l’Information, la Communication et le Développement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0266-pr-mcc-portant-creation-dun-comite-de-preparation-du-colloque-national-sur-linformation-la-communication-et-le-developpement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0266-pr-mcc-portant-creation-dun-comite-de-preparation-du-colloque-national-sur-linformation-la-communication-et-le-developpement/>
 
 En vigueur : 2002-04-30 (date du Journal officiel qui le publie).
 

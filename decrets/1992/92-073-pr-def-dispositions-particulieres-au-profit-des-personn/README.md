@@ -1,6 +1,6 @@
 # Décret n° 92-073/PR/DEF portant dispositions particulières au profit des personnels recrutés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-073-pr-def-portant-dispositions-particulieres-au-profit-des-personnels-recrutes-2/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-073-pr-def-portant-dispositions-particulieres-au-profit-des-personnels-recrutes-2/>
 
 En vigueur : 1992-06-30 (date du Journal officiel qui le publie).
 

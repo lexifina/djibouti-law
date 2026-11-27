@@ -1,6 +1,6 @@
 # Décret n° 84-037/PR/INT portant exécutoire la délibération n° 1 /84 du 17 mars 1984 du conseil d’administration de l’Office de Postes et Télécommunications portant approbation de la première décision modificative du budget de l’office pour l’exercice 1984.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-037-pr-int-portant-executoire-la-deliberation-n1-84-du-17-mars-1984-du-conseil-dadministration-de-loffice-de-postes-et-telecommunications-portant-approbation-de-la-premiere/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-037-pr-int-portant-executoire-la-deliberation-n1-84-du-17-mars-1984-du-conseil-dadministration-de-loffice-de-postes-et-telecommunications-portant-approbation-de-la-premiere/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Le Conseil des Ministres entendu en sa séance du 17 avril 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

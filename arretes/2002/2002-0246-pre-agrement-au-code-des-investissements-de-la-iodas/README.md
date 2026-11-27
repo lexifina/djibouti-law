@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0246/PRE portant Agrément au Code des Investissements de la Iodase Salt Tranding Cie «I.S.T. Co».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0246-pre-portant-agrement-au-code-des-investissements-de-la-iodase-salt-tranding-cie-i-s-t-co/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0246-pre-portant-agrement-au-code-des-investissements-de-la-iodase-salt-tranding-cie-i-s-t-co/>
 
 En vigueur : 2002-04-15 (date du Journal officiel qui le publie).
 

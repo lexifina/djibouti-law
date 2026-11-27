@@ -1,6 +1,6 @@
 # Décret n° 2005-0045/PR/MID Arrêtant la liste des candidats et attribuant les emplacements réservés à l’affichage selon l’ordre de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 07/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0045-pr-mid-arretant-la-liste-des-candidats-et-attribuant-les-emplacements-reserves-a-laffichage-selon-lordre-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 07/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0045-pr-mid-arretant-la-liste-des-candidats-et-attribuant-les-emplacements-reserves-a-laffichage-selon-lordre-de-depot-des-candidatures/>
 
 En vigueur : 2005-04-07 (date du Journal officiel qui le publie).
 

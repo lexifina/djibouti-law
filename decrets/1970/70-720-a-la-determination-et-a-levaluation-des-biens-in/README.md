@@ -1,6 +1,6 @@
 # Décret n° 70-720 relatif à la détermination et à l’évaluation des biens indemnisables situés en Algérie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 10/09/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-720-relatif-a-la-determination-et-a-levaluation-des-biens-indemnisables-situes-en-algerie/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 10/09/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-720-relatif-a-la-determination-et-a-levaluation-des-biens-indemnisables-situes-en-algerie/>
 
 En vigueur : 1970-09-10 (date du Journal officiel qui le publie).
 

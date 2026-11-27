@@ -1,6 +1,6 @@
 # Loi n° 22/AN/13/7ème L portant Règlement Définitif du Budget de l’Etat pour l’Exercice 2012.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-13-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2012/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-13-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2012/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

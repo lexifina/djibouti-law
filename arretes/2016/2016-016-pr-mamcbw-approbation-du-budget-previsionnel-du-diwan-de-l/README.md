@@ -1,6 +1,6 @@
 # Arrêté n° 2016-016/PR/MAMCBW portant approbation du Budget Prévisionnel du Diwan de la Zakat pour l’exercice 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-016-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-de-la-zakat-pour-lexercice-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-016-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-de-la-zakat-pour-lexercice-2016/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

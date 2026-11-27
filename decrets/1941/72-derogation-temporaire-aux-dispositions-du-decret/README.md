@@ -1,6 +1,6 @@
 # Décret n° 72 portant dérogation temporaire aux dispositions du décret du 10 juillet 1920 sur ‘organisation du personnel des Administrateurs des Colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-portant-derogation-temporaire-aux-dispositions-du-decret-du-10-juillet-1920-sur-organisation-du-personnel-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-portant-derogation-temporaire-aux-dispositions-du-decret-du-10-juillet-1920-sur-organisation-du-personnel-des-administrateurs-des-colonies/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

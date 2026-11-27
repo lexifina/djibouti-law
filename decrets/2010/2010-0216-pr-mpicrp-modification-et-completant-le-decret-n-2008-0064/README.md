@@ -1,6 +1,6 @@
 # Décret n° 2010-0216/PR/MPICRP portant modification et complétant le décret n° 2008-0064/PRE modifiant le décret n° 2007-0117/PR/MEFPP portant organisation et fonctionnement du Fonds de Développement Economique de Djibouti et du Fonds de Garantie des prêts accordés aux promoteurs et jeu
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0216-pr-mpicrp-portant-modification-et-completant-le-decret-n2008-0064-pre-modifiant-le-decret-n2007-0117-pr-mefpp-portant-organisation-et-fonctionnement-du-fonds-de-de/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0216-pr-mpicrp-portant-modification-et-completant-le-decret-n2008-0064-pre-modifiant-le-decret-n2007-0117-pr-mefpp-portant-organisation-et-fonctionnement-du-fonds-de-de/>
 
 En vigueur : 2010-11-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2026-016/PR/MD rattachant la Caisse Militaire de Prévoyance Médicale à la CNSS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 29/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-016-pr-md-rattachant-la-caisse-militaire-de-prevoyance-medicale-a-la-cnss/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 29/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-016-pr-md-rattachant-la-caisse-militaire-de-prevoyance-medicale-a-la-cnss/>
 
 En vigueur : 2026-01-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

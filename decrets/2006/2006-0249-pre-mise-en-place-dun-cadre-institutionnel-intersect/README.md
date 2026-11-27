@@ -1,8 +1,8 @@
 # Décret n° 2006-0249/PRE portant mise en place d’un cadre institutionnel intersectoriel pour la Sécurité Alimentaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0249-pre-portant-mise-en-place-dun-cadre-institutionnel-intersectoriel-pour-la-securite-alimentaire/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0249-pre-portant-mise-en-place-dun-cadre-institutionnel-intersectoriel-pour-la-securite-alimentaire/>
 
-En vigueur : 2006-10-29 (date fixÃ©e par le texte).
+En vigueur : 2006-10-29 (date fixée par le texte).
 
 ## Visas
 

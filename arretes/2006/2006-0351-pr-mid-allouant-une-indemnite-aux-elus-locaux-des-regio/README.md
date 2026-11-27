@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0351/PR/MID allouant une indemnité aux élus locaux des régions durant l’atelier de formation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0351-pr-mid-allouant-une-indemnite-aux-elus-locaux-des-regions-durant-latelier-de-formation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0351-pr-mid-allouant-une-indemnite-aux-elus-locaux-des-regions-durant-latelier-de-formation/>
 
 En vigueur : 2006-05-15 (date du Journal officiel qui le publie).
 

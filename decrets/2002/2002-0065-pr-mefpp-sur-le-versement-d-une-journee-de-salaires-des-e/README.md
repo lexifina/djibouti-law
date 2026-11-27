@@ -1,6 +1,6 @@
 # Décret n° 2002-0065/PR/MEFPP portant sur le versement d’une journée de salaires des employés du secteur public et privé en faveur de la PALESTINE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0065-pr-mefpp-portant-sur-le-versement-dune-journee-de-salaires-des-employes-du-secteur-public-et-prive-en-faveur-de-la-palestine/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0065-pr-mefpp-portant-sur-le-versement-dune-journee-de-salaires-des-employes-du-secteur-public-et-prive-en-faveur-de-la-palestine/>
 
 En vigueur : 2002-05-15 (date du Journal officiel qui le publie).
 

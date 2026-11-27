@@ -1,6 +1,6 @@
 # Rectificatif n° 1467 à l’arrêté n° 1423 du le septembre 1965 relatif à l’élection sénatoriale
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1965 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1467-a-larrete-n-1423-du-le-septembre-1965-relatif-a-lelection-senatoriale/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 01/10/1965 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1467-a-larrete-n-1423-du-le-septembre-1965-relatif-a-lelection-senatoriale/>
 
 En vigueur : 1965-10-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 6-14-1900 portant réorganisation du cadre des Administrateurs coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 20/09/1900 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-14-1900-portant-reorganisation-du-cadre-des-administrateurs-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 20/09/1900 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-14-1900-portant-reorganisation-du-cadre-des-administrateurs-coloniaux/>
 
 En vigueur : 1900-09-20 (date du Journal officiel qui le publie).
 

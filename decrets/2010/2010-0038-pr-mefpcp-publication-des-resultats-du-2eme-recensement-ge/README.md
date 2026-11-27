@@ -1,6 +1,6 @@
 # Décret n° 2010-0038/PR/MEFPCP portant publication des résultats du 2ème Recensement Général de la Population et de l’Habitat de 2009.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0038-pr-mefpcp-portant-publication-des-resultats-du-2eme-recensement-general-de-la-population-et-de-lhabitat-de-2009/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0038-pr-mefpcp-portant-publication-des-resultats-du-2eme-recensement-general-de-la-population-et-de-lhabitat-de-2009/>
 
 En vigueur : 2010-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 11-215-1914 22 Août 1914
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 215 du 30/09/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-215-1914-22-aout-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 215 du 30/09/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-215-1914-22-aout-1914/>
 
 En vigueur : 1914-09-30 (date du Journal officiel qui le publie).
 

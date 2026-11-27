@@ -1,6 +1,6 @@
 # Décret n° 2008-0139/PR/MEFPCP portant transfert de propriété du Lotissement de Gabode III.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0139-pr-mefpcp-portant-transfert-de-propriete-du-lotissement-de-gabode-iii/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0139-pr-mefpcp-portant-transfert-de-propriete-du-lotissement-de-gabode-iii/>
 
 En vigueur : 2008-02-28 (date du Journal officiel qui le publie).
 

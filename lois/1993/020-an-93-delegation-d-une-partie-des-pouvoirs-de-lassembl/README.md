@@ -1,6 +1,6 @@
 # Loi n° 20/AN/93/3eme L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la commission permanente jusqu’a l’ouverture de la 1ere session ordinaire de 1993.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-93-3eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1993/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-93-3eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1993/>
 
 En vigueur : 1993-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0513/PR/MCCPT portant adoption du budget prévisionnel 2006 de la Poste de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0513-pr-mccpt-portant-adoption-du-budget-previsionnel-2006-de-la-poste-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0513-pr-mccpt-portant-adoption-du-budget-previsionnel-2006-de-la-poste-de-djibouti/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 02-411-1931 Régime financier des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 411 du 28/02/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-411-1931-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 411 du 28/02/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-411-1931-regime-financier-des-colonies/>
 
 En vigueur : 1931-02-28 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ GEFMAIN-MARTIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er– |
+| [art-001.md](art-001.md) | Art.1er |

@@ -1,6 +1,6 @@
 # Loi n° 146/AN/06/5ème L portant adoption des comptes financiers définitifs de la RTD pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-06-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-06-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2004/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0767/PR/MHUEAT portant Création du Comité National Ozone.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0767-pr-mhueat-portant-creation-du-comite-national-ozone/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0767-pr-mhueat-portant-creation-du-comite-national-ozone/>
 
 En vigueur : 2003-10-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2021-191/PR/MEFI relatif à l’organisation du 3ème recensement général de la population et de l’habitat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-191-pr-mefi-relatif-a-lorganisation-du-3eme-recensement-general-de-la-population-et-de-lhabitat/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-191-pr-mefi-relatif-a-lorganisation-du-3eme-recensement-general-de-la-population-et-de-lhabitat/>
 
-En vigueur : 2021-08-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-08-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -76,4 +76,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

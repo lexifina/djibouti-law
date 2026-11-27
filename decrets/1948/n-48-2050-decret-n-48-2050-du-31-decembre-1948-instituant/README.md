@@ -1,6 +1,6 @@
 # Décret n° n° 48-2050 le décret n° 48-2050 du 31 décembre 1948 instituant des mesures exceptionnelles et temporaires en vue de remédier à la crise du logement
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-48-2050-le-decret-n-48-2050-du-31-decembre-1948-instituant-des-mesures-exceptionnelles-et-temporaires-en-vue-de-remedier-a-la-crise-du-logement/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-48-2050-le-decret-n-48-2050-du-31-decembre-1948-instituant-des-mesures-exceptionnelles-et-temporaires-en-vue-de-remedier-a-la-crise-du-logement/>
 
 En vigueur : 1949-03-31 (date du Journal officiel qui le publie).
 

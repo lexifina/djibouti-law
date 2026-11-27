@@ -1,6 +1,6 @@
 # Décret n° 2002-0098/PRE portant création de l’Autorité de la Zone Franche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0098-pre-portant-creation-de-lautorite-de-la-zone-franche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0098-pre-portant-creation-de-lautorite-de-la-zone-franche-de-djibouti/>
 
 En vigueur : 2002-06-15 (date du Journal officiel qui le publie).
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

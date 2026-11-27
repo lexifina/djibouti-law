@@ -1,6 +1,6 @@
 # Décret n° 2018-089/PR/MI portant prolongation de fermeture des bureaux de vote pour les Elections Législatives du 23 février 2018.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 12/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-089-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote-pour-les-elections-legislatives-du-23-fevrier-2018/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 12/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-089-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote-pour-les-elections-legislatives-du-23-fevrier-2018/>
 
 En vigueur : 2018-03-12 (date du Journal officiel qui le publie).
 

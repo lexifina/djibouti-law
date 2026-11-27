@@ -1,6 +1,6 @@
 # Loi n° 42/AN/99/4ème L portant création d’un établissement public dénommé : « Radio Télévision de Djibouti ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-99-4eme-l-portant-creation-dun-etablissement-public-denomme-radio-television-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-99-4eme-l-portant-creation-dun-etablissement-public-denomme-radio-television-de-djibouti/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 94‑0020/PR/DEF portant modification de l’art. 5 du décret n° 93‑0077/PR/DEF du 12 août 1993 relative à la création de collecte solidarité au profit des handicapés et victimes de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910020-pr-def-portant-modification-de-lart-5-du-decret-n-93%e2%80%910077-pr-def-du-12-aout-1993-relative-a-la-creation-de-collecte-solidarite-au-profit-des-handicapes/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910020-pr-def-portant-modification-de-lart-5-du-decret-n-93%e2%80%910077-pr-def-du-12-aout-1993-relative-a-la-creation-de-collecte-solidarite-au-profit-des-handicapes/>
 
 En vigueur : 1994-02-15 (date du Journal officiel qui le publie).
 

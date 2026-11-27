@@ -1,8 +1,8 @@
 # Arrêté n° 2010-0753/PR/MET portant prolongement d’une année de la limitation du nombre de véhicules exerçant l’activité de taxis en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0753-pr-met-portant-prolongement-dune-annee-de-la-limitation-du-nombre-de-vehicules-exercant-lactivite-de-taxis-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0753-pr-met-portant-prolongement-dune-annee-de-la-limitation-du-nombre-de-vehicules-exercant-lactivite-de-taxis-en-republique-de-djibouti/>
 
-En vigueur : 2010-10-26 (date fixÃ©e par le texte).
+En vigueur : 2010-10-26 (date fixée par le texte).
 
 ## Visas
 

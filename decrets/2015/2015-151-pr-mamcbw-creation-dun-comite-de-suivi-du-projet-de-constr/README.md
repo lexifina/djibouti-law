@@ -1,6 +1,6 @@
 # Décret n° 2015-151/PR/MAMCBW portant création d’un comité de suivi du projet de construction des Archives Nationales et de la Bibliothèque Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-151-pr-mamcbw-portant-creation-dun-comite-de-suivi-du-projet-de-construction-des-archives-nationales-et-de-la-bibliotheque-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-151-pr-mamcbw-portant-creation-dun-comite-de-suivi-du-projet-de-construction-des-archives-nationales-et-de-la-bibliotheque-nationale/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

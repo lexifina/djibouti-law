@@ -1,6 +1,6 @@
 # Décret n° 22-407-1930 Frais de transport et de déplacement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-407-1930-frais-de-transport-et-de-deplacement/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-407-1930-frais-de-transport-et-de-deplacement/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ GTERMAIN-MARTIX.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

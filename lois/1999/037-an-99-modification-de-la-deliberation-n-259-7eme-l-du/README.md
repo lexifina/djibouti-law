@@ -1,6 +1,6 @@
 # Loi n° 37/AN/99/4ème L portant modification de la délibération n° 259/7ème L du 12 mai 1972 et instituant une Charte d’Hôtellerie Touristique en République de Djibouti
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-99-4eme-l-portant-modification-de-la-deliberation-n259-7eme-l-du-12-mai-1972-et-instituant-une-charte-dhotellerie-touristique-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-99-4eme-l-portant-modification-de-la-deliberation-n259-7eme-l-du-12-mai-1972-et-instituant-une-charte-dhotellerie-touristique-en-republique-de-djibouti/>
 
 En vigueur : 1999-05-31 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ ISMAIL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

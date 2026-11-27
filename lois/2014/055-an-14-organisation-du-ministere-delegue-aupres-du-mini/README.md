@@ -1,6 +1,6 @@
 # Loi n° 55/AN/14/7ème L portant organisation du Ministère délégué auprès du ministère de l’économie et des finances chargé du commerce, des PME, de l’artisanat, du tourisme et de la formalisation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-14-7eme-l-portant-organisation-du-ministere-delegue-aupres-du-ministere-de-leconomie-et-des-finances-charge-du-commerce-des-pme-de-lartisanat-du-tourisme-et-de-la-formalisation/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-14-7eme-l-portant-organisation-du-ministere-delegue-aupres-du-ministere-de-leconomie-et-des-finances-charge-du-commerce-des-pme-de-lartisanat-du-tourisme-et-de-la-formalisation/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

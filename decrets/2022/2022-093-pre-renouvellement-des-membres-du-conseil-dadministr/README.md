@@ -1,6 +1,6 @@
 # Décret n° 2022-093/PRE portant renouvellement des membres du Conseil d’Administration de l’Agence Nationale des Personnes Handicapées (ANPH).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-093-pre-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-nationale-des-personnes-handicapees-anph/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-093-pre-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-nationale-des-personnes-handicapees-anph/>
 
 En vigueur : 2022-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

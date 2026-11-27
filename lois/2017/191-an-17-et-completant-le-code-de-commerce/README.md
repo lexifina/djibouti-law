@@ -1,6 +1,6 @@
 # Loi n° 191/AN/17/7ème L modifiant et complétant le Code de Commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-17-7eme-l-modifiant-et-completant-le-code-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-17-7eme-l-modifiant-et-completant-le-code-de-commerce/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 

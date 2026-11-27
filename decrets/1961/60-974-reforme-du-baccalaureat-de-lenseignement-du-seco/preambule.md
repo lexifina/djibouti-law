@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 RAPPORT
 Le présent décret a pour objet d’adapter le régime du baccalauréat aux impératifs de notre époque. Il faut tenir compte en effet de l’accroissement considérable des effectifs de candidats (40.000 environ en 1939 et 200.000 environ en 1960) qui rend progressivement inapplicables les méthodes antérieures. Il faut aussi tendre vers un
 étalement du travail sur l’ensemble d’une année scolaire qui va se trouver prolongée, et réduire au minimum la préparation intensive précédant l’examen et appelée communément « bachotage ».

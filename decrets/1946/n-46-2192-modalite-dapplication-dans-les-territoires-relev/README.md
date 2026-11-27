@@ -1,6 +1,6 @@
 # Décret n° n° 46-2192 fixant les modalité d’application dans les territoires relevant du ministre de la France d’outre-mer du titre V de la loi du 5 octobre 1946 relative à l’élection des membres de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2192-fixant-les-modalite-dapplication-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer-du-titre-v-de-la-loi-du-5-octobre-1946-relative-a-lelection-d/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2192-fixant-les-modalite-dapplication-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer-du-titre-v-de-la-loi-du-5-octobre-1946-relative-a-lelection-d/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 
@@ -22,7 +22,7 @@ marius moutet
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |

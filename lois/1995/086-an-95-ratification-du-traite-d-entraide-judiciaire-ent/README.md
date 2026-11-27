@@ -1,6 +1,6 @@
 # Loi n° 86/AN/95/3ème L portant ratification du traité d’entraide judiciaire entre le Gouvernement de la République de Djibouti et le Gouvernement de Transition d’Éthiopie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-95-3eme-l-portant-ratification-du-traite-dentraide-judiciaire-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-transition-dethiopie/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-95-3eme-l-portant-ratification-du-traite-dentraide-judiciaire-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-transition-dethiopie/>
 
 En vigueur : 1995-07-15 (date du Journal officiel qui le publie).
 

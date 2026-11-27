@@ -1,6 +1,6 @@
 # Loi n° 52-1322 instituant un code du travail dans les territoires et territoires associés relevant du ministère de la France d’outre-mer (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 20/02/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-52-1322-instituant-un-code-du-travail-dans-les-territoires-et-territoires-associes-relevant-du-ministere-de-la-france-doutre-mer-1/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 20/02/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-52-1322-instituant-un-code-du-travail-dans-les-territoires-et-territoires-associes-relevant-du-ministere-de-la-france-doutre-mer-1/>
 
 En vigueur : 1953-02-20 (date du Journal officiel qui le publie).
 
@@ -25,7 +25,7 @@ PIERRE PFLIMLI
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -60,4 +60,4 @@ PIERRE PFLIMLI
 | [art-033.md](art-033.md) | Art. 33 |
 | [art-034.md](art-034.md) | Art. 34 |
 | [art-035.md](art-035.md) | Art. 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

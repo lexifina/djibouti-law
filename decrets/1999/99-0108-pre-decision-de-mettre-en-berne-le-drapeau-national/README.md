@@ -1,6 +1,6 @@
 # Décret n° 99-0108/PRE portant décision de mettre en berne le drapeau national en raison du décès de sa Majesté Hassan II, Roi du Maroc.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0108-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-de-sa-majeste-hassan-ii-roi-du-maroc/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0108-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-de-sa-majeste-hassan-ii-roi-du-maroc/>
 
 En vigueur : 1999-07-31 (date du Journal officiel qui le publie).
 

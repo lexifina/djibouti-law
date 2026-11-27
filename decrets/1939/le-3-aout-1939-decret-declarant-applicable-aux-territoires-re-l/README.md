@@ -1,6 +1,6 @@
 # Décret n° le 3 août 1939. Décret déclarant applicable aux territoires re- levant du ministère des colonies des dispositions du décret du 24 juin 1939 concernant la répression de la distribution et de la circulation des tracts de provenance étrangère.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 514 du 30/09/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-3-aout-1939-decret-declarant-applicable-aux-territoires-re-levant-du-ministere-des-colonies-des-dispositions-du-decret-du-24-juin-1939-concernant-la-repression-de-la-distribution/>
+Décret · Journal officiel de la République de Djibouti, n° 514 du 30/09/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-3-aout-1939-decret-declarant-applicable-aux-territoires-re-levant-du-ministere-des-colonies-des-dispositions-du-decret-du-24-juin-1939-concernant-la-repression-de-la-distribution/>
 
 En vigueur : 1939-09-30 (date du Journal officiel qui le publie).
 
@@ -36,5 +36,5 @@ Georges BONNET,.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

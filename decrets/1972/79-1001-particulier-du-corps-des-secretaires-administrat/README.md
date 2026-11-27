@@ -1,6 +1,6 @@
 # Décret n° 79-1001 particulier du corps des secrétaires administratifs äde5 services techniques centraux et des services technique extérieurs de l’aviation civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 25/11/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-79-1001-particulier-du-corps-des-secretaires-administratifs-ade5-services-techniques-centraux-et-des-services-technique-exterieurs-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 25/11/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-79-1001-particulier-du-corps-des-secretaires-administratifs-ade5-services-techniques-centraux-et-des-services-technique-exterieurs-de-laviation-civile/>
 
 En vigueur : 1972-11-25 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ JEAN TAITTINGER.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

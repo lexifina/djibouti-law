@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0032/PR/MESN portant approbation du budget prévisionnel de l’exercice 2000 de l’Organisme de Protection Sociale (O.P.S).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0032-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2000-de-lorganisme-de-protection-sociale-o-p-s/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0032-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2000-de-lorganisme-de-protection-sociale-o-p-s/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

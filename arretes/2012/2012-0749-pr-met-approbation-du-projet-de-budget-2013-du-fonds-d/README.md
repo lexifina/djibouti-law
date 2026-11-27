@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0749/PR/MET portant approbation du projet de Budget 2013 du Fonds d’Entretien Routier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0749-pr-met-portant-approbation-du-projet-de-budget-2013-du-fonds-dentretien-routier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0749-pr-met-portant-approbation-du-projet-de-budget-2013-du-fonds-dentretien-routier/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 98-0146/PR/MJAM portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0146-pr-mjam-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0146-pr-mjam-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 1998-12-31 (date du Journal officiel qui le publie).
 

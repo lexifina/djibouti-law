@@ -1,6 +1,6 @@
 # Décret n° le 1er juin 1938 complétant l’article 39 du décret du 3 juillet 1897. concernant le transport des bagages des fonctionnaires civils et militaires décédés aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-1er-juin-1938-completant-larticle-39-du-decret-du-3-juillet-1897-concernant-le-transport-des-bagages-des-fonctionnaires-civils-et-militaires-decedes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-1er-juin-1938-completant-larticle-39-du-decret-du-3-juillet-1897-concernant-le-transport-des-bagages-des-fonctionnaires-civils-et-militaires-decedes-aux-colonies/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-016/PR/MERN portant approbation du Budget Prévisionnel d’Electricité de Djibouti pour l’exercice 2019.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-016-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2019/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-016-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2019/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

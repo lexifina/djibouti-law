@@ -1,8 +1,8 @@
 # Décret n° 2020-008/PR/MAPCI portant mise en place du Comité de Pilotage du Projet de Guichet Unique du Commerce Extérieur (G.U.C.E).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-008-pr-mapci-portant-mise-en-place-du-comite-de-pilotage-du-projet-de-guichet-unique-du-commerce-exterieur-g-u-c-e/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-008-pr-mapci-portant-mise-en-place-du-comite-de-pilotage-du-projet-de-guichet-unique-du-commerce-exterieur-g-u-c-e/>
 
-En vigueur : 2020-01-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-01-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

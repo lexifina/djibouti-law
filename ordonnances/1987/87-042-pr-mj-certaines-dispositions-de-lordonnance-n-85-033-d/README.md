@@ -1,8 +1,8 @@
 # Ordonnance n° 87-042/PR/MJ modifiant certaines dispositions de l’ordonnance n° 85-033 du 19 mars 1985 portant organisation de la profession d’Huissier de Justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/07/1987 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-042-pr-mj-modifiant-certaines-dispositions-de-lordonnance-n85-033-du-19-mars-1985-portant-organisation-de-la-profession-dhuissier-de-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 31/07/1987 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-042-pr-mj-modifiant-certaines-dispositions-de-lordonnance-n85-033-du-19-mars-1985-portant-organisation-de-la-profession-dhuissier-de-justice/>
 
-En vigueur : 1987-06-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-06-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

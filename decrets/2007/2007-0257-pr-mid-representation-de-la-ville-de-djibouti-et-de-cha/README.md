@@ -1,6 +1,6 @@
 # Décret n° 2007-0257/PR/MID fixant la représentation de la Ville de Djibouti et de Chaque Région à l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0257-pr-mid-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0257-pr-mid-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 

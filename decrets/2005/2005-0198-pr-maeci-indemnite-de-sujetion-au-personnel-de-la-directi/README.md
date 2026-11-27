@@ -1,8 +1,8 @@
 # Décret n° 2005-0198/PR/MAECI portant indemnité de sujétion au personnel de la Direction du Protocole d’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0198-pr-maeci-portant-indemnite-de-sujetion-au-personnel-de-la-direction-du-protocole-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0198-pr-maeci-portant-indemnite-de-sujetion-au-personnel-de-la-direction-du-protocole-detat/>
 
-En vigueur : 2005-11-26 (date fixÃ©e par le texte).
+En vigueur : 2005-11-26 (date fixée par le texte).
 
 ## Visas
 

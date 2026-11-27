@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0441/PR/MI portant fermeture des établissements de restauration, de débits de boissons et spectacles pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0441-pr-mi-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0441-pr-mi-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

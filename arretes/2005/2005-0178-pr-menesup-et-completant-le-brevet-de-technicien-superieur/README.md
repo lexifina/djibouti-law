@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0178/PR/MENESUP modifiant et complétant le Brevet de Technicien Supérieur «Gestion Administrative en arabe» et définissant les conditions de délivrance de ce diplôme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0178-pr-menesup-modifiant-et-completant-le-brevet-de-technicien-superieur-gestion-administrative-en-arabe-et-definissant-les-conditions-de-delivrance-de-ce-diplome/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0178-pr-menesup-modifiant-et-completant-le-brevet-de-technicien-superieur-gestion-administrative-en-arabe-et-definissant-les-conditions-de-delivrance-de-ce-diplome/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ ISMAÏL OMAR GUELLEH
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

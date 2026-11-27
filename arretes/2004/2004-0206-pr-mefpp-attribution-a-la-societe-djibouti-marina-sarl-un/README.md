@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0206/PR/MEFPP portant Attribution à la Société Djibouti Marina SARL, une parcelle de terrain sise aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0206-pr-mefpp-portant-attribution-a-la-societe-djibouti-marina-sarl-une-parcelle-de-terrain-sise-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0206-pr-mefpp-portant-attribution-a-la-societe-djibouti-marina-sarl-une-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 2004-04-15 (date du Journal officiel qui le publie).
 

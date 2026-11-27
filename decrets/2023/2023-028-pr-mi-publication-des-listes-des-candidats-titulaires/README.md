@@ -1,6 +1,6 @@
 # Décret n° 2023-028/PR/MI portant publication des listes des candidats titulaires et suppléants pour les élections législatives du Vendredi 24 Février 2023.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 07/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-028-pr-mi-portant-publication-des-listes-des-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-24-fevrier-2023/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 07/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-028-pr-mi-portant-publication-des-listes-des-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-24-fevrier-2023/>
 
 En vigueur : 2023-02-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -39,4 +39,4 @@ SUR Proposition du Ministre de l’Intérieur.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

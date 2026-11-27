@@ -1,6 +1,6 @@
 # Arrêté n° 82-0472/PR/MCTT modifiant la composition du Conseil d’Administration de l’établissement Public des Hydrocarbures.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0472-pr-mctt-modifiant-la-composition-du-conseil-dadministration-de-letablissement-public-des-hydrocarbures/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0472-pr-mctt-modifiant-la-composition-du-conseil-dadministration-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

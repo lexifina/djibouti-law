@@ -1,6 +1,6 @@
 # Décret n° 463 modifiant le décret n 1.615 du 9 juin 1943 fixant la situation des personnels coloniaux pendant la période d’interruption des com munications avec les colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-463-modifiant-le-decret-n-1-615-du-9-juin-1943-fixant-la-situation-des-personnels-coloniaux-pendant-la-periode-dinterruption-des-com-munications-avec-les-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-463-modifiant-le-decret-n-1-615-du-9-juin-1943-fixant-la-situation-des-personnels-coloniaux-pendant-la-periode-dinterruption-des-com-munications-avec-les-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

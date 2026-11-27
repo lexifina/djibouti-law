@@ -1,6 +1,6 @@
 # Loi n° 114/AN/15/7ème L Instituant la Commission Nationale de la Communication.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-15-7eme-l-instituant-la-commission-nationale-de-la-communication/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-15-7eme-l-instituant-la-commission-nationale-de-la-communication/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

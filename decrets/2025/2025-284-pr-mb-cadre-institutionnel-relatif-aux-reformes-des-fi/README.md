@@ -1,6 +1,6 @@
 # Décret n° 2025-284/PR/MB portant cadre institutionnel relatif aux réformes des Finances publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-284-pr-mb-portant-cadre-institutionnel-relatif-aux-reformes-des-finances-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 30/10/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-284-pr-mb-portant-cadre-institutionnel-relatif-aux-reformes-des-finances-publiques/>
 
 En vigueur : 2025-10-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

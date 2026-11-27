@@ -1,6 +1,6 @@
 # Loi n° 03-221-1915 relative à l’interdiction de la fabrication, de la vente en gros el au délai, ainsi que de la circulation de l’absinthe et des liqueurs similaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 221 du 31/03/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-03-221-1915-relative-a-linterdiction-de-la-fabrication-de-la-vente-en-gros-el-au-delai-ainsi-que-de-la-circulation-de-labsinthe-et-des-liqueurs-similaires/>
+Loi · Journal officiel de la République de Djibouti, n° 221 du 31/03/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-03-221-1915-relative-a-linterdiction-de-la-fabrication-de-la-vente-en-gros-el-au-delai-ainsi-que-de-la-circulation-de-labsinthe-et-des-liqueurs-similaires/>
 
 En vigueur : 1915-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2008-0202/PR/MID portant mise en place d’un comité chargé des opérations d’assistance au niveau de chaque quartier de la capitale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 14/08/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0202-pr-mid-portant-mise-en-place-dun-comite-charge-des-operations-dassistance-au-niveau-de-chaque-quartier-de-la-capitale/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 14/08/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0202-pr-mid-portant-mise-en-place-dun-comite-charge-des-operations-dassistance-au-niveau-de-chaque-quartier-de-la-capitale/>
 
 En vigueur : 2008-08-14 (date du Journal officiel qui le publie).
 

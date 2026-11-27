@@ -1,6 +1,6 @@
 # Décret n° 2005-0101/PRE portant émission d’un nouveau billet de 1.000 FDJ.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0101-pre-portant-emission-dun-nouveau-billet-de-1-000-fdj/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0101-pre-portant-emission-dun-nouveau-billet-de-1-000-fdj/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

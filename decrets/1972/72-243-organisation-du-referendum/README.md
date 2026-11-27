@@ -1,6 +1,6 @@
 # Décret n° 72-243 portant organisation du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-243-portant-organisation-du-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-243-portant-organisation-du-referendum/>
 
 En vigueur : 1972-04-10 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ Le garde des sceaux, ministre de la justice, RENÉ PLEVEN.
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
 | [art-024.md](art-024.md) | Art. 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 156/AN/06/5ème L portant approbation des comptes financiers pour l’Exercice 2004 de la Société Immobilière de Djibouti (SID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-06-5eme-l-portant-approbation-des-comptes-financiers-pour-lexercice-2004-de-la-societe-immobiliere-de-djibouti-sid/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-06-5eme-l-portant-approbation-des-comptes-financiers-pour-lexercice-2004-de-la-societe-immobiliere-de-djibouti-sid/>
 
 En vigueur : 2006-08-15 (date du Journal officiel qui le publie).
 

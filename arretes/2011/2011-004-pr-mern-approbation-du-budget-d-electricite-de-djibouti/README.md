@@ -1,6 +1,6 @@
 # Arrêté n° 2011-004/PR/MERN portant approbation du Budget d’Electricité de Djibouti (EDD) pour l’Exercice 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-004-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-edd-pour-lexercice-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-004-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-edd-pour-lexercice-2011/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

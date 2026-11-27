@@ -1,6 +1,6 @@
 # Arrêté n° 2015-818/PR/MS approuvant et rendant exécutoire le Budget prévisionnel 2016 de l’Hôpital Général Peltier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-818-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-general-peltier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-818-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-general-peltier/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 90/AN/05/5ème L relatif au traité d’Interdiction Complète des Essais Nucléaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-05-5eme-l-relatif-au-traite-dinterdiction-complete-des-essais-nucleaires/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-05-5eme-l-relatif-au-traite-dinterdiction-complete-des-essais-nucleaires/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

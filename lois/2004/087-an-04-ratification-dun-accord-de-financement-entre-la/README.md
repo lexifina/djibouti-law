@@ -1,6 +1,6 @@
 # Loi n° 87/AN/04/5ème L portant ratification d’un Accord de financement entre la République de Djibouti et la Banque Mondiale (IDA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-04-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-04-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

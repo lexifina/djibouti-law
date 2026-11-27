@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0362/PR/MHUAT Portant adoption du budget Prévisionnel 2005 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0362-pr-mhuat-portant-adoption-du-budget-previsionnel-2005-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0362-pr-mhuat-portant-adoption-du-budget-previsionnel-2005-du-fonds-de-lhabitat/>
 
 En vigueur : 2005-05-31 (date du Journal officiel qui le publie).
 

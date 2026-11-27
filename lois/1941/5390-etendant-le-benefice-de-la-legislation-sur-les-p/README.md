@@ -1,6 +1,6 @@
 # Loi n° 5390 étendant le bénéfice de la législation sur les pupilles de la nation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5390-etendant-le-benefice-de-la-legislation-sur-les-pupilles-de-la-nation/>
+Loi · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5390-etendant-le-benefice-de-la-legislation-sur-les-pupilles-de-la-nation/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

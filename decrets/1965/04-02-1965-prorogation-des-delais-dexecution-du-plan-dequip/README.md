@@ -1,6 +1,6 @@
 # Décret n° 04/02/1965 portant prorogation des délais d’exécution du plan d’équipement des Territoires d’Outre-Mer (JORF. des 8 et 9 février 1965, p. 1123). Arrêté de promulgation n° 227 du 17 février 1965 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-02-1965-portant-prorogation-des-delais-dexecution-du-plan-dequipement-des-territoires-doutre-mer-jorf-des-8-et-9-fevrier-1965-p-1123-arrete-de-promulgation-n-227-d/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-02-1965-portant-prorogation-des-delais-dexecution-du-plan-dequipement-des-territoires-doutre-mer-jorf-des-8-et-9-fevrier-1965-p-1123-arrete-de-promulgation-n-227-d/>
 
 En vigueur : 1965-03-01 (date du Journal officiel qui le publie).
 

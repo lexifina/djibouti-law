@@ -1,6 +1,6 @@
 # Décret n° 04-452-1934 Règlementation relative aux rappels d’ancienneté pour services militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 452 du 31/07/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-452-1934-reglementation-relative-aux-rappels-danciennete-pour-services-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 452 du 31/07/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-452-1934-reglementation-relative-aux-rappels-danciennete-pour-services-militaires/>
 
 En vigueur : 1934-07-31 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ Pierre LAvAL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2107 relative aux inéligibilités prévues par l’article 18 de l’ordonnance du 21 avril 1944 modifiée par l’ordonnance du 6 avril 1945
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2107-relative-aux-ineligibilites-prevues-par-larticle-18-de-lordonnance-du-21-avril-1944-modifiee-par-lordonnance-du-6-avril-1945/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2107-relative-aux-ineligibilites-prevues-par-larticle-18-de-lordonnance-du-21-avril-1944-modifiee-par-lordonnance-du-6-avril-1945/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Le Ministre des Travaux Publics et des Transports. R. MAYER. Le Ministre des P.T
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4— |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

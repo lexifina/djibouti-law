@@ -1,6 +1,6 @@
 # Décret n° 73-237 relatif à la défense maritime du Territoire (JORF n° 56 du 7 mars 1973, page 2509).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-237-relatif-a-la-defense-maritime-du-territoire-jorf-n-56-du-7-mars-1973-page-2509/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-237-relatif-a-la-defense-maritime-du-territoire-jorf-n-56-du-7-mars-1973-page-2509/>
 
 En vigueur : 1973-04-10 (date du Journal officiel qui le publie).
 

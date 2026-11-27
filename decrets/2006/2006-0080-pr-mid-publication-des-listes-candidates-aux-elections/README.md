@@ -1,6 +1,6 @@
 # Décret n° 2006-0080/PR/MID portant publication des listes candidates aux Élections Régionales et Communales du 31 Mars.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 23/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0080-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-31-mars/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 23/03/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0080-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-31-mars/>
 
 En vigueur : 2006-03-23 (date du Journal officiel qui le publie).
 

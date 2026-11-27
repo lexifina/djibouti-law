@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0450/PR/MID prescrivant à l’occasion du 25ème Anniversaire de l’Indépendance – le Ravalement des façades de la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0450-pr-mid-prescrivant-a-loccasion-du-25eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0450-pr-mid-prescrivant-a-loccasion-du-25eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
 
 En vigueur : 2002-06-15 (date du Journal officiel qui le publie).
 

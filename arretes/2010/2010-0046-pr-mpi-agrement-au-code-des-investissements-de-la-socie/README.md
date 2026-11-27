@@ -1,7 +1,7 @@
 # Arrêté n° 2010-0046/PR/MPI portant Agrément au Code
 des Investissements de la Société « INDEPENDENT CONSTRUCTION COMPANY ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0046-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-independent-construction-company/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0046-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-independent-construction-company/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

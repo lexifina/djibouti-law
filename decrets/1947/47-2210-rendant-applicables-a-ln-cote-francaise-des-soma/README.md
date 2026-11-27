@@ -1,6 +1,6 @@
 # Décret n° 47-2210 rendant applicables à ln Côte francaise des Somalis les dispositions des lois des 9 juillet 1934 et 2 avril 1946 portant modification aux articles 187 et 1934 du Code d’instruction criminelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2210-rendant-applicables-a-ln-cote-francaise-des-somalis-les-dispositions-des-lois-des-9-juillet-1934-et-2-avril-1946-portant-modification-aux-articles-187-et-1934-du-code-dinstr/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2210-rendant-applicables-a-ln-cote-francaise-des-somalis-les-dispositions-des-lois-des-9-juillet-1934-et-2-avril-1946-portant-modification-aux-articles-187-et-1934-du-code-dinstr/>
 
 En vigueur : 1947-12-31 (date du Journal officiel qui le publie).
 

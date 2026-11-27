@@ -1,6 +1,6 @@
 # Décret n° 4-398-1930 Solde, haute-paye et indemnités diverses a allouer aux caporaux-chefs et brigadiers-chefs en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-398-1930-solde-haute-paye-et-indemnites-diverses-a-allouer-aux-caporaux-chefs-et-brigadiers-chefs-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-398-1930-solde-haute-paye-et-indemnites-diverses-a-allouer-aux-caporaux-chefs-et-brigadiers-chefs-en-service-aux-colonies/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 

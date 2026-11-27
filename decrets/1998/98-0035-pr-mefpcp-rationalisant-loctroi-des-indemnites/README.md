@@ -1,6 +1,6 @@
 # Décret n° 98-0035/PR/MEFPCP rationalisant l’octroi des indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0035-pr-mefpcp-rationalisant-loctroi-des-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0035-pr-mefpcp-rationalisant-loctroi-des-indemnites/>
 
 En vigueur : 1998-04-15 (date du Journal officiel qui le publie).
 

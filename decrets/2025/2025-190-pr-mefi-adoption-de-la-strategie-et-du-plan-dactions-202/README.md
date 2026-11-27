@@ -1,8 +1,8 @@
 # Décret n° 2025-190/PR/MEFI portant adoption de la Stratégie et du Plan d’Actions 2024-2027 de Réforme de la Gestion des Finances Publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 17/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-190-pr-mefi-portant-adoption-de-la-strategie-et-du-plan-dactions-2024-2027-de-reforme-de-la-gestion-des-finances-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 17/07/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-190-pr-mefi-portant-adoption-de-la-strategie-et-du-plan-dactions-2024-2027-de-reforme-de-la-gestion-des-finances-publiques/>
 
-En vigueur : 2025-07-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-07-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

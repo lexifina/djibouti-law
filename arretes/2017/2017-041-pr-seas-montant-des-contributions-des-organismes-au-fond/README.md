@@ -1,6 +1,6 @@
 # Arrêté n° 2017-041/PR/SEAS fixant le montant des contributions des organismes au Fonds de Solidarité Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-041-pr-seas-fixant-le-montant-des-contributions-des-organismes-au-fonds-de-solidarite-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-041-pr-seas-fixant-le-montant-des-contributions-des-organismes-au-fonds-de-solidarite-nationale/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

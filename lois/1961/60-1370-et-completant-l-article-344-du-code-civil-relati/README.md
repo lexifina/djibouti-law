@@ -1,6 +1,6 @@
 # Loi n° 60-1370 modifiant et complétant l’article 344 du code civil relatif à l’adoption
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1961 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-60-1370-modifiant-et-completant-larticle-344-du-code-civil-relatif-a-ladoption/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 31/08/1961 · <https://www.journalofficiel.dj/texte-juridique/loi-n-60-1370-modifiant-et-completant-larticle-344-du-code-civil-relatif-a-ladoption/>
 
 En vigueur : 1961-08-31 (date du Journal officiel qui le publie).
 

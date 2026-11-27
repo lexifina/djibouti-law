@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0070/PRE portant organisation du Symposium sur la Langue Afare.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0070-pre-portant-organisation-du-symposium-sur-la-langue-afare/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 30/01/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0070-pre-portant-organisation-du-symposium-sur-la-langue-afare/>
 
 En vigueur : 2003-01-30 (date du Journal officiel qui le publie).
 

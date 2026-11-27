@@ -1,6 +1,6 @@
 # Décret n° 2017-041/PR/MI portant création de la Commission de propagande chargée de donner son avis sur les prix des documents.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-041-pr-mi-portant-creation-de-la-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-041-pr-mi-portant-creation-de-la-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 

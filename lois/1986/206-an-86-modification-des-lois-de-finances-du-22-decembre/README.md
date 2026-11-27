@@ -1,6 +1,6 @@
 # Loi n° 206/AN/86/1ère L portant modification des lois de finances du 22 décembre 1981 (art.4) et 30 décembre 1984 (art.9).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-86-1ere-l-portant-modification-des-lois-de-finances-du-22-decembre-1981-art-4-et-30-decembre-1984-art-9/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-86-1ere-l-portant-modification-des-lois-de-finances-du-22-decembre-1981-art-4-et-30-decembre-1984-art-9/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

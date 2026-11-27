@@ -1,6 +1,6 @@
 # Loi de finances n° 188/AN/25/9ème L portant Règlement Définitif du Budget de l’État de l’Exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n188-an-25-9eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n188-an-25-9eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2024/>
 
 En vigueur : 2026-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

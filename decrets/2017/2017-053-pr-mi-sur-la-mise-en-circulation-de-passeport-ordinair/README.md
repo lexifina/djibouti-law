@@ -1,6 +1,6 @@
 # Décret n° 2017-053/PR/MI portant sur la mise en circulation de passeport ordinaire biométrique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-053-pr-mi-portant-sur-la-mise-en-circulation-de-passeport-ordinaire-biometrique/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-053-pr-mi-portant-sur-la-mise-en-circulation-de-passeport-ordinaire-biometrique/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

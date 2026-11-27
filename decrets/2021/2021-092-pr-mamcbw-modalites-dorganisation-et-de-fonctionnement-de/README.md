@@ -1,6 +1,6 @@
 # Décret n° 2021-092/PR/MAMCBW fixant les modalités d’organisation et de fonctionnement de l’Institut Al-Wassatiya et la culture de paix.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 13/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-092-pr-mamcbw-fixant-les-modalites-dorganisation-et-de-fonctionnement-de-linstitut-al-wassatiya-et-la-culture-de-paix/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 13/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-092-pr-mamcbw-fixant-les-modalites-dorganisation-et-de-fonctionnement-de-linstitut-al-wassatiya-et-la-culture-de-paix/>
 
 En vigueur : 2021-05-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -90,4 +90,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

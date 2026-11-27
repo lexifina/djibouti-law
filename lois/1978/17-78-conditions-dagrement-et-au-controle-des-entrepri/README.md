@@ -1,6 +1,6 @@
 # Loi n° 17-78 Relative aux conditions d’agrément et au contrôle des entreprises d’assurances.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n17-78-relative-aux-conditions-dagrement-et-au-controle-des-entreprises-dassurances/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 27/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n17-78-relative-aux-conditions-dagrement-et-au-controle-des-entreprises-dassurances/>
 
 En vigueur : 1978-03-27 (date du Journal officiel qui le publie).
 

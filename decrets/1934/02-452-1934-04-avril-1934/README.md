@@ -1,6 +1,6 @@
 # Décret n° 02-452-1934 04 avril 1934
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 452 du 31/07/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-452-1934-04-avril-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 452 du 31/07/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-452-1934-04-avril-1934/>
 
 En vigueur : 1934-07-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ GERMAIN-MARTIN,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

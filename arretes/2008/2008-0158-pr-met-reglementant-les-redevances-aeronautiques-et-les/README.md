@@ -1,8 +1,8 @@
 # Arrêté n° 2008-0158/PR/MET réglementant les redevances aéronautiques et les redevances de passagers applicables à compter du 1er mars 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0158-pr-met-reglementant-les-redevances-aeronautiques-et-les-redevances-de-passagers-applicables-a-compter-du-1er-mars-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0158-pr-met-reglementant-les-redevances-aeronautiques-et-les-redevances-de-passagers-applicables-a-compter-du-1er-mars-2008/>
 
-En vigueur : 2008-03-05 (date fixÃ©e par le texte).
+En vigueur : 2008-03-05 (date fixée par le texte).
 
 ## Visas
 

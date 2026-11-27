@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0063/PR/MERN portant approbation du Budget d’Electricité de Djibouti (EDD) pour l’exercice 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0063-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-edd-pour-lexercice-2002/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0063-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-edd-pour-lexercice-2002/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

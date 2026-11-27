@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0141/PR/MEFPCP portant création d’un Comité Technique de suivi et de coordination chargé de répondre au défi du MCA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0141-pr-mefpcp-portant-creation-dun-comite-technique-de-suivi-et-de-coordination-charge-de-repondre-au-defi-du-mca/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0141-pr-mefpcp-portant-creation-dun-comite-technique-de-suivi-et-de-coordination-charge-de-repondre-au-defi-du-mca/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 72-50 modifiant le décret n” 64-11- du 3 janvier 1964 relatif à l’organisation des responsabilités territoriales de défense dans les départements et territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-50-modifiant-le-decret-n-64-11-du-3-janvier-1964-relatif-a-lorganisation-des-responsabilites-territoriales-de-defense-dans-les-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-50-modifiant-le-decret-n-64-11-du-3-janvier-1964-relatif-a-lorganisation-des-responsabilites-territoriales-de-defense-dans-les-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1972-03-10 (date du Journal officiel qui le publie).
 

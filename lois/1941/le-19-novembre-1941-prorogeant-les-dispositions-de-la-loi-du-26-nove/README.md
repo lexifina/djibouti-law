@@ -1,6 +1,6 @@
 # Loi n° le 19 novembre 1941 prorogeant les dispositions de la loi du 26 novembre 1910 fixant les limites d’âge de» gouverneurs généraux, gouverneurs et résidents supérieurs des colonies. (N° 5050.)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-le-19-novembre-1941-prorogeant-les-dispositions-de-la-loi-du-26-novembre-1910-fixant-les-limites-dage-de-gouverneurs-generaux-gouverneurs-et-residents-superieurs-des-colonies-n/>
+Loi · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-le-19-novembre-1941-prorogeant-les-dispositions-de-la-loi-du-26-novembre-1910-fixant-les-limites-dage-de-gouverneurs-generaux-gouverneurs-et-residents-superieurs-des-colonies-n/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

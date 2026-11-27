@@ -1,6 +1,6 @@
 # Décret n° 63-55 portant règlement d’administration publique pour l’application aux territoires de la Polynésie française, de Saint-Pierre et Miquelon et de la Côte française des Somalis de la loi n° 51-59 du 18 janvier 1951 relative au nantissement de l’outillage et du matériel d’équipement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-55-portant-reglement-dadministration-publique-pour-lapplication-aux-territoires-de-la-polynesie-francaise-de-saint-pierre-et-miquelon-et-de-la-cote-francaise-des-somalis-de-la/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-55-portant-reglement-dadministration-publique-pour-lapplication-aux-territoires-de-la-polynesie-francaise-de-saint-pierre-et-miquelon-et-de-la-cote-francaise-des-somalis-de-la/>
 
 En vigueur : 1963-02-28 (date du Journal officiel qui le publie).
 

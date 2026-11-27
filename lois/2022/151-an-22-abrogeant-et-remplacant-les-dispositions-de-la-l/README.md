@@ -1,6 +1,6 @@
 # Loi n° 151/AN/22/8ème L abrogeant et remplaçant les dispositions de la loi n° 207/AN/17/7ème L relative à la promotion et à la protection des droits des personnes à besoins spéciaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-22-8eme-l-abrogeant-et-remplacant-les-dispositions-de-la-loi-n207-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-a-besoins-speciaux/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-22-8eme-l-abrogeant-et-remplacant-les-dispositions-de-la-loi-n207-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-a-besoins-speciaux/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -79,4 +79,4 @@ Le Conseil des Ministres entendu en sa séance du 22 Février 2022.
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
 | [art-049.md](art-049.md) | Article 49 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

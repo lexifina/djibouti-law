@@ -1,6 +1,6 @@
 # Loi n° 164/ AN/85/1ère L portant approbation de deux accords de prêt entre la République de Djibouti et la Banque africaine de Développement, le Fonds de l’Organisation des Pays exportateurs de Pétrole (OPEP) et d’un accord de crédit entre la République de Djibouti et la Banque mondiale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-85-1ere-l-portant-approbation-de-deux-accords-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-le-fonds-de-lorganisation-des-pays-exportateurs-de-p/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-85-1ere-l-portant-approbation-de-deux-accords-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-le-fonds-de-lorganisation-des-pays-exportateurs-de-p/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

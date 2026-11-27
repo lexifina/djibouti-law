@@ -1,6 +1,6 @@
 # Loi n° 173/AN/85/1ère L portant modification de la loi n° 152/AN/85/1re L accordant des parcelles de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-85-1ere-l-portant-modification-de-la-loi-n-152-an-85-1re-l-accordant-des-parcelles-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-85-1ere-l-portant-modification-de-la-loi-n-152-an-85-1re-l-accordant-des-parcelles-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

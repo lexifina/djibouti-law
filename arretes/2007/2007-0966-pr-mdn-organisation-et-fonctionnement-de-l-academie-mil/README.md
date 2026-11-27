@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0966/PR/MDN portant organisation et fonctionnement de l’Académie Militaire Inter-Armées (AMIA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0966-pr-mdn-portant-organisation-et-fonctionnement-de-lacademie-militaire-inter-armees-amia/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0966-pr-mdn-portant-organisation-et-fonctionnement-de-lacademie-militaire-inter-armees-amia/>
 
 En vigueur : 2007-12-15 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 63/AN/89/2ème L modifiant la loi n° 154/AN/85/1ère L du 11 juin 1985 portant organisation de l’administration du Ministère de l’Agriculture et du Développement Rural.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-89-2eme-l-modifiant-la-loi-n154-an-85-1ere-l-du-11-juin-1985-portant-organisation-de-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-89-2eme-l-modifiant-la-loi-n154-an-85-1ere-l-du-11-juin-1985-portant-organisation-de-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
 
 En vigueur : 1989-04-15 (date du Journal officiel qui le publie).
 

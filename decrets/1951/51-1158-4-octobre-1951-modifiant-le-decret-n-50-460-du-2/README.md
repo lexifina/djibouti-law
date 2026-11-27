@@ -1,6 +1,6 @@
 # Décret n° 51-1158 du 4 octobre 1951 modifiant le décret n° 50-460 du 21 avril 1951 étendant aux militaires de la Gendarmerie en service dans les Territoires et départements d’Outre-Mer, le bénéfice des disposition.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1158-du-4-octobre-1951-modifiant-le-decret-n-50-460-du-21-avril-1951-etendant-aux-militaires-de-la-gendarmerie-en-service-dans-les-territoires-et-departements-doutre-mer-le/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1158-du-4-octobre-1951-modifiant-le-decret-n-50-460-du-21-avril-1951-etendant-aux-militaires-de-la-gendarmerie-en-service-dans-les-territoires-et-departements-doutre-mer-le/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er — Pendant la durée de la guerre et jusqu’à l’expiration d’un délai de trois mois à partir de la cessation des hostilités, les dispositions exceptionnelles suivantes sont applicables aux marchésetcontrats avant un caractère pourles parties ou pour l’une d’elle seulement, qui ont élé conclus avant le 1er août’ 1914, el qui comportent soit des livraisons de marchandises ou de denrées, soit d’autres nrestalions, successivesou seulement différées.

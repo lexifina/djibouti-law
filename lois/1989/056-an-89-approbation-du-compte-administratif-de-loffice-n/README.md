@@ -1,6 +1,6 @@
 # Loi n° 56/AN/89/2ème L portant approbation du compte administratif de l’Office National du Tourisme et de l’Artisanat pour l’exercice 1987.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-89-2eme-l-portant-approbation-du-compte-administratif-de-loffice-national-du-tourisme-et-de-lartisanat-pour-lexercice-1987/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-89-2eme-l-portant-approbation-du-compte-administratif-de-loffice-national-du-tourisme-et-de-lartisanat-pour-lexercice-1987/>
 
 En vigueur : 1989-02-15 (date du Journal officiel qui le publie).
 

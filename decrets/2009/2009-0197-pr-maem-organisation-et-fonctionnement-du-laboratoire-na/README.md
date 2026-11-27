@@ -1,6 +1,6 @@
 # Décret n° 2009-0197/PR/MAEM portant organisation et fonctionnement du Laboratoire National d’Analyse Alimentaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0197-pr-maem-portant-organisation-et-fonctionnement-du-laboratoire-national-danalyse-alimentaires/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0197-pr-maem-portant-organisation-et-fonctionnement-du-laboratoire-national-danalyse-alimentaires/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 
@@ -65,4 +65,4 @@ Le Conseil des Ministres entendu en sa séance du 23 juin 2009.
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

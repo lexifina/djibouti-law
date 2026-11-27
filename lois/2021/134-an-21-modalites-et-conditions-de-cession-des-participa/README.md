@@ -1,6 +1,6 @@
 # Loi n° 134/AN/21/8ème L portant modalités et conditions de cession des participations de l’État dans le capital des entreprises publiques
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-21-8eme-l-portant-modalites-et-conditions-de-cession-des-participations-de-letat-dans-le-capital-des-entreprises-publiques/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 30/12/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-21-8eme-l-portant-modalites-et-conditions-de-cession-des-participations-de-letat-dans-le-capital-des-entreprises-publiques/>
 
 En vigueur : 2021-12-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

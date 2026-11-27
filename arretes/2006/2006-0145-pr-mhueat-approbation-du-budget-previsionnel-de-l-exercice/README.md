@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0145/PR/MHUEAT portant approbation du budget prévisionnel de l’exercice 2006 de la Société Immobilière de Djibouti (S.I.D).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0145-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2006-de-la-societe-immobiliere-de-djibouti-s-i-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0145-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2006-de-la-societe-immobiliere-de-djibouti-s-i-d/>
 
 En vigueur : 2006-02-28 (date du Journal officiel qui le publie).
 

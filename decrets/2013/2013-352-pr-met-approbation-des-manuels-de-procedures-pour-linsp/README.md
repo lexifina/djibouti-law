@@ -1,8 +1,8 @@
 # Décret n° 2013-352/PR/MET portant approbation des manuels de procédures pour l’inspection de la navigabilité, l’exploitation et de licences dans le domaine de l’aviation civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-352-pr-met-portant-approbation-des-manuels-de-procedures-pour-linspection-de-la-navigabilite-lexploitation-et-de-licences-dans-le-domaine-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-352-pr-met-portant-approbation-des-manuels-de-procedures-pour-linspection-de-la-navigabilite-lexploitation-et-de-licences-dans-le-domaine-de-laviation-civile/>
 
-En vigueur : 2013-12-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-12-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

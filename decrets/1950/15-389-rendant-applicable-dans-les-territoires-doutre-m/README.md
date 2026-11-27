@@ -1,6 +1,6 @@
 # Décret n° 15-389 rendant applicable dans les Territoires d’Outre-Mer et les Territoires sous tutelles. 3a loi IÏ » 46-85f> du 30 avril 1946 tendant à créer un insigne spécial pour Ses mères,. les veuves et les veufs des « Morts pour îa France ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-389-rendant-applicable-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelles-3a-loi-ii-46-85f-du-30-avril-1946-tendant-a-creer-un-insigne-special-pour-ses-meres/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-389-rendant-applicable-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelles-3a-loi-ii-46-85f-du-30-avril-1946-tendant-a-creer-un-insigne-special-pour-ses-meres/>
 
 En vigueur : 1951-03-01 (date du Journal officiel qui le publie).
 

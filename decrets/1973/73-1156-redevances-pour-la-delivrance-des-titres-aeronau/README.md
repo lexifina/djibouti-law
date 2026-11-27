@@ -1,6 +1,6 @@
 # Décret n° 73-1156 instituant des redevances pour la délivrance des titres aéronautiques au personnel navigant non professionnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-1156-instituant-des-redevances-pour-la-delivrance-des-titres-aeronautiques-au-personnel-navigant-non-professionnel/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-1156-instituant-des-redevances-pour-la-delivrance-des-titres-aeronautiques-au-personnel-navigant-non-professionnel/>
 
 En vigueur : 1975-07-10 (date du Journal officiel qui le publie).
 

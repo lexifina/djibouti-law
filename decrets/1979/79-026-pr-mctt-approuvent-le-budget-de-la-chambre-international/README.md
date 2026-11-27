@@ -1,6 +1,6 @@
 # Décret n° 79-026/PR/MCTT approuvent le budget de la chambre international de commerce et d’industriel
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-026-pr-mctt-approuvent-le-budget-de-la-chambre-international-de-commerce-et-dindustriel/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-026-pr-mctt-approuvent-le-budget-de-la-chambre-international-de-commerce-et-dindustriel/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 
@@ -17,4 +17,4 @@ Le Conseil des Ministres entendu en sa séance du 29 mars 1979;
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

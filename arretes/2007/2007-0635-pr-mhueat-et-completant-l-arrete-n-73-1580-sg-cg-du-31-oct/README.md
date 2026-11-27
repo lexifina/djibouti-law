@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0635/PR/MHUEAT modifiant et complétant l’Arrêté n° 73-1580/SG/CG du 31 octobre 1973 portant organisation de la procédure d’instruction et de délivrance du Permis de lotir.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0635-pr-mhueat-modifiant-et-completant-larrete-n73-1580-sg-cg-du-31-octobre-1973-portant-organisation-de-la-procedure-dinstruction-et-de-delivrance-du-permis/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0635-pr-mhueat-modifiant-et-completant-larrete-n73-1580-sg-cg-du-31-octobre-1973-portant-organisation-de-la-procedure-dinstruction-et-de-delivrance-du-permis/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

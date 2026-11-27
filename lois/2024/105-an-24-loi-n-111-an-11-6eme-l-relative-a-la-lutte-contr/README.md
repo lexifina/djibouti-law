@@ -1,8 +1,8 @@
 # Loi n° 105/AN/24/9ème L modifiant la Loi n° 111/AN/11/6ème L relative à la lutte contre le terrorisme et autres infractions graves.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-24-9eme-l-modifiant-la-loi-n111-an-11-6eme-l-relative-a-la-lutte-contre-le-terrorisme-et-autres-infractions-graves/>
+Loi · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-24-9eme-l-modifiant-la-loi-n111-an-11-6eme-l-relative-a-la-lutte-contre-le-terrorisme-et-autres-infractions-graves/>
 
-En vigueur : 2024-03-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-03-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

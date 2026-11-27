@@ -1,6 +1,6 @@
 # Arrêté n° 2017-163/PR/MB portant modification de l’Arrêté n° 2015- 699/PR/MB en date du 07/11/2015 relative à l’attribution d’une parcelle de terrain au profit de « Djibouti Free Trade Zone ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-163-pr-mb-portant-modification-de-larrete-n2015-699-pr-mb-en-date-du-07-11-2015-relative-a-lattribution-dune-parcelle-de-terrain-au-profit-de-djibouti-free-trade-zone/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-163-pr-mb-portant-modification-de-larrete-n2015-699-pr-mb-en-date-du-07-11-2015-relative-a-lattribution-dune-parcelle-de-terrain-au-profit-de-djibouti-free-trade-zone/>
 
 En vigueur : 2017-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 86-118/PR/MCTT approuvant et rendant exécutoire le budget primitif 1987 de l’Office national du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-118-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1987-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-118-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1987-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Toutes personnes physiques de nationalité francaise sont tenues de produire la déclaration prévue par l’article 1° du décret relatif aux avoirs à l’étranger, dés lors qu’au 15 novembre 1939 elles possèdent en France leur résidence habituelle.
 Sont présumées résider habituellement en France les personnes physiques de nationalité francaise qui possèdent en France une résidence ou y exercent une activité professionnelle, Il appartient, le cas échéant, aux intéressés d’établir la preuve que leur résidence habituelle on le lieu de leur principal établissement est en territoire étranger.
 art, 2 — Sont teuues de produire les déclarations visées par les articles 1″ et 3 du dé cret susvisé toutes personnes morales françaises existant à La date du 15 novembre 1939.

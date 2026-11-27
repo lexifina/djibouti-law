@@ -1,8 +1,8 @@
 # Décret n° 2015-279/PR/SESN portant création, organisation et fonctionnement du Programme National de Solidarité Famille (PNSF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-279-pr-sesn-portant-creation-organisation-et-fonctionnement-du-programme-national-de-solidarite-famille-pnsf/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-279-pr-sesn-portant-creation-organisation-et-fonctionnement-du-programme-national-de-solidarite-famille-pnsf/>
 
-En vigueur : 2015-10-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-10-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -53,4 +53,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

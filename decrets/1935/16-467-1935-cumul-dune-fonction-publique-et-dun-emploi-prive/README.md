@@ -1,6 +1,6 @@
 # Décret n° 16-467-1935 Cumul d’une fonction publique et d’un emploi privé (administrateurs des colonies).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-administrateurs-des-colonies/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 

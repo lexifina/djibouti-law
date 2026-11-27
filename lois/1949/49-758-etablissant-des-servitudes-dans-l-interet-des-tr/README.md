@@ -1,6 +1,6 @@
 # Loi n° 49-758 établissant des servitudes dans l’intérêt des transmissions radioélectriques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-49-758-etablissant-des-servitudes-dans-linteret-des-transmissions-radioelectriques/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/loi-n-49-758-etablissant-des-servitudes-dans-linteret-des-transmissions-radioelectriques/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

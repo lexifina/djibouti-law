@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0403/PR/MEFP autorisant une cession immobilière.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0403-pr-mefp-autorisant-une-cession-immobiliere/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0403-pr-mefp-autorisant-une-cession-immobiliere/>
 
 En vigueur : 2000-05-31 (date du Journal officiel qui le publie).
 

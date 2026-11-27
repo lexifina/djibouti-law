@@ -1,6 +1,6 @@
 # Loi n° 26/AN/93/3ème L portant en concession provisoire une parcelle de terrain.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-93-3eme-l-portant-en-concession-provisoire-une-parcelle-de-terrain/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-93-3eme-l-portant-en-concession-provisoire-une-parcelle-de-terrain/>
 
 En vigueur : 1993-06-15 (date du Journal officiel qui le publie).
 

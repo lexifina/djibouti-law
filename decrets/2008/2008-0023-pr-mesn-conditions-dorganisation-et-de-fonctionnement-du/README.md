@@ -1,6 +1,6 @@
 # Décret n° 2008-0023/PR/MESN portant conditions d’Organisation et de Fonctionnement du Conseil National du Travail, de l’Emploi et de la Formation Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0023-pr-mesn-portant-conditions-dorganisation-et-de-fonctionnement-du-conseil-national-du-travail-de-lemploi-et-de-la-formation-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0023-pr-mesn-portant-conditions-dorganisation-et-de-fonctionnement-du-conseil-national-du-travail-de-lemploi-et-de-la-formation-professionnelle/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

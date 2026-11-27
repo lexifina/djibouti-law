@@ -1,6 +1,6 @@
 # Loi n° 050/AN/19/8ème L portant amendement des certaines dispositions de la loi n° 212/AN/07/5ème L portant création de la Caisse Nationale de Sécurité Sociale (CNSS).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n050-an-19-8eme-l-portant-amendement-des-certaines-dispositions-de-la-loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-cnss/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n050-an-19-8eme-l-portant-amendement-des-certaines-dispositions-de-la-loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-cnss/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

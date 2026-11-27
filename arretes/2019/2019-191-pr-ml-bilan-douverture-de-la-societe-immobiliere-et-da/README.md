@@ -1,6 +1,6 @@
 # Arrêté n° 2019-191/PR/ML portant bilan d’ouverture de la Société Immobilière et d’Aménagement Foncier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-191-pr-ml-portant-bilan-douverture-de-la-societe-immobiliere-et-damenagement-foncier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-191-pr-ml-portant-bilan-douverture-de-la-societe-immobiliere-et-damenagement-foncier/>
 
 En vigueur : 2019-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

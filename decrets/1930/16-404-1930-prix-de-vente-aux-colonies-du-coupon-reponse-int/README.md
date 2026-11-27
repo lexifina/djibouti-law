@@ -1,6 +1,6 @@
 # Décret n° 16-404-1930 prix de vente aux colonies du coupon- réponse international.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-404-1930-prix-de-vente-aux-colonies-du-coupon-reponse-international/>
+Décret · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-404-1930-prix-de-vente-aux-colonies-du-coupon-reponse-international/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 

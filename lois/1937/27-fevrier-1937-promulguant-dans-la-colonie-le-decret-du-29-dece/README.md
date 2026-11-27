@@ -1,6 +1,6 @@
 # Amendement n° 27 février 1937 promulguant dans la colonie le décret du 29 décembre 1936 portant publication et mise en application provisoire à partir du 1er janvier 1937 de l’arrangement franco polonais du 15 décembre 1936.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-27-fevrier-1937-promulguant-dans-la-colonie-le-decret-du-29-decembre-1936-portant-publication-et-mise-en-application-provisoire-a-partir-du-1er-janvier-1937-de-larrangement-franc/>
+Amendement · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-27-fevrier-1937-promulguant-dans-la-colonie-le-decret-du-29-decembre-1936-portant-publication-et-mise-en-application-provisoire-a-partir-du-1er-janvier-1937-de-larrangement-franc/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

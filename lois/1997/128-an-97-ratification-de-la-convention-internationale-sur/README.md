@@ -1,6 +1,6 @@
 # Loi n° 128/AN/97/3ème L portant ratification de la Convention Internationale sur la lutte contre la Désertification par la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-97-3eme-l-portant-ratification-de-la-convention-internationale-sur-la-lutte-contre-la-desertification-par-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-97-3eme-l-portant-ratification-de-la-convention-internationale-sur-la-lutte-contre-la-desertification-par-la-republique-de-djibouti/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

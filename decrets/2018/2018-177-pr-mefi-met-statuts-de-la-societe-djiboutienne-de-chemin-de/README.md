@@ -1,6 +1,6 @@
 # Décret n° 2018-177/PR/MEFI/MET portant statuts de la Société Djiboutienne de chemin de fer en Société Anonyme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-177-pr-mefi-met-portant-statuts-de-la-societe-djiboutienne-de-chemin-de-fer-en-societe-anonyme/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-177-pr-mefi-met-portant-statuts-de-la-societe-djiboutienne-de-chemin-de-fer-en-societe-anonyme/>
 
 En vigueur : 2018-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

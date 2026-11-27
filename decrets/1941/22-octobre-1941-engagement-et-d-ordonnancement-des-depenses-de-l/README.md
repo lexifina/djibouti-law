@@ -1,6 +1,6 @@
 # Décret n° 22 octobre 1941 fixant les engagement et d’ordonnancement des dépenses de la France Libre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-octobre-1941-fixant-les-engagement-et-dordonnancement-des-depenses-de-la-france-libre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-octobre-1941-fixant-les-engagement-et-dordonnancement-des-depenses-de-la-france-libre/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2003-0166/PR/MDN portant réorganisation des Forces Armées Djiboutiennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0166-pr-mdn-portant-reorganisation-des-forces-armees-djiboutiennes/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0166-pr-mdn-portant-reorganisation-des-forces-armees-djiboutiennes/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 67-223 portant règlement d’administration publique pour l’application de la loi n° 65-557 du 10 juillet 1965 fixant le statut de la copropriété des immeubles bâtis. (Arrêté de promulgation n° 595/AEE du 12 avtil 1967)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-223-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-65-557-du-10-juillet-1965-fixant-le-statut-de-la-copropriete-des-immeubles-batis-arre/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-223-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-65-557-du-10-juillet-1965-fixant-le-statut-de-la-copropriete-des-immeubles-batis-arre/>
 
 En vigueur : 1967-04-01 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ Le Conseil d’Etat entendu
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° n°14 décret instituant un fonds spécial de prévoyance dans chaque colonie, pays de protectorat et territoire sous mandat,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-decret-instituant-un-fonds-special-de-prevoyance-dans-chaque-colonie-pays-de-protectorat-et-territoire-sous-mandat/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-decret-instituant-un-fonds-special-de-prevoyance-dans-chaque-colonie-pays-de-protectorat-et-territoire-sous-mandat/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -30,7 +30,7 @@ louis rollin
 | [art-001.md](art-001.md) | Art.1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

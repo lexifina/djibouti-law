@@ -1,6 +1,6 @@
 # Décret n° 17-413-1931 25/02/1931
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 413 du 30/04/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-413-1931-25-02-1931/>
+Décret · Journal officiel de la République de Djibouti, n° 413 du 30/04/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-413-1931-25-02-1931/>
 
 En vigueur : 1931-04-30 (date du Journal officiel qui le publie).
 

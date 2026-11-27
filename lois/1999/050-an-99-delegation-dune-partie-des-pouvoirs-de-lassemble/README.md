@@ -1,6 +1,6 @@
 # Loi n° 50/AN/99/4ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’ouverture de la 1ère Session Ordinaire de 1999.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-99-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-99-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1999/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

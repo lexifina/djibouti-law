@@ -1,6 +1,6 @@
 # Ordonnance n° du 20 novembre 1944 relative à ‘annulation de certaines condamnations.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-du-20-novembre-1944-relative-a-annulation-de-certaines-condamnations/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-du-20-novembre-1944-relative-a-annulation-de-certaines-condamnations/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2022-291/PR/MI portant convocation du corps électoral et fixant la date des élections législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-291-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-legislatives/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-291-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-legislatives/>
 
 En vigueur : 2022-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

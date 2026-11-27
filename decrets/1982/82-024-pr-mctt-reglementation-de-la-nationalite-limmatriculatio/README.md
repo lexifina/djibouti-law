@@ -1,6 +1,6 @@
 # Décret n° 82-024/PR/MCTT portant réglementation de la nationalité l’immatriculation et la propriété des aéronefs civils djiboutiens.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-024-pr-mctt-portant-reglementation-de-la-nationalite-limmatriculation-et-la-propriete-des-aeronefs-civils-djiboutiens/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-024-pr-mctt-portant-reglementation-de-la-nationalite-limmatriculation-et-la-propriete-des-aeronefs-civils-djiboutiens/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

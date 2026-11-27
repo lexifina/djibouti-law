@@ -1,6 +1,6 @@
 # Loi n° 50-244 maintenant provisoiremeñt en vigueur au delà du 1e mars 1950 certaines dispositions législatives et réglementaires du terips de guerre prorogées par la loi du 26 février 1949 (J.O.R.F. du 17 mars 1950. p. 2359)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1961 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-244-maintenant-provisoirement-en-vigueur-au-dela-du-1e-mars-1950-certaines-dispositions-legislatives-et-reglementaires-du-terips-de-guerre-prorogees-par-la-loi-du-26-fevrier-1949-j-o/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 28/02/1961 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-244-maintenant-provisoirement-en-vigueur-au-dela-du-1e-mars-1950-certaines-dispositions-legislatives-et-reglementaires-du-terips-de-guerre-prorogees-par-la-loi-du-26-fevrier-1949-j-o/>
 
 En vigueur : 1961-02-28 (date du Journal officiel qui le publie).
 
@@ -51,4 +51,4 @@ Charles BRUNE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

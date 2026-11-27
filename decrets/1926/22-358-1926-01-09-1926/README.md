@@ -1,6 +1,6 @@
 # Décret n° 22-358-1926 01/09/1926
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 358 du 30/09/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-358-1926-01-09-1926/>
+Décret · Journal officiel de la République de Djibouti, n° 358 du 30/09/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-358-1926-01-09-1926/>
 
 En vigueur : 1926-09-30 (date du Journal officiel qui le publie).
 

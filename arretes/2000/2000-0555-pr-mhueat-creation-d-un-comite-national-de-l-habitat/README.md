@@ -1,8 +1,8 @@
 # Arrêté n° 2000-0555/PR/MHUEAT portant création d’un Comité National de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0555-pr-mhueat-portant-creation-dun-comite-national-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0555-pr-mhueat-portant-creation-dun-comite-national-de-lhabitat/>
 
-En vigueur : 2000-07-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-07-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

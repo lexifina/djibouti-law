@@ -1,6 +1,6 @@
 # Loi n° 143/AN85/1ere L Portant modification et remaniement des ressources budgétaires taux de taxe de l’apposition d’affiches et des dispositifs de publicité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-taux-de-taxe-de-lapposition-daffiches-et-des-dispositifs-de-publicite/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-taux-de-taxe-de-lapposition-daffiches-et-des-dispositifs-de-publicite/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

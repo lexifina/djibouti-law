@@ -1,6 +1,6 @@
 # Décret n° 04-426-1932 Taux de rétribution du transport des dépêches par les navires de commerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-426-1932-taux-de-retribution-du-transport-des-depeches-par-les-navires-de-commerce/>
+Décret · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-426-1932-taux-de-retribution-du-transport-des-depeches-par-les-navires-de-commerce/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

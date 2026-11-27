@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0022/PR/MEFPCP autorisant la Société Gras Savoye Djibouti à exercer le courtage en assurance en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0022-pr-mefpcp-autorisant-la-societe-gras-savoye-djibouti-a-exercer-le-courtage-en-assurance-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0022-pr-mefpcp-autorisant-la-societe-gras-savoye-djibouti-a-exercer-le-courtage-en-assurance-en-republique-de-djibouti/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

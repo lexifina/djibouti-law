@@ -1,6 +1,6 @@
 # Décret n° 47-36 rendant applicable aux territoires relevant du ministère de la France d‘outre-mer autres que Indochine, l’article 65 de la loi du 31 décembre 1936 portant réforme fiscale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-36-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-indochine-larticle-65-de-la-loi-du-31-decembre-1936-portant-reforme/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-36-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-indochine-larticle-65-de-la-loi-du-31-decembre-1936-portant-reforme/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 

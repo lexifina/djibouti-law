@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0098/PR/MID portant création de la commission de contrôle des listes électorales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0098-pr-mid-portant-creation-de-la-commission-de-controle-des-listes-electorales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0098-pr-mid-portant-creation-de-la-commission-de-controle-des-listes-electorales/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

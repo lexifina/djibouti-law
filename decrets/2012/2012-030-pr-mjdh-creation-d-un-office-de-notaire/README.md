@@ -1,6 +1,6 @@
 # Décret n° 2012-030/PR/MJDH portant création d’un office de notaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-030-pr-mjdh-portant-creation-dun-office-de-notaire/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-030-pr-mjdh-portant-creation-dun-office-de-notaire/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

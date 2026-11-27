@@ -1,6 +1,6 @@
 # Loi de finances n° 140/AN/90/2ème L portant sur le budget de l’État pour l’exercice 1991.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n140-an-90-2eme-l-portant-sur-le-budget-de-letat-pour-lexercice-1991/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 1 du 15/01/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n140-an-90-2eme-l-portant-sur-le-budget-de-letat-pour-lexercice-1991/>
 
 En vigueur : 1991-01-15 (date du Journal officiel qui le publie).
 

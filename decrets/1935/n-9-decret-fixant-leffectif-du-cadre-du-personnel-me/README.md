@@ -1,6 +1,6 @@
 # Décret n° n°9 Décret fixant l’effectif du cadre du personnel métropolitain des postes et des télégraphes détaché à la Côte française des Somalis,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 459 du 28/02/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n9-decret-fixant-leffectif-du-cadre-du-personnel-metropolitain-des-postes-et-des-telegraphes-detache-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 459 du 28/02/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n9-decret-fixant-leffectif-du-cadre-du-personnel-metropolitain-des-postes-et-des-telegraphes-detache-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1935-02-28 (date du Journal officiel qui le publie).
 
@@ -24,5 +24,5 @@ george mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

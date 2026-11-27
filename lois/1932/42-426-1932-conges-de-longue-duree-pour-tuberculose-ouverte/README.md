@@ -1,6 +1,6 @@
 # Amendement n° 42-426-1932 relatif aux congés de longue durée pour tuberculose ouverte.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-42-426-1932-relatif-aux-conges-de-longue-duree-pour-tuberculose-ouverte/>
+Amendement · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-42-426-1932-relatif-aux-conges-de-longue-duree-pour-tuberculose-ouverte/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 
@@ -17,6 +17,6 @@ ANTONIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

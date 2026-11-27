@@ -1,6 +1,6 @@
 # Décret n° 08-432-1932 Budget local de la Côte française des Somalis, exercice 1931.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 432 du 30/11/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-432-1932-budget-local-de-la-cote-francaise-des-somalis-exercice-1931/>
+Décret · Journal officiel de la République de Djibouti, n° 432 du 30/11/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-432-1932-budget-local-de-la-cote-francaise-des-somalis-exercice-1931/>
 
 En vigueur : 1932-11-30 (date du Journal officiel qui le publie).
 

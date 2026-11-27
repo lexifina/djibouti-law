@@ -1,6 +1,6 @@
 # Loi n° 62/AN/14/7ème L portant ratification de l’accord de prêt signé entre la République de Djibouti et la Banque export-import de la République Populaire de Chine.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-14-7eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-14-7eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

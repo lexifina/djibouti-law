@@ -1,6 +1,6 @@
 # Décret n° 2-02-1901 organisant la Justice à la Côte Francaise des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 28 du 01/02/1901 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-02-1901-organisant-la-justice-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 28 du 01/02/1901 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-02-1901-organisant-la-justice-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1901-02-01 (date du Journal officiel qui le publie).
 

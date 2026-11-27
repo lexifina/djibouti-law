@@ -1,6 +1,6 @@
 # Loi n° 150/AN/91 /2e L portant sur l’orientation économique et sociale de la République de Djibouti pour la période 1990 à 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-91-2e-l-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti-pour-la-periode-1990-a-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-91-2e-l-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti-pour-la-periode-1990-a-2000/>
 
 En vigueur : 1992-11-15 (date du Journal officiel qui le publie).
 

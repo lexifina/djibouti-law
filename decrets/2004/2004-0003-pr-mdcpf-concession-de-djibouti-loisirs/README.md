@@ -1,6 +1,6 @@
 # Décret n° 2004-0003/PR/MDCPF portant concession de Djibouti-Loisirs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0003-pr-mdcpf-portant-concession-de-djibouti-loisirs/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0003-pr-mdcpf-portant-concession-de-djibouti-loisirs/>
 
 En vigueur : 2004-01-15 (date du Journal officiel qui le publie).
 

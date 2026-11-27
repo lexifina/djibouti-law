@@ -1,1 +1,0 @@
-Par décret n°2023-303/PRE, du Président de la République, Chef du Gouvernement, en date du 16 octobre 2023, pendant la durée de l’absence de S.E.M. ILYAS MOUSSA DAWALEH, l’intérim des fonctions du Ministre de l’Economie et des Finances, chargé de l’Industrie sera assuré par S.E.M. ISMAN IBRAHIM ROBLEH, Ministre du Budget cumulativement avec ses fonctions.

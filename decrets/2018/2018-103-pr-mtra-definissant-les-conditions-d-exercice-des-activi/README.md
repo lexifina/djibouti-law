@@ -1,8 +1,8 @@
 # Décret n° 2018-103/PR/MTRA définissant les conditions d’exercice des Activités des Agences Privées d’Emploi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-103-pr-mtra-definissant-les-conditions-dexercice-des-activites-des-agences-privees-demploi/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-103-pr-mtra-definissant-les-conditions-dexercice-des-activites-des-agences-privees-demploi/>
 
-En vigueur : 2018-03-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-03-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

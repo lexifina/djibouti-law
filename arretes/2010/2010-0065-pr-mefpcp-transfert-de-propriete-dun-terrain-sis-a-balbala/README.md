@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0065/PR/MEFPCP portant transfert de propriété d’un terrain sis à Balbala au profit du Ministère des Affaires Musulmanes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0065-pr-mefpcp-portant-transfert-de-propriete-dun-terrain-sis-a-balbala-au-profit-du-ministere-des-affaires-musulmanes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0065-pr-mefpcp-portant-transfert-de-propriete-dun-terrain-sis-a-balbala-au-profit-du-ministere-des-affaires-musulmanes/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

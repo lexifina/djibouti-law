@@ -1,6 +1,6 @@
 # Loi n° 136/AN/97/3ème L portant création d’une Chambre des Comptes et de Discipline Budgétaire de la Cour Suprême.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-97-3eme-l-portant-creation-dune-chambre-des-comptes-et-de-discipline-budgetaire-de-la-cour-supreme/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-97-3eme-l-portant-creation-dune-chambre-des-comptes-et-de-discipline-budgetaire-de-la-cour-supreme/>
 
 En vigueur : 1997-07-15 (date du Journal officiel qui le publie).
 
@@ -57,4 +57,4 @@ HASSAN GOULED APTIDON
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 13-219-1915 le 1er Janvier 1915.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 219 du 31/01/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-219-1915-le-1er-janvier-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 219 du 31/01/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-219-1915-le-1er-janvier-1915/>
 
 En vigueur : 1915-01-31 (date du Journal officiel qui le publie).
 

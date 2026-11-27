@@ -1,6 +1,6 @@
 # Loi n° 48-1471 relative à l’élection des conseillers de la République (J. 0. R. F. du 24 septembre 1948. page 9594).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1471-relative-a-lelection-des-conseillers-de-la-republique-j-0-r-f-du-24-septembre-1948-page-9594/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1471-relative-a-lelection-des-conseillers-de-la-republique-j-0-r-f-du-24-septembre-1948-page-9594/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 
@@ -67,9 +67,9 @@ Paul COSTE-FLORET.
 | [art-041.md](art-041.md) | Art. 41 |
 | [art-042.md](art-042.md) | Art. 42 |
 | [art-043.md](art-043.md) | Art. 43 |
-| [art-044.md](art-044.md) | Art. 44 — |
+| [art-044.md](art-044.md) | Art. 44 |
 | [art-045.md](art-045.md) | Art. 45 |
-| [art-046.md](art-046.md) | Art. 46 — |
+| [art-046.md](art-046.md) | Art. 46 |
 | [art-047.md](art-047.md) | Art. 47 |
 | [art-048.md](art-048.md) | Art. 48 |
 | [art-049.md](art-049.md) | Art. 49 |
@@ -85,4 +85,4 @@ Paul COSTE-FLORET.
 | [art-059.md](art-059.md) | Art. 59 |
 | [art-060.md](art-060.md) | Art. 60 |
 | [art-061.md](art-061.md) | Art. 61 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

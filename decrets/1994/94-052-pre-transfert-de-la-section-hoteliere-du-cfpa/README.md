@@ -1,6 +1,6 @@
 # Décret n° 94-052/PRE portant transfert de la section Hôtelière du CFPA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-052-pre-portant-transfert-de-la-section-hoteliere-du-cfpa/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-052-pre-portant-transfert-de-la-section-hoteliere-du-cfpa/>
 
 En vigueur : 1994-05-15 (date du Journal officiel qui le publie).
 
@@ -18,6 +18,6 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

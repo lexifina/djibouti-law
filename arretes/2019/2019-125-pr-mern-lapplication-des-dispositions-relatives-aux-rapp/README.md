@@ -1,8 +1,8 @@
 # Arrêté n° 2019-125/PR/MERN fixant l’application des dispositions relatives aux rapports trimestriels et annuels.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-125-pr-mern-fixant-lapplication-des-dispositions-relatives-aux-rapports-trimestriels-et-annuels/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-125-pr-mern-fixant-lapplication-des-dispositions-relatives-aux-rapports-trimestriels-et-annuels/>
 
-En vigueur : 2019-07-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

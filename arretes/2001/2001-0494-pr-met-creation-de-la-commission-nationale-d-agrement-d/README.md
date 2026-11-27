@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0494/PR/MET portant création de la Commission Nationale d’agrément d’auxiliaire des Transports Maritimes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0494-pr-met-portant-creation-de-la-commission-nationale-dagrement-dauxiliaire-des-transports-maritimes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0494-pr-met-portant-creation-de-la-commission-nationale-dagrement-dauxiliaire-des-transports-maritimes/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

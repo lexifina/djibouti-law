@@ -1,6 +1,6 @@
 # Décret n° 9-232-1926 Le Président de la République française,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-232-1926-le-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-232-1926-le-president-de-la-republique-francaise/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ René VIVIANI.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

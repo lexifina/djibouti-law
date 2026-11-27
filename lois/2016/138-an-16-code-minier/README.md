@@ -1,6 +1,6 @@
 # Loi n° 138/AN/16/7ème L portant Code Minier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-16-7eme-l-portant-code-minier/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-16-7eme-l-portant-code-minier/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 
@@ -140,4 +140,4 @@ ISMAÏL OMAR GUELLEH
 | [art-093.md](art-093.md) | Article 93 |
 | [art-094.md](art-094.md) | Article 94 |
 | [art-095.md](art-095.md) | Article 95 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

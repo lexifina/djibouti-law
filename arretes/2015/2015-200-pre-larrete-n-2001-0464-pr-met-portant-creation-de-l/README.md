@@ -1,6 +1,6 @@
 # Arrêté n° 2015-200/PRE modifiant l’Arrêté n° 2001-0464/PR/MET portant création de la Commission Nationale d’Agrément des Transitaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-200-pre-modifiant-larrete-n2001-0464-pr-met-portant-creation-de-la-commission-nationale-dagrement-des-transitaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-200-pre-modifiant-larrete-n2001-0464-pr-met-portant-creation-de-la-commission-nationale-dagrement-des-transitaires/>
 
 En vigueur : 2015-03-15 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

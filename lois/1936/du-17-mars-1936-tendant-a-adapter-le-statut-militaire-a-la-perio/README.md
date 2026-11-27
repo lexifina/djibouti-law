@@ -1,6 +1,6 @@
 # Loi n° du 17 mars 1936 tendant à adapter le statut militaire à la période dite des « années Creuses,
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-17-mars-1936-tendant-a-adapter-le-statut-militaire-a-la-periode-dite-des-annees-creuses/>
+Loi · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-17-mars-1936-tendant-a-adapter-le-statut-militaire-a-la-periode-dite-des-annees-creuses/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -21,7 +21,7 @@ Général MAURIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

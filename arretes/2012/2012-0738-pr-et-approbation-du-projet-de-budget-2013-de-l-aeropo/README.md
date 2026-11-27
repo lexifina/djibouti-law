@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0738/PR/ET portant approbation du projet de Budget 2013 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0738-pr-et-portant-approbation-du-projet-de-budget-2013-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0738-pr-et-portant-approbation-du-projet-de-budget-2013-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

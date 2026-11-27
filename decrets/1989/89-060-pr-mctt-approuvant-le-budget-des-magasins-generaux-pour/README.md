@@ -1,6 +1,6 @@
 # Décret n° 89-060/PR/MCTT approuvant le budget des Magasins Généraux pour l’exercice 1989
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-060-pr-mctt-approuvant-le-budget-des-magasins-generaux-pour-lexercice-1989/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-060-pr-mctt-approuvant-le-budget-des-magasins-generaux-pour-lexercice-1989/>
 
 En vigueur : 1989-05-31 (date du Journal officiel qui le publie).
 

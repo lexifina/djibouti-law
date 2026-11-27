@@ -1,6 +1,6 @@
 # Décret n° n° 47-1925 fixant la date de l’élection au représentant du territoire de la Côte française des Somali à l’Assemblée de l’Union française,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-1925-fixant-la-date-de-lelection-au-representant-du-territoire-de-la-cote-francaise-des-somali-a-lassemblee-de-lunion-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-1925-fixant-la-date-de-lelection-au-representant-du-territoire-de-la-cote-francaise-des-somali-a-lassemblee-de-lunion-francaise/>
 
 En vigueur : 1947-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 83-073/PRE concernant la coordination des moyens mis en oeuvre en cas de crise et l’établissement de plans de crise.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/07/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-073-pre-concernant-la-coordination-des-moyens-mis-en-oeuvre-en-cas-de-crise-et-letablissement-de-plans-de-crise/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 31/07/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-073-pre-concernant-la-coordination-des-moyens-mis-en-oeuvre-en-cas-de-crise-et-letablissement-de-plans-de-crise/>
 
 En vigueur : 1983-07-31 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ HASSAN GOULED APTIDON
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

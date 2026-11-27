@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er — L’article 2 du décret du 14 mai 1938 est complété ainsi qu’il suit :
 Art, 2, — 1er Les indigènes servant où ayant servi dans les tronpes coloniales où métropolitaines, les indigènes appartenant ou ayant appartenu aux armées de mer ou de l’air, ainsi que leurs femmes et leurs enfants.
 (Le reste sans changement.)

@@ -1,6 +1,6 @@
 # Décret n° 2025-076/PR/MJDH portant mesures de grâce présidentielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 31/03/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-076-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 06 du 31/03/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-076-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2025-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

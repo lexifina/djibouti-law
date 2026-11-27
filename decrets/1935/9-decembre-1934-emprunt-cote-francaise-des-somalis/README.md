@@ -1,6 +1,6 @@
 # Décret n° 9 décembre 1934, Emprunt (Côte française des Somalis).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-decembre-1934-emprunt-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-decembre-1934-emprunt-cote-francaise-des-somalis/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

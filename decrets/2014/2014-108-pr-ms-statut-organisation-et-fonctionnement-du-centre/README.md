@@ -1,6 +1,6 @@
 # Décret n° 2014-108/PR/MS portant statut, organisation et fonctionnement du Centre National de Référence en Santé de la Reproduction “HOUSSEINA”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-108-pr-ms-portant-statut-organisation-et-fonctionnement-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-108-pr-ms-portant-statut-organisation-et-fonctionnement-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
 
 En vigueur : 2014-04-30 (date du Journal officiel qui le publie).
 

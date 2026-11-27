@@ -1,6 +1,6 @@
 # Loi n° 184/AN/02/4ème L portant ratification de la Convention contre la torture et autres peines ou traitement cruels, inhumains ou dégradants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-02-4eme-l-portant-ratification-de-la-convention-contre-la-torture-et-autres-peines-ou-traitement-cruels-inhumains-ou-degradants/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-02-4eme-l-portant-ratification-de-la-convention-contre-la-torture-et-autres-peines-ou-traitement-cruels-inhumains-ou-degradants/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

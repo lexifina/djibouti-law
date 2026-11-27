@@ -1,6 +1,6 @@
 # Décret n° 45288 relatif au relèvement des indemnités accordées pour la perte des objets recommandés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45288-relatif-au-relevement-des-indemnites-accordees-pour-la-perte-des-objets-recommandes/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45288-relatif-au-relevement-des-indemnites-accordees-pour-la-perte-des-objets-recommandes/>
 
 En vigueur : 1945-03-01 (date du Journal officiel qui le publie).
 

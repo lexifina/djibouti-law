@@ -1,6 +1,6 @@
 # Erratum n° 40-321-1923 31/07/1923
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 321 du 31/08/1923 Â· <https://www.journalofficiel.dj/texte-juridique/erratum-n-40-321-1923-31-07-1923/>
+Erratum · Journal officiel de la République de Djibouti, n° 321 du 31/08/1923 · <https://www.journalofficiel.dj/texte-juridique/erratum-n-40-321-1923-31-07-1923/>
 
 En vigueur : 1923-08-31 (date du Journal officiel qui le publie).
 

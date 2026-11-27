@@ -1,6 +1,6 @@
 # Décret n° n°10 Le décret portant application aux colonies, pays de protectorat et territoires sous-mandat relevant du ministère des Colonies divers décrets concernant des définitions d’appellations contrôlées;
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-le-decret-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-divers-decrets-concernant-des-definitions-dapp/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-le-decret-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-divers-decrets-concernant-des-definitions-dapp/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 95 étendant aux requis et engagés volontaires à titre civil dans la défense passive des territoires relevant du secrétariat d’État aux colonies et à leurs ayants cause, le bénéfice des institutions des Offices coloniaux et locaux des mutilés, combattants, victimes de la guerre et pupilles de la nation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-95-etendant-aux-requis-et-engages-volontaires-a-titre-civil-dans-la-defense-passive-des-territoires-relevant-du-secretariat-detat-aux-colonies-et-a-leurs-ayants-cause-le-benefice-de/>
+Décret · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-95-etendant-aux-requis-et-engages-volontaires-a-titre-civil-dans-la-defense-passive-des-territoires-relevant-du-secretariat-detat-aux-colonies-et-a-leurs-ayants-cause-le-benefice-de/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

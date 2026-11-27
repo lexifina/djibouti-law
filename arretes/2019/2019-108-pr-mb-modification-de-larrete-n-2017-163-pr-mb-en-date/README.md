@@ -1,6 +1,6 @@
 # Arrêté n° 2019-108/PR/MB portant modification de l’arrêté n° 2017-163/PR/MB en date du 26/10/2017 relatif à l’attribution une parcelle de terrain sis PK 20.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-108-pr-mb-portant-modification-de-larrete-n2017-163-pr-mb-en-date-du-26-10-2017-relatif-a-lattribution-une-parcelle-de-terrain-sis-pk-20/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-108-pr-mb-portant-modification-de-larrete-n2017-163-pr-mb-en-date-du-26-10-2017-relatif-a-lattribution-une-parcelle-de-terrain-sis-pk-20/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

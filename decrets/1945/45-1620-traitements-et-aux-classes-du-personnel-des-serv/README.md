@@ -1,6 +1,6 @@
 # Décret n° 45-1620 relatif aux traitements et aux classes du personnel des services de l’élevage et des industries annexes des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1620-relatif-aux-traitements-et-aux-classes-du-personnel-des-services-de-lelevage-et-des-industries-annexes-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1620-relatif-aux-traitements-et-aux-classes-du-personnel-des-services-de-lelevage-et-des-industries-annexes-des-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ R. PLEVEN.
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

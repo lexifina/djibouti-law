@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0362/PR/MCCPT portant Adoption de la Subvention Publique allouée à la Poste de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0362-pr-mccpt-portant-adoption-de-la-subvention-publique-allouee-a-la-poste-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0362-pr-mccpt-portant-adoption-de-la-subvention-publique-allouee-a-la-poste-de-djibouti/>
 
 En vigueur : 2012-06-14 (date du Journal officiel qui le publie).
 

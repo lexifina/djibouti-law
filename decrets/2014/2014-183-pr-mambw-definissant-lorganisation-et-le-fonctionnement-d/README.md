@@ -1,6 +1,6 @@
 # Décret n° 2014-183/PR/MAMBW définissant l’organisation et le fonctionnement de l’Office Djiboutien des Droits d’Auteur et de Droit Voisin (ODDA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-183-pr-mambw-definissant-lorganisation-et-le-fonctionnement-de-loffice-djiboutien-des-droits-dauteur-et-de-droit-voisin-odda/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-183-pr-mambw-definissant-lorganisation-et-le-fonctionnement-de-loffice-djiboutien-des-droits-dauteur-et-de-droit-voisin-odda/>
 
 En vigueur : 2014-07-15 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
 | [art-055.md](art-055.md) | Article 55 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

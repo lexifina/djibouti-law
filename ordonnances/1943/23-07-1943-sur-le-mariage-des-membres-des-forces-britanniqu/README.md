@@ -1,6 +1,6 @@
 # Ordonnance n° 23/07/1943 sur le mariage des membres des Forces britanniques dans les territoires relevant de l’autorité du Comité français de la Libération nationale.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-23-07-1943-sur-le-mariage-des-membres-des-forces-britanniques-dans-les-territoires-relevant-de-lautorite-du-comite-francais-de-la-liberation-nationale/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-23-07-1943-sur-le-mariage-des-membres-des-forces-britanniques-dans-les-territoires-relevant-de-lautorite-du-comite-francais-de-la-liberation-nationale/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

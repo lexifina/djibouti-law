@@ -1,6 +1,6 @@
 # Décret n° 02-179-1911 autorisant les Gouverneurs Généraux et Gouverneurs des colonies à promulguer l’article 31 de la loi de finances du 17 avril 1906.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 179 du 01/10/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-179-1911-autorisant-les-gouverneurs-generaux-et-gouverneurs-des-colonies-a-promulguer-larticle-31-de-la-loi-de-finances-du-17-avril-1906/>
+Décret · Journal officiel de la République de Djibouti, n° 179 du 01/10/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-179-1911-autorisant-les-gouverneurs-generaux-et-gouverneurs-des-colonies-a-promulguer-larticle-31-de-la-loi-de-finances-du-17-avril-1906/>
 
 En vigueur : 1911-10-01 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ L.-L. KLOTZ.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article Premier |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

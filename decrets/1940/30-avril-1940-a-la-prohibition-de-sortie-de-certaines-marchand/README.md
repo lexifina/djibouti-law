@@ -1,6 +1,6 @@
 # Décret n° 30 avril 1940 relatif à la prohibition de sortie de certaines marchandise.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-avril-1940-relatif-a-la-prohibition-de-sortie-de-certaines-marchandise/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-avril-1940-relatif-a-la-prohibition-de-sortie-de-certaines-marchandise/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 

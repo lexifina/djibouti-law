@@ -1,6 +1,6 @@
 # Décret n° du 31 mars 1939 portant publication et mise en application à titre provisoire, de l’accord franco-allemand du 10 mars 1939 relatif à l’incorporation des échanges commerciaux entre les territoires allemands des Sudètes et la France, dans les relations économiques franco-allemandes,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-31-mars-1939-portant-publication-et-mise-en-application-a-titre-provisoire-de-laccord-franco-allemand-du-10-mars-1939-relatif-a-lincorporation-des-echanges-commerciaux-e/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-31-mars-1939-portant-publication-et-mise-en-application-a-titre-provisoire-de-laccord-franco-allemand-du-10-mars-1939-relatif-a-lincorporation-des-echanges-commerciaux-e/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 

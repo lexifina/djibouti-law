@@ -1,6 +1,6 @@
 # Décret n° 2015-137/PRE complétant certaines dispositions du Décret n° 2002-0098/PRE portant création de l’Autorité de la Zone Franche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-137-pre-completant-certaines-dispositions-du-decret-n2002-0098-pre-portant-creation-de-lautorite-de-la-zone-franche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-137-pre-completant-certaines-dispositions-du-decret-n2002-0098-pre-portant-creation-de-lautorite-de-la-zone-franche-de-djibouti/>
 
 En vigueur : 2015-05-14 (date du Journal officiel qui le publie).
 

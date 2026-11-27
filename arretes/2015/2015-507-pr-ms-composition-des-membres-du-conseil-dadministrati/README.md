@@ -1,8 +1,8 @@
 # Arrêté n° 2015-507/PR/MS portant composition des membres du Conseil d’Administration de la Centrale d’Achat des Médicaments et Matériels Essentiels (CAMME).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-507-pr-ms-portant-composition-des-membres-du-conseil-dadministration-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-507-pr-ms-portant-composition-des-membres-du-conseil-dadministration-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
 
-En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

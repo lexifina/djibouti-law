@@ -1,6 +1,6 @@
 # Décret n° 2009-0113/PRE portant adoption de la Stratégie Nationale de la Sécurité Alimentaire et Nutritionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0113-pre-portant-adoption-de-la-strategie-nationale-de-la-securite-alimentaire-et-nutritionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0113-pre-portant-adoption-de-la-strategie-nationale-de-la-securite-alimentaire-et-nutritionnelle/>
 
 En vigueur : 2009-06-15 (date du Journal officiel qui le publie).
 

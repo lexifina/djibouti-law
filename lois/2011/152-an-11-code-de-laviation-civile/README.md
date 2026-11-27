@@ -1,6 +1,6 @@
 # Loi n° 152/AN/11/6ème L portant Code de l’Aviation Civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-11-6eme-l-portant-code-de-laviation-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-11-6eme-l-portant-code-de-laviation-civile/>
 
 En vigueur : 2012-03-15 (date du Journal officiel qui le publie).
 

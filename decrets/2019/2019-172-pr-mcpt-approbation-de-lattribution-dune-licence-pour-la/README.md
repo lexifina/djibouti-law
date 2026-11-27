@@ -1,6 +1,6 @@
 # Décret n° 2019-172/PR/MCPT portant approbation de l’attribution d’une licence pour la fourniture de service internet data.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-172-pr-mcpt-portant-approbation-de-lattribution-dune-licence-pour-la-fourniture-de-service-internet-data/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-172-pr-mcpt-portant-approbation-de-lattribution-dune-licence-pour-la-fourniture-de-service-internet-data/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

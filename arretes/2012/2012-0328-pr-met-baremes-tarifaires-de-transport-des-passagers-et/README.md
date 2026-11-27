@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0328/PR/MET fixant les barèmes tarifaires de transport des passagers et des marchandises en vue de l’exploitation du ferryboat “Med Bourhan Kassim”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0328-pr-met-fixant-les-baremes-tarifaires-de-transport-des-passagers-et-des-marchandises-en-vue-de-lexploitation-du-ferryboat-med-bourhan-kassim/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0328-pr-met-fixant-les-baremes-tarifaires-de-transport-des-passagers-et-des-marchandises-en-vue-de-lexploitation-du-ferryboat-med-bourhan-kassim/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

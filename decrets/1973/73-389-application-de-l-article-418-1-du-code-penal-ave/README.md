@@ -1,6 +1,6 @@
 # Décret n° 73-389 portant application de l’article 418-1 du code pénal (avec rectificatif paru au JORF du 14 avril 1973, page 1390). (JORF n° 80 du 4 avril 1973).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-389-portant-application-de-larticle-418-1-du-code-penal-avec-rectificatif-paru-au-jorf-du-14-avril-1973-page-1390-jorf-n-80-du-4-avril-1973/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-389-portant-application-de-larticle-418-1-du-code-penal-avec-rectificatif-paru-au-jorf-du-14-avril-1973-page-1390-jorf-n-80-du-4-avril-1973/>
 
 En vigueur : 1973-05-25 (date du Journal officiel qui le publie).
 

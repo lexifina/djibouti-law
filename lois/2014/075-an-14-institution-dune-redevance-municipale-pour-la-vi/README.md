@@ -1,6 +1,6 @@
 # Loi n° 75/AN/14/7ème L portant institution d’une redevance municipale pour la ville de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-14-7eme-l-portant-institution-dune-redevance-municipale-pour-la-ville-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-14-7eme-l-portant-institution-dune-redevance-municipale-pour-la-ville-de-djibouti/>
 
 En vigueur : 2015-02-28 (date du Journal officiel qui le publie).
 

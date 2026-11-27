@@ -1,6 +1,6 @@
 # Décret n° 2016-107/PR/MI portant modification du Décret n° 2016-083/PR/MI relatif à la tenue, des galons et des équipements de la Police Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-107-pr-mi-portant-modification-du-decret-n-2016-083-pr-mi-relatif-a-la-tenue-des-galons-et-des-equipements-de-la-police-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-107-pr-mi-portant-modification-du-decret-n-2016-083-pr-mi-relatif-a-la-tenue-des-galons-et-des-equipements-de-la-police-nationale/>
 
 En vigueur : 2016-05-15 (date du Journal officiel qui le publie).
 

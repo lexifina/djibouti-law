@@ -1,6 +1,6 @@
 # Loi n° 172/AN/07/5ème L portant approbation des comptes financiers d’Electricité de Djibouti (EDD) pour l’Exercice 2005.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-07-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-edd-pour-lexercice-2005/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-07-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-edd-pour-lexercice-2005/>
 
 En vigueur : 2007-04-30 (date du Journal officiel qui le publie).
 

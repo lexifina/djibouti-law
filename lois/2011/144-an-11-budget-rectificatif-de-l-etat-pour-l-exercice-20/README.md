@@ -1,6 +1,6 @@
 # Loi n° 144/AN/11/6ème L portant Budget Rectificatif de l’Etat pour l’Exercice 2011.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-11-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2011/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-11-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2011/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

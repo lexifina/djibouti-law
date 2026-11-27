@@ -1,6 +1,6 @@
 # Loi n° 044/AN/19/8ème L relative à l’Economie Sociale et Solidaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n044-an-19-8eme-l-relative-a-leconomie-sociale-et-solidaire/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n044-an-19-8eme-l-relative-a-leconomie-sociale-et-solidaire/>
 
 En vigueur : 2019-06-30 (date du Journal officiel qui le publie).
 
@@ -85,4 +85,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

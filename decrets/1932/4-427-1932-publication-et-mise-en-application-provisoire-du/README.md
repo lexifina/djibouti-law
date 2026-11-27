@@ -1,6 +1,6 @@
 # Décret n° 4-427-1932 Publication et mise en application provisoire du modus vivendi commercial franco-italien signé à Rome le 4 mars 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 427 du 30/06/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-427-1932-publication-et-mise-en-application-provisoire-du-modus-vivendi-commercial-franco-italien-signe-a-rome-le-4-mars-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 427 du 30/06/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-427-1932-publication-et-mise-en-application-provisoire-du-modus-vivendi-commercial-franco-italien-signe-a-rome-le-4-mars-1932/>
 
 En vigueur : 1932-06-30 (date du Journal officiel qui le publie).
 

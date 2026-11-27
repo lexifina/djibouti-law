@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0467/PR/MI portant Organisation de Tombola au profit du Comité chargé des Finances de la Conférence Nationale pour la Paix en Somalie.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0467-pr-mi-portant-organisation-de-tombola-au-profit-du-comite-charge-des-finances-de-la-conference-nationale-pour-la-paix-en-somalie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 29/06/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0467-pr-mi-portant-organisation-de-tombola-au-profit-du-comite-charge-des-finances-de-la-conference-nationale-pour-la-paix-en-somalie/>
 
 En vigueur : 2000-06-29 (date du Journal officiel qui le publie).
 

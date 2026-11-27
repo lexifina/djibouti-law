@@ -1,6 +1,6 @@
 # Décret n° 2024-147/PR/MD portant modification du décret fixant l’établissement d’un capital décès.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-147-pr-md-portant-modification-du-decret-fixant-letablissement-dun-capital-deces/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 13/06/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-147-pr-md-portant-modification-du-decret-fixant-letablissement-dun-capital-deces/>
 
 En vigueur : 2024-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 82-0803/PR fixant le tarif des missions de maîtrise d’œuvre, de conception ou de contrôle des travaux en cas de conventions passées entre la Direction des Travaux Publics et des Établissements publics ou privés.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/06/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0803-pr-fixant-le-tarif-des-missions-de-maitrise-doeuvre-de-conception-ou-de-controle-des-travaux-en-cas-de-conventions-passees-entre-la-direction-des-travaux-publics-et-des-etabli/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 08/06/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0803-pr-fixant-le-tarif-des-missions-de-maitrise-doeuvre-de-conception-ou-de-controle-des-travaux-en-cas-de-conventions-passees-entre-la-direction-des-travaux-publics-et-des-etabli/>
 
 En vigueur : 1982-06-08 (date du Journal officiel qui le publie).
 

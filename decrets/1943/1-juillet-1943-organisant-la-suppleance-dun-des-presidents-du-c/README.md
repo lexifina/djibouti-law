@@ -1,6 +1,6 @@
 # Décret n° 1 juillet 1943 organisant la suppléance d’un des présidents du Comité Français de la Libération Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-juillet-1943-organisant-la-suppleance-dun-des-presidents-du-comite-francais-de-la-liberation-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-juillet-1943-organisant-la-suppleance-dun-des-presidents-du-comite-francais-de-la-liberation-nationale/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 90-044/PR/J portant grace collective a l’occasion de |’ Aid-El-Fitr.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-044-pr-j-portant-grace-collective-a-loccasion-de-aid-el-fitr/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-044-pr-j-portant-grace-collective-a-loccasion-de-aid-el-fitr/>
 
 En vigueur : 1990-04-30 (date du Journal officiel qui le publie).
 
@@ -19,7 +19,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

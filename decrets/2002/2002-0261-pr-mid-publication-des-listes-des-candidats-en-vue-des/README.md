@@ -1,6 +1,6 @@
 # Décret n° 2002-0261/PR/MID Portant publication des listes des candidats en vue des élections législatives du vendredi 10 janvier 2003.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 25/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0261-pr-mid-portant-publication-des-listes-des-candidats-en-vue-des-elections-legislatives-du-vendredi-10-janvier-2003/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 25/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0261-pr-mid-portant-publication-des-listes-des-candidats-en-vue-des-elections-legislatives-du-vendredi-10-janvier-2003/>
 
 En vigueur : 2002-12-25 (date du Journal officiel qui le publie).
 

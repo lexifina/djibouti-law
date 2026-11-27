@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE I : PENSIONS MILITAIRES DE RETRAITE ET DE RÉFORME.
 Chapitre I – Généralités.

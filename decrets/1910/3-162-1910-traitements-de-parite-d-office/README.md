@@ -1,6 +1,6 @@
 # Décret n° 3-162-1910 Les traitements de parité d’office
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 162 du 01/05/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-162-1910-les-traitements-de-parite-doffice/>
+Décret · Journal officiel de la République de Djibouti, n° 162 du 01/05/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-162-1910-les-traitements-de-parite-doffice/>
 
 En vigueur : 1910-05-01 (date du Journal officiel qui le publie).
 

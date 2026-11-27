@@ -1,6 +1,6 @@
 # Loi n° 210/AN/17/7ème L portant création d’un centre d’accueil et d’hébergement pour personnes âgées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-17-7eme-l-portant-creation-dun-centre-daccueil-et-dhebergement-pour-personnes-agees/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-17-7eme-l-portant-creation-dun-centre-daccueil-et-dhebergement-pour-personnes-agees/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

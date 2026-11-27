@@ -1,6 +1,6 @@
 # Décret n° 70-225 du 4 mars 1970 portant règlement d’administration publique, étendant et adaptant aux territoires d’outre-mer certaines dispositions du code électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-225-du-4-mars-1970-portant-reglement-dadministration-publique-etendant-et-adaptant-aux-territoires-doutre-mer-certaines-dispositions-du-code-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/06/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-225-du-4-mars-1970-portant-reglement-dadministration-publique-etendant-et-adaptant-aux-territoires-doutre-mer-certaines-dispositions-du-code-electoral/>
 
 En vigueur : 1970-06-01 (date du Journal officiel qui le publie).
 

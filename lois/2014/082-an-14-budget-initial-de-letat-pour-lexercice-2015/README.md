@@ -1,6 +1,6 @@
 # Loi n° 82/AN/14/7ème L portant budget initial de l’Etat pour l’exercice 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-14-7eme-l-portant-budget-initial-de-letat-pour-lexercice-2015/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-14-7eme-l-portant-budget-initial-de-letat-pour-lexercice-2015/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

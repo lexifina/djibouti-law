@@ -1,6 +1,6 @@
 # Loi n° 74/AN/14/7ème L portant organisation du Ministère de l’Equipement et des Transports.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-14-7eme-l-portant-organisation-du-ministere-de-lequipement-et-des-transports/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-14-7eme-l-portant-organisation-du-ministere-de-lequipement-et-des-transports/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

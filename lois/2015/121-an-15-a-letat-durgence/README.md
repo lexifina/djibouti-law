@@ -1,8 +1,8 @@
 # Loi n° 121/AN/15/7ème L relative à l’état d’urgence.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-15-7eme-l-relative-a-letat-durgence/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-15-7eme-l-relative-a-letat-durgence/>
 
-En vigueur : 2015-12-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-12-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

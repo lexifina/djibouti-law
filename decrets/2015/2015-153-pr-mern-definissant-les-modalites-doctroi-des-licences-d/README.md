@@ -1,6 +1,6 @@
 # Décret n° 2015-153/PR/MERN définissant les modalités d’octroi des licences des activités d’Importation, de Stockage, de Transport et de Distribution des Hydrocarbures et les modalités du stock stratégique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-153-pr-mern-definissant-les-modalites-doctroi-des-licences-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures-et-les-modalites-du-stock/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-153-pr-mern-definissant-les-modalites-doctroi-des-licences-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures-et-les-modalites-du-stock/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

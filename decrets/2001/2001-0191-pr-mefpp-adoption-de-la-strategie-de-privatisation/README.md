@@ -1,6 +1,6 @@
 # Décret n° 2001-0191/PR/MEFPP portant adoption de la Stratégie de Privatisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0191-pr-mefpp-portant-adoption-de-la-strategie-de-privatisation/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0191-pr-mefpp-portant-adoption-de-la-strategie-de-privatisation/>
 
 En vigueur : 2001-09-30 (date du Journal officiel qui le publie).
 

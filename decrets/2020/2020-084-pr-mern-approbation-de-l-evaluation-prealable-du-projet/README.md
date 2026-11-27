@@ -1,8 +1,8 @@
 # Décret n° 2020-084/PR/MERN portant approbation de l’évaluation préalable du projet solaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-084-pr-mern-portant-approbation-de-levaluation-prealable-du-projet-solaire/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-084-pr-mern-portant-approbation-de-levaluation-prealable-du-projet-solaire/>
 
-En vigueur : 2020-05-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-05-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

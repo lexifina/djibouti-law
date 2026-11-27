@@ -1,8 +1,8 @@
 # Décret n° 2007-0117/PR/MEFPCP portant organisation et fonctionnement du Fonds de Développement Economique de Djibouti et du Fonds de Garantie des prêts accordés aux promoteurs et jeunes diplômés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0117-pr-mefpcp-portant-organisation-et-fonctionnement-du-fonds-de-developpement-economique-de-djibouti-et-du-fonds-de-garantie-des-prets-accordes-aux-promoteurs-et-jeunes-diplomes/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0117-pr-mefpcp-portant-organisation-et-fonctionnement-du-fonds-de-developpement-economique-de-djibouti-et-du-fonds-de-garantie-des-prets-accordes-aux-promoteurs-et-jeunes-diplomes/>
 
-En vigueur : 2007-05-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2007-05-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -54,4 +54,4 @@ ISMAÏL OMAR GUELLEH
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

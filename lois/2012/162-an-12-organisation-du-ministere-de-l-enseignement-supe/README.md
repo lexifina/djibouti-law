@@ -1,8 +1,8 @@
 # Loi n° 162/AN/12/6ème L portant organisation du Ministère de l’Enseignement Supérieur et de la Recherche.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-12-6eme-l-portant-organisation-du-ministere-de-lenseignement-superieur-et-de-la-recherche/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-12-6eme-l-portant-organisation-du-ministere-de-lenseignement-superieur-et-de-la-recherche/>
 
-En vigueur : 2012-06-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-06-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

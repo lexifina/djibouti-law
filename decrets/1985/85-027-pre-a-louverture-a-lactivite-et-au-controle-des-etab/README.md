@@ -1,6 +1,6 @@
 # Décret n° 85-027/PRE Relatif à l’ouverture, à l’activité et au contrôle des établissements bancaires et financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-027-pre-relatif-a-louverture-a-lactivite-et-au-controle-des-etablissements-bancaires-et-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-027-pre-relatif-a-louverture-a-lactivite-et-au-controle-des-etablissements-bancaires-et-financiers/>
 
 En vigueur : 1985-02-28 (date du Journal officiel qui le publie).
 

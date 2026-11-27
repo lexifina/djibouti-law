@@ -1,6 +1,6 @@
 # Décret n° 97-0128/PR/FIN Portant amendement du décret relatif à la Création d’un Comité de Suivi des Opérations de Démobiisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0128-pr-fin-portant-amendement-du-decret-relatif-a-la-creation-dun-comite-de-suivi-des-operations-de-demobiisation-2/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0128-pr-fin-portant-amendement-du-decret-relatif-a-la-creation-dun-comite-de-suivi-des-operations-de-demobiisation-2/>
 
 En vigueur : 1997-08-31 (date du Journal officiel qui le publie).
 

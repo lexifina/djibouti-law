@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE VI.
 PROPAGANDE Él ECTORALE.

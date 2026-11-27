@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0180/PR/MCCPT portant adoption du projet du budget prévisionnel 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0180-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2005/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0180-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2005/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

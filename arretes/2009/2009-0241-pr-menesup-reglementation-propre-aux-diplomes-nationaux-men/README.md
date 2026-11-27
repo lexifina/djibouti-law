@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0241/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence Appliquée mention “Logistique et Transport”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0241-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-logistique-et-transport/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0241-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-logistique-et-transport/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

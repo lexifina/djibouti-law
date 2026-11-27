@@ -1,6 +1,6 @@
 # Loi n° 130/AN/21/8ème L portant adoption des comptes financiers de l’Imprimerie Nationale de Djibouti pour l’exercice 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-21-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-21-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2018/>
 
 En vigueur : 2021-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 71-005 délégation dé signature (JORF. du 1‘ avril 1971, päge 3061)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-005-delegation-de-signature-jorf-du-1-avril-1971-page-3061/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-005-delegation-de-signature-jorf-du-1-avril-1971-page-3061/>
 
 En vigueur : 1971-04-10 (date du Journal officiel qui le publie).
 

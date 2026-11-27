@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0280/PR/MID portant réglementation de la propagande pour les élections présidentielles du 08 avril 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 26/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0280-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 26/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0280-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2011/>
 
 En vigueur : 2011-03-26 (date du Journal officiel qui le publie).
 

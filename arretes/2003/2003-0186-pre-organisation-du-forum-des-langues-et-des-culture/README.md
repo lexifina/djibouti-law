@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0186/PRE portant organisation du Forum des Langues et des Cultures.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0186-pre-portant-organisation-du-forum-des-langues-et-des-cultures/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0186-pre-portant-organisation-du-forum-des-langues-et-des-cultures/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

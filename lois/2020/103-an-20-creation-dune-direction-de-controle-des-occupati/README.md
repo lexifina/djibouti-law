@@ -1,6 +1,6 @@
 # Loi n° 103/AN/20/8ème L portant création d’une Direction de Contrôle des Occupations des Espaces Publics (DIRCOEP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-20-8eme-l-portant-creation-dune-direction-de-controle-des-occupations-des-espaces-publics-dircoep/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-20-8eme-l-portant-creation-dune-direction-de-controle-des-occupations-des-espaces-publics-dircoep/>
 
 En vigueur : 2021-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

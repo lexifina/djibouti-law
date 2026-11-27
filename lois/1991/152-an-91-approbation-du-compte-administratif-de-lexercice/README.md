@@ -1,6 +1,6 @@
 # Loi n° 152/AN/91/2ème L portant approbation du compte administratif de l’exercice 1989 de l’Office National du Tourisme et de l’Artisanat (O.N.T.A).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-91-2eme-l-portant-approbation-du-compte-administratif-de-lexercice-1989-de-loffice-national-du-tourisme-et-de-lartisanat-o-n-t-a/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-91-2eme-l-portant-approbation-du-compte-administratif-de-lexercice-1989-de-loffice-national-du-tourisme-et-de-lartisanat-o-n-t-a/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

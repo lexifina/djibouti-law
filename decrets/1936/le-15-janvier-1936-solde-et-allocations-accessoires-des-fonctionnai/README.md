@@ -1,6 +1,6 @@
 # Décret n° le 15 janvier 1936. Solde et allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-janvier-1936-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-janvier-1936-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 

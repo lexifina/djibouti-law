@@ -1,6 +1,6 @@
 # Décret n° 05/07/1941 portant fixation, pour compter du 1 er juin 1941, de l’indemnité spéciale de séjour en France prévue à l’article 92 du décret du 2 mars 1910.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-07-1941-portant-fixation-pour-compter-du-1-er-juin-1941-de-lindemnite-speciale-de-sejour-en-france-prevue-a-larticle-92-du-decret-du-2-mars-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-07-1941-portant-fixation-pour-compter-du-1-er-juin-1941-de-lindemnite-speciale-de-sejour-en-france-prevue-a-larticle-92-du-decret-du-2-mars-1910/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

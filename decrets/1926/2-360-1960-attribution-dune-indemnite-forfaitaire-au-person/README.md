@@ -1,6 +1,6 @@
 # Décret n° 2-360-1960 Attribution d’une indemnité forfaitaire au personnel militaire en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 360 du 30/11/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-360-1960-attribution-dune-indemnite-forfaitaire-au-personnel-militaire-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 360 du 30/11/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-360-1960-attribution-dune-indemnite-forfaitaire-au-personnel-militaire-en-service-aux-colonies/>
 
 En vigueur : 1926-11-30 (date du Journal officiel qui le publie).
 

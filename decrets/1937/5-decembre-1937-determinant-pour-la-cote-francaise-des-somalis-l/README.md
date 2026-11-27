@@ -1,6 +1,6 @@
 # Décret n° 5 décembre 1937 déterminant pour la Côte française des Somalis les infractions auxquelles s’applique la loi d’amnistie du 12 juillet 1937.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 506 du 31/01/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-decembre-1937-determinant-pour-la-cote-francaise-des-somalis-les-infractions-auxquelles-sapplique-la-loi-damnistie-du-12-juillet-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 506 du 31/01/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-decembre-1937-determinant-pour-la-cote-francaise-des-somalis-les-infractions-auxquelles-sapplique-la-loi-damnistie-du-12-juillet-1937/>
 
 En vigueur : 1938-01-31 (date du Journal officiel qui le publie).
 

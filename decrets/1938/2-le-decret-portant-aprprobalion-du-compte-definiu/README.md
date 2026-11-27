@@ -1,6 +1,6 @@
 # Décret n° 2° Le décret portant aprprobalion du compte définiuf du budget de la Côte française des Somalis pour l’exercice 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-le-decret-portant-aprprobalion-du-compte-definiuf-du-budget-de-la-cote-francaise-des-somalis-pour-lexercice-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-le-decret-portant-aprprobalion-du-compte-definiuf-du-budget-de-la-cote-francaise-des-somalis-pour-lexercice-1934/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

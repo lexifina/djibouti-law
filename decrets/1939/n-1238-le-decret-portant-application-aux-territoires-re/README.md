@@ -1,6 +1,6 @@
 # Décret n° n° 1238 Le décret portant application aux territoires relevant du ministère des colonies autres que les Antilles et la Réunion des dispositions du décret du 9 septembre 1939 permettant. en temps de guerre, le mariage par procuration des militaires et. marins présents sous les drapeaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1238-le-decret-portant-application-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-et-la-reunion-des-dispositions-du-decret-du-9-septembre-1939-per/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1238-le-decret-portant-application-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-et-la-reunion-des-dispositions-du-decret-du-9-septembre-1939-per/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ george bonnet
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

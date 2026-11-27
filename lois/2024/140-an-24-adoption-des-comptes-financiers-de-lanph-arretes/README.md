@@ -1,6 +1,6 @@
 # Loi n° 140/AN/24/9ème L portant adoption des comptes financiers de l’ANPH, arrêtés au 31/12/2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-lanph-arretes-au-31-12-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-lanph-arretes-au-31-12-2023/>
 
 En vigueur : 2025-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

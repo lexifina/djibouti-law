@@ -1,6 +1,6 @@
 # Arrêté n° 2015-729/PR/MB portant attribution d’une parcelle de terrain sise à l’Est de la Zone de Nagad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-729-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-lest-de-la-zone-de-nagad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-729-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-lest-de-la-zone-de-nagad/>
 
 En vigueur : 2015-11-30 (date du Journal officiel qui le publie).
 

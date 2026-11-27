@@ -1,6 +1,6 @@
 # Loi n° 6-261-1918 Loi réglementant la fabrication et la vente des sceaux, timbres et cachets officiels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-6-261-1918-loi-reglementant-la-fabrication-et-la-vente-des-sceaux-timbres-et-cachets-officiels/>
+Loi · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-6-261-1918-loi-reglementant-la-fabrication-et-la-vente-des-sceaux-timbres-et-cachets-officiels/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 

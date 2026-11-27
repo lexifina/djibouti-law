@@ -1,6 +1,6 @@
 # Décret n° 109/SLAG potant désignaion mmbres du conseil d’administration de la Sociétie immobiliére de Djibouti et du Territoire francais des Afars et des Issas. (JORF n° 290 du décembre 1974, page 12388) [Arrêté de pro- prolation n° 109/SLAG du 24 janvier 1975]
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-109-slag-potant-designaion-mmbres-du-conseil-dadministration-de-la-societie-immobiliere-de-djibouti-et-du-territoire-francais-des-afars-et-des-issas-jorf-n-290-du-d/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/02/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-109-slag-potant-designaion-mmbres-du-conseil-dadministration-de-la-societie-immobiliere-de-djibouti-et-du-territoire-francais-des-afars-et-des-issas-jorf-n-290-du-d/>
 
 En vigueur : 1975-02-10 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ TRAN FROMEN
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

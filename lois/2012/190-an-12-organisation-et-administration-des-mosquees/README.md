@@ -1,6 +1,6 @@
 # Loi n° 190/AN/12/6ème L portant organisation et administration des mosquées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-12-6eme-l-portant-organisation-et-administration-des-mosquees/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-12-6eme-l-portant-organisation-et-administration-des-mosquees/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

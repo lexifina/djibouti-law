@@ -1,6 +1,6 @@
 # Décret n° 90-145/PRE définissant les conditions de vente des logements de la Cité Arhiba.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-145-pre-definissant-les-conditions-de-vente-des-logements-de-la-cite-arhiba/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-145-pre-definissant-les-conditions-de-vente-des-logements-de-la-cite-arhiba/>
 
 En vigueur : 1990-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 24/11/1936 Solde et accessoires du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-11-1936-solde-et-accessoires-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-11-1936-solde-et-accessoires-du-personnel-colonial/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

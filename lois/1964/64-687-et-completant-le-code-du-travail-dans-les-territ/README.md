@@ -1,6 +1,6 @@
 # Loi n° 64-687 modifiant et complétant le code du travail dans les territoires d’outre-mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/09/1964 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-64-687-modifiant-et-completant-le-code-du-travail-dans-les-territoires-doutre-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 01/09/1964 · <https://www.journalofficiel.dj/texte-juridique/loi-n-64-687-modifiant-et-completant-le-code-du-travail-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1964-09-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 227/AN/82 portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la première session ordinaire de 1982.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-82-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1982/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-82-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1982/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

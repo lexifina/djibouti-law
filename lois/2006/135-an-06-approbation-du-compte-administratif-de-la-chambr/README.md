@@ -1,6 +1,6 @@
 # Loi n° 135/AN/06/5ème L portant approbation du compte administratif de la Chambre de Commerce de Djibouti pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-06-5eme-l-portant-approbation-du-compte-administratif-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-06-5eme-l-portant-approbation-du-compte-administratif-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2004/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 18 février 1937 Application des dispositions de la loi du 21 janvier 1937 autorisant le Gouvernement a prendre toutes mesures utiles afin d’empêcher le départ de volontaires pour l’Espagne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-des-dispositions-de-la-loi-du-21-janvier-1937-autorisant-le-gouvernement-a-prendre-toutes-mesures-utiles-afin-dempecher-le-depart-de-volontaires-pour-l/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-des-dispositions-de-la-loi-du-21-janvier-1937-autorisant-le-gouvernement-a-prendre-toutes-mesures-utiles-afin-dempecher-le-depart-de-volontaires-pour-l/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

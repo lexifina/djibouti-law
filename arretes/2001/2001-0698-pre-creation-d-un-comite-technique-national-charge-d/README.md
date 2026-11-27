@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0698/PRE portant création d’un Comité Technique National chargé de l’élaboration du rapport national de développement durable.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0698-pre-portant-creation-dun-comite-technique-national-charge-de-lelaboration-du-rapport-national-de-developpement-durable/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0698-pre-portant-creation-dun-comite-technique-national-charge-de-lelaboration-du-rapport-national-de-developpement-durable/>
 
 En vigueur : 2001-09-30 (date du Journal officiel qui le publie).
 

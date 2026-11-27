@@ -1,6 +1,6 @@
 # Loi n° 122/AN/24/9ème L portant ratification de la Convention Mondiale sur la reconnaissance des qualifications relatives à l’enseignement supérieur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-24-9eme-l-portant-ratification-de-la-convention-mondiale-sur-la-reconnaissance-des-qualifications-relatives-a-lenseignement-superieur/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 28/11/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-24-9eme-l-portant-ratification-de-la-convention-mondiale-sur-la-reconnaissance-des-qualifications-relatives-a-lenseignement-superieur/>
 
 En vigueur : 2024-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

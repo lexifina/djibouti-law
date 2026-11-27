@@ -1,6 +1,6 @@
 # Loi n° le 31 décembre 1941 relative à la mise en valeur des colonies
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-le-31-decembre-1941-relative-a-la-mise-en-valeur-des-colonies/>
+Loi · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-le-31-decembre-1941-relative-a-la-mise-en-valeur-des-colonies/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

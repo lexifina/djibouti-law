@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0757/PR/MAEM relatif aux tarifs des redevances applicables lors du contrôle vétérinaire et alimentaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0757-pr-maem-relatif-aux-tarifs-des-redevances-applicables-lors-du-controle-veterinaire-et-alimentaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0757-pr-maem-relatif-aux-tarifs-des-redevances-applicables-lors-du-controle-veterinaire-et-alimentaire/>
 
-En vigueur : 2009-10-17 (date fixÃ©e par le texte).
+En vigueur : 2009-10-17 (date fixée par le texte).
 
 ## Visas
 

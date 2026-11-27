@@ -1,6 +1,6 @@
 # Décret n° 79-097/PR/DEF Portant création et attributions de la Commission des Marchés de l’Armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-097-pr-def-portant-creation-et-attributions-de-la-commission-des-marches-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-097-pr-def-portant-creation-et-attributions-de-la-commission-des-marches-de-larmee-nationale/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

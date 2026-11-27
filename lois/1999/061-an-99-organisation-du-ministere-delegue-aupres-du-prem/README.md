@@ -1,6 +1,6 @@
 # Loi n° 61/AN/99/4ème L portant organisation du Ministère Délégué auprès du Premier Ministre, chargé de la Décentralisation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-99-4eme-l-portant-organisation-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-decentralisation/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/12/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-99-4eme-l-portant-organisation-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-decentralisation/>
 
 En vigueur : 1999-12-30 (date du Journal officiel qui le publie).
 

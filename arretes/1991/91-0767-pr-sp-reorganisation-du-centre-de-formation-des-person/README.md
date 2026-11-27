@@ -1,6 +1,6 @@
 # Arrêté n° 91-0767/PR/SP portant réorganisation du centre de formation des personnels de santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0767-pr-sp-portant-reorganisation-du-centre-de-formation-des-personnels-de-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0767-pr-sp-portant-reorganisation-du-centre-de-formation-des-personnels-de-sante/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ HASSAN GOULED APTIDON
 | [art-012.md](art-012.md) | ARTICLE 12 |
 | [art-013.md](art-013.md) | ARTICLE 13 |
 | [art-014.md](art-014.md) | ARTICLE 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

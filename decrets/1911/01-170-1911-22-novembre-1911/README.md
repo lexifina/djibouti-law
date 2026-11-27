@@ -1,8 +1,8 @@
 # Décret n° 01-170-1911 22 novembre 1911
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 170 du 01/01/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-170-1911-22-novembre-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 170 du 01/01/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-170-1911-22-novembre-1911/>
 
-En vigueur : 1911-01-01 (date fixÃ©e par le texte).
+En vigueur : 1911-01-01 (date fixée par le texte).
 
 ## Visas
 

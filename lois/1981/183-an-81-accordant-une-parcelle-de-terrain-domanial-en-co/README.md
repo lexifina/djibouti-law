@@ -1,6 +1,6 @@
 # Loi n° 183/AN/81 accordant une parcelle de. terrain domanial en concession provisoire. L’Assemblée nationale a adopté.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-81-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire-lassemblee-nationale-a-adopte/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/05/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-81-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire-lassemblee-nationale-a-adopte/>
 
 En vigueur : 1981-05-01 (date du Journal officiel qui le publie).
 

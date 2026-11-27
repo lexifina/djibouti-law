@@ -1,6 +1,6 @@
 # Décret n° 2014-301/PR/MAECI relatif à l’ordre protocolaire, les préséances et les cérémonies publiques ainsi que les honneurs civils.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-301-pr-maeci-relatif-a-lordre-protocolaire-les-preseances-et-les-ceremonies-publiques-ainsi-que-les-honneurs-civils/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 30/10/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-301-pr-maeci-relatif-a-lordre-protocolaire-les-preseances-et-les-ceremonies-publiques-ainsi-que-les-honneurs-civils/>
 
 En vigueur : 2014-10-30 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

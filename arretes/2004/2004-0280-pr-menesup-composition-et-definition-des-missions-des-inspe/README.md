@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0280/PR/MENESUP portant composition et définition des missions des Inspecteurs de l’Éducation Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0280-pr-menesup-portant-composition-et-definition-des-missions-des-inspecteurs-de-leducation-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0280-pr-menesup-portant-composition-et-definition-des-missions-des-inspecteurs-de-leducation-nationale/>
 
 En vigueur : 2004-04-30 (date du Journal officiel qui le publie).
 

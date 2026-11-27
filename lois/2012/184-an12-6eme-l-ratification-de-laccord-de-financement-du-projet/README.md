@@ -1,6 +1,6 @@
 # Loi n° 184/AN12/6ème L portant ratification de l’Accord de financement du projet de Filets sociaux avec l’Agence Internationale pour le Développement (I.D.A).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an12-6eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-filets-sociaux-avec-lagence-internationale-pour-le-developpement-i-d-a/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an12-6eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-filets-sociaux-avec-lagence-internationale-pour-le-developpement-i-d-a/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

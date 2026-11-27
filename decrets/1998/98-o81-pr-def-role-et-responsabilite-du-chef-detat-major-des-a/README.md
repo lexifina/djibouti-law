@@ -1,8 +1,8 @@
 # Décret n° 98-O81/PR/DEF portant rôle et responsabilité du Chef d’Etat-Major des Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-o81-pr-def-portant-role-et-responsabilite-du-chef-detat-major-des-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-o81-pr-def-portant-role-et-responsabilite-du-chef-detat-major-des-armees/>
 
-En vigueur : 1998-07-13 (date fixÃ©e par le texte).
+En vigueur : 1998-07-13 (date fixée par le texte).
 
 ## Visas
 

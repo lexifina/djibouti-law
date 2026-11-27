@@ -1,6 +1,6 @@
 # Décret n° 2005-0113/PR/MDN portant modification durée de port de grade d’Aspirant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0113-pr-mdn-portant-modification-duree-de-port-de-grade-daspirant/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0113-pr-mdn-portant-modification-duree-de-port-de-grade-daspirant/>
 
 En vigueur : 2005-07-15 (date du Journal officiel qui le publie).
 

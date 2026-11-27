@@ -1,8 +1,8 @@
 # Décret n° 65-621 portant application de la loi du 31 décembre 1964 sur les marques de fabrique, de commerce ou de service.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-621-portant-application-de-la-loi-du-31-decembre-1964-sur-les-marques-de-fabrique-de-commerce-ou-de-service/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 01/09/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-621-portant-application-de-la-loi-du-31-decembre-1964-sur-les-marques-de-fabrique-de-commerce-ou-de-service/>
 
-En vigueur : 1965-08-01 (date fixÃ©e par le texte).
+En vigueur : 1965-08-01 (date fixée par le texte).
 
 ## Visas
 

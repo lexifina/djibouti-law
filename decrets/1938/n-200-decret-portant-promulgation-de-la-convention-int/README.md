@@ -1,6 +1,6 @@
 # Décret n° n°200 Le décret portant promulgation de la convention internationale concernant l’emploi de la radiodiffusion dans l’intérêt de la paix signée à Genève le 17 Septembre 1956.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n200-le-decret-portant-promulgation-de-la-convention-internationale-concernant-lemploi-de-la-radiodiffusion-dans-linteret-de-la-paix-signee-a-geneve-le-17-septembre-1956/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n200-le-decret-portant-promulgation-de-la-convention-internationale-concernant-lemploi-de-la-radiodiffusion-dans-linteret-de-la-paix-signee-a-geneve-le-17-septembre-1956/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ jules julien.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

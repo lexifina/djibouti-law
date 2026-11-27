@@ -1,6 +1,6 @@
 # Loi n° 102/AN/20/8ème L Portant application de la Convention sur l’interdiction de la mise au point, de la fabrication, du stockage et de l’emploi des armes chimiques et sur leur destruction.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-20-8eme-l-portant-application-de-la-convention-sur-linterdiction-de-la-mise-au-point-de-la-fabrication-du-stockage-et-de-lemploi-des-armes-chimiques-et-sur-leur-destruction/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-20-8eme-l-portant-application-de-la-convention-sur-linterdiction-de-la-mise-au-point-de-la-fabrication-du-stockage-et-de-lemploi-des-armes-chimiques-et-sur-leur-destruction/>
 
 En vigueur : 2021-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -85,4 +85,4 @@ ISMAÏL OMAR GUELLEH
 | [art-044.md](art-044.md) | Article 44 |
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

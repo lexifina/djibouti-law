@@ -1,6 +1,6 @@
 # Arrêté n° 2019-207/PR/MASS portant approbation et rendant exécutoire le budget prévisionnel de l’exercice 2020 de l’Agence Djiboutienne de Développement Social (ADDS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-207-pr-mass-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2020-de-lagence-djiboutienne-de-developpement-social-adds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-207-pr-mass-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2020-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

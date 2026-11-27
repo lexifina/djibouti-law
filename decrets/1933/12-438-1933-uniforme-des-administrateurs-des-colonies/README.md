@@ -1,6 +1,6 @@
 # Décret n° 12-438-1933 Uniforme des administrateurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 438 du 31/05/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-438-1933-uniforme-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 438 du 31/05/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-438-1933-uniforme-des-administrateurs-des-colonies/>
 
 En vigueur : 1933-05-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Albert SARRAUT.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

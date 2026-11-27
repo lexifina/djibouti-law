@@ -1,6 +1,6 @@
 # Décret n° 2° les decret 2437,2438 et2447 portant modification du décret du 3 septembre 1920 (prohibions de sortie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 537 du 31/08/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-les-decret-24372438-et2447-portant-modification-du-decret-du-3-septembre-1920-prohibions-de-sortie/>
+Décret · Journal officiel de la République de Djibouti, n° 537 du 31/08/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-les-decret-24372438-et2447-portant-modification-du-decret-du-3-septembre-1920-prohibions-de-sortie/>
 
 En vigueur : 1941-08-31 (date du Journal officiel qui le publie).
 

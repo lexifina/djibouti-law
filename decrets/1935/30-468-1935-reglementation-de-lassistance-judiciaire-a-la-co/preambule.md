@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE PREMIER.
 De l’assistance judiciaire en matière civile,
 CHAPITRE PREMIER.

@@ -1,6 +1,6 @@
 # Décret n° 2010-0084/PRE Décret N°2010-0084/PRE portant approbation des Cahiers des Clauses Administratives Générales applicables aux Marchés Publics de Travaux, aux Marchés Publics de Fournitures & Services Courants et aux Marchés Publics de Prestations intellectuelles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 23/05/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0084-pre-decret-n2010-0084-pre-portant-approbation-des-cahiers-des-clauses-administratives-generales-applicables-aux-marches-publics-de-travaux-aux-marches-publics-de-fournit/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 23/05/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0084-pre-decret-n2010-0084-pre-portant-approbation-des-cahiers-des-clauses-administratives-generales-applicables-aux-marches-publics-de-travaux-aux-marches-publics-de-fournit/>
 
 En vigueur : 2010-05-23 (date du Journal officiel qui le publie).
 

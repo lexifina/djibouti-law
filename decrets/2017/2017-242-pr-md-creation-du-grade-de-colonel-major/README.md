@@ -1,6 +1,6 @@
 # Décret n° 2017-242/PR/MD portant création du grade de Colonel major.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-242-pr-md-portant-creation-du-grade-de-colonel-major/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-242-pr-md-portant-creation-du-grade-de-colonel-major/>
 
 En vigueur : 2017-07-13 (date du Journal officiel qui le publie).
 

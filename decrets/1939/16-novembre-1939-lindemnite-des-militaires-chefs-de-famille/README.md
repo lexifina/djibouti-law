@@ -1,6 +1,6 @@
 # Décret n° 16 novembre 1939 modifiant l’indemnité des militaires chefs de famille,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-novembre-1939-modifiant-lindemnite-des-militaires-chefs-de-famille/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-novembre-1939-modifiant-lindemnite-des-militaires-chefs-de-famille/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Paul REYNAUD.
 | Fichier | Disposition |
 | --- | --- |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

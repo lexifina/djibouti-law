@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Les articles 44, 55, 64, 82, 83, 106, 107, 143 et 144 du code de la nationalité française sont remplacés par les dispositions suivantes :
 «Art, 44. — Tout individu né en France de parents étrangers acquiert la nationalité française à sa majorité, si, à cette date, il a sa résidence en France et s’il a eu, depuis l’âge de seize ans sa résidence habituelle en France ou dans les territoires où pays pour lesquels Vattribution ou l’acquisition de da nationalité française est ou était, lors dé sa résidence, régie par des dispositions spéciales.
 « Le service, accompli effectivement dans une unité de l’armée française, vaut dispense de la condition de résidence habituelle prévue à l’alinéa précédent.

@@ -1,6 +1,6 @@
 # Décret n° 10-462-1935 Payement des marchandises importées de Sarre avant le 18 février 1935.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-462-1935-payement-des-marchandises-importees-de-sarre-avant-le-18-fevrier-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-462-1935-payement-des-marchandises-importees-de-sarre-avant-le-18-fevrier-1935/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

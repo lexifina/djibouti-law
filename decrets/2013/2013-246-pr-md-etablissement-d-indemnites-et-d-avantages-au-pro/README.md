@@ -1,8 +1,8 @@
 # Décret n° 2013-246/PR/MD portant établissement d’indemnités et d’avantages au profit des officiers généraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-246-pr-md-portant-etablissement-dindemnites-et-davantages-au-profit-des-officiers-generaux/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-246-pr-md-portant-etablissement-dindemnites-et-davantages-au-profit-des-officiers-generaux/>
 
-En vigueur : 2013-09-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-09-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

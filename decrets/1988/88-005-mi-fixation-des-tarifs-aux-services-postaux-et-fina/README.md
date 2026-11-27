@@ -1,6 +1,6 @@
 # Décret n° 88-005/MI portant fixation des Tarifs aux Services Postaux et Financiers dans les régimes intérieur, référentiel et international au départ de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-005-mi-portant-fixation-des-tarifs-aux-services-postaux-et-financiers-dans-les-regimes-interieur-referentiel-et-international-au-depart-de-la-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-005-mi-portant-fixation-des-tarifs-aux-services-postaux-et-financiers-dans-les-regimes-interieur-referentiel-et-international-au-depart-de-la-republique-de-djibouti/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

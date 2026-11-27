@@ -1,6 +1,6 @@
 # Arrêté n° 2019-245/PR/MAMCBW portant approbation du Budget de l’Office Djiboutien des Droits d’Auteur et de Droits Voisins.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-245-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-des-droits-dauteur-et-de-droits-voisins/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-245-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-des-droits-dauteur-et-de-droits-voisins/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

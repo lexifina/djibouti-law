@@ -1,6 +1,6 @@
 # Arrêté n° 2019-237/PR/MERN portant approbation du Budget Prévisionnel de l’Agence Djiboutienne de la Maîtrise de l’Energie pour l’exercice 2020.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-237-pr-mern-portant-approbation-du-budget-previsionnel-de-lagence-djiboutienne-de-la-maitrise-de-lenergie-pour-lexercice-2020/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-237-pr-mern-portant-approbation-du-budget-previsionnel-de-lagence-djiboutienne-de-la-maitrise-de-lenergie-pour-lexercice-2020/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

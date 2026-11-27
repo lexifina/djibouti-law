@@ -1,6 +1,6 @@
 # Loi n° 227/AN/26/9ème L Portant statut des artistes
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-26-9eme-l-portant-statut-des-artistes/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-26-9eme-l-portant-statut-des-artistes/>
 
 En vigueur : 2026-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

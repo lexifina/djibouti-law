@@ -1,6 +1,6 @@
 # Décret n° 2001-0235/PRE portant réglementation de la Sécurité dans l’enceinte du Port.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0235-pre-portant-reglementation-de-la-securite-dans-lenceinte-du-port/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0235-pre-portant-reglementation-de-la-securite-dans-lenceinte-du-port/>
 
 En vigueur : 2001-12-15 (date du Journal officiel qui le publie).
 

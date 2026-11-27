@@ -1,6 +1,6 @@
 # Décret n° 89-172/PR/INT rendant exécutoire la délibération n° 05/89 du 27 novembre 1989 du conseil d’administration de l’Office des Postes et Télécommunications portant approbation du Budget Prévisionnel pour l’exercice 1990.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-172-pr-int-rendant-executoire-la-deliberation-n05-89-du-27-novembre-1989-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-172-pr-int-rendant-executoire-la-deliberation-n05-89-du-27-novembre-1989-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget/>
 
 En vigueur : 1989-12-31 (date du Journal officiel qui le publie).
 

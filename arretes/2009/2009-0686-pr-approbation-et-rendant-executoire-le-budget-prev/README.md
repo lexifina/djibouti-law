@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0686/PR portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2009 de l’Agence Djiboutienne de Développement Social (ADDS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0686-pr-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-de-lagence-djiboutienne-de-developpement-social-adds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0686-pr-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2009-09-30 (date du Journal officiel qui le publie).
 

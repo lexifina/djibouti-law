@@ -1,6 +1,6 @@
 # Loi n° 113/AN/84/1re L DU 11 OCTOBRE 1984 portant ratification de la convention de coopération économique entre le Gouvernement de la République de Djibouti et le Gouvernement du Royaume hachémite de Jordanie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-84-1re-l-du-11-octobre-1984-portant-ratification-de-la-convention-de-cooperation-economique-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-du-royaume-hachemite/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-84-1re-l-du-11-octobre-1984-portant-ratification-de-la-convention-de-cooperation-economique-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-du-royaume-hachemite/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

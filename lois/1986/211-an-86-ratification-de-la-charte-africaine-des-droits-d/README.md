@@ -1,6 +1,6 @@
 # Loi n° 211/AN/86/1ère L portant ratification de la Charte africaine des Droits de l’Homme et des Peuples.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/10/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-86-1ere-l-portant-ratification-de-la-charte-africaine-des-droits-de-lhomme-et-des-peuples/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/10/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-86-1ere-l-portant-ratification-de-la-charte-africaine-des-droits-de-lhomme-et-des-peuples/>
 
 En vigueur : 1986-10-15 (date du Journal officiel qui le publie).
 

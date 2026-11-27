@@ -1,6 +1,6 @@
 # Décret n° 88-032/PR/MCTT Rendant exécutoire la Résolution n° 01/88 du 21 février 1988 du Conseil d’Administration d’Aéroport de Djibouti et portant approbation du budget définitif de l’exercice 1986 de l’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-032-pr-mctt-rendant-executoire-la-resolution-n01-88-du-21-fevrier-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexer/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 14/04/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-032-pr-mctt-rendant-executoire-la-resolution-n01-88-du-21-fevrier-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexer/>
 
 En vigueur : 1988-04-14 (date du Journal officiel qui le publie).
 

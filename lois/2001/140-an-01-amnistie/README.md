@@ -1,6 +1,6 @@
 # Loi n° 140/AN/01/4ème L portant Amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-01-4eme-l-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-01-4eme-l-portant-amnistie/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 

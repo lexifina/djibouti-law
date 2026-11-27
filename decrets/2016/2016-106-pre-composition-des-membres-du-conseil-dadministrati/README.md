@@ -1,6 +1,6 @@
 # Décret n° 2016-106/PRE portant composition des membres du Conseil d’Administration de l’Agence Nationale des Systèmes d’Information de l’Etat (ANSIE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-106-pre-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-106-pre-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
 
 En vigueur : 2016-05-15 (date du Journal officiel qui le publie).
 

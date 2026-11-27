@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er — Amnistie pleine et entière est accordée pour les faits commis antérieurement au 10 juillet 1906 :
 1° toutes les infractions, quelle que soit leur qualification pénale et à tous faits connexes en matière de réunions, d’élections. de grèves, de manifestations à l’occasion du 1er mai;
 2° A tous fes délits de presse ainsi qu aux délits et contraventions et faits connexes prévus et punis par les lois des 29 juillet 1881, 11 juin 1887 28 juillet 1894 12 décembre 1893, 16 mars 1893:

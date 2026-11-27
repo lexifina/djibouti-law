@@ -1,6 +1,6 @@
 # Décret n° 14-414-1931 Application aux navires français ayant leur port d’attache dans les colonies et territoires sous mandat des dispositions du décret du 10 mars 1927, réglementant les enquêtes sur les naufrages, abordages et autres accidents de navigation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 414 du 31/05/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-414-1931-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-territoires-sous-mandat-des-dispositions-du-decret-du-10-mars-1927-reglementant-les-enquet/>
+Décret · Journal officiel de la République de Djibouti, n° 414 du 31/05/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-414-1931-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-territoires-sous-mandat-des-dispositions-du-decret-du-10-mars-1927-reglementant-les-enquet/>
 
 En vigueur : 1931-05-31 (date du Journal officiel qui le publie).
 
@@ -24,7 +24,7 @@ Paul REYNAUD.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

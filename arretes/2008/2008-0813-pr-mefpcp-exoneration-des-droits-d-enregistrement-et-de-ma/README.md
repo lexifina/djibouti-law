@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0813/PR/MEFPCP portant exonération des droits d’enregistrement et de mainlevée des conventions d’hypothèque de DDP FZCO.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0813-pr-mefpcp-portant-exoneration-des-droits-denregistrement-et-de-mainlevee-des-conventions-dhypotheque-de-ddp-fzco/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0813-pr-mefpcp-portant-exoneration-des-droits-denregistrement-et-de-mainlevee-des-conventions-dhypotheque-de-ddp-fzco/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

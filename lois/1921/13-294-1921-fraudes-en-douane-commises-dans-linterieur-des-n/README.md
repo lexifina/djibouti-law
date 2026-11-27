@@ -1,6 +1,6 @@
 # Loi n° 13-294-1921 relative aux fraudes en douane commises dans l’intérieur des navires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 294 du 31/05/1921 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-13-294-1921-relative-aux-fraudes-en-douane-commises-dans-linterieur-des-navires/>
+Loi · Journal officiel de la République de Djibouti, n° 294 du 31/05/1921 · <https://www.journalofficiel.dj/texte-juridique/loi-n-13-294-1921-relative-aux-fraudes-en-douane-commises-dans-linterieur-des-navires/>
 
 En vigueur : 1921-05-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ R. Poincaré.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

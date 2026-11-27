@@ -1,6 +1,6 @@
 # Décret n° 2021-304/PR/MEFI portant agrément de la société d’assurance islamique ATIC SA
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-304-pr-mefi-portant-agrement-de-la-societe-dassurance-islamique-atic-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-304-pr-mefi-portant-agrement-de-la-societe-dassurance-islamique-atic-sa/>
 
 En vigueur : 2021-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

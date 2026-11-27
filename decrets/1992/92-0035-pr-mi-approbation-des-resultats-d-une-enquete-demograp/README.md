@@ -1,6 +1,6 @@
 # Décret n° 92-0035/PR/MI portant approbation des résultats d’une enquête démographique intercensitaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0035-pr-mi-portant-approbation-des-resultats-dune-enquete-demographique-intercensitaire/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0035-pr-mi-portant-approbation-des-resultats-dune-enquete-demographique-intercensitaire/>
 
 En vigueur : 1992-03-31 (date du Journal officiel qui le publie).
 

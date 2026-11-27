@@ -1,8 +1,8 @@
 # Décret n° 2007-0223/PR/MJSLT d’application définissant les attributions des différents organes du Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0223-pr-mjslt-dapplication-definissant-les-attributions-des-differents-organes-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0223-pr-mjslt-dapplication-definissant-les-attributions-des-differents-organes-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
 
-En vigueur : 2007-11-21 (date fixÃ©e par le texte).
+En vigueur : 2007-11-21 (date fixée par le texte).
 
 ## Visas
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

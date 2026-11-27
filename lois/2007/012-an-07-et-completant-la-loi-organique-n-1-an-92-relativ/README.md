@@ -1,6 +1,6 @@
 # Loi n° 12/AN/07/5ème L modifiant et complétant la Loi organique n° 1/AN/92 relative aux élections.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-07-5eme-l-modifiant-et-completant-la-loi-organique-n1-an-92-relative-aux-elections/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-07-5eme-l-modifiant-et-completant-la-loi-organique-n1-an-92-relative-aux-elections/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 

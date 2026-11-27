@@ -1,6 +1,6 @@
 # Décret n° 47-839 portant extension aux territoires relevant du ministère de la France d’outre-mer de la loi du 8 octobre 1946 relative à la bonification du taux de l’intérêt servi par les caisses d’épargne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-839-portant-extension-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-de-la-loi-du-8-octobre-1946-relative-a-la-bonification-du-taux-de-linteret-servi-par-les-cais/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-839-portant-extension-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-de-la-loi-du-8-octobre-1946-relative-a-la-bonification-du-taux-de-linteret-servi-par-les-cais/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

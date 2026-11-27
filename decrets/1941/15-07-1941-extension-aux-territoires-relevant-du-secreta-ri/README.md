@@ -1,6 +1,6 @@
 # Décret n° 15/07/1941 portant extension aux territoires relevant du Secréta- riat d’Etat aux colonies autres que les nulles et la Réunion de la loi du 2 août PMI sur le divorce et la séparation de Corps.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-07-1941-portant-extension-aux-territoires-relevant-du-secreta-riat-detat-aux-colonies-autres-que-les-nulles-et-la-reunion-de-la-loi-du-2-aout-pmi-sur-le-divorce-et-la-separation/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-07-1941-portant-extension-aux-territoires-relevant-du-secreta-riat-detat-aux-colonies-autres-que-les-nulles-et-la-reunion-de-la-loi-du-2-aout-pmi-sur-le-divorce-et-la-separation/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

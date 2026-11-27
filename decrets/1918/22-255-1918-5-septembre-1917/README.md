@@ -1,6 +1,6 @@
 # Décret n° 22-255-1918 5 septembre 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 255 du 31/01/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-255-1918-5-septembre-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 255 du 31/01/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-255-1918-5-septembre-1917/>
 
 En vigueur : 1918-01-31 (date du Journal officiel qui le publie).
 
@@ -25,7 +25,7 @@ Maginot.
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 – |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

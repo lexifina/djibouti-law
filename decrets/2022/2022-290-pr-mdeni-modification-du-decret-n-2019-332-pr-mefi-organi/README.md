@@ -1,6 +1,6 @@
 # Décret n° 2022-290/PR/MDENI portant modification du Décret n° 2019-332/PR/MEFI organisant le Centre de Leadership et de l’Entreprenariat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-290-pr-mdeni-portant-modification-du-decret-n2019-332-pr-mefi-organisant-le-centrede-leadership-et-de-lentreprenariat/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-290-pr-mdeni-portant-modification-du-decret-n2019-332-pr-mefi-organisant-le-centrede-leadership-et-de-lentreprenariat/>
 
 En vigueur : 2022-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 13-370-1927 Traitement des fonctionnaires du cadre général des bureaux des secrétariats généraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-370-1927-traitement-des-fonctionnaires-du-cadre-general-des-bureaux-des-secretariats-generaux/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-370-1927-traitement-des-fonctionnaires-du-cadre-general-des-bureaux-des-secretariats-generaux/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 
@@ -29,6 +29,6 @@ Léon PERRIER,
 | --- | --- |
 | [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art.5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

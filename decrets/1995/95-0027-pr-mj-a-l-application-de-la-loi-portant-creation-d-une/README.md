@@ -1,6 +1,6 @@
 # Décret n° 95-0027/PR/MJ relatif à l’application de la loi portant création d’une cour d’appel et d’un Tribunal de Première Instance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0027-pr-mj-relatif-a-lapplication-de-la-loi-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0027-pr-mj-relatif-a-lapplication-de-la-loi-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ EL HADJ HASSAN GOULED APTIDON
 | [art-003.md](art-003.md) | Art.3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

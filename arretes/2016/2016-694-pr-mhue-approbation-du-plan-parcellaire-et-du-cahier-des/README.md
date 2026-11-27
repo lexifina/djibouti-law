@@ -1,6 +1,6 @@
 # Arrêté n° 2016-694/PR/MHUE portant approbation du plan parcellaire et du cahier des charges du site de l’ancienne gare de chemin de fer de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-694-pr-mhue-portant-approbation-du-plan-parcellaire-et-du-cahier-des-charges-du-site-de-lancienne-gare-de-chemin-de-fer-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-694-pr-mhue-portant-approbation-du-plan-parcellaire-et-du-cahier-des-charges-du-site-de-lancienne-gare-de-chemin-de-fer-de-djibouti/>
 
 En vigueur : 2016-10-31 (date du Journal officiel qui le publie).
 

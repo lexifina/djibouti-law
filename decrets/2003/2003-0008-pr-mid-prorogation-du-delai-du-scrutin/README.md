@@ -1,6 +1,6 @@
 # Décret n° 2003-0008/PR/MID portant prorogation du délai du scrutin.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0008-pr-mid-portant-prorogation-du-delai-du-scrutin/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0008-pr-mid-portant-prorogation-du-delai-du-scrutin/>
 
 En vigueur : 2003-01-15 (date du Journal officiel qui le publie).
 

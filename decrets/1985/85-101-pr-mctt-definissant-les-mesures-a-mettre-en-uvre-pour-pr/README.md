@@ -1,6 +1,6 @@
 # Décret n° 85-101/PR/MCTT définissant les mesures à mettre en œuvre pour promouvoir le tourisme en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-101-pr-mctt-definissant-les-mesures-a-mettre-en-oeuvre-pour-promouvoir-le-tourisme-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-101-pr-mctt-definissant-les-mesures-a-mettre-en-oeuvre-pour-promouvoir-le-tourisme-en-republique-de-djibouti/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

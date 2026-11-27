@@ -1,6 +1,6 @@
 # Décret n° 2010-0057/PRE portant création d’un comité de pilotage de la gouvernance à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0057-pre-portant-creation-dun-comite-de-pilotage-de-la-gouvernance-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0057-pre-portant-creation-dun-comite-de-pilotage-de-la-gouvernance-a-djibouti/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

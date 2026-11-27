@@ -1,6 +1,6 @@
 # Décret n° 47-1317 portant exTension aux militaires a solde mensuelle des armées de terre, de mer et de far. en service dans les territoires relevant du ministère de la France d outre mer et en Chine de l’indemnité provisionnelle instituée par le décret n’ 17-117 du 16 janvier 1947.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1317-portant-extension-aux-militaires-a-solde-mensuelle-des-armees-de-terre-de-mer-et-de-far-en-service-dans-les-territoires-relevant-du-ministere-de-la-france-d-outre-mer-et-en/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1317-portant-extension-aux-militaires-a-solde-mensuelle-des-armees-de-terre-de-mer-et-de-far-en-service-dans-les-territoires-relevant-du-ministere-de-la-france-d-outre-mer-et-en/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

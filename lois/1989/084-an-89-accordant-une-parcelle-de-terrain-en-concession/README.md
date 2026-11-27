@@ -1,6 +1,6 @@
 # Loi n° 84/AN/89/2ème L accordant une parcelle de terrain en concession provisoire à l’Union Nationale des Femmes de Djibouti sis à Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-89-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire-a-lunion-nationale-des-femmes-de-djibouti-sis-a-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-89-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire-a-lunion-nationale-des-femmes-de-djibouti-sis-a-tadjourah/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

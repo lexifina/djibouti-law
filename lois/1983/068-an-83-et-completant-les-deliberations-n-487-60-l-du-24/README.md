@@ -1,6 +1,6 @@
 # Loi n° 68/AN/83/1re L modifiant et complétant les délibérations n° 487/60 L du 24 mai 1968 et n° 39/80 L du 27 mai 1974 portant création d’un cahier des charges applicable aux aliénations de gré à gré de parcelles de terrains du domaine privé de l’État et portant création d’un cahier des charges spécial applicable aux anciens quartiers et à Balbala compris dans le PDUD.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-83-1re-l-modifiant-et-completant-les-deliberations-n487-60-l-du-24-mai-1968-et-n-39-80-l-du-27-mai-1974-portant-creation-dun-cahier-des-charges-applicable-aux-alienatio/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-83-1re-l-modifiant-et-completant-les-deliberations-n487-60-l-du-24-mai-1968-et-n-39-80-l-du-27-mai-1974-portant-creation-dun-cahier-des-charges-applicable-aux-alienatio/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 

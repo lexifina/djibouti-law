@@ -1,6 +1,6 @@
 # Décret n° 2009-0124/PR/MDN portant création du deuxième Régiment d’Action Rapide au sein des Forces Armées Djiboutiennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0124-pr-mdn-portant-creation-du-deuxieme-regiment-daction-rapide-au-sein-des-forces-armees-djiboutiennes/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0124-pr-mdn-portant-creation-du-deuxieme-regiment-daction-rapide-au-sein-des-forces-armees-djiboutiennes/>
 
 En vigueur : 2009-06-30 (date du Journal officiel qui le publie).
 

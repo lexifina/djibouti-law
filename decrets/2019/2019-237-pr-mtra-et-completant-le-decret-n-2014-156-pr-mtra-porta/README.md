@@ -1,8 +1,8 @@
 # Décret n° 2019-237/PR/MTRA modifiant et complétant le Décret n° 2014-156/PR/MTRA portant création du Fonds de Solidarité Santé de l’Assurance Maladie Universelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-237-pr-mtra-modifiant-et-completant-le-decret-n2014-156-pr-mtra-portant-creation-du-fonds-de-solidarite-sante-de-lassurance-maladie-universelle/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-237-pr-mtra-modifiant-et-completant-le-decret-n2014-156-pr-mtra-portant-creation-du-fonds-de-solidarite-sante-de-lassurance-maladie-universelle/>
 
-En vigueur : 2019-09-19 (date fixÃ©e par le texte).
+En vigueur : 2019-09-19 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0058/PR/MJSLT portant création d’une Commission Nationale de la Jeunesse.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0058-pr-mjslt-portant-creation-dune-commission-nationale-de-la-jeunesse/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0058-pr-mjslt-portant-creation-dune-commission-nationale-de-la-jeunesse/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

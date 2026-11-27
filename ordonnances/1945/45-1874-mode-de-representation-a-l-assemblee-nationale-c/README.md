@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1874 fixant le mode de représentation à l’Assemblée Nationale Constituante des territoires d’outre-mer relevant du Ministère des Colonies
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1874-fixant-le-mode-de-representation-a-lassemblee-nationale-constituante-des-territoires-doutre-mer-relevant-du-ministere-des-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1874-fixant-le-mode-de-representation-a-lassemblee-nationale-constituante-des-territoires-doutre-mer-relevant-du-ministere-des-colonies/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

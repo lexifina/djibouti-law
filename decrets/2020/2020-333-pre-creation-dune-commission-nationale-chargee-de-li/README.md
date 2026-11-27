@@ -1,6 +1,6 @@
 # Décret n° 2020-333/PRE portant création d’une commission nationale chargée de l’introduction et du déploiement du vaccin Covid 19 en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-333-pre-portant-creation-dune-commission-nationale-chargee-de-lintroduction-et-du-deploiement-du-vaccin-covid-19-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-333-pre-portant-creation-dune-commission-nationale-chargee-de-lintroduction-et-du-deploiement-du-vaccin-covid-19-en-republique-de-djibouti/>
 
 En vigueur : 2021-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° n°40 Décret du 16 octobre 1929 relatif au classement à attribuer au point de vue des indemnités de déplacement et des passages au personnel colonial de la magistrature et du grêle
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 397 du 31/12/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n40-decret-du-16-octobre-1929-relatif-au-classement-a-attribuer-au-point-de-vue-des-indemnites-de-deplacement-et-des-passages-au-personnel-colonial-de-la-magistrature-et-du-grele/>
+Décret · Journal officiel de la République de Djibouti, n° 397 du 31/12/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n40-decret-du-16-octobre-1929-relatif-au-classement-a-attribuer-au-point-de-vue-des-indemnites-de-deplacement-et-des-passages-au-personnel-colonial-de-la-magistrature-et-du-grele/>
 
 En vigueur : 1929-12-31 (date du Journal officiel qui le publie).
 

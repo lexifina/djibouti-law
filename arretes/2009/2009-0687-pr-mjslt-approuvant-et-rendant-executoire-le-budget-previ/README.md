@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0687/PR/MJSLT approuvant et rendant exécutoire le Budget prévisionnel 2009 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0687-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2009-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0687-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2009-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2009-09-30 (date du Journal officiel qui le publie).
 

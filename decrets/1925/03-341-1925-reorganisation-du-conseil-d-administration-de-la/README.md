@@ -1,6 +1,6 @@
 # Décret n° 03-341-1925 Réorganisation du conseil d’administration de la côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 341 du 30/04/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-341-1925-reorganisation-du-conseil-dadministration-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 341 du 30/04/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-341-1925-reorganisation-du-conseil-dadministration-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1925-04-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ DALADIER.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Décret n° 16-217-1914 le 26 aout 1914.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 217 du 30/11/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-217-1914-le-26-aout-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 217 du 30/11/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-217-1914-le-26-aout-1914/>
 
 En vigueur : 1914-11-30 (date du Journal officiel qui le publie).
 

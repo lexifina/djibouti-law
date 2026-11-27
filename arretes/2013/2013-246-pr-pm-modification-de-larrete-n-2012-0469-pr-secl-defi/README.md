@@ -1,6 +1,6 @@
 # Arrêté n° 2013-246/PR/PM portant modification de l’arrêté n° 2012-0469/PR/SECL définissant les attributions et la composition de la Commission Nationale de la Propriété Foncière.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-246-pr-pm-portant-modification-de-larrete-n2012-0469-pr-secl-definissant-les-attributions-et-la-composition-de-la-commission-nationale-de-la-propriete-fonciere/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-246-pr-pm-portant-modification-de-larrete-n2012-0469-pr-secl-definissant-les-attributions-et-la-composition-de-la-commission-nationale-de-la-propriete-fonciere/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 

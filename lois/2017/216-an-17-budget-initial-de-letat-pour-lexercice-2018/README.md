@@ -1,6 +1,6 @@
 # Loi de finances n° 216/AN/17/7ème L portant Budget initial de l’Etat pour l’exercice 2018.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n216-an-17-7eme-l-portant-budget-initial-de-letat-pour-lexercice-2018/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n216-an-17-7eme-l-portant-budget-initial-de-letat-pour-lexercice-2018/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

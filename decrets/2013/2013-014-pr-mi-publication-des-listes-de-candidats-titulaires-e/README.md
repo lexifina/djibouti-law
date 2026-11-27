@@ -1,6 +1,6 @@
 # Décret n° 2013-014/PR/MI portant publication des listes de candidats titulaires et suppléants pour les élections législatives du vendredi 22 février 2013.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-014-pr-mi-portant-publication-des-listes-de-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-22-fevrier-2013/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-014-pr-mi-portant-publication-des-listes-de-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-22-fevrier-2013/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 

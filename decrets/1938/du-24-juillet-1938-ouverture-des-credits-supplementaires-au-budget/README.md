@@ -1,6 +1,6 @@
 # Décret n° du 24 juillet 1938. portant ouverture des crédits supplémentaires au budget de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 502 du 30/09/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-24-juillet-1938-portant-ouverture-des-credits-supplementaires-au-budget-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 502 du 30/09/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-24-juillet-1938-portant-ouverture-des-credits-supplementaires-au-budget-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-09-30 (date du Journal officiel qui le publie).
 

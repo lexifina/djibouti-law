@@ -1,6 +1,6 @@
 # Décret n° 19 février 1937 Brevets et licences du personnel navigant de l’aéronautique civile (additif à l’arrêté du 21 janvier 1936).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-fevrier-1937-brevets-et-licences-du-personnel-navigant-de-laeronautique-civile-additif-a-larrete-du-21-janvier-1936/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-fevrier-1937-brevets-et-licences-du-personnel-navigant-de-laeronautique-civile-additif-a-larrete-du-21-janvier-1936/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

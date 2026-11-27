@@ -1,8 +1,8 @@
 # Décret n° 2016-095/PR/MEFCI organisation et Fonctionnement du Fonds de Garantie Partielle des Crédits de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-095-pr-mefci-organisation-et-fonctionnement-du-fonds-de-garantie-partielle-des-credits-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-095-pr-mefci-organisation-et-fonctionnement-du-fonds-de-garantie-partielle-des-credits-de-djibouti/>
 
-En vigueur : 2016-04-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-04-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 9 septembre 1942 réservant territoires relevant du Secrétariat d’Etat aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 550 du 30/09/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-septembre-1942-reservant-territoires-relevant-du-secretariat-detat-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 550 du 30/09/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-septembre-1942-reservant-territoires-relevant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1942-09-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ BRÉVIÉ.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 92-0042/PRE/MI modifiant le décret n° 81-129/PR du 17/11/81 instituant une carte nationale d’identité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0042-pre-mi-modifiant-le-decret-n81-129-pr-du-17-11-81-instituant-une-carte-nationale-didentite-2/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0042-pre-mi-modifiant-le-decret-n81-129-pr-du-17-11-81-instituant-une-carte-nationale-didentite-2/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 

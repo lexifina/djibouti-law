@@ -1,6 +1,6 @@
 # Décret n° 85-011/PR/MIN Rendant exécutoire la Délibération n° 7/84 du 19 Décembre 1984 du Conseil d’Administration de l’Office des Postes et Télécommunications portant approbation du Budget Primitif pour l’exercice 1985.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-011-pr-min-rendant-executoire-la-deliberation-n-7-84-du-19-decembre-1984-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-011-pr-min-rendant-executoire-la-deliberation-n-7-84-du-19-decembre-1984-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Les tarifs n°14 et 15 bis annexés au décret du 29 décembre 1903 sont abrogés et remplacés par le tarif n° 15 ci-apres:
 Tarif N° 15. —Indemnités pour perte d’effets
 GRADES.

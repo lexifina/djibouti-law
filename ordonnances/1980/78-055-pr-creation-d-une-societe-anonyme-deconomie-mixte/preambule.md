@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Préambule
 Les soussignés :
 Monsieur le Ministre des Régies industrielles agissant en sa qualité de représentant de l’Etat djiboutien.

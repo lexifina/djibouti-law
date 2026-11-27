@@ -1,6 +1,6 @@
 # Loi n° 13/AN/87/ 2e L portant ratification de plusieurs accords de coopération.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-87-2e-l-portant-ratification-de-plusieurs-accords-de-cooperation/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-87-2e-l-portant-ratification-de-plusieurs-accords-de-cooperation/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

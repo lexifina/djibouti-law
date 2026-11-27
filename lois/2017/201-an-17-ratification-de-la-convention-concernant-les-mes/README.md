@@ -1,6 +1,6 @@
 # Loi n° 201/AN/17/7ème L portant ratification de la Convention concernant les mesures à prendre pour interdire et empêcher l’importation, l’exportation et le transfert de propriété illicites des biens culturels de 1970.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-17-7eme-l-portant-ratification-de-la-convention-concernant-les-mesures-a-prendre-pour-interdire-et-empecher-limportation-lexportation-et-le-transfert-de-propriete-illicites-des/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-17-7eme-l-portant-ratification-de-la-convention-concernant-les-mesures-a-prendre-pour-interdire-et-empecher-limportation-lexportation-et-le-transfert-de-propriete-illicites-des/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

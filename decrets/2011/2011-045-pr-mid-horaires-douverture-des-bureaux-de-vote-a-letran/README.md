@@ -1,6 +1,6 @@
 # Décret n° 2011-045/PR/MID fixant les horaires d’ouverture des bureaux de vote à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-045-pr-mid-fixant-les-horaires-douverture-des-bureaux-de-vote-a-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 17/04/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-045-pr-mid-fixant-les-horaires-douverture-des-bureaux-de-vote-a-letranger/>
 
 En vigueur : 2011-04-17 (date du Journal officiel qui le publie).
 

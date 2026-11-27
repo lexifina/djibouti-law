@@ -1,6 +1,6 @@
 # Loi n° 98/AN/05/5ème L portant ratification du Protocole à la Charte Africaine des Droits de l’Homme et des Peuples, relatif aux Droits des Femmes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-05-5eme-l-portant-ratification-du-protocole-a-la-charte-africaine-des-droits-de-lhomme-et-des-peuples-relatif-aux-droits-des-femmes/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-05-5eme-l-portant-ratification-du-protocole-a-la-charte-africaine-des-droits-de-lhomme-et-des-peuples-relatif-aux-droits-des-femmes/>
 
 En vigueur : 2005-02-15 (date du Journal officiel qui le publie).
 

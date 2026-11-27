@@ -1,6 +1,6 @@
 # Décret n° 46-2575 déterminant les modalités d’application, dans les territoires d’outre-mer autres que Madagascar de la loi n° 46-2383.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2575-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-autres-que-madagascar-de-la-loi-n-46-2383/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2575-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-autres-que-madagascar-de-la-loi-n-46-2383/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

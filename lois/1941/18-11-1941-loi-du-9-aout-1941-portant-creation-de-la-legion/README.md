@@ -1,6 +1,6 @@
 # Loi n° 18/11/1941 modifiant la loi du 9 août 1941 portant création de la Légion française des combattants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-18-11-1941-modifiant-la-loi-du-9-aout-1941-portant-creation-de-la-legion-francaise-des-combattants/>
+Loi · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-18-11-1941-modifiant-la-loi-du-9-aout-1941-portant-creation-de-la-legion-francaise-des-combattants/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

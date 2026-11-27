@@ -1,6 +1,6 @@
 # Arrêté n° 2017-200/PR/MCPT portant adoption du budget prévisionnel 2018 de l’imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-200-pr-mcpt-portant-adoption-du-budget-previsionnel-2018-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-200-pr-mcpt-portant-adoption-du-budget-previsionnel-2018-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

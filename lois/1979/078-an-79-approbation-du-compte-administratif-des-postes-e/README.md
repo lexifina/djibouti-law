@@ -1,6 +1,6 @@
 # Loi n° 78/AN/79 portant approbation du compte administratif des Postes et Télécommunications pour l’exercice 1978.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-79-portant-approbation-du-compte-administratif-des-postes-et-telecommunications-pour-lexercice-1978/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-79-portant-approbation-du-compte-administratif-des-postes-et-telecommunications-pour-lexercice-1978/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

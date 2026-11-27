@@ -1,6 +1,6 @@
 # Décret n° du 15 octobre 1937. portant relèvement des droits de chancellerie en ce qui concerne les ordres coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-15-octobre-1937-portant-relevement-des-droits-de-chancellerie-en-ce-qui-concerne-les-ordres-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-15-octobre-1937-portant-relevement-des-droits-de-chancellerie-en-ce-qui-concerne-les-ordres-coloniaux/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -29,6 +29,6 @@ Général NOLLET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

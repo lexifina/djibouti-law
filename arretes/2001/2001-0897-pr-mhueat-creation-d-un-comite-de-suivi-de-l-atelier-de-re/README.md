@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0897/PR/MHUEAT portant création d’un comité de suivi de l’atelier de réflexion sur la Politique Nationale de l’Habitat et la gestion des établissements humains.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0897-pr-mhueat-portant-creation-dun-comite-de-suivi-de-latelier-de-reflexion-sur-la-politique-nationale-de-lhabitat-et-la-gestion-des-etablissements-humai/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0897-pr-mhueat-portant-creation-dun-comite-de-suivi-de-latelier-de-reflexion-sur-la-politique-nationale-de-lhabitat-et-la-gestion-des-etablissements-humai/>
 
-En vigueur : 2001-11-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2001-11-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

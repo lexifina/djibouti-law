@@ -1,6 +1,6 @@
 # Loi n° 113/AN/05/5ème L Approuvant les comptes financiers de l’Exercice 2003 de la Société Internationale des Hydrocarbures de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-05-5eme-l-approuvant-les-comptes-financiers-de-lexercice-2003-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-05-5eme-l-approuvant-les-comptes-financiers-de-lexercice-2003-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2005-09-15 (date du Journal officiel qui le publie).
 

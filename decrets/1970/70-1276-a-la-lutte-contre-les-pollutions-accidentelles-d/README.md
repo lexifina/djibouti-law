@@ -1,6 +1,6 @@
 # Décret n° 70-1276 relative à la lutte contre les pollutions accidentelles des côtes françaises par les hydrocarbures (J.O.R.F. du 12-1-1971, page 414).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1276-relative-a-la-lutte-contre-les-pollutions-accidentelles-des-cotes-francaises-par-les-hydrocarbures-j-o-r-f-du-12-1-1971-page-414/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1276-relative-a-la-lutte-contre-les-pollutions-accidentelles-des-cotes-francaises-par-les-hydrocarbures-j-o-r-f-du-12-1-1971-page-414/>
 
 En vigueur : 1971-01-25 (date du Journal officiel qui le publie).
 

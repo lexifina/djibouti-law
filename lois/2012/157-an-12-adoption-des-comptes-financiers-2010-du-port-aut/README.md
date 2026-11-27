@@ -1,6 +1,6 @@
 # Loi n° 157/AN/12/6ème L portant adoption des comptes financiers 2010 du Port Autonome de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-12-6eme-l-portant-adoption-des-comptes-financiers-2010-du-port-autonome-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-12-6eme-l-portant-adoption-des-comptes-financiers-2010-du-port-autonome-de-djibouti/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

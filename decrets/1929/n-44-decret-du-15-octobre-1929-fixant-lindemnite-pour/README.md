@@ -1,6 +1,6 @@
 # Décret n° n°44 Décret du 15 octobre 1929 fixant l’indemnité pour frais de premier établissement des Gouverneurs généraux et des Gouverneurs des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 397 du 31/12/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n44-decret-du-15-octobre-1929-fixant-lindemnite-pour-frais-de-premier-etablissement-des-gouverneurs-generaux-et-des-gouverneurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 397 du 31/12/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n44-decret-du-15-octobre-1929-fixant-lindemnite-pour-frais-de-premier-etablissement-des-gouverneurs-generaux-et-des-gouverneurs-des-colonies/>
 
 En vigueur : 1929-12-31 (date du Journal officiel qui le publie).
 

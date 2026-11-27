@@ -1,6 +1,6 @@
 # Décret n° 52-450-1934 Désignation des directeurs des agences économiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-450-1934-designation-des-directeurs-des-agences-economiques/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-450-1934-designation-des-directeurs-des-agences-economiques/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

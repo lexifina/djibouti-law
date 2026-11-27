@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 DECRETE :
 CHAPITRE 1 :
 DES DISPOSITIONS GENERALES

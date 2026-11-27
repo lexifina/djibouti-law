@@ -1,6 +1,6 @@
 # Décret n° 2000-0101/PRE portant création de la Commission Nationale d’Organisation de la Conférence Nationale pour la Paix en Somalie du 20 avril au 05 mai 2000.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0101-pre-portant-creation-de-la-commission-nationale-dorganisation-de-la-conference-nationale-pour-la-paix-en-somalie-du-20-avril-au-05-mai-2000/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0101-pre-portant-creation-de-la-commission-nationale-dorganisation-de-la-conference-nationale-pour-la-paix-en-somalie-du-20-avril-au-05-mai-2000/>
 
 En vigueur : 2000-04-15 (date du Journal officiel qui le publie).
 

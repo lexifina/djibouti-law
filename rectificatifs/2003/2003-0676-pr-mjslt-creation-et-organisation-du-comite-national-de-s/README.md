@@ -1,6 +1,6 @@
 # Rectificatif n° 2003-0676/PR/MJSLT portant création et organisation du Comité National de Suivi des Assises du Sport.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2003-0676-pr-mjslt-portant-creation-et-organisation-du-comite-national-de-suivi-des-assises-du-sport/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 16 du 31/08/2003 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2003-0676-pr-mjslt-portant-creation-et-organisation-du-comite-national-de-suivi-des-assises-du-sport/>
 
 En vigueur : 2003-08-31 (date du Journal officiel qui le publie).
 

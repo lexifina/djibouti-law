@@ -1,6 +1,6 @@
 # Décret n° 84-029/PR portant élargissement des attributions du Ministère des Finances et de l’Économie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-029-pr-portant-elargissement-des-attributions-du-ministere-des-finances-et-de-leconomie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-029-pr-portant-elargissement-des-attributions-du-ministere-des-finances-et-de-leconomie-nationale/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Le Conseil des Ministres entendu en sa séance du 3 Avril 1984.
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

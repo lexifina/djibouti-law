@@ -1,6 +1,6 @@
 # Ordonnance n° 77-028/PR/J Instituant une procédure d’amende arbitrée en matière de simple police.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 26/09/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-028-pr-j-instituant-une-procedure-damende-arbitree-en-matiere-de-simple-police/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 26/09/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-028-pr-j-instituant-une-procedure-damende-arbitree-en-matiere-de-simple-police/>
 
 En vigueur : 1977-09-26 (date du Journal officiel qui le publie).
 

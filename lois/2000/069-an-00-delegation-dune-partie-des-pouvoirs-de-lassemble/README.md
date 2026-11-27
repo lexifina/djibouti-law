@@ -1,6 +1,6 @@
 # Loi n° 69/AN/00/4ème L portant délégation d’une partie des Pouvoirs de l’Assemblée nationale à la Commission Permanente jusqu’à l’ouverture de la 1ère Session Ordinaire de 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-00-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-00-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2000/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

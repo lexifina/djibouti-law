@@ -1,6 +1,6 @@
 # Décret n° 12-468-1935 Indemnité de ré installation des fonctionnaires coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-468-1935-indemnite-de-re-installation-des-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-468-1935-indemnite-de-re-installation-des-fonctionnaires-coloniaux/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

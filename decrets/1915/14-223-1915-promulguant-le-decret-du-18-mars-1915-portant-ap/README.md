@@ -1,6 +1,6 @@
 # Décret n° 14-223-1915 promulguant le décret du 18 Mars 1915 portant application aux Colonies et pays de protectorat autres que la Tunisie et le Maroc des dispositions du décret du 9 Février 1915 relatif aux délais de péremption en matière de mandats poste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 223 du 31/05/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-223-1915-promulguant-le-decret-du-18-mars-1915-portant-application-aux-colonies-et-pays-de-protectorat-autres-que-la-tunisie-et-le-maroc-des-dispositions-du-decret-du-9-fevrier-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 223 du 31/05/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-223-1915-promulguant-le-decret-du-18-mars-1915-portant-application-aux-colonies-et-pays-de-protectorat-autres-que-la-tunisie-et-le-maroc-des-dispositions-du-decret-du-9-fevrier-1915/>
 
 En vigueur : 1915-05-31 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ P. SIMONI.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er– |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art.2 |

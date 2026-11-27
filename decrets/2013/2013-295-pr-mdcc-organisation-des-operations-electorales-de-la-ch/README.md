@@ -1,6 +1,6 @@
 # Décret n° 2013-295/PR/MDCC portant organisation des opérations électorales de la Chambre de Commerce de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-295-pr-mdcc-portant-organisation-des-operations-electorales-de-la-chambre-de-commerce-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 14/11/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-295-pr-mdcc-portant-organisation-des-operations-electorales-de-la-chambre-de-commerce-de-djibouti/>
 
 En vigueur : 2013-11-14 (date du Journal officiel qui le publie).
 

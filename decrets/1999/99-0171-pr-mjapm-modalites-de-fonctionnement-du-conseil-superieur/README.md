@@ -1,6 +1,6 @@
 # Décret n° 99-0171/PR/MJAPM relatif aux modalités de fonctionnement du Conseil Supérieur de la Magistrature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0171-pr-mjapm-relatif-aux-modalites-de-fonctionnement-du-conseil-superieur-de-la-magistrature/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0171-pr-mjapm-relatif-aux-modalites-de-fonctionnement-du-conseil-superieur-de-la-magistrature/>
 
 En vigueur : 1999-09-30 (date du Journal officiel qui le publie).
 

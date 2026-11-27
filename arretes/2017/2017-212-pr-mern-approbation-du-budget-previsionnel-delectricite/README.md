@@ -1,6 +1,6 @@
 # Arrêté n° 2017-212/PR/MERN portant approbation du Budget Prévisionnel d’Electricité Djibouti pour l’exercice 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-212-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-djibouti-pour-lexercice-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-212-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-djibouti-pour-lexercice-2018/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 73-80 relatif à la délivrance des titres aéronautiques civils .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-80-relatif-a-la-delivrance-des-titres-aeronautiques-civils/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-80-relatif-a-la-delivrance-des-titres-aeronautiques-civils/>
 
 En vigueur : 1973-03-10 (date du Journal officiel qui le publie).
 

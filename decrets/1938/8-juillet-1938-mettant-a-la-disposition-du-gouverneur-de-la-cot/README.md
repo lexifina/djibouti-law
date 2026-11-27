@@ -1,6 +1,6 @@
 # Décret n° 8 juillet 1938 mettant à la disposition du Gouverneur de la Côte française des Somalis, M. Verdun, ingénieur principal de T classe du cadre général des travaux publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juillet-1938-mettant-a-la-disposition-du-gouverneur-de-la-cote-francaise-des-somalis-m-verdun-ingenieur-principal-de-t-classe-du-cadre-general-des-travaux-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juillet-1938-mettant-a-la-disposition-du-gouverneur-de-la-cote-francaise-des-somalis-m-verdun-ingenieur-principal-de-t-classe-du-cadre-general-des-travaux-publics/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

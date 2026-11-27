@@ -1,6 +1,6 @@
 # Décret n° 2019-022/PR/MEFI portant réorganisation de l’administration des établissements publics chargés des missions de services publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-022-pr-mefi-portant-reorganisation-de-ladministration-des-etablissements-publics-charges-des-missions-de-services-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-022-pr-mefi-portant-reorganisation-de-ladministration-des-etablissements-publics-charges-des-missions-de-services-publics/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

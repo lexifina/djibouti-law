@@ -1,6 +1,6 @@
 # Loi n° 1/AN/82 portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la deuxième session ordinaire de 1982 dite « Session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-82-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1982-dite-sessio/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-82-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1982-dite-sessio/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

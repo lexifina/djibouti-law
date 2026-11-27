@@ -1,6 +1,6 @@
 # Décret n° 82-115/PR/DEF relatif aux conditions du port et à la description des tenues dans l’Armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-115-pr-def-relatif-aux-conditions-du-port-et-a-la-description-des-tenues-dans-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-115-pr-def-relatif-aux-conditions-du-port-et-a-la-description-des-tenues-dans-larmee-nationale/>
 
 En vigueur : 1982-11-30 (date du Journal officiel qui le publie).
 

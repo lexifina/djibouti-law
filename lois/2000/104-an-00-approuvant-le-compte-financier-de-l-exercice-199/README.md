@@ -1,6 +1,6 @@
 # Loi n° 104/AN/00/4ème L approuvant le compte financier de l’exercice 1999 de l’Etablissement Public des Hydrocarbures (E.P.H).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-00-4eme-l-approuvant-le-compte-financier-de-lexercice-1999-de-letablissement-public-des-hydrocarbures-e-p-h/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-00-4eme-l-approuvant-le-compte-financier-de-lexercice-1999-de-letablissement-public-des-hydrocarbures-e-p-h/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

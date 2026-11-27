@@ -1,6 +1,6 @@
 # Décret n° 2012-257/PRE portant création et fonctionnement des Organes de Supervision et de Gestion des Projets de Développement de la Géothermie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-257-pre-portant-creation-et-fonctionnement-des-organes-de-supervision-et-de-gestion-des-projets-de-developpement-de-la-geothermie/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-257-pre-portant-creation-et-fonctionnement-des-organes-de-supervision-et-de-gestion-des-projets-de-developpement-de-la-geothermie/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

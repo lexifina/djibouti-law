@@ -1,6 +1,6 @@
 # Décret n° n°46-520 tendant à donner une conclusion rapide aux instances en divorce et en Séparation de Corpos lorsque le demandeur s’est trouvé éloigné de son foyer par certains faits de guerre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n46-520-tendant-a-donner-une-conclusion-rapide-aux-instances-en-divorce-et-en-separation-de-corpos-lorsque-le-demandeur-sest-trouve-eloigne-de-son-foyer-par-certains-faits-de/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n46-520-tendant-a-donner-une-conclusion-rapide-aux-instances-en-divorce-et-en-separation-de-corpos-lorsque-le-demandeur-sest-trouve-eloigne-de-son-foyer-par-certains-faits-de/>
 
 En vigueur : 1947-10-31 (date du Journal officiel qui le publie).
 

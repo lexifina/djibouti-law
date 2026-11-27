@@ -1,6 +1,6 @@
 # Décret n° le 6 mai 1939. Cours professés à l’école nationale de la France d’outre-mer,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-mai-1939-cours-professes-a-lecole-nationale-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-mai-1939-cours-professes-a-lecole-nationale-de-la-france-doutre-mer/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 

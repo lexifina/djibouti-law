@@ -1,6 +1,6 @@
 # Arrêté n° 2016-013/PR/MENFP apprrendant exécutoire le budget prévisionnel de l’exercice 2016 du CRIPEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-013-pr-menfp-apprrendant-executoire-le-budget-previsionnel-de-lexercice-2016-du-cripen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-013-pr-menfp-apprrendant-executoire-le-budget-previsionnel-de-lexercice-2016-du-cripen/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

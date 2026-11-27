@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0102/PR/MCCPT portant adoption du projet du Budget prévisionnel 2010 de la Poste de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0102-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2010-de-la-poste-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0102-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2010-de-la-poste-de-djibouti/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

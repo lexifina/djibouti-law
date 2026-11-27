@@ -1,8 +1,8 @@
 # Décret n° 77-056/PR/DEF portant sur les frais de déplacements.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-056-pr-def-portant-sur-les-frais-de-deplacements/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-056-pr-def-portant-sur-les-frais-de-deplacements/>
 
-En vigueur : 1977-12-01 (date fixÃ©e par le texte).
+En vigueur : 1977-12-01 (date fixée par le texte).
 
 ## Visas
 

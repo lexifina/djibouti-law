@@ -1,6 +1,6 @@
 # Loi n° 79/AN/79 réglementation de la circulation touristique, de l’emploi dans les entreprises de tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-79-reglementation-de-la-circulation-touristique-de-lemploi-dans-les-entreprises-de-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-79-reglementation-de-la-circulation-touristique-de-lemploi-dans-les-entreprises-de-tourisme/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ HASSAN GOULED APTIDON.
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

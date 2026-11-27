@@ -1,6 +1,6 @@
 # Décret n° n° 46-2003 Fixant le taux d’intérêt de l’emprunt de 40 millions de la Compagnie de chemin de fer franco-éthiopien…………,….
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2003-fixant-le-taux-dinteret-de-lemprunt-de-40-millions-de-la-compagnie-de-chemin-de-fer-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2003-fixant-le-taux-dinteret-de-lemprunt-de-40-millions-de-la-compagnie-de-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

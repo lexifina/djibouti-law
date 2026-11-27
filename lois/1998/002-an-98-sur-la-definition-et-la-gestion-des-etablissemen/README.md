@@ -1,6 +1,6 @@
 # Loi n° 2/AN/98/4ème L portant sur la définition et la Gestion des Établissements Publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-98-4eme-l-portant-sur-la-definition-et-la-gestion-des-etablissements-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-98-4eme-l-portant-sur-la-definition-et-la-gestion-des-etablissements-publics/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

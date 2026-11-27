@@ -1,6 +1,6 @@
 # Arrêté n° 2010-469/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de licence Appliquée mention “Gestion Comptable en langue Arabe”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-469-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-gestion-comptable-en-langue-arabe/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-469-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-appliquee-mention-gestion-comptable-en-langue-arabe/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

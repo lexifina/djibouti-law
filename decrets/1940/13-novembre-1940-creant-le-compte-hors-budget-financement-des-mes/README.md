@@ -1,6 +1,6 @@
 # Décret n° 13 novembre 1940 créant le compte hors budget “Financement des mesures économiques de guerre.”
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-novembre-1940-creant-le-compte-hors-budget-financement-des-mesures-economiques-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-novembre-1940-creant-le-compte-hors-budget-financement-des-mesures-economiques-de-guerre/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

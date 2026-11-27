@@ -1,6 +1,6 @@
 # Loi n° 154/AN/85/1ére L portant organisation de l’administration du Ministère de l’Agriculture et du Développement Rural.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-85-1ere-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-85-1ere-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

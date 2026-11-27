@@ -1,6 +1,6 @@
 # Loi n° 240/AN/82 Modifiant certains articles du décret du 2 février 1935 et de L’ordonnance du 2 novembre 1945, relatifs aux conditions d’admission et de séjour des étrangers en République de Djibouti et à leur accès aux activités qui leur sont ouvertes, spécialement ceux en matière de pénalités prévues par ces textes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n240-an-82-modifiant-certains-articles-du-decret-du-2-fevrier-1935-et-de-lordonnance-du-2-novembre-1945-relatifs-aux-conditions-dadmission-et-de-sejour-des-etrangers-en-republique-de-dj/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n240-an-82-modifiant-certains-articles-du-decret-du-2-fevrier-1935-et-de-lordonnance-du-2-novembre-1945-relatifs-aux-conditions-dadmission-et-de-sejour-des-etrangers-en-republique-de-dj/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ HASSAN GOULED APTIDON.
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

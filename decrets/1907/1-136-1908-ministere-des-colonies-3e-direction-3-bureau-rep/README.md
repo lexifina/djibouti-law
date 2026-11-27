@@ -1,6 +1,6 @@
 # Décret n° 1-136-1908 Ministère des Colonies, — 3e Direction. — 3° Bureau République Française
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 136 du 01/03/1908 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-136-1908-ministere-des-colonies-3e-direction-3-bureau-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 136 du 01/03/1908 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-136-1908-ministere-des-colonies-3e-direction-3-bureau-republique-francaise/>
 
 En vigueur : 1908-03-01 (date du Journal officiel qui le publie).
 

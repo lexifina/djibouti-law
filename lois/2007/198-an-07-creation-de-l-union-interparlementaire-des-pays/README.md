@@ -1,6 +1,6 @@
 # Loi n° 198/AN/07/5ème L portant création de l’Union Interparlementaire des pays membres de l’IGAD.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-07-5eme-l-portant-creation-de-lunion-interparlementaire-des-pays-membres-de-ligad/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-07-5eme-l-portant-creation-de-lunion-interparlementaire-des-pays-membres-de-ligad/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

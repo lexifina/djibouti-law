@@ -1,6 +1,6 @@
 # Loi n° 143/AN/24/9ème L portant adoption des comptes financiers 2023 de l’Imprimerie Nationale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 13/03/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-24-9eme-l-portant-adoption-des-comptes-financiers-2023-de-limprimerie-nationale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 13/03/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-24-9eme-l-portant-adoption-des-comptes-financiers-2023-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2025-03-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 82/AN/84/1re L accordant une parcelle de terrain domanial en concession provisoire (rectificatif à la loi n° 50/AN/83/1re L).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-84-1re-l-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire-rectificatif-a-la-loi-n50-an-83-1re-l/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-84-1re-l-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire-rectificatif-a-la-loi-n50-an-83-1re-l/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

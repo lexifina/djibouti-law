@@ -1,6 +1,6 @@
 # Décret n° 80-153 /PR/MI complétant le Code de la Route et relatif à la mise en circulation et à l’immatriculation des véhicules.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-153-pr-mi-completant-le-code-de-la-route-et-relatif-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicules/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-153-pr-mi-completant-le-code-de-la-route-et-relatif-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicules/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ Le Conseil des Ministres entendu en sa séance du 28 décembre 1980.
 | [art-018.md](art-018.md) | ARTICLE 18 |
 | [art-019.md](art-019.md) | ARTICLE 19 |
 | [art-020.md](art-020.md) | ARTICLE 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 159/AN/16/7ème L portant statut des réfugiés en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-16-7eme-l-portant-statut-des-refugies-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-16-7eme-l-portant-statut-des-refugies-en-republique-de-djibouti/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 
@@ -83,4 +83,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi de finances n° 41/AN/08/6ème L portant Budget prévisionnel de l’Etat pour l’exercice 2009.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n41-an-08-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2009/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n41-an-08-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2009/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 17/03/1953 approuvant une délibération du 14 décembre 1952 du Conseil Représentatif de la Côte Française des Somalis modifiant la réglementation des droits d’enregistrement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-03-1953-approuvant-une-deliberation-du-14-decembre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-la-reglementation-des-droits-denregistrement/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-03-1953-approuvant-une-deliberation-du-14-decembre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-la-reglementation-des-droits-denregistrement/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 36-468-1935 Exécution de la proposition adoptée le 19 octobre 1935 par le Comité de coordination des mesures à prendre en application de l’article 16 du pacte de la Société des nations (proposition n° 4).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-36-468-1935-execution-de-la-proposition-adoptee-le-19-octobre-1935-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-pacte-de-la-societe-des-nation/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-36-468-1935-execution-de-la-proposition-adoptee-le-19-octobre-1935-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-pacte-de-la-societe-des-nation/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 
@@ -46,7 +46,7 @@ LAUBENT-EYXNAC.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er — |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

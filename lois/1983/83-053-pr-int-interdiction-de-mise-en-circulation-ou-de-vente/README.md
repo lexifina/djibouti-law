@@ -1,6 +1,6 @@
 # Loi n° 83-053/PR/INT portant interdiction de mise en circulation ou de vente de toutes publications, de toutes projections cinématographiques, ou de vente ou location films sous forme de vidéo cassette ou sous forme d’autres procédés, de disques, de photos ou d’enregistrements sonores à caractère pornographiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-053-pr-int-portant-interdiction-de-mise-en-circulation-ou-de-vente-de-toutes-publications-de-toutes-projections-cinematographiques-ou-de-vente-ou-location-films-sous-forme-de-video-ca/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-053-pr-int-portant-interdiction-de-mise-en-circulation-ou-de-vente-de-toutes-publications-de-toutes-projections-cinematographiques-ou-de-vente-ou-location-films-sous-forme-de-video-ca/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ HASSAN GOULED APTIDON
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

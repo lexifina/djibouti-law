@@ -1,6 +1,6 @@
 # Décret n° 78-064/PR/DEF relatif à la participation des armées à des activités ne relevant pas directement de leurs missions spécifiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-064-pr-def-relatif-a-la-participation-des-armees-a-des-activites-ne-relevant-pas-directement-de-leurs-missions-specifiques/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-064-pr-def-relatif-a-la-participation-des-armees-a-des-activites-ne-relevant-pas-directement-de-leurs-missions-specifiques/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres entendu,
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

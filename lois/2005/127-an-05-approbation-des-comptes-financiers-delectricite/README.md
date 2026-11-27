@@ -1,6 +1,6 @@
 # Loi n° 127/AN/05/5ème L Portant approbation des comptes financiers d’Électricité de Djibouti pour l’exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-05-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-05-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2003/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

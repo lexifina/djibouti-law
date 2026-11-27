@@ -1,8 +1,8 @@
 # Ordonnance n° 87-053/PR/MIDI complétant la loi n° 154 du 11 juin 1985 portant organisation du Ministère de l’Agriculture et du Développement rural et notamment son article 9.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-053-pr-midi-completant-la-loi-n-154-du-11-juin-1985-portant-organisation-du-ministere-de-lagriculture-et-du-developpement-rural-et-notamment-son-article-9/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-053-pr-midi-completant-la-loi-n-154-du-11-juin-1985-portant-organisation-du-ministere-de-lagriculture-et-du-developpement-rural-et-notamment-son-article-9/>
 
-En vigueur : 1987-07-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-07-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

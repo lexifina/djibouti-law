@@ -1,6 +1,6 @@
 # Loi n° 58/AN/94/3e L du 18 octobre 1994 portant diverses mesures destinées à encourager les investissements.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 31/10/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-94-3e-l-du-18-octobre-1994-portant-diverses-mesures-destinees-a-encourager-les-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 31/10/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-94-3e-l-du-18-octobre-1994-portant-diverses-mesures-destinees-a-encourager-les-investissements/>
 
 En vigueur : 1994-10-31 (date du Journal officiel qui le publie).
 
@@ -19,7 +19,7 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -42,4 +42,4 @@ HASSAN GOULED APTIDON.
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

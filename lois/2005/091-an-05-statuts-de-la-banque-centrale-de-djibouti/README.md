@@ -1,8 +1,8 @@
 # Loi n° 91/AN/05/5ème L Relative aux Statuts de la Banque Centrale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-05-5eme-l-relative-aux-statuts-de-la-banque-centrale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-05-5eme-l-relative-aux-statuts-de-la-banque-centrale-de-djibouti/>
 
-En vigueur : 2005-01-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2005-01-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

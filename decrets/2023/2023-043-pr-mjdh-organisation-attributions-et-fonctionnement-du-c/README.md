@@ -1,6 +1,6 @@
 # Décret n° 2023-043/PR/MJDH portant organisation, attributions et fonctionnement du comité national de vigilance en matière de lutte contre la traite des personnes et les pratiques assimilées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-043-pr-mjdh-portant-organisation-attributions-et-fonctionnement-du-comite-national-de-vigilance-en-matiere-de-lutte-contre-la-traite-des-personnes-et-les-pratiques-assimilees/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-043-pr-mjdh-portant-organisation-attributions-et-fonctionnement-du-comite-national-de-vigilance-en-matiere-de-lutte-contre-la-traite-des-personnes-et-les-pratiques-assimilees/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -39,4 +39,4 @@ Le Conseil des Ministres entendu en sa séance du 27 Décembre 2022.
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

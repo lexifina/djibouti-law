@@ -1,6 +1,6 @@
 # Loi n° 169/AN/02/4ème L Portant organisation et compétence d’Al-Ma’adoun al chari ou statut d’Al Ma’adoun al chari.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 09/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-02-4eme-l-portant-organisation-et-competence-dal-maadoun-al-chari-ou-statut-dal-maadoun-al-chari/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 09/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-02-4eme-l-portant-organisation-et-competence-dal-maadoun-al-chari-ou-statut-dal-maadoun-al-chari/>
 
 En vigueur : 2002-07-09 (date du Journal officiel qui le publie).
 

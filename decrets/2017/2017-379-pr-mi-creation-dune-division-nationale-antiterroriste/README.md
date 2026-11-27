@@ -1,6 +1,6 @@
 # Décret n° 2017-379/PR/MI portant création d’une Division Nationale Antiterroriste Rattachée au Directeur Générale de la Police Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-379-pr-mi-portant-creation-dune-division-nationale-antiterroriste-rattachee-au-directeur-generale-de-la-police-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-379-pr-mi-portant-creation-dune-division-nationale-antiterroriste-rattachee-au-directeur-generale-de-la-police-nationale/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

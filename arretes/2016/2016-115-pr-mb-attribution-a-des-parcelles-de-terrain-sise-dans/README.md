@@ -1,6 +1,6 @@
 # Arrêté n° 2016-115/PR/MB portant attribution à des parcelles de terrain sise dans la ville de Djibouti à titre gracieux au profit du Parti Rassemblement Populaire pour le Progrès.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-115-pr-mb-portant-attribution-a-des-parcelles-de-terrain-sise-dans-la-ville-de-djibouti-a-titre-gracieux-au-profit-du-parti-rassemblement-populaire-pour-le-progres/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-115-pr-mb-portant-attribution-a-des-parcelles-de-terrain-sise-dans-la-ville-de-djibouti-a-titre-gracieux-au-profit-du-parti-rassemblement-populaire-pour-le-progres/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

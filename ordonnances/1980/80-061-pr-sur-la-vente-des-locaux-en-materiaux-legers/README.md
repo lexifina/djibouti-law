@@ -1,6 +1,6 @@
 # Ordonnance n° 80-061/PR sur la vente des locaux en matériaux légers.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-061-pr-sur-la-vente-des-locaux-en-materiaux-legers/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-061-pr-sur-la-vente-des-locaux-en-materiaux-legers/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

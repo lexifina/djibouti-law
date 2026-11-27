@@ -1,6 +1,6 @@
 # Loi n° 70/AN/79 relative aux mesures de défense sanitaire et sociale contre les maladies vénériennes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-79-relative-aux-mesures-de-defense-sanitaire-et-sociale-contre-les-maladies-veneriennes/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-79-relative-aux-mesures-de-defense-sanitaire-et-sociale-contre-les-maladies-veneriennes/>
 
 En vigueur : 1979-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 2-403-1930 Loi réprimant les fausses indications d’origine des marchandises.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 403 du 30/06/1930 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-403-1930-loi-reprimant-les-fausses-indications-dorigine-des-marchandises/>
+Loi · Journal officiel de la République de Djibouti, n° 403 du 30/06/1930 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-403-1930-loi-reprimant-les-fausses-indications-dorigine-des-marchandises/>
 
 En vigueur : 1930-06-30 (date du Journal officiel qui le publie).
 

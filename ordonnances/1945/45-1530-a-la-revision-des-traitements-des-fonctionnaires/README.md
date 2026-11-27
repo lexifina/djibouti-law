@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1530 relative à la révision des traitements des fonctionnaires des cadres généraux des colonies.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1530-relative-a-la-revision-des-traitements-des-fonctionnaires-des-cadres-generaux-des-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1530-relative-a-la-revision-des-traitements-des-fonctionnaires-des-cadres-generaux-des-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

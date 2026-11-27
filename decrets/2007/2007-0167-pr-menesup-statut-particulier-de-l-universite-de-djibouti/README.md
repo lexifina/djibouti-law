@@ -1,8 +1,8 @@
 # Décret n° 2007-0167/PR/MENESUP fixant le statut particulier de l’Université de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0167-pr-menesup-fixant-le-statut-particulier-de-luniversite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0167-pr-menesup-fixant-le-statut-particulier-de-luniversite-de-djibouti/>
 
-En vigueur : 2007-07-24 (date fixÃ©e par le texte).
+En vigueur : 2007-07-24 (date fixée par le texte).
 
 ## Visas
 

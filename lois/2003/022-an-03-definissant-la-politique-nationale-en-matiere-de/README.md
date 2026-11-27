@@ -1,6 +1,6 @@
 # Loi n° 22/AN/03/5ème L définissant la politique nationale en matière de Technologie de l’Information et de la Communication.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-03-5eme-l-definissant-la-politique-nationale-en-matiere-de-technologie-de-linformation-et-de-la-communication/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-03-5eme-l-definissant-la-politique-nationale-en-matiere-de-technologie-de-linformation-et-de-la-communication/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

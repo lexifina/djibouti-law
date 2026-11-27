@@ -1,6 +1,6 @@
 # Décret n° 2006-0081/PR/MEFPCP fixant les modalités d’indemnisation des créanciers (victimes d’accident) de la société d’assurance éthiopienne EIC.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0081-pr-mefpcp-fixant-les-modalites-dindemnisation-des-creanciers-victimes-daccident-de-la-societe-dassurance-ethiopienne-eic/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0081-pr-mefpcp-fixant-les-modalites-dindemnisation-des-creanciers-victimes-daccident-de-la-societe-dassurance-ethiopienne-eic/>
 
 En vigueur : 2006-04-01 (date du Journal officiel qui le publie).
 

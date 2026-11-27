@@ -1,6 +1,6 @@
 # Loi n° 7/AN/82/1èreL portant approbation du prêt de l’IDA à la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n7-an-82-1erel-portant-approbation-du-pret-de-lida-a-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n7-an-82-1erel-portant-approbation-du-pret-de-lida-a-la-republique-de-djibouti/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° le 28 juillet 1939. Décret portant application aux terriloires relevant du ministère, autres que les Antilles et la Réunion, de la loi du 20 mai 1939 qui a modifié l’article 251 du Code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 514 du 30/09/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-28-juillet-1939-decret-portant-application-aux-terriloires-relevant-du-ministere-autres-que-les-antilles-et-la-reunion-de-la-loi-du-20-mai-1939-qui-a-modifie-larticle-25/>
+Décret · Journal officiel de la République de Djibouti, n° 514 du 30/09/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-28-juillet-1939-decret-portant-application-aux-terriloires-relevant-du-ministere-autres-que-les-antilles-et-la-reunion-de-la-loi-du-20-mai-1939-qui-a-modifie-larticle-25/>
 
 En vigueur : 1939-09-30 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Paul MARCHANDEAU
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

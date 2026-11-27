@@ -1,6 +1,6 @@
 # Décret n° 2006-0183/PR/MCIA portant éléments additifs à certaines dispositions du décret n° 2006-0017/PRE portant création du Comité National d’Organisation des réunions des organes directeurs et du Sommet des Chefs d’Etats et des gouvernements des pays du COMESA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0183-pr-mcia-portant-elements-additifs-a-certaines-dispositions-du-decret-n2006-0017-pre-portant-creation-du-comite-national-dorganisation-des-reunions-des-organes-directeur/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0183-pr-mcia-portant-elements-additifs-a-certaines-dispositions-du-decret-n2006-0017-pre-portant-creation-du-comite-national-dorganisation-des-reunions-des-organes-directeur/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 188/AN/85/1ère L fixant les procédures de recouvrement des cotisations et des prestations dues à la Caisse des Prestations sociales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-85-1ere-l-fixant-les-procedures-de-recouvrement-des-cotisations-et-des-prestations-dues-a-la-caisse-des-prestations-sociales/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-85-1ere-l-fixant-les-procedures-de-recouvrement-des-cotisations-et-des-prestations-dues-a-la-caisse-des-prestations-sociales/>
 
 En vigueur : 1986-01-16 (date du Journal officiel qui le publie).
 

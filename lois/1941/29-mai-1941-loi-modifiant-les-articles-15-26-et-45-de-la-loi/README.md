@@ -1,6 +1,6 @@
 # Loi n° 29 mai 1941 La loi modifiant les articles 15. 26 et 45 de la loi du 29 juillet 1881 sur la liberté de la presse
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-29-mai-1941-la-loi-modifiant-les-articles-15-26-et-45-de-la-loi-du-29-juillet-1881-sur-la-liberte-de-la-presse/>
+Loi · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-29-mai-1941-la-loi-modifiant-les-articles-15-26-et-45-de-la-loi-du-29-juillet-1881-sur-la-liberte-de-la-presse/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

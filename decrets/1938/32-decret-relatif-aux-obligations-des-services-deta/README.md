@@ -1,6 +1,6 @@
 # Décret n° 32 Décret relatif aux obligations des services d’Etat el assimilés au matière de trans- ports maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-32-decret-relatif-aux-obligations-des-services-detat-el-assimiles-au-matiere-de-trans-ports-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-32-decret-relatif-aux-obligations-des-services-detat-el-assimiles-au-matiere-de-trans-ports-maritimes/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 

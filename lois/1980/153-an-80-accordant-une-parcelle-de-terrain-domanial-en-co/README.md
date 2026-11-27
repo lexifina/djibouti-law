@@ -1,6 +1,6 @@
 # Loi n° 153/AN/80 ‘Accordant une parcelle de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-80-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-80-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

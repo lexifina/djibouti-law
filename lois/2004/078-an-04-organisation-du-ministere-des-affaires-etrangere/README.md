@@ -1,6 +1,6 @@
 # Loi n° 78/AN/04/5ème L portant organisation du Ministère des Affaires Étrangères et de la Coopération Internationale, chargé des Relations avec le Parlement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-04-5eme-l-portant-organisation-du-ministere-des-affaires-etrangeres-et-de-la-cooperation-internationale-charge-des-relations-avec-le-parlement/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-04-5eme-l-portant-organisation-du-ministere-des-affaires-etrangeres-et-de-la-cooperation-internationale-charge-des-relations-avec-le-parlement/>
 
 En vigueur : 2004-09-15 (date du Journal officiel qui le publie).
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

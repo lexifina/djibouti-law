@@ -1,6 +1,6 @@
 # Décret n° 64-1346 portant ouverture et annulation de crédits.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-1346-portant-ouverture-et-annulation-de-credits/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-1346-portant-ouverture-et-annulation-de-credits/>
 
 En vigueur : 1965-01-31 (date du Journal officiel qui le publie).
 

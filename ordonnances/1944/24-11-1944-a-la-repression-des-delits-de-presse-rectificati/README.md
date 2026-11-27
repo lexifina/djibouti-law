@@ -1,6 +1,6 @@
 # Ordonnance n° 24/11/1944 relative à la répression des délits de presse (Rectificatif au J.O.R.F., n° 42 du samedi 20 mai 1944) – (J.O.R.F. du 27 mai 1944).
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-11-1944-relative-a-la-repression-des-delits-de-presse-rectificatif-au-j-o-r-f-n-42-du-samedi-20-mai-1944-j-o-r-f-du-27-mai-1944/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 01/02/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-11-1944-relative-a-la-repression-des-delits-de-presse-rectificatif-au-j-o-r-f-n-42-du-samedi-20-mai-1944-j-o-r-f-du-27-mai-1944/>
 
 En vigueur : 1945-02-01 (date du Journal officiel qui le publie).
 

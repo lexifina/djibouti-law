@@ -1,6 +1,6 @@
 # Décret n° 2007-0231/PR/MS fixant le cadre général du régime des études et les conditions d’obtention du diplôme national de docteur en médecine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0231-pr-ms-fixant-le-cadre-general-du-regime-des-etudes-et-les-conditions-dobtention-du-diplome-national-de-docteur-en-medecine/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0231-pr-ms-fixant-le-cadre-general-du-regime-des-etudes-et-les-conditions-dobtention-du-diplome-national-de-docteur-en-medecine/>
 
 En vigueur : 2007-12-15 (date du Journal officiel qui le publie).
 

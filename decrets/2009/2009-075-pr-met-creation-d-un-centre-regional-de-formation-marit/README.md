@@ -1,8 +1,8 @@
 # Décret n° 2009-075/PR/MET portant création d’un Centre Régional de Formation Maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-075-pr-met-portant-creation-dun-centre-regional-de-formation-maritime/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-075-pr-met-portant-creation-dun-centre-regional-de-formation-maritime/>
 
-En vigueur : 2009-04-19 (date fixÃ©e par le texte).
+En vigueur : 2009-04-19 (date fixée par le texte).
 
 ## Visas
 

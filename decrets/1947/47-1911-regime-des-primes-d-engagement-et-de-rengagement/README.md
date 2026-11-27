@@ -1,6 +1,6 @@
 # Décret n° 47-1911 modifiant le régime des primes d’engagement et de rengagement applicable aux militaires non officiers ressortissants
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1911-modifiant-le-regime-des-primes-dengagement-et-de-rengagement-applicable-aux-militaires-non-officiers-ressortissants/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1911-modifiant-le-regime-des-primes-dengagement-et-de-rengagement-applicable-aux-militaires-non-officiers-ressortissants/>
 
 En vigueur : 1947-11-30 (date du Journal officiel qui le publie).
 

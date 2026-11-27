@@ -1,6 +1,6 @@
 # Décret n° 74-179 portant modification de l’article R.224-2 du code l’ aviation civile concernant les redevance aèroptuaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-179-portant-modification-de-larticle-r-224-2-du-code-l-aviation-civile-concernant-les-redevance-aeroptuaires/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-179-portant-modification-de-larticle-r-224-2-du-code-l-aviation-civile-concernant-les-redevance-aeroptuaires/>
 
 En vigueur : 1974-03-25 (date du Journal officiel qui le publie).
 

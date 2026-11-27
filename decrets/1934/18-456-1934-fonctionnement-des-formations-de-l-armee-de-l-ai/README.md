@@ -1,6 +1,6 @@
 # Décret n° 18-456-1934 Fonctionnement des formations de l’armée de l’air détachées aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 456 du 30/11/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-456-1934-fonctionnement-des-formations-de-larmee-de-lair-detachees-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 456 du 30/11/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-456-1934-fonctionnement-des-formations-de-larmee-de-lair-detachees-aux-colonies/>
 
 En vigueur : 1934-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2017-123/PRE portant agrément du transfert des actions que l’État détient dans la société AIR Djibouti S.A.S à la société “GREAT HORN INVESTMENT HOLDINGS S.A.S”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 13/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-123-pre-portant-agrement-du-transfert-des-actions-que-letat-detient-dans-la-societe-air-djibouti-s-a-s-a-la-societe-great-horn-investment-holdings-s-a-s/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 13/04/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-123-pre-portant-agrement-du-transfert-des-actions-que-letat-detient-dans-la-societe-air-djibouti-s-a-s-a-la-societe-great-horn-investment-holdings-s-a-s/>
 
 En vigueur : 2017-04-13 (date du Journal officiel qui le publie).
 

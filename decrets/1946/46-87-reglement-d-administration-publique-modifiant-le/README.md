@@ -1,6 +1,6 @@
 # Décret n° 46-87 portant règlement d’administration publique modifiant les conditions d’admission dans le corps de l’inspection aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-87-portant-reglement-dadministration-publique-modifiant-les-conditions-dadmission-dans-le-corps-de-linspection-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-87-portant-reglement-dadministration-publique-modifiant-les-conditions-dadmission-dans-le-corps-de-linspection-aux-colonies/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

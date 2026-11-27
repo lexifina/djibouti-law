@@ -1,6 +1,6 @@
 # Décret n° 8 juin 1939 Décret relatif aux règle d’allocation de l’indemnité d’absence temporaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-relatif-aux-regle-dallocation-de-lindemnite-dabsence-temporaire/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-relatif-aux-regle-dallocation-de-lindemnite-dabsence-temporaire/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2015-154/PR/MENFOP fixant les modalités de gestion de la dotation allouée pour le développement de l’Enseignement Technique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-154-pr-menfop-fixant-les-modalites-de-gestion-de-la-dotation-allouee-pour-le-developpement-de-lenseignement-technique/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-154-pr-menfop-fixant-les-modalites-de-gestion-de-la-dotation-allouee-pour-le-developpement-de-lenseignement-technique/>
 
-En vigueur : 2015-05-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-05-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

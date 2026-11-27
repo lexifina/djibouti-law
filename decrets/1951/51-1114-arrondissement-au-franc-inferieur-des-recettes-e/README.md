@@ -1,6 +1,6 @@
 # Décret n° 51-1114 portant arrondissement au franc inférieur des recettes et dépenses publiques en francs métropolitains dans les territoires relevant de l’autorité du Ministre cïTÈtat chargé chargé des relations avec tes États associés et du Ministre de ïa France d’Outre-Mer, et arrondissement ait franc inférieur des recettes et dépenses en francs locaux dans les territoires des zones des francs C.F.A., C.F.P. et Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1114-portant-arrondissement-au-franc-inferieur-des-recettes-et-depenses-publiques-en-francs-metropolitains-dans-les-territoires-relevant-de-lautorite-du-ministre-citetat-charge-ch/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1114-portant-arrondissement-au-franc-inferieur-des-recettes-et-depenses-publiques-en-francs-metropolitains-dans-les-territoires-relevant-de-lautorite-du-ministre-citetat-charge-ch/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° du 18 janvier 1936. pour l’application du décret du 18 janvier 1936 rendant applicable aux colonies la loi du 26 juillet 1935 sur l’exercice de la médecine et de l’art dentaire. (J. O. du 22 janvier 1936.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 474 du 31/05/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-18-janvier-1936-pour-lapplication-du-decret-du-18-janvier-1936-rendant-applicable-aux-colonies-la-loi-du-26-juillet-1935-sur-lexercice-de-la-medecine-et-de-lart-dentai/>
+Décret · Journal officiel de la République de Djibouti, n° 474 du 31/05/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-18-janvier-1936-pour-lapplication-du-decret-du-18-janvier-1936-rendant-applicable-aux-colonies-la-loi-du-26-juillet-1935-sur-lexercice-de-la-medecine-et-de-lart-dentai/>
 
 En vigueur : 1936-05-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ SOREL.
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

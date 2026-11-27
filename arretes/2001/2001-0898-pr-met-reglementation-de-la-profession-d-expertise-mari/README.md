@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0898/PR/MET portant réglementation de la profession d’expertise maritime, et fixant les conditions d’agrément.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0898-pr-met-portant-reglementation-de-la-profession-dexpertise-maritime-et-fixant-les-conditions-dagrement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0898-pr-met-portant-reglementation-de-la-profession-dexpertise-maritime-et-fixant-les-conditions-dagrement/>
 
 En vigueur : 2001-11-29 (date du Journal officiel qui le publie).
 

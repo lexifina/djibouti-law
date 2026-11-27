@@ -1,6 +1,6 @@
 # Décret n° 16 mai 1970 Ministre délégué auprès du Premier Ministre charcé des Départements et Territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 10/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1970-ministre-delegue-aupres-du-premier-ministre-charce-des-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 10/06/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1970-ministre-delegue-aupres-du-premier-ministre-charce-des-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1970-06-10 (date du Journal officiel qui le publie).
 

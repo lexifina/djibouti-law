@@ -1,6 +1,6 @@
 # Décret n° 91-034 /PR/MCTT approuvant et rendant exécutoire le budget prévisionnel 1991 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-034-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1991-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-034-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1991-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1991-03-31 (date du Journal officiel qui le publie).
 

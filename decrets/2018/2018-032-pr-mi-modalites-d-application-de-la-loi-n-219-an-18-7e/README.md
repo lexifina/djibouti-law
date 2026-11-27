@@ -1,6 +1,6 @@
 # Décret n° 2018-032/PR/MI portant modalités d’application de la Loi n° 219/AN/18/7ème L modifiant la Loi n° 192/AN/02/4ème L instituant le système de quota dans les fonctions électives et dans l’administration de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 30/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-032-pr-mi-portant-modalites-dapplication-de-la-loi-n219-an-18-7eme-l-modifiant-la-loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electi/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 30/01/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-032-pr-mi-portant-modalites-dapplication-de-la-loi-n219-an-18-7eme-l-modifiant-la-loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electi/>
 
 En vigueur : 2018-01-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 81-125/PR LE PRÉSIDENT DE LA RÉPUBLIQUE, CHEF DU GOUVERNEMENT
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 27/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-125-pr-le-president-de-la-republique-chef-du-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 27/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-125-pr-le-president-de-la-republique-chef-du-gouvernement/>
 
 En vigueur : 1981-12-27 (date du Journal officiel qui le publie).
 

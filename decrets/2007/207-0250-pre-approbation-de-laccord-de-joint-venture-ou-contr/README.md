@@ -1,6 +1,6 @@
 # Décret n° 207-0250/PRE portant approbation de l’accord de joint venture ou contrat de participation et des status de la societe doraleh container DCT S A.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n207-0250-pre-portant-approbation-de-laccord-de-joint-venture-ou-contrat-de-participation-et-des-status-de-la-societe-doraleh-container-dct-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n207-0250-pre-portant-approbation-de-laccord-de-joint-venture-ou-contrat-de-participation-et-des-status-de-la-societe-doraleh-container-dct-s-a/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

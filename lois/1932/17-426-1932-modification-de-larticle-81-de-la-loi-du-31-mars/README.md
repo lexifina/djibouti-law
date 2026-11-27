@@ -1,6 +1,6 @@
 # Loi n° 17-426-1932 portant modification de l’article 81 de la loi du 31 mars 1928 sur le recrutement de l’armée.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-17-426-1932-portant-modification-de-larticle-81-de-la-loi-du-31-mars-1928-sur-le-recrutement-de-larmee/>
+Loi · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/loi-n-17-426-1932-portant-modification-de-larticle-81-de-la-loi-du-31-mars-1928-sur-le-recrutement-de-larmee/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 6-444-1933 Mise en service du Code international de signaux de 1931.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 444 du 30/11/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-444-1933-mise-en-service-du-code-international-de-signaux-de-1931/>
+Décret · Journal officiel de la République de Djibouti, n° 444 du 30/11/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-444-1933-mise-en-service-du-code-international-de-signaux-de-1931/>
 
 En vigueur : 1933-11-30 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ Albert SARRAUT.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

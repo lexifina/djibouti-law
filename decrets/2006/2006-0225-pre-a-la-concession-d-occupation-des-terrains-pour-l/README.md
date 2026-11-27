@@ -1,8 +1,8 @@
 # Décret n° 2006-0225/PRE relatif à la concession d’occupation des terrains pour la réalisation d’un projet industriel et commercial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0225-pre-relatif-a-la-concession-doccupation-des-terrains-pour-la-realisation-dun-projet-industriel-et-commercial/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 14/09/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0225-pre-relatif-a-la-concession-doccupation-des-terrains-pour-la-realisation-dun-projet-industriel-et-commercial/>
 
-En vigueur : 2006-09-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2006-09-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

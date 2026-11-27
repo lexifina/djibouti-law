@@ -1,6 +1,6 @@
 # Décret n° n°72 Décret du 17 juillet 1930 portant ouverture de crédits supplémentaires au budget local de la Côte française des Somalis pour l’exercice 1930, S’élevant à la somme de 211.000 francs
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n72-decret-du-17-juillet-1930-portant-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1930-selevant-a-la-somme-de-211-00/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n72-decret-du-17-juillet-1930-portant-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1930-selevant-a-la-somme-de-211-00/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 92‑0022/PR/MCTT Approuvant le budget de la Chambre Internationale de Commerce et des Magasins Généraux, exercice 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910022-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 29/02/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910022-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1992/>
 
 En vigueur : 1992-02-29 (date du Journal officiel qui le publie).
 

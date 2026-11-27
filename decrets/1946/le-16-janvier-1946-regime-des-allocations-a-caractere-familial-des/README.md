@@ -1,6 +1,6 @@
 # Décret n° le 16 janvier 1946. Régime des allocations à caractère familial des militaires des troupes coloniales et métropolitaines à la charge du Departement des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-16-janvier-1946-regime-des-allocations-a-caractere-familial-des-militaires-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-16-janvier-1946-regime-des-allocations-a-caractere-familial-des-militaires-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

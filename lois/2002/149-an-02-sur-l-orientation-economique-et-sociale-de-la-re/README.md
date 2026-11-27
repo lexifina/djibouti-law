@@ -1,6 +1,6 @@
 # Loi n° 149/AN/02/4ème L portant sur l’Orientation Economique et Sociale de la République de Djibouti pour la période 2001-2010.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-02-4eme-l-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti-pour-la-periode-2001-2010/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-02-4eme-l-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti-pour-la-periode-2001-2010/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 
@@ -96,4 +96,4 @@ ISMAÏL OMAR GUELLEH
 | [art-074.md](art-074.md) | Article 74 |
 | [art-075.md](art-075.md) | Article 75 |
 | [art-076.md](art-076.md) | Article 76 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

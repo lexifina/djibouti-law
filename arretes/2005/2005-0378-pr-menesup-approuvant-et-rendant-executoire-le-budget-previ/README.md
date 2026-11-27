@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0378/PR/MENESUP approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2005 du Pôle Universitaire de Djibouti (PUD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0378-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2005-du-pole-universitaire-de-djibouti-pud/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0378-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2005-du-pole-universitaire-de-djibouti-pud/>
 
 En vigueur : 2005-06-15 (date du Journal officiel qui le publie).
 

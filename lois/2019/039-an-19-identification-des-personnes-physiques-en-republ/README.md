@@ -1,6 +1,6 @@
 # Loi n° 39/AN/19/8ème L portant identification des personnes physiques en République de Djibouti, création du numéro national d’identification et établissement d’un registre national.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-19-8eme-l-portant-identification-des-personnes-physiques-en-republique-de-djibouti-creation-du-numero-national-didentification-et-etablissement-dun-registre-national/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-19-8eme-l-portant-identification-des-personnes-physiques-en-republique-de-djibouti-creation-du-numero-national-didentification-et-etablissement-dun-registre-national/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -129,4 +129,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 TITRE I: DE LA MOBILISATION NATIONALE

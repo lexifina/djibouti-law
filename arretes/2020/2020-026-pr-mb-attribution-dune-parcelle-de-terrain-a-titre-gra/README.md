@@ -1,6 +1,6 @@
 # Arrêté n° 2020-026/PR/MB portant attribution d’une parcelle de terrain à titre gracieux au profit de l’Agence Nationale des Personnes Handicapées.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-026-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-titre-gracieux-au-profit-de-lagence-nationale-des-personnes-handicapees/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-026-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-titre-gracieux-au-profit-de-lagence-nationale-des-personnes-handicapees/>
 
 En vigueur : 2020-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

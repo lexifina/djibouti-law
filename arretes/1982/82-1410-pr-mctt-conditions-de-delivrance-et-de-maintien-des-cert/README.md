@@ -1,6 +1,6 @@
 # Arrêté n° 82-1410/PR/MCTT relatif aux conditions de délivrance et de maintien des certificats de navigabilité des aéronefs civils.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/10/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1410-pr-mctt-relatif-aux-conditions-de-delivrance-et-de-maintien-des-certificats-de-navigabilite-des-aeronefs-civils/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 30/10/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1410-pr-mctt-relatif-aux-conditions-de-delivrance-et-de-maintien-des-certificats-de-navigabilite-des-aeronefs-civils/>
 
 En vigueur : 1982-10-30 (date du Journal officiel qui le publie).
 

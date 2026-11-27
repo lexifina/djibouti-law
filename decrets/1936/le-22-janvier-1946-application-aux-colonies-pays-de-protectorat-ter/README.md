@@ -1,6 +1,6 @@
 # Décret n° le 22 janvier 1946 Application aux colonies, pays de protectorat territoires sous mandat relevant de l’autorité du Ministre des colonies, à l’exception de la Martinique, de la Guadeloupe, de la Réunion, de l’Indochine et de Madagascar, de divers décrets modifiant le Code pénal et le Code d’instruction criminelle et réglementant l’expertise en matière criminelle et correctionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1946-application-aux-colonies-pays-de-protectorat-territoires-sous-mandat-relevant-de-lautorite-du-ministre-des-colonies-a-lexception-de-la-martinique-de-la-guadel/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1946-application-aux-colonies-pays-de-protectorat-territoires-sous-mandat-relevant-de-lautorite-du-ministre-des-colonies-a-lexception-de-la-martinique-de-la-guadel/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 

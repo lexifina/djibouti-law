@@ -1,6 +1,6 @@
 # Loi n° 192/AN/23/8ème L portant adoption des Comptes Financiers de l’Agence Nationale des Personnes Handicapées (ANPH) pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-23-8eme-l-portant-adoption-des-comptes-financiers-de-lagence-nationale-des-personnes-handicapees-anph-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-23-8eme-l-portant-adoption-des-comptes-financiers-de-lagence-nationale-des-personnes-handicapees-anph-pour-lexercice-2019/>
 
 En vigueur : 2023-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

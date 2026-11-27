@@ -1,6 +1,6 @@
 # Arrêté n° 2017-113/PR/MI portant fermetures des établissements de restauration, de débits de boissons et spectacles pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-113-pr-mi-portant-fermetures-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 13/07/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-113-pr-mi-portant-fermetures-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2017-07-13 (date du Journal officiel qui le publie).
 

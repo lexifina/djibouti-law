@@ -1,6 +1,6 @@
 # Loi n° 45/AN/04/5ème L portant création des Aires Protégées Terrestres et Marines.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-04-5eme-l-portant-creation-des-aires-protegees-terrestres-et-marines/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-04-5eme-l-portant-creation-des-aires-protegees-terrestres-et-marines/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

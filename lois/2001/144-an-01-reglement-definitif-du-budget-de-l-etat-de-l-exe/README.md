@@ -1,6 +1,6 @@
 # Loi n° 144/AN/01/4ème L portant Règlement définitif du budget de l’Etat de l’exercice 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-01-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-01-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2000/>
 
 En vigueur : 2001-12-31 (date du Journal officiel qui le publie).
 

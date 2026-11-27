@@ -1,6 +1,6 @@
 # Décret n° 06-458-1935 Application aux colonies et pays de portera relevant du ministère des colonies, au Togo et au Cameroun, de la loi du 4 juillet 1934 tendant à assurer la protection des appellations d’origine « Cognac » et « Armagnac ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-458-1935-application-aux-colonies-et-pays-de-portera-relevant-du-ministere-des-colonies-au-togo-et-au-cameroun-de-la-loi-du-4-juillet-1934-tendant-a-assurer-la-protection-des-appe/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-458-1935-application-aux-colonies-et-pays-de-portera-relevant-du-ministere-des-colonies-au-togo-et-au-cameroun-de-la-loi-du-4-juillet-1934-tendant-a-assurer-la-protection-des-appe/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

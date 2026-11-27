@@ -1,6 +1,6 @@
 # Décret n° 2022-092/PR/MCT portant organisation et fonctionnement de l’Agence Djiboutienne des Normes et de la Qualité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-092-pr-mct-portant-organisation-et-fonctionnement-de-lagence-djiboutienne-des-normes-et-de-la-qualite/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-092-pr-mct-portant-organisation-et-fonctionnement-de-lagence-djiboutienne-des-normes-et-de-la-qualite/>
 
 En vigueur : 2022-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

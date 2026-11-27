@@ -1,6 +1,6 @@
 # Décret n° 7-464-1935 Situation des agents des postes, télégraphes et téléphones de la métropole détachés aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-464-1935-situation-des-agents-des-postes-telegraphes-et-telephones-de-la-metropole-detaches-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-464-1935-situation-des-agents-des-postes-telegraphes-et-telephones-de-la-metropole-detaches-aux-colonies/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 

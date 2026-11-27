@@ -1,6 +1,6 @@
 # Décret n° 6 juillet 1939 6 Juillet 1945
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 513 du 31/08/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-juillet-1939-6-juillet-1945/>
+Décret · Journal officiel de la République de Djibouti, n° 513 du 31/08/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-juillet-1939-6-juillet-1945/>
 
 En vigueur : 1939-08-31 (date du Journal officiel qui le publie).
 

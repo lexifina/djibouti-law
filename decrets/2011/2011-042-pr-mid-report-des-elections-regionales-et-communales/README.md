@@ -1,6 +1,6 @@
 # Décret n° 2011-042/PR/MID portant report des Élections Régionales et Communales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-042-pr-mid-portant-report-des-elections-regionales-et-communales/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-042-pr-mid-portant-report-des-elections-regionales-et-communales/>
 
 En vigueur : 2011-03-31 (date du Journal officiel qui le publie).
 

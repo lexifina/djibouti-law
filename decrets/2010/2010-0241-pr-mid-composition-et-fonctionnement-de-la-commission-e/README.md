@@ -1,6 +1,6 @@
 # Décret n° 2010-0241/PR/MID portant composition et fonctionnement de la Commission Electorale Nationale Indépendante.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0241-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0241-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

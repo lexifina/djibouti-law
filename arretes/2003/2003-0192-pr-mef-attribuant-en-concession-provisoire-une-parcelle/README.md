@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0192/PR/MEF attribuant en concession provisoire une parcelle de terrain sise aux Balbala PK12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0192-pr-mef-attribuant-en-concession-provisoire-une-parcelle-de-terrain-sise-aux-balbala-pk12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0192-pr-mef-attribuant-en-concession-provisoire-une-parcelle-de-terrain-sise-aux-balbala-pk12/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

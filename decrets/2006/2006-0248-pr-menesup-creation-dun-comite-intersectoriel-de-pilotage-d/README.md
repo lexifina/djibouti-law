@@ -1,6 +1,6 @@
 # Décret n° 2006-0248/PR/MENESUP portant création d’un Comité Intersectoriel de Pilotage du programme d’appui à l’enseignement primaire financé par le fond Catalytique de l’Initiative de Mise en Oeuvre Accélérée de l’Éducation Pour Tous.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0248-pr-menesup-portant-creation-dun-comite-intersectoriel-de-pilotage-du-programme-dappui-a-lenseignement-primaire-finance-par-le-fond-catalytique-de-linitiative-de-mise-en/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0248-pr-menesup-portant-creation-dun-comite-intersectoriel-de-pilotage-du-programme-dappui-a-lenseignement-primaire-finance-par-le-fond-catalytique-de-linitiative-de-mise-en/>
 
 En vigueur : 2006-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 6-120-1906 relative à la protection des conserves de sardines, de légumes et de prunes contre la fraude étrangère.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 120 du 01/11/1906 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-6-120-1906-relative-a-la-protection-des-conserves-de-sardines-de-legumes-et-de-prunes-contre-la-fraude-etrangere/>
+Loi · Journal officiel de la République de Djibouti, n° 120 du 01/11/1906 · <https://www.journalofficiel.dj/texte-juridique/loi-n-6-120-1906-relative-a-la-protection-des-conserves-de-sardines-de-legumes-et-de-prunes-contre-la-fraude-etrangere/>
 
 En vigueur : 1906-11-01 (date du Journal officiel qui le publie).
 

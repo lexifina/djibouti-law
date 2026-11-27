@@ -1,6 +1,6 @@
 # Loi n° 46-668 instituant une procédure exceptionnelle de vote par procuration en faveur de certaines catégories d’électeurs
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-668-instituant-une-procedure-exceptionnelle-de-vote-par-procuration-en-faveur-de-certaines-categories-delecteurs/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-668-instituant-une-procedure-exceptionnelle-de-vote-par-procuration-en-faveur-de-certaines-categories-delecteurs/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

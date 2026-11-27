@@ -1,6 +1,6 @@
 # Décret n° 2001-0200/PR/MESN portant création d’un Comité National de la Sécurité Sociale (C.N.S.S).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0200-pr-mesn-portant-creation-dun-comite-national-de-la-securite-sociale-c-n-s-s/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0200-pr-mesn-portant-creation-dun-comite-national-de-la-securite-sociale-c-n-s-s/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 

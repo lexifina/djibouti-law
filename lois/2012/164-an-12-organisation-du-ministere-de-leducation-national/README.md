@@ -1,6 +1,6 @@
 # Loi n° 164/AN/12/6ème L portant organisation du Ministère de l’Education Nationale et de la formation professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
 En vigueur : 2012-08-15 (date du Journal officiel qui le publie).
 
@@ -104,4 +104,4 @@ ISMAÏL OMAR GUELLEH
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
 | [art-063.md](art-063.md) | Article 63 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

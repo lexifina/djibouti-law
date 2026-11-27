@@ -1,6 +1,6 @@
 # Décret n° 11-69-1902 portant règlement de police sanitaire maritime. — (Suite).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 69 du 15/10/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-69-1902-portant-reglement-de-police-sanitaire-maritime-suite/>
+Décret · Journal officiel de la République de Djibouti, n° 69 du 15/10/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-69-1902-portant-reglement-de-police-sanitaire-maritime-suite/>
 
 En vigueur : 1902-10-15 (date du Journal officiel qui le publie).
 

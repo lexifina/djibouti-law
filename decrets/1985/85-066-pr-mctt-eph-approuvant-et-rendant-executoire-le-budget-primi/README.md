@@ -1,6 +1,6 @@
 # Décret n° 85-066/PR/MCTT/EPH approuvant et rendant exécutoire le budget primitif 1985 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-066-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1985-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-066-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1985-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1985-07-31 (date du Journal officiel qui le publie).
 

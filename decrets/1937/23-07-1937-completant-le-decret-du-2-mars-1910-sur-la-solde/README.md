@@ -1,6 +1,6 @@
 # Décret n° 23/07/1937 complétant le décret du 2 mars 1910 sur la solde et les accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 489 du 31/08/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1937-completant-le-decret-du-2-mars-1910-sur-la-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 489 du 31/08/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1937-completant-le-decret-du-2-mars-1910-sur-la-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1937-08-31 (date du Journal officiel qui le publie).
 

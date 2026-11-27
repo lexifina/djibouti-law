@@ -1,6 +1,6 @@
 # Loi n° 35 La loi portant modification de la loi du 28 février 1941 relative à la forme et à la négociation des actions,
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-35-la-loi-portant-modification-de-la-loi-du-28-fevrier-1941-relative-a-la-forme-et-a-la-negociation-des-actions/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-35-la-loi-portant-modification-de-la-loi-du-28-fevrier-1941-relative-a-la-forme-et-a-la-negociation-des-actions/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ platon
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0965/PRE portant approbation du Budget prévisionnel pour l’année 2010 du Palais du Palais.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0965-pre-portant-approbation-du-budget-previsionnel-pour-lannee-2010-du-palais-du-palais/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0965-pre-portant-approbation-du-budget-previsionnel-pour-lannee-2010-du-palais-du-palais/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

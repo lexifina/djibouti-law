@@ -1,6 +1,6 @@
 # Loi n° 57/AN/09/6ème L portant approbation des comptes financiers du Centre d’Etudes et de Recherche de Djibouti pour l’Exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-09-6eme-l-portant-approbation-des-comptes-financiers-du-centre-detudes-et-de-recherche-de-djibouti-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-09-6eme-l-portant-approbation-des-comptes-financiers-du-centre-detudes-et-de-recherche-de-djibouti-pour-lexercice-2007/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

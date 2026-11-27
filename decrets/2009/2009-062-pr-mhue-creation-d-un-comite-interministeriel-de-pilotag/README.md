@@ -1,6 +1,6 @@
 # Décret n° 2009-062/PR/MHUE portant création d’un Comité Interministériel de Pilotage de la composante nationale de la Grande Muraille Verte.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-062-pr-mhue-portant-creation-dun-comite-interministeriel-de-pilotage-de-la-composante-nationale-de-la-grande-muraille-verte/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-062-pr-mhue-portant-creation-dun-comite-interministeriel-de-pilotage-de-la-composante-nationale-de-la-grande-muraille-verte/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

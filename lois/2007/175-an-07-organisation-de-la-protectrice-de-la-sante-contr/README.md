@@ -1,6 +1,6 @@
 # Loi n° 175/AN/07/5ème L portant organisation de la protectrice de la santé contre le tabagisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-07-5eme-l-portant-organisation-de-la-protectrice-de-la-sante-contre-le-tabagisme/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-07-5eme-l-portant-organisation-de-la-protectrice-de-la-sante-contre-le-tabagisme/>
 
 En vigueur : 2007-04-30 (date du Journal officiel qui le publie).
 

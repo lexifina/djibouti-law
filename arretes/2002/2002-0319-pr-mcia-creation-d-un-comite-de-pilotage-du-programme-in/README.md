@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0319/PR/MCIA portant création d’un Comité de pilotage du programme intégré relatif à une stratégie pour l’industrialisation de la République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0319-pr-mcia-portant-creation-dun-comite-de-pilotage-du-programme-integre-relatif-a-une-strategie-pour-lindustrialisation-de-la-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0319-pr-mcia-portant-creation-dun-comite-de-pilotage-du-programme-integre-relatif-a-une-strategie-pour-lindustrialisation-de-la-republique-de-djibouti/>
 
-En vigueur : 2002-05-04 (date fixÃ©e par le texte).
+En vigueur : 2002-05-04 (date fixée par le texte).
 
 ## Visas
 

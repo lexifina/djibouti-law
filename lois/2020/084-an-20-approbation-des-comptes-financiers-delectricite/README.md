@@ -1,6 +1,6 @@
 # Loi n° 84/AN/20/8ème L portant approbation des Comptes financiers d’Electricité de Djibouti pour l’exercice 2016.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-20-8eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2016/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-20-8eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2016/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

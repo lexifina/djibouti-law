@@ -1,6 +1,6 @@
 # Loi n° LR/007 BUDGET EXTRAORDINAIRE 1977
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/07/1977 Â· <https://www.journalofficiel.dj/texte-juridique/loi-nlr-007-budget-extraordinaire-1977/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 14/07/1977 · <https://www.journalofficiel.dj/texte-juridique/loi-nlr-007-budget-extraordinaire-1977/>
 
 En vigueur : 1977-07-14 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ Le président de la République promulgue la loi dont la teneur suit :
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

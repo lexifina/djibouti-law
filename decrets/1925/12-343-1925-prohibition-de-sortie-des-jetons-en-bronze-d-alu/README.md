@@ -1,6 +1,6 @@
 # Décret n° 12-343-1925 Prohibition de sortie des jetons en bronze d’aluminium.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 343 du 30/06/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-343-1925-prohibition-de-sortie-des-jetons-en-bronze-daluminium/>
+Décret · Journal officiel de la République de Djibouti, n° 343 du 30/06/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-343-1925-prohibition-de-sortie-des-jetons-en-bronze-daluminium/>
 
 En vigueur : 1925-06-30 (date du Journal officiel qui le publie).
 

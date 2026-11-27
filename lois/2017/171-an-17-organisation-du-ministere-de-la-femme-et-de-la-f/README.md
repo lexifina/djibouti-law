@@ -1,6 +1,6 @@
 # Loi n° 171/AN/17/7ème L portant organisation du Ministère de la Femme et de la Famille (MFF).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-17-7eme-l-portant-organisation-du-ministere-de-la-femme-et-de-la-famille-mff/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-17-7eme-l-portant-organisation-du-ministere-de-la-femme-et-de-la-famille-mff/>
 
 En vigueur : 2017-04-30 (date du Journal officiel qui le publie).
 
@@ -72,4 +72,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

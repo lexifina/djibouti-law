@@ -1,6 +1,6 @@
 # Décret n° 2006-0017/PR/MCIA portant création du Comité National d’Organisation des réunions des organes Directeurs et du 11ème Sommet des Chefs d’État et de Gouvernements des pays du COMESA, novembre 2006.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0017-pr-mcia-portant-creation-du-comite-national-dorganisation-des-reunions-des-organes-directeurs-et-du-11eme-sommet-des-chefs-detat-et-de-gouvernements-des-pays/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0017-pr-mcia-portant-creation-du-comite-national-dorganisation-des-reunions-des-organes-directeurs-et-du-11eme-sommet-des-chefs-detat-et-de-gouvernements-des-pays/>
 
 En vigueur : 2006-01-31 (date du Journal officiel qui le publie).
 

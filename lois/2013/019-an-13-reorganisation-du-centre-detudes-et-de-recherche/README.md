@@ -1,6 +1,6 @@
 # Loi n° 19/AN/13/7ème L portant réorganisation du Centre d’Etudes et de Recherche de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-13-7eme-l-portant-reorganisation-du-centre-detudes-et-de-recherche-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-13-7eme-l-portant-reorganisation-du-centre-detudes-et-de-recherche-de-djibouti/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 
@@ -77,4 +77,4 @@ ISMAÏL OMAR GUELLEH
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

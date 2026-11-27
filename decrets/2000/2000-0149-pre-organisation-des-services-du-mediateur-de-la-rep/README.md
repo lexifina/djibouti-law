@@ -1,6 +1,6 @@
 # Décret n° 2000-0149/PRE portant organisation des services du Médiateur de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0149-pre-portant-organisation-des-services-du-mediateur-de-la-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0149-pre-portant-organisation-des-services-du-mediateur-de-la-republique-de-djibouti/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

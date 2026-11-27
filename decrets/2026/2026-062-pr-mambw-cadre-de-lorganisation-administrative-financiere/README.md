@@ -1,6 +1,6 @@
 # Décret n° 2026-062/PR/MAMBW fixant le cadre de l’organisation administrative, financière et logistique du Hajj et de l’encadrement des pèlerins djiboutiens.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 31/03/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-062-pr-mambw-fixant-le-cadre-de-lorganisation-administrative-financiere-et-logistique-du-hajj-et-de-lencadrement-des-pelerins-djiboutiens/>
+Décret · Journal officiel de la République de Djibouti, n° 06 du 31/03/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-062-pr-mambw-fixant-le-cadre-de-lorganisation-administrative-financiere-et-logistique-du-hajj-et-de-lencadrement-des-pelerins-djiboutiens/>
 
 En vigueur : 2026-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

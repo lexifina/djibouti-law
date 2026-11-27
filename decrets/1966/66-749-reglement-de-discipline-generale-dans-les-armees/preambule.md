@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Monsieur le Président,
 L’époque contemporaine impose à notre pays et à son armée des changements de toute nature.
 La mise en service des nouveaux armements, l’évolution de la stratégie, dominée par. le fait nucléaire, conduisent à une organisation des forces plus complexe, se développant dans un cadre interarmes et souvent interarmées.

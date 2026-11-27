@@ -1,6 +1,6 @@
 # Ordonnance n° 4 août 1942 portant dérogation provisoire aux dispositions du code civil relatives à la transcription des jugements de divorce
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-4-aout-1942-portant-derogation-provisoire-aux-dispositions-du-code-civil-relatives-a-la-transcription-des-jugements-de-divorce/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-4-aout-1942-portant-derogation-provisoire-aux-dispositions-du-code-civil-relatives-a-la-transcription-des-jugements-de-divorce/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

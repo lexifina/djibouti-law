@@ -1,8 +1,8 @@
 # Décret n° 2013-061/PR/MJ modifiant le décret n° 2005-0212/PR du 17/12/2005 portant création d’un Comité National de Lutte contre le Terrorisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-061-pr-mj-modifiant-le-decret-n2005-0212-pr-du-17-12-2005-portant-creation-dun-comite-national-de-lutte-contre-le-terrorisme/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-061-pr-mj-modifiant-le-decret-n2005-0212-pr-du-17-12-2005-portant-creation-dun-comite-national-de-lutte-contre-le-terrorisme/>
 
-En vigueur : 2013-04-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-04-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

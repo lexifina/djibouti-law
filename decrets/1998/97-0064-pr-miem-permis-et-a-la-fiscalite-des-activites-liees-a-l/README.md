@@ -1,6 +1,6 @@
 # Décret n° 97-0064/PR/MIEM relatif aux permis et à la fiscalité des activités liées à la recherche, à l’exploration, à l’exploitation minière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0064-pr-miem-relatif-aux-permis-et-a-la-fiscalite-des-activites-liees-a-la-recherche-a-lexploration-a-lexploitation-miniere/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0064-pr-miem-relatif-aux-permis-et-a-la-fiscalite-des-activites-liees-a-la-recherche-a-lexploration-a-lexploitation-miniere/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ HASSAN GOULED APTIDON
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

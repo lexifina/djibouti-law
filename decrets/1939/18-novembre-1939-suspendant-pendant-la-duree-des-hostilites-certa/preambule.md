@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 ART1er- Pendant toute la durée des hostilités, la suspension des dispositions de l’artiele 65 de la loi du 22 avril 1905 prévue. en ce qui concerne les personnels de l’Etat, par le dernier alinéa de l’article 15 du décret du 1″ septembre 1929, s’applique à l’ensemble des personnels des services ou établissements publies de l’Etat, des dénartements. des communues, des colonies et des territoires d’outre-mer, ainsi que des services concédés relevant de ces collectivités.

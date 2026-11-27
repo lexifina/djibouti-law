@@ -1,6 +1,6 @@
 # Loi n° 109/AN/96/3e L portant adhésion de la République de Djibouti à la Convention de 1980 sur certaines armes classiques et à ses protocole I, II, III.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-96-3e-l-portant-adhesion-de-la-republique-de-djibouti-a-la-convention-de-1980-sur-certaines-armes-classiques-et-a-ses-protocole-i-ii-iii/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-96-3e-l-portant-adhesion-de-la-republique-de-djibouti-a-la-convention-de-1980-sur-certaines-armes-classiques-et-a-ses-protocole-i-ii-iii/>
 
 En vigueur : 1996-06-15 (date du Journal officiel qui le publie).
 

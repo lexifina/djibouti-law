@@ -1,6 +1,6 @@
 # Décret n° 97-0165/PR/MI Relatif à la création dans chaque district d’une commission chargée de distribuer les cartes électorales, en vue des élections législatives du vendredi 19 décembre 1997.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-97-0165-pr-mi-relatif-a-la-creation-dans-chaque-district-dune-commission-chargee-de-distribuer-les-cartes-electorales-en-vue-des-elections-legislatives-du-vendredi-19-decembre-1997/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 17/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n-97-0165-pr-mi-relatif-a-la-creation-dans-chaque-district-dune-commission-chargee-de-distribuer-les-cartes-electorales-en-vue-des-elections-legislatives-du-vendredi-19-decembre-1997/>
 
 En vigueur : 1997-11-17 (date du Journal officiel qui le publie).
 

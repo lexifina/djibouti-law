@@ -1,6 +1,6 @@
 # Loi n° 131/AN/84/1re L portant règlement définitif du budget de l’État de l’exercice 1983
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-84-1re-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1983/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 31/12/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-84-1re-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1983/>
 
 En vigueur : 1984-12-31 (date du Journal officiel qui le publie).
 

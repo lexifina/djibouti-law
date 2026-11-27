@@ -1,6 +1,6 @@
 # Loi n° 133/AN/90/2ème L portant ratification de l’accord de crédit de développement conclu entre la République de Djibouti et l’Association Internationale de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-90-2eme-l-portant-ratification-de-laccord-de-credit-de-developpement-conclu-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-90-2eme-l-portant-ratification-de-laccord-de-credit-de-developpement-conclu-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

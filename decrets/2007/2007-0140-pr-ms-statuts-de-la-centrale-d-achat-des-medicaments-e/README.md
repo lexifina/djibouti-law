@@ -1,8 +1,8 @@
 # Décret n° 2007-0140/PR/MS portant Statuts de la Centrale d’Achat des Médicaments et Matériels Essentiels (CAMME).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0140-pr-ms-portant-statuts-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0140-pr-ms-portant-statuts-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
 
-En vigueur : 2007-06-20 (date fixÃ©e par le texte).
+En vigueur : 2007-06-20 (date fixée par le texte).
 
 ## Visas
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1 |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 51-495 portant modification du décret du 30 décembre 1912 sur le régime financier des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-495-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-495-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

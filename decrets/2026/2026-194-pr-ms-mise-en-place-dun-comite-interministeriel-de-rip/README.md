@@ -1,6 +1,6 @@
 # Décret n° 2026-194/PR/MS portant mise en place d’un comité interministériel de riposte face à la menace de l’épidémie à virus Ebola.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-194-pr-ms-portant-mise-en-place-dun-comite-interministeriel-de-riposte-face-a-la-menace-de-lepidemie-a-virus-ebola/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-194-pr-ms-portant-mise-en-place-dun-comite-interministeriel-de-riposte-face-a-la-menace-de-lepidemie-a-virus-ebola/>
 
 En vigueur : 2026-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

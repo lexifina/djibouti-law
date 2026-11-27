@@ -1,6 +1,6 @@
 # Décret n° 99-0041/PRE/MID portant modification de l’article 3 du décret n° 99-0015/PR/MID fixant la date des élections présidentielles
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0041-pre-mid-portant-modification-de-larticle-3-du-decret-n99-0015-pr-mid-fixant-la-date-des-elections-presidentielles/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0041-pre-mid-portant-modification-de-larticle-3-du-decret-n99-0015-pr-mid-fixant-la-date-des-elections-presidentielles/>
 
 En vigueur : 1999-04-15 (date du Journal officiel qui le publie).
 

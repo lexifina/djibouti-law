@@ -1,6 +1,6 @@
 # Décret n° 2-427-1932 Publication et mise en application provisoire de l’avenant à la convention de commerce et de navigation du 27 août 1930 entre la République française et le royaume de Roumanie signé à Paris le 5 janvier 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 427 du 30/06/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-427-1932-publication-et-mise-en-application-provisoire-de-lavenant-a-la-convention-de-commerce-et-de-navigation-du-27-aout-1930-entre-la-republique-francaise-et-le-royaume-d/>
+Décret · Journal officiel de la République de Djibouti, n° 427 du 30/06/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-427-1932-publication-et-mise-en-application-provisoire-de-lavenant-a-la-convention-de-commerce-et-de-navigation-du-27-aout-1930-entre-la-republique-francaise-et-le-royaume-d/>
 
 En vigueur : 1932-06-30 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ DE CHAPPEDELAINE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

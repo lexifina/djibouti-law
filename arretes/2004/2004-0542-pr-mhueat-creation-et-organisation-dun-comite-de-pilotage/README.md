@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0542/PR/MHUEAT portant création et organisation d’un comité de pilotage du projet de préservation du patrimoine urbain et architectural du centre ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0542-pr-mhueat-portant-creation-et-organisation-dun-comite-de-pilotage-du-projet-de-preservation-du-patrimoine-urbain-et-architectural-du-centre-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0542-pr-mhueat-portant-creation-et-organisation-dun-comite-de-pilotage-du-projet-de-preservation-du-patrimoine-urbain-et-architectural-du-centre-ville-de-djibouti/>
 
 En vigueur : 2004-08-15 (date du Journal officiel qui le publie).
 

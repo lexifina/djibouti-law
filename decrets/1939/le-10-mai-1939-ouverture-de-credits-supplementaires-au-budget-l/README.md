@@ -1,6 +1,6 @@
 # Décret n° le 10 mai 1939 portant ouverture de crédits supplémentaires au budget local (exercice 1938) (Côte française des Somalis),
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-10-mai-1939-portant-ouverture-de-credits-supplementaires-au-budget-local-exercice-1938-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-10-mai-1939-portant-ouverture-de-credits-supplementaires-au-budget-local-exercice-1938-cote-francaise-des-somalis/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Georges MANDEL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

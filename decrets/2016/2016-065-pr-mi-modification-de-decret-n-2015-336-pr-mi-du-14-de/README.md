@@ -1,6 +1,6 @@
 # Décret n° 2016-065/PR/MI portant modification de décret n° 2015-336/PR/MI du 14 décembre 2015 portant organisation du scrtin présidentiel du 08 Avril 2016.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-065-pr-mi-portant-modification-de-decret-n2015-336-pr-mi-du-14-decembre-2015-portant-organisation-du-scrtin-presidentiel-du-08-avril-2016/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 30/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-065-pr-mi-portant-modification-de-decret-n2015-336-pr-mi-du-14-decembre-2015-portant-organisation-du-scrtin-presidentiel-du-08-avril-2016/>
 
 En vigueur : 2016-03-30 (date du Journal officiel qui le publie).
 

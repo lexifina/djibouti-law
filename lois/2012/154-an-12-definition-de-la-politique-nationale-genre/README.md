@@ -1,6 +1,6 @@
 # Loi n° 154/AN/12/6ème L portant définition de la Politique nationale Genre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-12-6eme-l-portant-definition-de-la-politique-nationale-genre/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-12-6eme-l-portant-definition-de-la-politique-nationale-genre/>
 
 En vigueur : 2012-06-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 13 mai 1966 portant création de lycées d’Etat dans les territoires d’Outre à Mer et les Nouvelles-Hébrides (arrêté de promulgation n° 28 du 7 janvier 1967)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-mai-1966-portant-creation-de-lycees-detat-dans-les-territoires-doutre-a-mer-et-les-nouvelles-hebrides-arrete-de-promulgation-n-28-du-7-janvier-1967/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-mai-1966-portant-creation-de-lycees-detat-dans-les-territoires-doutre-a-mer-et-les-nouvelles-hebrides-arrete-de-promulgation-n-28-du-7-janvier-1967/>
 
 En vigueur : 1967-02-01 (date du Journal officiel qui le publie).
 
@@ -28,5 +28,5 @@ Vu le décret du 5 décembre 1963 portant création du lycée mixte ‘classique
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Décret n° 2018-378/PR/MFF portant réglementation des Mutuelles Communautaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-378-pr-mff-portant-reglementation-des-mutuelles-communautaires/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-378-pr-mff-portant-reglementation-des-mutuelles-communautaires/>
 
-En vigueur : 2018-12-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-12-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -40,4 +40,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

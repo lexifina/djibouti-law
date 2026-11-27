@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0128/PR/MJSLT portant création d’un Comité National d’Organisation du Douzième Edition Semi-Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0128-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-douzieme-edition-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0128-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-douzieme-edition-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2008-02-28 (date du Journal officiel qui le publie).
 

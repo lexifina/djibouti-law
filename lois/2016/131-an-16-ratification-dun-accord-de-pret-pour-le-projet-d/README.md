@@ -1,6 +1,6 @@
 # Loi n° 131/AN/16/7ème L portant ratification d’un accord de prêt pour le projet d’expansion du Port de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-16-7eme-l-portant-ratification-dun-accord-de-pret-pour-le-projet-dexpansion-du-port-de-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-16-7eme-l-portant-ratification-dun-accord-de-pret-pour-le-projet-dexpansion-du-port-de-tadjourah/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 147/AN/24/9ème L portant approbation des comptes financiers de l’exercice 2023 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 13/02/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2023-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 03 du 13/02/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2023-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
 
 En vigueur : 2025-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

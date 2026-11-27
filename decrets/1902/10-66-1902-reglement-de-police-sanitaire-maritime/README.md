@@ -1,6 +1,6 @@
 # Décret n° 10-66-1902 portant règlement de police sanitaire maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 66 du 01/09/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-66-1902-portant-reglement-de-police-sanitaire-maritime/>
+Décret · Journal officiel de la République de Djibouti, n° 66 du 01/09/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-66-1902-portant-reglement-de-police-sanitaire-maritime/>
 
 En vigueur : 1902-09-01 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ colonies,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

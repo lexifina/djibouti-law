@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0458/PR/MET portant adoption du budget prévisionnel 2004 du Port de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0458-pr-met-portant-adoption-du-budget-previsionnel-2004-du-port-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0458-pr-met-portant-adoption-du-budget-previsionnel-2004-du-port-de-djibouti/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

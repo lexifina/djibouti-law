@@ -1,7 +1,7 @@
 # Décret n° 2013-181/PR/MAMCBW portant création
 de la mission officielle du Haj 2013.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-181-pr-mamcbw-portant-creation-de-la-mission-officielle-du-haj-2013/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-181-pr-mamcbw-portant-creation-de-la-mission-officielle-du-haj-2013/>
 
 En vigueur : 2013-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2005-0189/PR/MID Portant composition et fonctionnement de la Commission Électorale Régionale Indépendante (CERI).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0189-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-regionale-independante-ceri/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0189-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-regionale-independante-ceri/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 
@@ -54,4 +54,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

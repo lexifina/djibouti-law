@@ -1,6 +1,6 @@
 # Décret n° 45-1562 portant application aux colonies de l’ordonnance n° 45-85 du 15 janvier 1945 relative au régime des avoirs étrangers en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1562-portant-application-aux-colonies-de-lordonnance-n-45-85-du-15-janvier-1945-relative-au-regime-des-avoirs-etrangers-en-france/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1562-portant-application-aux-colonies-de-lordonnance-n-45-85-du-15-janvier-1945-relative-au-regime-des-avoirs-etrangers-en-france/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

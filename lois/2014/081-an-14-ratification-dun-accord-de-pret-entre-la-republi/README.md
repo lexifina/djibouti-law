@@ -1,6 +1,6 @@
 # Loi n° 81/AN/14/7ème L portant ratification d’un accord de prêt entre la République de Djibouti et la Banque Mondiale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-14-7eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-14-7eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
 
 En vigueur : 2015-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2017-007/PR/MDCL portant approbation du Budget Prévisionnel pour l’exercice 2017 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-007-pr-mdcl-portant-approbation-du-budget-previsionnel-pour-lexercice-2017-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-007-pr-mdcl-portant-approbation-du-budget-previsionnel-pour-lexercice-2017-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

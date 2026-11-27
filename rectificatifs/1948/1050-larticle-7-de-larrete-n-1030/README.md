@@ -1,6 +1,6 @@
 # Rectificatif n° 1050 modifiant l’article 7 de l’arrêté n° 1030.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1050-modifiant-larticle-7-de-larrete-n-1030/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1050-modifiant-larticle-7-de-larrete-n-1030/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 

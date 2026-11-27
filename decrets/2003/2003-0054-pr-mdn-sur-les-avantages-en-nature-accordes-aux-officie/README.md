@@ -1,6 +1,6 @@
 # Décret n° 2003-0054/PR/MDN portant sur les avantages en nature accordés aux officiers de la Garde Républicaine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0054-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-officiers-de-la-garde-republicaine/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0054-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-officiers-de-la-garde-republicaine/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ ISMAIL OMAR GUELLEH
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

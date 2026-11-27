@@ -1,6 +1,6 @@
 # Loi n° 118/AN/15/7ème L portant création d’un Système de Paiement National, sa Réglementation et sa Surveillance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-15-7eme-l-portant-creation-dun-systeme-de-paiement-national-sa-reglementation-et-sa-surveillance/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-15-7eme-l-portant-creation-dun-systeme-de-paiement-national-sa-reglementation-et-sa-surveillance/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

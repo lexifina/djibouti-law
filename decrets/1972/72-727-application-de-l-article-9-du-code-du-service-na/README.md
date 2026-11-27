@@ -1,6 +1,6 @@
 # Décret n° 72-727 portant application de l’article 9 du Code du service national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 25/09/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-727-portant-application-de-larticle-9-du-code-du-service-national/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 25/09/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-727-portant-application-de-larticle-9-du-code-du-service-national/>
 
 En vigueur : 1972-09-25 (date du Journal officiel qui le publie).
 
@@ -30,7 +30,7 @@ Xavier DENIAU.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

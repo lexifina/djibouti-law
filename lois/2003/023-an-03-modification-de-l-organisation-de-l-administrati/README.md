@@ -1,6 +1,6 @@
 # Loi n° 23/AN/03/5ème L portant modification de l’organisation de l’Administration du Ministère de l’Agriculture, de l’Elevage et de la Mer, chargé des Ressources Hydrauliques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-03-5eme-l-portant-modification-de-lorganisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hy/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-03-5eme-l-portant-modification-de-lorganisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hy/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

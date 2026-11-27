@@ -1,6 +1,6 @@
 # Décret n° 97-0102/PR/FIN portant création d’un comité technique de coordination et de suivi des réformes économiques
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0102-pr-fin-portant-creation-dun-comite-technique-de-coordination-et-de-suivi-des-reformes-economiques/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0102-pr-fin-portant-creation-dun-comite-technique-de-coordination-et-de-suivi-des-reformes-economiques/>
 
 En vigueur : 1997-07-15 (date du Journal officiel qui le publie).
 

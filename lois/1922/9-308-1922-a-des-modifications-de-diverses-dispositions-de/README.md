@@ -1,6 +1,6 @@
 # Loi n° 9-308-1922 relative à des modifications de diverses dispositions de la loi du 29 mars 1920, portant relèvement, et de la loi cu 31 décembre 1921, portant abaissement de taxes postales, télégraphiques et téléphoniques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 308 du 31/07/1922 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-9-308-1922-relative-a-des-modifications-de-diverses-dispositions-de-la-loi-du-29-mars-1920-portant-relevement-et-de-la-loi-cu-31-decembre-1921-portant-abaissement-de-taxes-postales-te/>
+Loi · Journal officiel de la République de Djibouti, n° 308 du 31/07/1922 · <https://www.journalofficiel.dj/texte-juridique/loi-n-9-308-1922-relative-a-des-modifications-de-diverses-dispositions-de-la-loi-du-29-mars-1920-portant-relevement-et-de-la-loi-cu-31-decembre-1921-portant-abaissement-de-taxes-postales-te/>
 
 En vigueur : 1922-07-31 (date du Journal officiel qui le publie).
 

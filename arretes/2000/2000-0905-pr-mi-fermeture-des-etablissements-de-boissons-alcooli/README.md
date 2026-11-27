@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0905/PR/MI portant fermeture des établissements de boissons alcoolisés pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0905-pr-mi-portant-fermeture-des-etablissements-de-boissons-alcoolises-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0905-pr-mi-portant-fermeture-des-etablissements-de-boissons-alcoolises-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2000-11-30 (date du Journal officiel qui le publie).
 

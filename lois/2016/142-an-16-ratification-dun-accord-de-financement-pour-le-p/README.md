@@ -1,6 +1,6 @@
 # Loi n° 142/AN/16/7ème L portant ratification d’un accord de financement pour le projet de raccordement électrique de la ligne de chemin de fer Djibouti-Ethiopie (lot. 2).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-16-7eme-l-portant-ratification-dun-accord-de-financement-pour-le-projet-de-raccordement-electrique-de-la-ligne-de-chemin-de-fer-djibouti-ethiopie-lot-2/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 14/04/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-16-7eme-l-portant-ratification-dun-accord-de-financement-pour-le-projet-de-raccordement-electrique-de-la-ligne-de-chemin-de-fer-djibouti-ethiopie-lot-2/>
 
 En vigueur : 2016-04-14 (date du Journal officiel qui le publie).
 

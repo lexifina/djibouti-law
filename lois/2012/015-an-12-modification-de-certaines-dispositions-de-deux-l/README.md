@@ -1,8 +1,8 @@
 # Loi n° 15/AN/12/6ème L portant modification de certaines dispositions de deux lois organiques relatives au Conseil Supérieur de la Magistrature.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-12-6eme-l-portant-modification-de-certaines-dispositions-de-deux-lois-organiques-relatives-au-conseil-superieur-de-la-magistrature/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-12-6eme-l-portant-modification-de-certaines-dispositions-de-deux-lois-organiques-relatives-au-conseil-superieur-de-la-magistrature/>
 
-En vigueur : 2012-09-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-09-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

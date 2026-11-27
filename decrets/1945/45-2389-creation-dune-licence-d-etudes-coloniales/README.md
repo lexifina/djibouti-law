@@ -1,6 +1,6 @@
 # Décret n° 45-2389 portant création d’une licence d’études coloniales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2389-portant-creation-dune-licence-detudes-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2389-portant-creation-dune-licence-detudes-coloniales/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 141/an/80 Relative au mariage, au divorce des époux mariés selon le droit charien, à la garde des enfants mineurs et aux pensions alimentaires
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-80-relative-au-mariage-au-divorce-des-epoux-maries-selon-le-droit-charien-a-la-garde-des-enfants-mineurs-et-aux-pensions-alimentaires/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-80-relative-au-mariage-au-divorce-des-epoux-maries-selon-le-droit-charien-a-la-garde-des-enfants-mineurs-et-aux-pensions-alimentaires/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ HASSAN COULED APTIDON
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

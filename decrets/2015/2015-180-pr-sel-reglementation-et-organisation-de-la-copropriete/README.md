@@ -1,6 +1,6 @@
 # Décret n° 2015-180/PR/SEL portant réglementation et organisation de la copropriété.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-180-pr-sel-portant-reglementation-et-organisation-de-la-copropriete/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-180-pr-sel-portant-reglementation-et-organisation-de-la-copropriete/>
 
 En vigueur : 2015-06-15 (date du Journal officiel qui le publie).
 

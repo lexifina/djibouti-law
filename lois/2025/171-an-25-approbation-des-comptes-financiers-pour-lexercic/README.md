@@ -1,6 +1,6 @@
 # Loi n° 171/AN/25/9 ème L portant approbation des comptes financiers pour l’exercice 2021 du Laboratoire National d’Analyses Alimentaires (LANAA)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-25-9-eme-l-portant-approbation-des-comptes-financiers-pour-lexercice-2021-du-laboratoire-national-danalyses-alimentaires-lanaa/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-25-9-eme-l-portant-approbation-des-comptes-financiers-pour-lexercice-2021-du-laboratoire-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2025-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 100/AN/15/7ème L portant création de l’Agence Nationale des Systèmes d’Informations de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-15-7eme-l-portant-creation-de-lagence-nationale-des-systemes-dinformations-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-15-7eme-l-portant-creation-de-lagence-nationale-des-systemes-dinformations-de-letat/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 

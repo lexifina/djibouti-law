@@ -1,6 +1,6 @@
 # Décret n° 46-2192 fixant les modalités d’application dans les territoires relevant du ministère de la France d’outre-mer du titre V de la loi du 5 octobre 1946 relative à l’élection des membres de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2192-fixant-les-modalites-dapplication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-titre-v-de-la-loi-du-5-octobre-1946-relative-a-lelec/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2192-fixant-les-modalites-dapplication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-titre-v-de-la-loi-du-5-octobre-1946-relative-a-lelec/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

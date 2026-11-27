@@ -1,6 +1,6 @@
 # Décret n° 26 SEPTEMBRE 1952 approuvant la délibération du 29 avril 1952 du Conseil Représentatif de la Côte Française des Somalis modifiant les règles d’assiette de l’impôt sur le revenu des capitaux mobiliers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-septembre-1952-approuvant-la-deliberation-du-29-avril-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-les-regles-dassiette-de-limpot-sur-le-revenu-des-c/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-septembre-1952-approuvant-la-deliberation-du-29-avril-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-les-regles-dassiette-de-limpot-sur-le-revenu-des-c/>
 
 En vigueur : 1952-12-01 (date du Journal officiel qui le publie).
 

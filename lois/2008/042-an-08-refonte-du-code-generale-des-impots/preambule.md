@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 |
 Livre 1 – Les impôts directs et impôts sur le chiffres d’affaires
 Titre L – Impôt général de solidarité sur les revenus et les bénéfices

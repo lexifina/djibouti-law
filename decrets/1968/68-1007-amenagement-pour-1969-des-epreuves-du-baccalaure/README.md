@@ -1,6 +1,6 @@
 # Décret n° 68-1007 portant aménagement pour 1969 des épreuves du baccalauréat | de l’enseignement du second degré
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1007-portant-amenagement-pour-1969-des-epreuves-du-baccalaureat-de-lenseignement-du-second-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1007-portant-amenagement-pour-1969-des-epreuves-du-baccalaureat-de-lenseignement-du-second-degre/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ Edgar FAURE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

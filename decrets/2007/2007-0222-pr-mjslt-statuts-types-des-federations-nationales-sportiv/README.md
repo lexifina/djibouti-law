@@ -1,6 +1,6 @@
 # Décret n° 2007-0222/PR/MJSLT fixant les statuts-types des Fédérations Nationales Sportives et/ou des Groupements Sportifs Uni Sports.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0222-pr-mjslt-fixant-les-statuts-types-des-federations-nationales-sportives-et-ou-des-groupements-sportifs-uni-sports/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0222-pr-mjslt-fixant-les-statuts-types-des-federations-nationales-sportives-et-ou-des-groupements-sportifs-uni-sports/>
 
 En vigueur : 2007-11-29 (date du Journal officiel qui le publie).
 

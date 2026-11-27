@@ -1,6 +1,6 @@
 # Loi n° 108/AN/90/2eL modifiant le régime d’imposition des établissements publics, administratifs et des sociétés mixtes a vocation sociale ou de développement économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-90-2el-modifiant-le-regime-dimposition-des-etablissements-publics-administratifs-et-des-societes-mixtes-a-vocation-sociale-ou-de-developpement-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-90-2el-modifiant-le-regime-dimposition-des-etablissements-publics-administratifs-et-des-societes-mixtes-a-vocation-sociale-ou-de-developpement-economique/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 

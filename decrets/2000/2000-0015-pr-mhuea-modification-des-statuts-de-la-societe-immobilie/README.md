@@ -1,6 +1,6 @@
 # Décret n° 2000-0015/PR/MHUEA portant modification des Statuts de la Société Immobilière de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0015-pr-mhuea-portant-modification-des-statuts-de-la-societe-immobiliere-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0015-pr-mhuea-portant-modification-des-statuts-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0840/PR/MHUE portant approbation du budget prévisionnel pour l’exercice 2012 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0840-pr-mhue-portant-approbation-du-budget-previsionnel-pour-lexercice-2012-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0840-pr-mhue-portant-approbation-du-budget-previsionnel-pour-lexercice-2012-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

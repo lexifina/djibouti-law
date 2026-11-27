@@ -1,8 +1,8 @@
 # Décret n° 2003-0033/PRE portant réorganisation de la Marine Nationale Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0033-pre-portant-reorganisation-de-la-marine-nationale-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0033-pre-portant-reorganisation-de-la-marine-nationale-djiboutienne/>
 
-En vigueur : 2003-03-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-03-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

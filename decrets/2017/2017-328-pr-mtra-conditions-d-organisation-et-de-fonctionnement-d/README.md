@@ -1,6 +1,6 @@
 # Décret n° 2017-328/PR/MTRA fixant les conditions d’Organisation et de Fonctionnement de la Commission Nationale Paritaire des Conventions Collectives et des Salaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-328-pr-mtra-fixant-les-conditions-dorganisation-et-de-fonctionnement-de-la-commission-nationale-paritaire-des-conventions-collectives-et-des-salaires/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-328-pr-mtra-fixant-les-conditions-dorganisation-et-de-fonctionnement-de-la-commission-nationale-paritaire-des-conventions-collectives-et-des-salaires/>
 
 En vigueur : 2017-10-15 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

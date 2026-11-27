@@ -1,6 +1,6 @@
 # Loi n° 169/AN/07/5ème L portant création de l’Office de la Voirie de Djibouti (OVD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-07-5eme-l-portant-creation-de-loffice-de-la-voirie-de-djibouti-ovd/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-07-5eme-l-portant-creation-de-loffice-de-la-voirie-de-djibouti-ovd/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

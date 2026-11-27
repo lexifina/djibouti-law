@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Les articles énumérés ci-dessous du décret du 15 juillet 1944, modifié par le décret du 11 juillet 1945, sont modifiés ou complétés comme suit :
 & Art. 21. — Le délai de six ans visé au troisième paragraphe de l’article 21 est réduit a Cinq ans, »
 La rédaction du sixième alinéa de l’arti cle 21 est remplacée par la snivante

@@ -1,6 +1,6 @@
 # Loi n° 150/AN/80 modifiant le budget annexe du Port
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-80-modifiant-le-budget-annexe-du-port/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-80-modifiant-le-budget-annexe-du-port/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

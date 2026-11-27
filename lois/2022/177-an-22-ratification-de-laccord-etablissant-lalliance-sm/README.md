@@ -1,6 +1,6 @@
 # Loi n° 177/AN/22/8ème L portant ratification de l’Accord établissant l’Alliance Smart Africa par la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-22-8eme-l-portant-ratification-de-laccord-etablissant-lalliance-smart-africa-par-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-22-8eme-l-portant-ratification-de-laccord-etablissant-lalliance-smart-africa-par-la-republique-de-djibouti/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

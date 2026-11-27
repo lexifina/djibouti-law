@@ -1,6 +1,6 @@
 # Loi de finances n° 203/AN/86/1 portant modification du budget ordinaire de l’exercice 1985.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n203-an-86-1-portant-modification-du-budget-ordinaire-de-lexercice-1985/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n203-an-86-1-portant-modification-du-budget-ordinaire-de-lexercice-1985/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

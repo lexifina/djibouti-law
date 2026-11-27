@@ -1,6 +1,6 @@
 # Décret n° 94-108/PR/DEF Complétant les disposition particulières au profit des personnels mobilisés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-108-pr-def-completant-les-disposition-particulieres-au-profit-des-personnels-mobilises/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-108-pr-def-completant-les-disposition-particulieres-au-profit-des-personnels-mobilises/>
 
 En vigueur : 1994-08-31 (date du Journal officiel qui le publie).
 

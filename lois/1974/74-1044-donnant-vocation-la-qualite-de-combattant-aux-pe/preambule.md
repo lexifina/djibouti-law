@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er, — Tl est ajouté au code des pensions militaires d’invalidité et des victimes de la guerre l’article L. 1° bis suivant:
 Art. L. 1er bis –La République francaise reconnait, dans le conmditions de stricte egalite avec les combattants des conflits interieur les services rendus par les personnes qui ont participé sons antorité aux ovérations effectuées en Afrique du Nord entre le 1™ janvier 1952 et le 2 juillet 1962.
 Elle leur accorde vocation a la qualité de combattant et bénéficédes disnositions du present code.»

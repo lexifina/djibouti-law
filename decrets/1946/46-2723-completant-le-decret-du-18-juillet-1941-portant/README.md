@@ -1,6 +1,6 @@
 # Décret n° 46-2723 complétant le décret du 18 juillet 1941 portant création du cadre des stagiaires d’administration coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2723-completant-le-decret-du-18-juillet-1941-portant-creation-du-cadre-des-stagiaires-dadministration-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2723-completant-le-decret-du-18-juillet-1941-portant-creation-du-cadre-des-stagiaires-dadministration-coloniale/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

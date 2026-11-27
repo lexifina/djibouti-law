@@ -1,6 +1,6 @@
 # Décret n° n° 334 Le décret étendant aux colonies le décret du 1° » septembre 1939 relatif aux significations d’oppositions et de cessions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-334-le-decret-etendant-aux-colonies-le-decret-du-1-septembre-1939-relatif-aux-significations-doppositions-et-de-cessions/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-334-le-decret-etendant-aux-colonies-le-decret-du-1-septembre-1939-relatif-aux-significations-doppositions-et-de-cessions/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

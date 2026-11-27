@@ -1,8 +1,8 @@
 # Décret n° 2013-160/PR/MEF complément le Décret n° 2012-0188/PR/MEFIP portant création, attributionset organisation du Haut Conseil National du Dialogue Public-Privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-160-pr-mef-complement-le-decret-n2012-0188-pr-mefip-portant-creation-attributionset-organisation-du-haut-conseil-national-du-dialogue-public-prive/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-160-pr-mef-complement-le-decret-n2012-0188-pr-mefip-portant-creation-attributionset-organisation-du-haut-conseil-national-du-dialogue-public-prive/>
 
-En vigueur : 2013-07-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-07-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

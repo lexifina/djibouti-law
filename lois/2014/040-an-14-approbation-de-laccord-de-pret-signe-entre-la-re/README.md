@@ -1,6 +1,6 @@
 # Loi n° 40/AN/14/7ème L portant approbation de l’accord de prêt signé entre la République de Djibouti et la Banque Export-Import de la République Populaire de Chine pour le financement du projet de construction des infrastructures d’adduction d’eau extraterritoriales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-14-7eme-l-portant-approbation-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine-pour-le-financement-du-projet/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-14-7eme-l-portant-approbation-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine-pour-le-financement-du-projet/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 

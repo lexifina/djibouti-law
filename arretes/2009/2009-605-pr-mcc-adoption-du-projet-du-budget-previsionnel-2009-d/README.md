@@ -1,6 +1,6 @@
 # Arrêté n° 2009-605/PR/MCC portant adoption du projet du budget prévisionnel 2009 de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-605-pr-mcc-portant-adoption-du-projet-du-budget-previsionnel-2009-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-605-pr-mcc-portant-adoption-du-projet-du-budget-previsionnel-2009-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

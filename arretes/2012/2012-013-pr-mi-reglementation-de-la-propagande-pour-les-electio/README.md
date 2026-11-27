@@ -1,6 +1,6 @@
 # Arrêté n° 2012-013/PR/MI portant réglementation de la propagande pour les Elections Régionales et Communales du 20 janvier et 10 février 2012.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-013-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-013-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

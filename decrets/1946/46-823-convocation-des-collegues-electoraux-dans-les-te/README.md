@@ -1,6 +1,6 @@
 # Décret n° 46-823 portant convocation des collègues électoraux dans les territoires relevant du ministère de la France d’outre-mer, en vue «le procéder aux élections générale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-823-portant-convocation-des-collegues-electoraux-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-en-vue-le-proceder-aux-elections-generale/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-823-portant-convocation-des-collegues-electoraux-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-en-vue-le-proceder-aux-elections-generale/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°14 dans la colonie le décret du 24 juin 1933 modifiant le décret du 26 mai 1903 portant organisation du groupement des forces militaires stationnées aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 440 du 31/07/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-dans-la-colonie-le-decret-du-24-juin-1933-modifiant-le-decret-du-26-mai-1903-portant-organisation-du-groupement-des-forces-militaires-stationnees-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 440 du 31/07/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-dans-la-colonie-le-decret-du-24-juin-1933-modifiant-le-decret-du-26-mai-1903-portant-organisation-du-groupement-des-forces-militaires-stationnees-aux-colonies/>
 
 En vigueur : 1933-07-31 (date du Journal officiel qui le publie).
 
@@ -29,5 +29,5 @@ albert des sarraut
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

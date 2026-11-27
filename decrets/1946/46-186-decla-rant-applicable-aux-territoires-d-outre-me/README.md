@@ -1,6 +1,6 @@
 # Décret n° 46-186 décla rant applicable aux territoires d’outre-mer relevant du ministère de la France d’outre mer autres que les Antilles et la Réunion l’ordonnance du 18 octobre 1945 permet tant l’inscription sur les listes électorales des fonctionnaires mutés après clôture de celles-ci.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-186-decla-rant-applicable-aux-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-autres-que-les-antilles-et-la-reunion-lordonnance-du-18/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-186-decla-rant-applicable-aux-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-autres-que-les-antilles-et-la-reunion-lordonnance-du-18/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

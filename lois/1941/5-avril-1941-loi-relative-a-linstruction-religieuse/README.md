@@ -1,6 +1,6 @@
 # Loi n° 5 avril 1941 La loi relative à l’instruction religieuse
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-avril-1941-la-loi-relative-a-linstruction-religieuse/>
+Loi · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-avril-1941-la-loi-relative-a-linstruction-religieuse/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

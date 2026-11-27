@@ -1,6 +1,6 @@
 # Décret n° 2017-088/PR/MI portant prolongation de l’heure de fermeture des bureaux de vote.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 08/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-088-pr-mi-portant-prolongation-de-lheure-de-fermeture-des-bureaux-de-vote/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 08/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-088-pr-mi-portant-prolongation-de-lheure-de-fermeture-des-bureaux-de-vote/>
 
 En vigueur : 2017-03-08 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2007-0002/PR/MERN portant mise en place du Comité National d’Organisation du Forum sur la Géothermie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0002-pr-mern-portant-mise-en-place-du-comite-national-dorganisation-du-forum-sur-la-geothermie/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0002-pr-mern-portant-mise-en-place-du-comite-national-dorganisation-du-forum-sur-la-geothermie/>
 
 En vigueur : 2007-01-15 (date du Journal officiel qui le publie).
 

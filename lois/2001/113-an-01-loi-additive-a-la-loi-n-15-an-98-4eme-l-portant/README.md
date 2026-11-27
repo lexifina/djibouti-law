@@ -1,6 +1,6 @@
 # Loi n° 113/AN/01/4ème L portant Loi additive à la loi n° 15/AN/98/4ème L portant création de la Direction du Financement Extérieur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-01-4eme-l-portant-loi-additive-a-la-loi-n15-an-98-4eme-l-portant-creation-de-la-direction-du-financement-exterieur/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-01-4eme-l-portant-loi-additive-a-la-loi-n15-an-98-4eme-l-portant-creation-de-la-direction-du-financement-exterieur/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 

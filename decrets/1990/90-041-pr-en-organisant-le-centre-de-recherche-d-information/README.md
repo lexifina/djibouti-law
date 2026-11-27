@@ -1,6 +1,6 @@
 # Décret n° 90-041/PR/EN organisant le Centre de Recherche, d’Information et Production de I|’Education nationale (CRIPEM).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-041-pr-en-organisant-le-centre-de-recherche-dinformation-et-production-de-ieducation-nationale-cripem/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-041-pr-en-organisant-le-centre-de-recherche-dinformation-et-production-de-ieducation-nationale-cripem/>
 
 En vigueur : 1998-04-30 (date du Journal officiel qui le publie).
 
@@ -24,7 +24,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -42,4 +42,4 @@ HASSAN GOULED APTIDON
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

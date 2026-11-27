@@ -1,6 +1,6 @@
 # Décret n° 85-015/PRE/MINT modifiant le décret n° 79-102/ PR relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-015-pre-mint-modifiant-le-decret-n-79-102-pr-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-015-pre-mint-modifiant-le-decret-n-79-102-pr-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

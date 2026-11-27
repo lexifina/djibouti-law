@@ -1,6 +1,6 @@
 # Décret n° 79-080/PR/MI portant mise en place et fixant les limites géographiques des municipalités urbaines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-080-pr-mi-portant-mise-en-place-et-fixant-les-limites-geographiques-des-municipalites-urbaines/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-080-pr-mi-portant-mise-en-place-et-fixant-les-limites-geographiques-des-municipalites-urbaines/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2020-320/PR/MI portant organisation du scrutin présidentiel du 09 Avril 2021.2020-320/PR/MI portant organisation du scrutin présidentiel du 09 Avril 2021.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 04/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-320-pr-mi-portant-organisation-du-scrutin-presidentiel-du-09-avril-2021-2020-320-pr-mi-portant-organisation-du-scrutin-presidentiel-du-09-avril-2021/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 04/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-320-pr-mi-portant-organisation-du-scrutin-presidentiel-du-09-avril-2021-2020-320-pr-mi-portant-organisation-du-scrutin-presidentiel-du-09-avril-2021/>
 
 En vigueur : 2021-03-05 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

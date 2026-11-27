@@ -1,6 +1,6 @@
 # Loi n° 10 janvier 1936 Loi sur les groupes de combat et milices privées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 473 du 30/04/1936 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-10-janvier-1936-loi-sur-les-groupes-de-combat-et-milices-privees/>
+Loi · Journal officiel de la République de Djibouti, n° 473 du 30/04/1936 · <https://www.journalofficiel.dj/texte-juridique/loi-n-10-janvier-1936-loi-sur-les-groupes-de-combat-et-milices-privees/>
 
 En vigueur : 1936-04-30 (date du Journal officiel qui le publie).
 

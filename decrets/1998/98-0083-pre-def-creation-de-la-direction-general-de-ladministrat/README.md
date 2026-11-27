@@ -1,8 +1,8 @@
 # Décret n° 98-0083/PRE/DEF portant création de la Direction Général de l’Administration et des Finances de l’armée et de la gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0083-pre-def-portant-creation-de-la-direction-general-de-ladministration-et-des-finances-de-larmee-et-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0083-pre-def-portant-creation-de-la-direction-general-de-ladministration-et-des-finances-de-larmee-et-de-la-gendarmerie-nationale/>
 
-En vigueur : 1998-07-13 (date fixÃ©e par le texte).
+En vigueur : 1998-07-13 (date fixée par le texte).
 
 ## Visas
 

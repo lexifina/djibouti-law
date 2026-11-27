@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0859/PR/MTCRA portant approbation du budget prévisionnel de l’exercice 2012 de la Caisse Nationale de Sécurité Sociale (CNSS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0859-pr-mtcra-portant-approbation-du-budget-previsionnel-de-lexercice-2012-de-la-caisse-nationale-de-securite-sociale-cnss/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0859-pr-mtcra-portant-approbation-du-budget-previsionnel-de-lexercice-2012-de-la-caisse-nationale-de-securite-sociale-cnss/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

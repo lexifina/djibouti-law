@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0500/PR/MEFPCP relatif à la concession définitive de l’ensemble des lotissements de la capitale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0500-pr-mefpcp-relatif-a-la-concession-definitive-de-lensemble-des-lotissements-de-la-capitale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0500-pr-mefpcp-relatif-a-la-concession-definitive-de-lensemble-des-lotissements-de-la-capitale/>
 
 En vigueur : 2010-08-15 (date du Journal officiel qui le publie).
 

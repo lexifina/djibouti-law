@@ -1,6 +1,6 @@
 # Décret n° 51-509 portant règlement d’admmiiiistration publique pour l’application de l’article 6 de la loi n° 50-772 du 30 juin 1950 relatif à la répartition des cadres des fonctionnaires civils et relevant de l’autorité du Ministre de la France d’Outre-Mer, en cadres généraux, supérieurs et locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-509-portant-reglement-dadmmiiiistration-publique-pour-lapplication-de-larticle-6-de-la-loi-n-50-772-du-30-juin-1950-relatif-a-la-repartition-des-cadres-des-fonctionnaire/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-509-portant-reglement-dadmmiiiistration-publique-pour-lapplication-de-larticle-6-de-la-loi-n-50-772-du-30-juin-1950-relatif-a-la-repartition-des-cadres-des-fonctionnaire/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

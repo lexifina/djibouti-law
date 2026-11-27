@@ -1,6 +1,6 @@
 # Décret n° 1-476-1936. Culots vitrifiés pour lampes électriques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-476-1936-culots-vitrifies-pour-lampes-electriques/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-476-1936-culots-vitrifies-pour-lampes-electriques/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

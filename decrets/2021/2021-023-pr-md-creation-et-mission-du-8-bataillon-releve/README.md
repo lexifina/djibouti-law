@@ -1,6 +1,6 @@
 # Décret n° 2021-023/PR/MD portant création et mission du 8° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-023-pr-md-portant-creation-et-mission-du-8-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-023-pr-md-portant-creation-et-mission-du-8-bataillon-releve/>
 
 En vigueur : 2021-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

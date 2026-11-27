@@ -1,8 +1,8 @@
 # Loi n° 72-10 relative à la prévention et à la répression des infractions en matière de chèques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-10-relative-a-la-prevention-et-a-la-repression-des-infractions-en-matiere-de-cheques/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-10-relative-a-la-prevention-et-a-la-repression-des-infractions-en-matiere-de-cheques/>
 
-En vigueur : 1972-04-01 (date fixÃ©e par le texte).
+En vigueur : 1972-04-01 (date fixée par le texte).
 
 ## Visas
 
@@ -47,4 +47,4 @@ MICHEL COINTAT.
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

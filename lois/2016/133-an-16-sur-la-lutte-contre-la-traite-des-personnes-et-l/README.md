@@ -1,6 +1,6 @@
 # Loi n° 133/AN/16/7ème L portant sur la lutte contre la traite des personnes et le trafic illicite des migrants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-16-7eme-l-portant-sur-la-lutte-contre-la-traite-des-personnes-et-le-trafic-illicite-des-migrants/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-16-7eme-l-portant-sur-la-lutte-contre-la-traite-des-personnes-et-le-trafic-illicite-des-migrants/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 
@@ -119,4 +119,4 @@ ISMAÏL OMAR GUELLEH
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

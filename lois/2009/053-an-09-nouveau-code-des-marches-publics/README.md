@@ -1,6 +1,6 @@
 # Loi n° 53/AN/09/6ème L Portant nouveau Code des Marchés Publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-09-6eme-l-portant-nouveau-code-des-marches-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-09-6eme-l-portant-nouveau-code-des-marches-publics/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ Le conseil des Ministres entendu en sa séance du 17 mars 2009.
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

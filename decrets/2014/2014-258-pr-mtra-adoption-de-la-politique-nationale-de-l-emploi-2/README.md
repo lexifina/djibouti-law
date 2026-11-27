@@ -1,6 +1,6 @@
 # Décret n° 2014-258/PR/MTRA portant adoption de la politique nationale de l’emploi 2014-2024 et son plan d’action opérationnel 2014-2018.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-258-pr-mtra-portant-adoption-de-la-politique-nationale-de-lemploi-2014-2024-et-son-plan-daction-operationnel-2014-2018/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-258-pr-mtra-portant-adoption-de-la-politique-nationale-de-lemploi-2014-2024-et-son-plan-daction-operationnel-2014-2018/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

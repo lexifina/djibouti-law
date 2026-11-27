@@ -1,6 +1,6 @@
 # Arrêté n° 2013-797/PR/MAEM portant adoption du projet de budget prévisionnel 2014 du Laboratoire National d’Analyses Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-797-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2014-du-laboratoire-national-danalyses-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-797-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2014-du-laboratoire-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

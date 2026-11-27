@@ -1,6 +1,6 @@
 # Décret n° 53-841 portant modification du décret du 30 décembre 1912 sur le régime financier des Territoires d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-841-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-territoires-doutre-mer-2/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-841-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-territoires-doutre-mer-2/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

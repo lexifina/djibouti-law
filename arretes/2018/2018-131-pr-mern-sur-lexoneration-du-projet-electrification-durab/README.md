@@ -1,6 +1,6 @@
 # Arrêté n° 2018-131/PR/MERN portant sur l’exonération du Projet “ELECTRIFICATION DURABLE”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-131-pr-mern-portant-sur-lexoneration-du-projet-electrification-durable/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 30/08/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-131-pr-mern-portant-sur-lexoneration-du-projet-electrification-durable/>
 
 En vigueur : 2018-08-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

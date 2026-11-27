@@ -1,6 +1,6 @@
 # Loi n° 68/AN/79 réglementant la lutte contre la prostitution et le racolage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-79-reglementant-la-lutte-contre-la-prostitution-et-le-racolage/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-79-reglementant-la-lutte-contre-la-prostitution-et-le-racolage/>
 
 En vigueur : 1979-12-31 (date du Journal officiel qui le publie).
 

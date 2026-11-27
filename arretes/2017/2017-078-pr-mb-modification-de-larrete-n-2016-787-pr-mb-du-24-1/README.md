@@ -1,8 +1,8 @@
 # Arrêté n° 2017-078/PR/MB portant modification de l’arrêté n° 2016-787/PR/MB du 24/11/2016 et abrogeant l’arrêté n° 2016-468 /PR/MB du 10 juillet 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-078-pr-mb-portant-modification-de-larrete-n-2016-787-pr-mb-du-24-11-2016-et-abrogeant-larrete-n2016-468-pr-mb-du-10-juillet-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-078-pr-mb-portant-modification-de-larrete-n-2016-787-pr-mb-du-24-11-2016-et-abrogeant-larrete-n2016-468-pr-mb-du-10-juillet-2016/>
 
-En vigueur : 2017-05-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-05-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

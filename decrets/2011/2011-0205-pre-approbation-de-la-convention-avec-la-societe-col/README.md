@@ -1,8 +1,8 @@
 # Décret n° 2011-0205/PRE portant Approbation de la Convention avec la Société COLDEN AFRICA DJIBOUTI.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0205-pre-portant-approbation-de-la-convention-avec-la-societe-colden-africa-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0205-pre-portant-approbation-de-la-convention-avec-la-societe-colden-africa-djibouti/>
 
-En vigueur : 2011-10-30 (date fixÃ©e par le texte).
+En vigueur : 2011-10-30 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-278/PR/MI fixant la représentation de la ville de Djibouti et de chaque région à l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-278-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-278-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2007-0043/PR/MHUEAT portant création d’un Comité National du Mécanisme pour un Développement Propre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0043-pr-mhueat-portant-creation-dun-comite-national-du-mecanisme-pour-un-developpement-propre/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0043-pr-mhueat-portant-creation-dun-comite-national-du-mecanisme-pour-un-developpement-propre/>
 
-En vigueur : 2007-02-28 (date fixÃ©e par le texte).
+En vigueur : 2007-02-28 (date fixée par le texte).
 
 ## Visas
 

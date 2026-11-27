@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0732/PR/MERN portant exonération à titre exceptionnel des impôts.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0732-pr-mern-portant-exoneration-a-titre-exceptionnel-des-impots/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0732-pr-mern-portant-exoneration-a-titre-exceptionnel-des-impots/>
 
 En vigueur : 2002-09-30 (date du Journal officiel qui le publie).
 

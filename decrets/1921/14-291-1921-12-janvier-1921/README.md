@@ -1,6 +1,6 @@
 # Décret n° 14-291-1921 12 janvier 1921
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 291 du 31/01/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-291-1921-12-janvier-1921/>
+Décret · Journal officiel de la République de Djibouti, n° 291 du 31/01/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-291-1921-12-janvier-1921/>
 
 En vigueur : 1921-01-31 (date du Journal officiel qui le publie).
 
@@ -25,6 +25,6 @@ RAIBERTI,
 | Fichier | Disposition |
 | --- | --- |
 | [art-007.md](art-007.md) | Art. 7 |
-| [art-008.md](art-008.md) | Art. 8 — |
-| [art-009.md](art-009.md) | Art. 9 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-008.md](art-008.md) | Art. 8 |
+| [art-009.md](art-009.md) | Art. 9 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Monsieur le Président,
 Mon département se préoccupait, depuis plusieurs années, d’unifier le régime des soldes attribuées aux grands services administratifs de nos possessions d’outre-mer; il envisageait dans ces conditions l’attribution aux administrateurs du cadre général des colonies, des émoluments prévus en faveur de leurs collègues de l’Indo-Chine par le décret du 21 juin 1912.
 La guerre n’a pas permis tout d’abord, de poursuivre la réalisation de la réforme dont l’examen avait été remis à des temps meilleurs. Toutefois, la prolongation exceptionnelle

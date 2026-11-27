@@ -1,6 +1,6 @@
 # Loi n° 121/AN/96/3ème L Portant approbation des Comptes Financiers de l’Exercice 1994 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-96-3eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1994-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-96-3eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1994-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

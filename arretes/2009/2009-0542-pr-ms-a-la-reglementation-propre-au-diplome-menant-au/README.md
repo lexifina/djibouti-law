@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0542/PR/MS relatif à la réglementation propre au Diplôme menant au titre d’Infirmier Diplômé d’Etat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0542-pr-ms-relatif-a-la-reglementation-propre-au-diplome-menant-au-titre-dinfirmier-diplome-detat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0542-pr-ms-relatif-a-la-reglementation-propre-au-diplome-menant-au-titre-dinfirmier-diplome-detat/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

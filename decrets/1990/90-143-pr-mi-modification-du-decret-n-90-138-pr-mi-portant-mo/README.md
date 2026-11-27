@@ -1,6 +1,6 @@
 # Décret n° 90-143/PR/MI Portant modification du décret n° 90-138/PR/MI portant modification des règles relatives à la détention préventive en cas de poursuites criminelles ou délictuelles contre des policiers de la Force Nationale de Sécurité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-143-pr-mi-portant-modification-du-decret-n90-138-pr-mi-portant-modification-des-regles-relatives-a-la-detention-preventive-en-cas-de-poursuites-criminelles-ou-delictuelles-contr/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-143-pr-mi-portant-modification-du-decret-n90-138-pr-mi-portant-modification-des-regles-relatives-a-la-detention-preventive-en-cas-de-poursuites-criminelles-ou-delictuelles-contr/>
 
 En vigueur : 1990-12-31 (date du Journal officiel qui le publie).
 

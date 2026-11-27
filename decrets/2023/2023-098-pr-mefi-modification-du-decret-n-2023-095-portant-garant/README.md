@@ -1,8 +1,8 @@
 # Décret n° 2023-098/PR/MEFI portant modification du décret n° 2023-095 portant Garantie de l’Etat accordé à la société Ship Repair Yard.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-098-pr-mefi-portant-modification-du-decret-n2023-095-portant-garantie-de-letat-accorde-a-la-societe-ship-repair-yard/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-098-pr-mefi-portant-modification-du-decret-n2023-095-portant-garantie-de-letat-accorde-a-la-societe-ship-repair-yard/>
 
-En vigueur : 2023-04-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-04-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

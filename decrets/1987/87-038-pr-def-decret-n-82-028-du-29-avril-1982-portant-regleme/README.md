@@ -1,6 +1,6 @@
 # Décret n° 87-038 /PR/DEF modifiant le décret n° 82-028 du 29 avril 1982 portant règlement de la discipline général dans les Forces Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/06/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-038-pr-def-modifiant-le-decret-n82-028-du-29-avril-1982-portant-reglement-de-la-discipline-general-dans-les-forces-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/06/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-038-pr-def-modifiant-le-decret-n82-028-du-29-avril-1982-portant-reglement-de-la-discipline-general-dans-les-forces-armees/>
 
 En vigueur : 1987-06-30 (date du Journal officiel qui le publie).
 

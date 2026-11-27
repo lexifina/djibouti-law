@@ -1,6 +1,6 @@
 # Décret n° 81-011/PR/EN instituant les brevets d’Études Professionnelles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-011-pr-en-instituant-les-brevets-detudes-professionnelles/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-011-pr-en-instituant-les-brevets-detudes-professionnelles/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

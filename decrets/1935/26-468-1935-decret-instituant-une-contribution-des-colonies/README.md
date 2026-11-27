@@ -1,6 +1,6 @@
 # Décret n° 26-468-1935 Décret instituant une contribution des colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies aux dépenses civiles de l’Administration centrale et des services administratifs coloniaux des ports de commerce et fixant les services et les effectifs du personnel civil de l’Administration centrale du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-468-1935-decret-instituant-une-contribution-des-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-aux-depenses-civiles-de-ladministration/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-468-1935-decret-instituant-une-contribution-des-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-aux-depenses-civiles-de-ladministration/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

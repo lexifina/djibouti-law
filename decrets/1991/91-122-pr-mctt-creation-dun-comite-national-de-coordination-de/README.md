@@ -1,6 +1,6 @@
 # Décret n° 91‑122/PR/MCTT portant création d’un comité national de coordination de la 2ème décennie des transports et communications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91122-pr-mctt-portant-creation-dun-comite-national-de-coordination-de-la-2eme-decennie-des-transports-et-communications/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91122-pr-mctt-portant-creation-dun-comite-national-de-coordination-de-la-2eme-decennie-des-transports-et-communications/>
 
 En vigueur : 1991-08-31 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ HASSAN GOULED APTIDON
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

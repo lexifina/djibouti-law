@@ -1,6 +1,6 @@
 # Loi n° 96/AN/15/7ème L portant ratification de l’Accord de financement sous forme de prêt accordé par le BID à Djibouti Télécom.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-15-7eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-pret-accorde-par-le-bid-a-djibouti-telecom/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-15-7eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-pret-accorde-par-le-bid-a-djibouti-telecom/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

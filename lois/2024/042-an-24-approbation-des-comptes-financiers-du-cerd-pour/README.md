@@ -1,6 +1,6 @@
 # Loi n° 42/AN/24/9ème L portant approbation des comptes financiers du CERD pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2019/>
 
 En vigueur : 2024-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

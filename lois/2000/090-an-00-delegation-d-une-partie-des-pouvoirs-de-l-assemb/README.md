@@ -1,6 +1,6 @@
 # Loi n° 90/AN/00/4ème L portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission Permanente jusqu’à l’ouverture de la 2ème Session Ordinaire de 2000 dite «Session Budgétaire».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-00-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordin/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-00-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordin/>
 
 En vigueur : 2000-06-29 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2001-0096/PR/MEFPP relatif au Plan de Trésorerie de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0096-pr-mefpp-relatif-au-plan-de-tresorerie-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0096-pr-mefpp-relatif-au-plan-de-tresorerie-de-letat/>
 
-En vigueur : 2001-05-26 (date fixÃ©e par le texte).
+En vigueur : 2001-05-26 (date fixée par le texte).
 
 ## Visas
 

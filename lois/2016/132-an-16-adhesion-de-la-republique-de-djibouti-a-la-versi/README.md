@@ -1,6 +1,6 @@
 # Loi n° 132/AN/16/7ème L portant adhésion de la République de Djibouti à la version consolidée du Traité de Coopération en matière de brevets.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-16-7eme-l-portant-adhesion-de-la-republique-de-djibouti-a-la-version-consolidee-du-traite-de-cooperation-en-matiere-de-brevets/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-16-7eme-l-portant-adhesion-de-la-republique-de-djibouti-a-la-version-consolidee-du-traite-de-cooperation-en-matiere-de-brevets/>
 
 En vigueur : 2016-06-15 (date du Journal officiel qui le publie).
 

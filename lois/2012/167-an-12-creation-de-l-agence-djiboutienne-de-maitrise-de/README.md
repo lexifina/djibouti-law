@@ -1,6 +1,6 @@
 # Loi n° 167/AN/12/6ème L portant création de l’Agence Djiboutienne de Maîtrise de l’Energie (ADME).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-12-6eme-l-portant-creation-de-lagence-djiboutienne-de-maitrise-de-lenergie-adme/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-12-6eme-l-portant-creation-de-lagence-djiboutienne-de-maitrise-de-lenergie-adme/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 83-026/PRE modifiant le décret n° 80-008/PR du 16 janvier 1980, portant statuts de la « Société Hôtelière d’État de Djibouti ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-026-pre-modifiant-le-decret-n-80-008-pr-du-16-janvier-1980-portant-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/03/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-026-pre-modifiant-le-decret-n-80-008-pr-du-16-janvier-1980-portant-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
 
 En vigueur : 1983-03-31 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ LE CONSEIL DES MINISTRES ENTENDU EN SA SÉANCE DU 15 MARS 1983.
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

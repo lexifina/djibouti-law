@@ -1,6 +1,6 @@
 # Décret n° 73-956 portant attribution d’une allocation forfaitaire exceptionnelle aux militaires à solde spéciale progressive effectuant une période d’exercice militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 10/11/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-956-portant-attribution-dune-allocation-forfaitaire-exceptionnelle-aux-militaires-a-solde-speciale-progressive-effectuant-une-periode-dexercice-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 10/11/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-956-portant-attribution-dune-allocation-forfaitaire-exceptionnelle-aux-militaires-a-solde-speciale-progressive-effectuant-une-periode-dexercice-militaire/>
 
 En vigueur : 1973-11-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2011-005/PR/MHUEAT portant adoption du Budget prévisionnel 2011 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-005-pr-mhueat-portant-adoption-du-budget-previsionnel-2011-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-005-pr-mhueat-portant-adoption-du-budget-previsionnel-2011-du-fonds-de-lhabitat/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

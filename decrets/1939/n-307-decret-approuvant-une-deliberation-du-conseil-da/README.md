@@ -1,6 +1,6 @@
 # Décret n° n° 307 Le decret approuvant une délibération du Conseil d’Administration relative à des droits de douane et mettant en vigueur, à compter du fer avril 1939, le tarif inséré au Journal Officiel de la République Française du 20 janvier 1939
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 509 du 30/04/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-307-le-decret-approuvant-une-deliberation-du-conseil-dadministration-relative-a-des-droits-de-douane-et-mettant-en-vigueur-a-compter-du-fer-avril-1939-le-tarif-insere-au-jo/>
+Décret · Journal officiel de la République de Djibouti, n° 509 du 30/04/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-307-le-decret-approuvant-une-deliberation-du-conseil-dadministration-relative-a-des-droits-de-douane-et-mettant-en-vigueur-a-compter-du-fer-avril-1939-le-tarif-insere-au-jo/>
 
 En vigueur : 1939-04-30 (date du Journal officiel qui le publie).
 

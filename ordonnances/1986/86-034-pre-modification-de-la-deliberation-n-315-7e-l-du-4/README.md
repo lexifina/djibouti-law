@@ -1,6 +1,6 @@
 # Ordonnance n° 86-034/PRE Portant modification de la délibération n° 315/7e L du 4 janvier 1973 déterminant le statut des notaires en ce qui concerne le cautionnement et les autres garanties exigibles de ces officiers ministériels.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-034-pre-portant-modification-de-la-deliberation-n315-7e-l-du-4-janvier-1973-determinant-le-statut-des-notaires-en-ce-qui-concerne-le-cautionnement-et-les-autres-garanties-ex/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-034-pre-portant-modification-de-la-deliberation-n315-7e-l-du-4-janvier-1973-determinant-le-statut-des-notaires-en-ce-qui-concerne-le-cautionnement-et-les-autres-garanties-ex/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

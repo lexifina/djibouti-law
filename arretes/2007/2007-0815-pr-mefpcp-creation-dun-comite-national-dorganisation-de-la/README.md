@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0815/PR/MEFPCP portant création d’un Comité National d’Organisation de la 248ème Réunion du Conseil d’administration de la BID (CNOBID).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0815-pr-mefpcp-portant-creation-dun-comite-national-dorganisation-de-la-248eme-reunion-du-conseil-dadministration-de-la-bid-cnobid/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0815-pr-mefpcp-portant-creation-dun-comite-national-dorganisation-de-la-248eme-reunion-du-conseil-dadministration-de-la-bid-cnobid/>
 
 En vigueur : 2007-10-15 (date du Journal officiel qui le publie).
 

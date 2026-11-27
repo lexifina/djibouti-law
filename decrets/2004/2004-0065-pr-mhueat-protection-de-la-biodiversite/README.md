@@ -1,6 +1,6 @@
 # Décret n° 2004-0065/PR/MHUEAT portant protection de la biodiversité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0065-pr-mhueat-portant-protection-de-la-biodiversite/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0065-pr-mhueat-portant-protection-de-la-biodiversite/>
 
 En vigueur : 2004-04-30 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

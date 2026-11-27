@@ -1,6 +1,6 @@
 # Loi n° 123/AN/80 portant autorisation de ratification de plusieurs accords de Coopération.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-80-portant-autorisation-de-ratification-de-plusieurs-accords-de-cooperation/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-80-portant-autorisation-de-ratification-de-plusieurs-accords-de-cooperation/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

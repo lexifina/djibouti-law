@@ -1,6 +1,6 @@
 # Décret n° 82-023/PR/MI fixant les modalités d’organisation du scrutin du 21 mai 1982 portant renouvellement des membres de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/04/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-023-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-21-mai-1982-portant-renouvellement-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/04/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-023-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-21-mai-1982-portant-renouvellement-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 1982-04-08 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Le Conseil des Ministres entendu en sa séance du 6 avril 1982 ;
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

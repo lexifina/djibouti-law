@@ -1,6 +1,6 @@
 # Décret n° 11-347-1925 29 septembre 1925
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 347 du 31/10/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-347-1925-29-septembre-1925/>
+Décret · Journal officiel de la République de Djibouti, n° 347 du 31/10/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-347-1925-29-septembre-1925/>
 
 En vigueur : 1925-10-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Paul PAINLEVÉ.
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

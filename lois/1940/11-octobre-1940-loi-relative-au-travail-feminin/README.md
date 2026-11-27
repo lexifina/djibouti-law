@@ -1,6 +1,6 @@
 # Loi n° 11 octobre 1940 La loi relative au travail féminin
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 528 du 30/11/1940 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-octobre-1940-la-loi-relative-au-travail-feminin/>
+Loi · Journal officiel de la République de Djibouti, n° 528 du 30/11/1940 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-octobre-1940-la-loi-relative-au-travail-feminin/>
 
 En vigueur : 1940-11-30 (date du Journal officiel qui le publie).
 
@@ -28,7 +28,7 @@ Yves BOUTHILLIER.
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [art-008.md](art-008.md) | Art.8 — |
+| [art-008.md](art-008.md) | Art.8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |

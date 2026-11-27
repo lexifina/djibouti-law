@@ -1,8 +1,8 @@
 # Loi n° 113/AN/24/9ème L portant réorganisation du Ministère de l’Education Nationale et de la Formation Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-24-9eme-l-portant-reorganisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-24-9eme-l-portant-reorganisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
-En vigueur : 2024-07-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-07-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

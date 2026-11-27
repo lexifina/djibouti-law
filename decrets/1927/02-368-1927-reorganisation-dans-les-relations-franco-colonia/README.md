@@ -1,6 +1,6 @@
 # Décret n° 02-368-1927 Réorganisation dans les relations franco coloniales du service des abonnements aux journaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 368 du 31/07/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-368-1927-reorganisation-dans-les-relations-franco-coloniales-du-service-des-abonnements-aux-journaux/>
+Décret · Journal officiel de la République de Djibouti, n° 368 du 31/07/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-368-1927-reorganisation-dans-les-relations-franco-coloniales-du-service-des-abonnements-aux-journaux/>
 
 En vigueur : 1927-07-31 (date du Journal officiel qui le publie).
 
@@ -23,7 +23,7 @@ Maurice BOKANOWSKI.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

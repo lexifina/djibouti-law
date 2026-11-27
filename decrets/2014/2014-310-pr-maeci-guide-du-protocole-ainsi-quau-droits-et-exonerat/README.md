@@ -1,6 +1,6 @@
 # Décret n° 2014-310/PR/MAECI relatif au guide du protocole ainsi qu’au droits et exonérations accordés aux missions diplomatiques et à leurs membres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-310-pr-maeci-relatif-au-guide-du-protocole-ainsi-quau-droits-et-exonerations-accordes-aux-missions-diplomatiques-et-a-leurs-membres/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-310-pr-maeci-relatif-au-guide-du-protocole-ainsi-quau-droits-et-exonerations-accordes-aux-missions-diplomatiques-et-a-leurs-membres/>
 
 En vigueur : 2014-11-15 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 04-422-1932 publication et mise en application provisoire d’un échange de lettres du 9 septembre 1931 entre le Ministre des affaires étrangères du Brésil et le chargé d’affaires de France au Brésil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 422 du 31/01/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-422-1932-publication-et-mise-en-application-provisoire-dun-echange-de-lettres-du-9-septembre-1931-entre-le-ministre-des-affaires-etrangeres-du-bresil-et-le-charge-daffaires-de-f/>
+Décret · Journal officiel de la République de Djibouti, n° 422 du 31/01/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-422-1932-publication-et-mise-en-application-provisoire-dun-echange-de-lettres-du-9-septembre-1931-entre-le-ministre-des-affaires-etrangeres-du-bresil-et-le-charge-daffaires-de-f/>
 
 En vigueur : 1932-01-31 (date du Journal officiel qui le publie).
 

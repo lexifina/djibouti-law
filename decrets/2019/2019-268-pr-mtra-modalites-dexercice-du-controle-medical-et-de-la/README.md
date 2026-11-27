@@ -1,6 +1,6 @@
 # Décret n° 2019-268/PR/MTRA fixant les modalités d’exercice du contrôle médical et de la fonction du praticien conseil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-268-pr-mtra-fixant-les-modalites-dexercice-du-controle-medical-et-de-la-fonction-du-praticien-conseil/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-268-pr-mtra-fixant-les-modalites-dexercice-du-controle-medical-et-de-la-fonction-du-praticien-conseil/>
 
 En vigueur : 2019-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Décret n° 14 décembre 1939 étendant à diverses colonies le décret du 11 septembre 1939 relatif à l’exercice de la profession médicale en temps de guerre,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-decembre-1939-etendant-a-diverses-colonies-le-decret-du-11-septembre-1939-relatif-a-lexercice-de-la-profession-medicale-en-temps-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-decembre-1939-etendant-a-diverses-colonies-le-decret-du-11-septembre-1939-relatif-a-lexercice-de-la-profession-medicale-en-temps-de-guerre/>
 
-En vigueur : 1959-05-02 (date fixÃ©e par le texte).
+En vigueur : 1959-05-02 (date fixée par le texte).
 
 ## Visas
 
@@ -20,6 +20,6 @@ Georves MANDEL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

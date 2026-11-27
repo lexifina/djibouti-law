@@ -1,6 +1,6 @@
 # Loi n° 22/AN/08/6ème L portant création de l’Institut d’Etudes Politiques et Stratégiques au sein du Centre de Recherche Scientifique de Djibouti (CERD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-08-6eme-l-portant-creation-de-linstitut-detudes-politiques-et-strategiques-au-sein-du-centre-de-recherche-scientifique-de-djibouti-cerd/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-08-6eme-l-portant-creation-de-linstitut-detudes-politiques-et-strategiques-au-sein-du-centre-de-recherche-scientifique-de-djibouti-cerd/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

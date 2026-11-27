@@ -1,6 +1,6 @@
 # Arrêté n° 82-0469/PR/RI portant modification des statuts d’Électricité de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0469-pr-ri-portant-modification-des-statuts-delectricite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0469-pr-ri-portant-modification-des-statuts-delectricite-de-djibouti/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

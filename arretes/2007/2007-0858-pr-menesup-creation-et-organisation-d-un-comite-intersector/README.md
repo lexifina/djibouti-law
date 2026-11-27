@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0858/PR/MENESUP portant création et organisation d’un Comité Intersectoriel de Pilotage des Assises de l’Enseignement et de la Formation Techniques et Professionnels (CIPA-EFTP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0858-pr-menesup-portant-creation-et-organisation-dun-comite-intersectoriel-de-pilotage-des-assises-de-lenseignement-et-de-la-formation-techniques-et-professionnels/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0858-pr-menesup-portant-creation-et-organisation-dun-comite-intersectoriel-de-pilotage-des-assises-de-lenseignement-et-de-la-formation-techniques-et-professionnels/>
 
 En vigueur : 2007-11-15 (date du Journal officiel qui le publie).
 

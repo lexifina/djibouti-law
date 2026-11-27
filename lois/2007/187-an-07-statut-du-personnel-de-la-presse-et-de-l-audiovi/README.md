@@ -1,6 +1,6 @@
 # Loi n° 187/AN/07/5ème L portant Statut du Personnel de la Presse et de l’Audiovisuel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-07-5eme-l-portant-statut-du-personnel-de-la-presse-et-de-laudiovisuel/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-07-5eme-l-portant-statut-du-personnel-de-la-presse-et-de-laudiovisuel/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

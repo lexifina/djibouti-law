@@ -1,6 +1,6 @@
 # Décret n° 94-0081/PR/EN abrogeant le décret n° 81-011/PR/EN du 19 janvier 1981 et instituant les nouveaux BEP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 16/07/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0081-pr-en-abrogeant-le-decret-n81-011-pr-en-du-19-janvier-1981-et-instituant-les-nouveaux-bep/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 16/07/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0081-pr-en-abrogeant-le-decret-n81-011-pr-en-du-19-janvier-1981-et-instituant-les-nouveaux-bep/>
 
 En vigueur : 1994-07-16 (date du Journal officiel qui le publie).
 
@@ -24,7 +24,7 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

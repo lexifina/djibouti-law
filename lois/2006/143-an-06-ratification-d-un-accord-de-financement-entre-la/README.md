@@ -1,6 +1,6 @@
 # Loi n° 143/AN/06/5ème L portant ratification d’un Accord de financement entre la République de Djibouti et International Développent Association (IDA) secteur de l’Énergie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-06-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-international-developpent-association-ida-secteur-de-lenergie/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-06-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-international-developpent-association-ida-secteur-de-lenergie/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 

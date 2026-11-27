@@ -1,6 +1,6 @@
 # Loi n° 131/AN/05/5ème L Portant ratification de la Convention internationale pour la répression du financement du terrorisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-05-5eme-l-portant-ratification-de-la-convention-internationale-pour-la-repression-du-financement-du-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-05-5eme-l-portant-ratification-de-la-convention-internationale-pour-la-repression-du-financement-du-terrorisme/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

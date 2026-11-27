@@ -1,6 +1,6 @@
 # Décret n° n°2 Décret rendant applicable aux colonies, pays de protectorat et territowes sous mandat relevant du ministère des colonies, à l’exception de l’Indochine, la loi du 28 mars 1931 modifiant-Jes-articlos-2,3,66,67 et 586 du Code de commerce, ainsi que l’article 872 du Code de procédure civile et abrogeant l’article 70 du Code de commerce
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 434 du 31/01/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-rendant-applicable-aux-colonies-pays-de-protectorat-et-territowes-sous-mandat-relevant-du-ministere-des-colonies-a-lexception-de-lindochine-la-loi-du-28-mars-193/>
+Décret · Journal officiel de la République de Djibouti, n° 434 du 31/01/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-rendant-applicable-aux-colonies-pays-de-protectorat-et-territowes-sous-mandat-relevant-du-ministere-des-colonies-a-lexception-de-lindochine-la-loi-du-28-mars-193/>
 
 En vigueur : 1933-01-31 (date du Journal officiel qui le publie).
 

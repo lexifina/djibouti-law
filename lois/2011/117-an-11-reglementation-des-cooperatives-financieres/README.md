@@ -1,6 +1,6 @@
 # Loi n° 117/AN/11/6ème L portant réglementation des coopératives financières.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-11-6eme-l-portant-reglementation-des-cooperatives-financieres/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-11-6eme-l-portant-reglementation-des-cooperatives-financieres/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 
@@ -122,4 +122,4 @@ ISMAÏL OMAR GUELLEH
 | [art-087.md](art-087.md) | Article 87 |
 | [art-088.md](art-088.md) | Article 88 |
 | [art-089.md](art-089.md) | Article 89 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

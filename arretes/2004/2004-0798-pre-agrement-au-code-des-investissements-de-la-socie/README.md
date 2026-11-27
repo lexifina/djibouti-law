@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0798/PRE portant Agrément au Code des Investissements de la Société «Ets Coubèche».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0798-pre-portant-agrement-au-code-des-investissements-de-la-societe-ets-coubeche/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0798-pre-portant-agrement-au-code-des-investissements-de-la-societe-ets-coubeche/>
 
 En vigueur : 2004-12-15 (date du Journal officiel qui le publie).
 

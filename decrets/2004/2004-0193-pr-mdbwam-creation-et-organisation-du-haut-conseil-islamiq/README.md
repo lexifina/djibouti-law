@@ -1,6 +1,6 @@
 # Décret n° 2004-0193/PR/MDBWAM portant Création et Organisation du Haut Conseil Islamique (H.C.I).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0193-pr-mdbwam-portant-creation-et-organisation-du-haut-conseil-islamique-h-c-i/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0193-pr-mdbwam-portant-creation-et-organisation-du-haut-conseil-islamique-h-c-i/>
 
 En vigueur : 2004-10-16 (date du Journal officiel qui le publie).
 

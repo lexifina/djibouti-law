@@ -1,6 +1,6 @@
 # Loi n° 199/AN/17/7ème L portant ratification du Protocole d’entente entre la République de Djibouti et la République de Turquie sur la coopération dans le domaine de l’énergie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-17-7eme-l-portant-ratification-du-protocole-dentente-entre-la-republique-de-djibouti-et-la-republique-de-turquie-sur-la-cooperation-dans-le-domaine-de-lenergie/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-17-7eme-l-portant-ratification-du-protocole-dentente-entre-la-republique-de-djibouti-et-la-republique-de-turquie-sur-la-cooperation-dans-le-domaine-de-lenergie/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

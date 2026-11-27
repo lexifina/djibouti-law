@@ -1,6 +1,6 @@
 # Loi n° 138/AN/11/6ème L portant ratification du Protocole relatif à la protection du milieu marin de la Mer Rouge et du Golfe d’Aden contre la pollution due aux activités terrestres.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-protection-du-milieu-marin-de-la-mer-rouge-et-du-golfe-daden-contre-la-pollution-due-aux-activites-terrestres/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-protection-du-milieu-marin-de-la-mer-rouge-et-du-golfe-daden-contre-la-pollution-due-aux-activites-terrestres/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

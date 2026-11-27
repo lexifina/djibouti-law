@@ -1,6 +1,6 @@
 # Décret n° 83-015/PR/MIDI Portant statuts de l’Office National des Eaux de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-015-pr-midi-portant-statuts-de-loffice-national-des-eaux-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/03/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-015-pr-midi-portant-statuts-de-loffice-national-des-eaux-de-djibouti/>
 
 En vigueur : 1983-03-31 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ sur Le Conseil Ministres entendu en séance du 1er février1983.
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

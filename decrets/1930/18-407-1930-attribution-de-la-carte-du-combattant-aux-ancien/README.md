@@ -1,6 +1,6 @@
 # Décret n° 18-407-1930 Attribution de la carte du combattant aux anciens combattants des colonies, pays de protectorat et territoires sous mandats.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-407-1930-attribution-de-la-carte-du-combattant-aux-anciens-combattants-des-colonies-pays-de-protectorat-et-territoires-sous-mandats/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-407-1930-attribution-de-la-carte-du-combattant-aux-anciens-combattants-des-colonies-pays-de-protectorat-et-territoires-sous-mandats/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -28,6 +28,6 @@ GERMAIN-MABTIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-005.md](art-005.md) | Art. 5 |
-| [art-006.md](art-006.md) | Art. 6 — |
+| [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

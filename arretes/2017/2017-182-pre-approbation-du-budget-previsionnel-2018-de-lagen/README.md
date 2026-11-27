@@ -1,6 +1,6 @@
 # Arrêté n° 2017-182/PRE portant approbation du budget prévisionnel 2018 de l’Agence Nationale des Systèmes d’information de l’Etat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-182-pre-portant-approbation-du-budget-previsionnel-2018-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-182-pre-portant-approbation-du-budget-previsionnel-2018-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 

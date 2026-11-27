@@ -1,6 +1,6 @@
 # Décret n° 2000-0236/PRE portant création du Comité d’Organisation de la Cérémonie d’Investiture du Président de la République de Somalie, Son Excellence Monsieur Abdikassim Salad Hassan.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0236-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique-de-somalie-son-excellence-monsieur-abdikassim-salad-h/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0236-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique-de-somalie-son-excellence-monsieur-abdikassim-salad-h/>
 
 En vigueur : 2000-08-31 (date du Journal officiel qui le publie).
 

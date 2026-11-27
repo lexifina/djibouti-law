@@ -1,6 +1,6 @@
 # Loi n° 97/AN/95/3e L portant budget de l’État exercice 1996
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-95-3e-l-portant-budget-de-letat-exercice-1996/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-95-3e-l-portant-budget-de-letat-exercice-1996/>
 
 En vigueur : 1996-01-15 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Barkat Gourad Hamadou
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 45-1703 relatif aux traitements et aux classes du personnel des ports et rades des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1703-relatif-aux-traitements-et-aux-classes-du-personnel-des-ports-et-rades-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1703-relatif-aux-traitements-et-aux-classes-du-personnel-des-ports-et-rades-des-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

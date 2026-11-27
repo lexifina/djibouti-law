@@ -1,6 +1,6 @@
 # Loi n° 206/AN/81 portant approbation d’un prêt.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-81-portant-approbation-dun-pret/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-81-portant-approbation-dun-pret/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 

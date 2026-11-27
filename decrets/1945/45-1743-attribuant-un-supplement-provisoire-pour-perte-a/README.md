@@ -1,6 +1,6 @@
 # Décret n° 45-1743 attribuant un supplément provisoire pour perte au change sur les émoluments du personnel du contrôle du chemin de fer franco-éthiopien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1743-attribuant-un-supplement-provisoire-pour-perte-au-change-sur-les-emoluments-du-personnel-du-controle-du-chemin-de-fer-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1743-attribuant-un-supplement-provisoire-pour-perte-au-change-sur-les-emoluments-du-personnel-du-controle-du-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

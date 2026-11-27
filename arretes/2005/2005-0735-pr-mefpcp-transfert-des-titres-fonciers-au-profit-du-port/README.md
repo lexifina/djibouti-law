@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0735/PR/MEFPCP Portant transfert des Titres Fonciers au profit du Port de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0735-pr-mefpcp-portant-transfert-des-titres-fonciers-au-profit-du-port-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0735-pr-mefpcp-portant-transfert-des-titres-fonciers-au-profit-du-port-de-djibouti/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

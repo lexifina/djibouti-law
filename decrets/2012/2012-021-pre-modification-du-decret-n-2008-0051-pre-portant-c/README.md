@@ -1,8 +1,8 @@
 # Décret n° 2012-021/PRE portant modification du décret n° 2008-0051/PRE portant création de la Fondation DIWAN AZ ZAKAT et renouvellement des membres du Conseil d’Administration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-021-pre-portant-modification-du-decret-n2008-0051-pre-portant-creation-de-la-fondation-diwan-az-zakat-et-renouvellement-des-membres-du-conseil-dadministration/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-021-pre-portant-modification-du-decret-n2008-0051-pre-portant-creation-de-la-fondation-diwan-az-zakat-et-renouvellement-des-membres-du-conseil-dadministration/>
 
-En vigueur : 2012-01-26 (date fixÃ©e par le texte).
+En vigueur : 2012-01-26 (date fixée par le texte).
 
 ## Visas
 

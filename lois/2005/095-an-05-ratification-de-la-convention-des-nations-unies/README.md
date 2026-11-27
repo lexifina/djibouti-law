@@ -1,6 +1,6 @@
 # Loi n° 95/AN/05/5ème L portant ratification de la Convention des Nations unies contre la Criminalité transnationale organisée et de ses protocoles additionnels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-05-5eme-l-portant-ratification-de-la-convention-des-nations-unies-contre-la-criminalite-transnationale-organisee-et-de-ses-protocoles-additionnels/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-05-5eme-l-portant-ratification-de-la-convention-des-nations-unies-contre-la-criminalite-transnationale-organisee-et-de-ses-protocoles-additionnels/>
 
 En vigueur : 2005-02-15 (date du Journal officiel qui le publie).
 

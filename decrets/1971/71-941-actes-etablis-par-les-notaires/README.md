@@ -1,6 +1,6 @@
 # Décret n° 71-941 relatif aux actes établis par les notaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 10/01/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-941-relatif-aux-actes-etablis-par-les-notaires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 10/01/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-941-relatif-aux-actes-etablis-par-les-notaires/>
 
 En vigueur : 1972-01-10 (date du Journal officiel qui le publie).
 

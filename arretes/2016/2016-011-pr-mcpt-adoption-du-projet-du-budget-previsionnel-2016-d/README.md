@@ -1,6 +1,6 @@
 # Arrêté n° 2016-011/PR/MCPT portant adoption du projet du Budget Prévisionnel 2016 de Djibouti Télécom.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-011-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2016-de-djibouti-telecom/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-011-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2016-de-djibouti-telecom/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

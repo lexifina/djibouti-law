@@ -1,6 +1,6 @@
 # Arrêté n° 2012-065/PR/MCATF portant approbation du budget de l’Office Djiboutien de la Propriété Industrielle et Commerciale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-065-pr-mcatf-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-065-pr-mcatf-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale/>
 
 En vigueur : 2012-01-31 (date du Journal officiel qui le publie).
 

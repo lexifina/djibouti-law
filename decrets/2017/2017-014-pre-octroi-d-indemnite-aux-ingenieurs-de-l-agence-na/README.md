@@ -1,6 +1,6 @@
 # Décret n° 2017-014/PRE portant octroi d’indemnité aux ingénieurs de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-014-pre-portant-octroi-dindemnite-aux-ingenieurs-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-014-pre-portant-octroi-dindemnite-aux-ingenieurs-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

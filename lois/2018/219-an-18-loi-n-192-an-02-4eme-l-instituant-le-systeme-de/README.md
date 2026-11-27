@@ -1,8 +1,8 @@
 # Loi n° 219/AN/18/7ème L modifiant la Loi n° 192/AN/02/4ème L instituant le système de quota dans les fonctions électives et dans l’administration de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-18-7eme-l-modifiant-la-loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministration-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-18-7eme-l-modifiant-la-loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministration-de-letat/>
 
-En vigueur : 2018-01-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-01-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

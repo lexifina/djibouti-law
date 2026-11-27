@@ -1,8 +1,8 @@
 # Arrêté n° 2014-740/PR/MTRA portant mise en place d’une unité de coordination et d’animation, au sein du Ministère du Travail chargé de la Réforme de l’Administration, pour la mise en oeuvre du plan d’action opérationnel 2014-2018, de la politique nationale de l’emploi.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-740-pr-mtra-portant-mise-en-place-dune-unite-de-coordination-et-danimation-au-sein-du-ministere-du-travail-charge-de-la-reforme-de-ladministration-pour-la-mise-en-oeuvre-du/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-740-pr-mtra-portant-mise-en-place-dune-unite-de-coordination-et-danimation-au-sein-du-ministere-du-travail-charge-de-la-reforme-de-ladministration-pour-la-mise-en-oeuvre-du/>
 
-En vigueur : 2014-12-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-12-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

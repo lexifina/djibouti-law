@@ -1,6 +1,6 @@
 # Décret n° 47-1353 portant extension aux territoire d’outre-mer relevant du ministère de la France d’outre-mer des dispositions du décret n° 47- 107 du 12 juin 1947 relatif à la formule exécutoire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1353-portant-extension-aux-territoire-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-des-dispositions-du-decret-n-47-107-du-12-juin-1947-relatif-a-la-for/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1353-portant-extension-aux-territoire-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-des-dispositions-du-decret-n-47-107-du-12-juin-1947-relatif-a-la-for/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

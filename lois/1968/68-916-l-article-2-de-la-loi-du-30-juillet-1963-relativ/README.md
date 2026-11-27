@@ -1,6 +1,6 @@
 # Loi n° 68/916 modifiant l’article 2 de la loi du 30 juillet 1963 relative à la composition, à la formation et au fonctionnement de l’Assemblée Territoriale du Territoire Français des Afars et des Issas.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 29/10/1968 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-68-916-modifiant-larticle-2-de-la-loi-du-30-juillet-1963-relative-a-la-composition-a-la-formation-et-au-fonctionnement-de-lassemblee-territoriale-du-territoire-francais/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 29/10/1968 · <https://www.journalofficiel.dj/texte-juridique/loi-n-68-916-modifiant-larticle-2-de-la-loi-du-30-juillet-1963-relative-a-la-composition-a-la-formation-et-au-fonctionnement-de-lassemblee-territoriale-du-territoire-francais/>
 
 En vigueur : 1968-10-29 (date du Journal officiel qui le publie).
 

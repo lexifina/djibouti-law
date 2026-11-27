@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. lcr. A partir de la dite du présent decret. les Commissaires nationaux ne doivent plus affecter à des services centraux ou formations non effectivement combattantes de Français agés de 20 à 36 ans.
 Tome affectation prononcée en violation de cette règle sera nulle de droit.
 Il ne sera fait d exception que :

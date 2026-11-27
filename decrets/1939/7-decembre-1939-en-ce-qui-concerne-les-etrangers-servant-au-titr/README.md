@@ -1,6 +1,6 @@
 # Décret n° 7 décembre 1939 modifiant en ce qui concerne les étrangers servant au titre étranger les règles d’allocation de l’indemnité pour charges militaires,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-decembre-1939-modifiant-en-ce-qui-concerne-les-etrangers-servant-au-titre-etranger-les-regles-dallocation-de-lindemnite-pour-charges-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-decembre-1939-modifiant-en-ce-qui-concerne-les-etrangers-servant-au-titre-etranger-les-regles-dallocation-de-lindemnite-pour-charges-militaires/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -26,5 +26,5 @@ Georges MANDEL,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2007-0157/PRE portant règlement général du Port Autonome International de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0157-pre-portant-reglement-general-du-port-autonome-international-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0157-pre-portant-reglement-general-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 
@@ -139,4 +139,4 @@ ISMAÏL OMAR GUELLEH
 | [art-110.md](art-110.md) | Article 110 |
 | [art-111.md](art-111.md) | Article 111 |
 | [art-112.md](art-112.md) | Article 112 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0694/PR/MDB portant exonérations au profil du projet de construction de 540 appartements répartis dans 54 immeubles en R+3.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0694-pr-mdb-portant-exonerations-au-profil-du-projet-de-construction-de-540-appartements-repartis-dans-54-immeubles-en-r3/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0694-pr-mdb-portant-exonerations-au-profil-du-projet-de-construction-de-540-appartements-repartis-dans-54-immeubles-en-r3/>
 
 En vigueur : 2012-11-15 (date du Journal officiel qui le publie).
 

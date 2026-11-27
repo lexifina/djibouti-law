@@ -1,8 +1,8 @@
 # Décret n° 72-1250 modifiant divers articles du code électoral (J.O.R.F).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 10/01/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1250-modifiant-divers-articles-du-code-electoral-j-o-r-f/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 10/01/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1250-modifiant-divers-articles-du-code-electoral-j-o-r-f/>
 
-En vigueur : 1973-01-15 (date fixÃ©e par le texte).
+En vigueur : 1973-01-15 (date fixée par le texte).
 
 ## Visas
 
@@ -31,6 +31,6 @@ Xavier DENIAU.
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

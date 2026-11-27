@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0750/PR/MENESUP modifiant une partie de l’Arrêté n° 2003-0617/PR/MESN du 10 août 2003.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0750-pr-menesup-modifiant-une-partie-de-larrete-n2003-0617-pr-mesn-du-10-aout-2003/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0750-pr-menesup-modifiant-une-partie-de-larrete-n2003-0617-pr-mesn-du-10-aout-2003/>
 
 En vigueur : 2008-10-15 (date du Journal officiel qui le publie).
 

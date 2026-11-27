@@ -1,6 +1,6 @@
 # Loi n° 096/AN/20/8ème L portant pluralisme politique lors des campagnes électorales et modifiant certaines dispositions de la loi organique n° 1/AN/92 relative aux élections.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n096-an-20-8eme-l-portant-pluralisme-politique-lors-des-campagnes-electorales-et-modifiant-certaines-dispositions-de-la-loi-organique-n1-an-92-relative-aux-elections/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n096-an-20-8eme-l-portant-pluralisme-politique-lors-des-campagnes-electorales-et-modifiant-certaines-dispositions-de-la-loi-organique-n1-an-92-relative-aux-elections/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

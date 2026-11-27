@@ -1,6 +1,6 @@
 # Décret n° 15-341-1925 Légion d’honneur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 341 du 30/04/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-341-1925-legion-dhonneur/>
+Décret · Journal officiel de la République de Djibouti, n° 341 du 30/04/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-341-1925-legion-dhonneur/>
 
 En vigueur : 1925-04-30 (date du Journal officiel qui le publie).
 

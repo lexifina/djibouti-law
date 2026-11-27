@@ -1,8 +1,8 @@
 # 2023-143/PR/MTFPS portant confirmation dans ses fonctions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-143-pr-mtfps-portant-confirmation-dans-ses-fonctions/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-143-pr-mtfps-portant-confirmation-dans-ses-fonctions/>
 
-En vigueur : 2022-04-04 (date fixÃ©e par le texte).
+En vigueur : 2022-04-04 (date fixée par le texte).
 
 | Fichier | Disposition |
 | --- | --- |

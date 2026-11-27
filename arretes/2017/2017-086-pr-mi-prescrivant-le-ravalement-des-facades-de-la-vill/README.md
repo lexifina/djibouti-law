@@ -1,6 +1,6 @@
 # Arrêté n° 2017-086/PR/MI prescrivant le Ravalement des Façades de la Ville de Djibouti à l’Occasion du 40ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-086-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-40eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-086-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-40eme-anniversaire-de-lindependance/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 

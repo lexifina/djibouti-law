@@ -1,6 +1,6 @@
 # Décret n° 2006-0043/PR/MID portant publication des listes candidates aux Elections Régionales et Communales du 10 mars et attribution les emplacements réservés à l’affichage.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 22/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0043-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-10-mars-et-attribution-les-emplacements-reserves-a-laffichage/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 22/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0043-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-10-mars-et-attribution-les-emplacements-reserves-a-laffichage/>
 
 En vigueur : 2006-02-22 (date du Journal officiel qui le publie).
 

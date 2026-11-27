@@ -1,6 +1,6 @@
 # Décret n° 2020-122/PR/MENFOP portant sur le schéma stratégique de renforcement des enseignants-apprentissages par le “TIC”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-122-pr-menfop-portant-sur-le-schema-strategique-de-renforcement-des-enseignants-apprentissages-par-le-tic/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-122-pr-menfop-portant-sur-le-schema-strategique-de-renforcement-des-enseignants-apprentissages-par-le-tic/>
 
 En vigueur : 2020-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

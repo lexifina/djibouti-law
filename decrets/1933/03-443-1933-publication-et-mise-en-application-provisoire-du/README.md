@@ -1,6 +1,6 @@
 # Décret n° 03-443-1933 Publication et mise en application provisoire d’un avenant à la convention commerciale franco-hellénique du 11 mars 1929, signé à Athènes le 3 juillet 1933.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 443 du 31/10/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-443-1933-publication-et-mise-en-application-provisoire-dun-avenant-a-la-convention-commerciale-franco-hellenique-du-11-mars-1929-signe-a-athenes-le-3-juillet-1933/>
+Décret · Journal officiel de la République de Djibouti, n° 443 du 31/10/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-443-1933-publication-et-mise-en-application-provisoire-dun-avenant-a-la-convention-commerciale-franco-hellenique-du-11-mars-1929-signe-a-athenes-le-3-juillet-1933/>
 
 En vigueur : 1933-10-31 (date du Journal officiel qui le publie).
 

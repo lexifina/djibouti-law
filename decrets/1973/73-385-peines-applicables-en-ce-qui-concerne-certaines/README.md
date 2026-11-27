@@ -1,6 +1,6 @@
 # Décret n° 73-385 fixant les peines applicables en ce qui concerne certaines contraventions en matière d’affranchissement ou en cas d’usage de timbres mobiles déjà utilisés (JORF n° 79 des 2 et 3 avril 1973, page 3726).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-385-fixant-les-peines-applicables-en-ce-qui-concerne-certaines-contraventions-en-matiere-daffranchissement-ou-en-cas-dusage-de-timbres-mobiles-deja-utilises-jorf-n-79-des/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-385-fixant-les-peines-applicables-en-ce-qui-concerne-certaines-contraventions-en-matiere-daffranchissement-ou-en-cas-dusage-de-timbres-mobiles-deja-utilises-jorf-n-79-des/>
 
 En vigueur : 1973-05-25 (date du Journal officiel qui le publie).
 

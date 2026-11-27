@@ -1,6 +1,6 @@
 # Décret n° 2000-0016/PR/MCCPT portant approbation de la dissolution de la STID.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0016-pr-mccpt-portant-approbation-de-la-dissolution-de-la-stid/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0016-pr-mccpt-portant-approbation-de-la-dissolution-de-la-stid/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

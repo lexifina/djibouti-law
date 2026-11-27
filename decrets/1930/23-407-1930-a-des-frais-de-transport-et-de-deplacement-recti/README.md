@@ -1,6 +1,6 @@
 # Décret n° 23-407-1930 relatif à des frais de transport et de déplacement (rectificatif).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-407-1930-relatif-a-des-frais-de-transport-et-de-deplacement-rectificatif/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-407-1930-relatif-a-des-frais-de-transport-et-de-deplacement-rectificatif/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 

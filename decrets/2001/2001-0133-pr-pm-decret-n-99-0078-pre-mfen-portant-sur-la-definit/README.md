@@ -1,6 +1,6 @@
 # Décret n° 2001-0133/PR/PM modifiant le décret n° 99-0078/PRE/MFEN portant sur la définition et la gestion des Établissements publics à caractère administratif.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0133-pr-pm-modifiant-le-decret-n99-0078-pre-mfen-portant-sur-la-definition-et-la-gestion-des-etablissements-publics-a-caractere-administratif/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0133-pr-pm-modifiant-le-decret-n99-0078-pre-mfen-portant-sur-la-definition-et-la-gestion-des-etablissements-publics-a-caractere-administratif/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

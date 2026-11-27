@@ -1,6 +1,6 @@
 # Loi n° 174/AN/07/5ème L portant mesures protectrices adaptées à la situation des personnes vivant avec le VIH/Sida et des groupes vulnérables.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-07-5eme-l-portant-mesures-protectrices-adaptees-a-la-situation-des-personnes-vivant-avec-le-vih-sida-et-des-groupes-vulnerables/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-07-5eme-l-portant-mesures-protectrices-adaptees-a-la-situation-des-personnes-vivant-avec-le-vih-sida-et-des-groupes-vulnerables/>
 
 En vigueur : 2007-04-30 (date du Journal officiel qui le publie).
 

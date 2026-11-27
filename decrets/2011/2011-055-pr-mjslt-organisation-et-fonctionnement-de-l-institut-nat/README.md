@@ -1,6 +1,6 @@
 # Décret n° 2011-055/PR/MJSLT portant organisation et fonctionnement de “l’Institut National de Formation Sportive ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-055-pr-mjslt-portant-organisation-et-fonctionnement-de-linstitut-national-de-formation-sportive/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-055-pr-mjslt-portant-organisation-et-fonctionnement-de-linstitut-national-de-formation-sportive/>
 
 En vigueur : 2011-04-30 (date du Journal officiel qui le publie).
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

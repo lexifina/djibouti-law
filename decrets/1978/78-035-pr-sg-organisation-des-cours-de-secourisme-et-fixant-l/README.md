@@ -1,6 +1,6 @@
 # Décret n° 78-035/PR/SG portant organisation des cours de Secourisme et fixant les conditions d’obtention du Brevet National.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 24/04/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-035-pr-sg-portant-organisation-des-cours-de-secourisme-et-fixant-les-conditions-dobtention-du-brevet-national/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 24/04/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-035-pr-sg-portant-organisation-des-cours-de-secourisme-et-fixant-les-conditions-dobtention-du-brevet-national/>
 
 En vigueur : 1978-04-24 (date du Journal officiel qui le publie).
 

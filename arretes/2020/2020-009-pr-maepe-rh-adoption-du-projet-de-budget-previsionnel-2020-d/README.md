@@ -1,6 +1,6 @@
 # Arrêté n° 2020-009/PR/MAEPE-RH portant adoption du projet de budget prévisionnel 2020 du Laboratoire National d’Analyses Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-009-pr-maepe-rh-portant-adoption-du-projet-de-budget-previsionnel-2020-du-laboratoire-national-danalyses-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-009-pr-maepe-rh-portant-adoption-du-projet-de-budget-previsionnel-2020-du-laboratoire-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

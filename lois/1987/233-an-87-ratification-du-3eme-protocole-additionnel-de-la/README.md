@@ -1,6 +1,6 @@
 # Loi n° 233/AN/87/1ère L portant ratification du 3ème Protocole Additionnel de la Constitution de l’Union Postale Universelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/02/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n233-an-87-1ere-l-portant-ratification-du-3eme-protocole-additionnel-de-la-constitution-de-lunion-postale-universelle/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/02/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n233-an-87-1ere-l-portant-ratification-du-3eme-protocole-additionnel-de-la-constitution-de-lunion-postale-universelle/>
 
 En vigueur : 1987-02-15 (date du Journal officiel qui le publie).
 

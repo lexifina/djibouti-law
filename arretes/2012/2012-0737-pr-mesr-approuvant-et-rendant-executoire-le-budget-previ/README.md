@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0737/PR/MESR approuvant et rendant exécutoire le Budget prévisionnel de l’exercice 2013 de la Faculté de Médecine de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0737-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-de-la-faculte-de-medecine-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0737-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-de-la-faculte-de-medecine-de-djibouti/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

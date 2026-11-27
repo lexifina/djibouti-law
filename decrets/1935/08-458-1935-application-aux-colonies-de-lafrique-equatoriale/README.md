@@ -1,6 +1,6 @@
 # Décret n° 08-458-1935 Application aux colonies de l’Afrique équatoriale française, de Madagascar et dépendances, de La Martinique, de ln Guadeloupe, de la Nouvelle-Calédonie et dépendances. de la Guyane française et de Ia Côte française des Somalis. de la loi du 13 juillet 1933, relative au renouvellement des baux à loyer d’immeubles ou de locaux à usage commercialou industriel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-458-1935-application-aux-colonies-de-lafrique-equatoriale-francaise-de-madagascar-et-dependances-de-la-martinique-de-ln-guadeloupe-de-la-nouvelle-caledonie-et-dependances-de/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-458-1935-application-aux-colonies-de-lafrique-equatoriale-francaise-de-madagascar-et-dependances-de-la-martinique-de-ln-guadeloupe-de-la-nouvelle-caledonie-et-dependances-de/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

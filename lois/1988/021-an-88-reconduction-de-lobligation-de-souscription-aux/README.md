@@ -1,6 +1,6 @@
 # Loi n° 21/AN/88/2ème L portant reconduction de l’obligation de souscription aux certificats de dépôts émis par le trésor national, faite à certains organismes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-88-2eme-l-portant-reconduction-de-lobligation-de-souscription-aux-certificats-de-depots-emis-par-le-tresor-national-faite-a-certains-organismes/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-88-2eme-l-portant-reconduction-de-lobligation-de-souscription-aux-certificats-de-depots-emis-par-le-tresor-national-faite-a-certains-organismes/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

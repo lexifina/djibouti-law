@@ -1,6 +1,6 @@
 # Décret n° 59-450-1934 Ouverture et annulation de crédits au budget local de la Côte française des Somalis (exercices 1933).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-59-450-1934-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-exercices-1933/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-59-450-1934-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-exercices-1933/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

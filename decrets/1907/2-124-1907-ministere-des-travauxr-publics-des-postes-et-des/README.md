@@ -1,6 +1,6 @@
 # Décret n° 2-124-1907 Ministére des travauxr Publics, des Postes et des Telégraphes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 124 du 01/03/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-124-1907-ministere-des-travauxr-publics-des-postes-et-des-telegraphes/>
+Décret · Journal officiel de la République de Djibouti, n° 124 du 01/03/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-124-1907-ministere-des-travauxr-publics-des-postes-et-des-telegraphes/>
 
 En vigueur : 1907-03-01 (date du Journal officiel qui le publie).
 

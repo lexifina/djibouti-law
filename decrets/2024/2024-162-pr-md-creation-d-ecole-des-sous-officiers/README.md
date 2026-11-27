@@ -1,6 +1,6 @@
 # Décret n° 2024-162/PR/MD portant création d’Ecole des sous-officiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-162-pr-md-portant-creation-decole-des-sous-officiers/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-162-pr-md-portant-creation-decole-des-sous-officiers/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | ARTICLE 9 |
 | [art-010.md](art-010.md) | ARTICLE 10 |
 | [art-011.md](art-011.md) | ARTICLE 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

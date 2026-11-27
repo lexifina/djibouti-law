@@ -1,6 +1,6 @@
 # Décret n° 2001-0124/PR/MEFPP modifiant le décret n° 99-0025/PR/MEFPP du 03 mars 1999 portant attributions et organisation du Ministère de l’Économie, des Finances et de la Planification, chargé de la Privatisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0124-pr-mefpp-modifiant-le-decret-n99-0025-pr-mefpp-du-03-mars-1999-portant-attributions-et-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planificatio/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0124-pr-mefpp-modifiant-le-decret-n99-0025-pr-mefpp-du-03-mars-1999-portant-attributions-et-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planificatio/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

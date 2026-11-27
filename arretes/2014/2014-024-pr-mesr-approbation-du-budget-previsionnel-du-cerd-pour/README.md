@@ -1,6 +1,6 @@
 # Arrêté n° 2014-024/PR/MESR portant approbation du budget prévisionnel du CERD pour l’exercice 2014.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-024-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2014/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-024-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2014/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0016/PRE portant rattachement de la DINAS et du BCR auprès du Premier Ministre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0016-pre-portant-rattachement-de-la-dinas-et-du-bcr-aupres-du-premier-ministre/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0016-pre-portant-rattachement-de-la-dinas-et-du-bcr-aupres-du-premier-ministre/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

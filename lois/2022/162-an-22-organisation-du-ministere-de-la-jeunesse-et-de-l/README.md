@@ -1,6 +1,6 @@
 # Loi n° 162/AN/22/8ème L portant Organisation du Ministère de la Jeunesse et de la Culture (MJC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-22-8eme-l-portant-organisation-du-ministere-de-la-jeunesse-et-de-la-culture-mjc/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-22-8eme-l-portant-organisation-du-ministere-de-la-jeunesse-et-de-la-culture-mjc/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -46,4 +46,4 @@ Le Conseil des Ministres entendu en sa séance du 14 juin 2022.
 | [art-020.md](art-020.md) | ARTICLE 20 |
 | [art-021.md](art-021.md) | ARTICLE 21 |
 | [art-022.md](art-022.md) | ARTICLE 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

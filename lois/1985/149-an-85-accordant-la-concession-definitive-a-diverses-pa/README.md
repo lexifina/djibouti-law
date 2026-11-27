@@ -1,6 +1,6 @@
 # Loi n° 149/AN/85/1ère L accordant la concession définitive à diverses parcelles de terrain.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-85-1ere-l-accordant-la-concession-definitive-a-diverses-parcelles-de-terrain/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-85-1ere-l-accordant-la-concession-definitive-a-diverses-parcelles-de-terrain/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ HASSAN GOULED APTIDON
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

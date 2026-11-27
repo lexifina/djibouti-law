@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0181/PR/MJSLT Approuvant et rendant exécutoire le Budget Prévisionnel 2005 du Stade Al Hadj Hassan Gouled.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0181-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2005-du-stade-al-hadj-hassan-gouled/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0181-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2005-du-stade-al-hadj-hassan-gouled/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

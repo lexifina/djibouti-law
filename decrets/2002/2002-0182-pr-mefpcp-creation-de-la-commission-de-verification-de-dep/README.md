@@ -1,6 +1,6 @@
 # Décret n° 2002-0182/PR/MEFPCP portant création de la commission de vérification de dépôt des dossiers de déclaration de Parti Politique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0182-pr-mefpcp-portant-creation-de-la-commission-de-verification-de-depot-des-dossiers-de-declaration-de-parti-politique/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0182-pr-mefpcp-portant-creation-de-la-commission-de-verification-de-depot-des-dossiers-de-declaration-de-parti-politique/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

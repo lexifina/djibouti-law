@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0421/PR/MID prescrivant le ravalement des façades de la Ville de Djibouti à l’Occasion du 32ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0421-pr-mid-prescrivant-le-ravalement-des-faades-de-la-ville-de-djibouti-loccasion-du-32me-anniversaire-de-lindpendance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0421-pr-mid-prescrivant-le-ravalement-des-faades-de-la-ville-de-djibouti-loccasion-du-32me-anniversaire-de-lindpendance/>
 
 En vigueur : 2009-05-31 (date du Journal officiel qui le publie).
 

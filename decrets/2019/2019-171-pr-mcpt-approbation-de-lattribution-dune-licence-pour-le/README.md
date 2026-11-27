@@ -1,6 +1,6 @@
 # Décret n° 2019-171/PR/MCPT portant approbation de l’attribution d’une licence pour l’établissement, la maintenance et l’exploitation d’activité d’un DATA Center et d’un IT Park.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-171-pr-mcpt-portant-approbation-de-lattribution-dune-licence-pour-letablissement-la-maintenance-et-lexploitation-dactivite-dun-data-center-et-dun-it-park/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-171-pr-mcpt-portant-approbation-de-lattribution-dune-licence-pour-letablissement-la-maintenance-et-lexploitation-dactivite-dun-data-center-et-dun-it-park/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

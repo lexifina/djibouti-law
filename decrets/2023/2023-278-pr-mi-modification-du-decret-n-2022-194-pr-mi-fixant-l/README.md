@@ -1,6 +1,6 @@
 # Décret n° 2023-278/PR/MI portant modification du décret n° 2022-194/PR/MI fixant les Tarifs des Prestations du Registre National des Personnes Physiques prolongeant du délai de renouvellement des titres et de documents administratifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-278-pr-mi-portant-modification-du-decret-n2022-194-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques-prolongeant-du-delai-de-renouvellement/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 14/09/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-278-pr-mi-portant-modification-du-decret-n2022-194-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques-prolongeant-du-delai-de-renouvellement/>
 
 En vigueur : 2023-09-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

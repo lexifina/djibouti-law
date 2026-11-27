@@ -1,6 +1,6 @@
 # Loi n° 89/AN/84/1ère L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente, jusqu’à l’ouverture de la 1ère session ordinaire de 1984 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-84-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1984-dite-sessio/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-84-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1984-dite-sessio/>
 
 En vigueur : 1984-02-15 (date du Journal officiel qui le publie).
 

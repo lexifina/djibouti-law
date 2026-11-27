@@ -1,6 +1,6 @@
 # Décret n° 53-755 fixant les conditions d’application de la loi du 7 janvier 1952 instituant dans les territoires d’outre-mer, au Togo et au Cameroun un système de perception immédiate d’amendes forfaitaires pour certaines contraventions de simple police.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/11/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-755-fixant-les-conditions-dapplication-de-la-loi-du-7-janvier-1952-instituant-dans-les-territoires-doutre-mer-au-togo-et-au-cameroun-un-systeme-de-perception-immediate-d/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/11/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-755-fixant-les-conditions-dapplication-de-la-loi-du-7-janvier-1952-instituant-dans-les-territoires-doutre-mer-au-togo-et-au-cameroun-un-systeme-de-perception-immediate-d/>
 
 En vigueur : 1953-11-01 (date du Journal officiel qui le publie).
 

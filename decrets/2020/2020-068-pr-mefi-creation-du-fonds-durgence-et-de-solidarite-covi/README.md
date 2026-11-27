@@ -1,6 +1,6 @@
 # Décret n° 2020-068/PR/MEFI portant création du Fonds d’Urgence et de Solidarité COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-068-pr-mefi-portant-creation-du-fonds-durgence-et-de-solidarite-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-068-pr-mefi-portant-creation-du-fonds-durgence-et-de-solidarite-covid-19/>
 
 En vigueur : 2020-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 01-287-1920 instituant une fête nationale de Jeanne d’Arc, fête du patriotisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 287 du 30/09/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-01-287-1920-instituant-une-fete-nationale-de-jeanne-darc-fete-du-patriotisme/>
+Loi · Journal officiel de la République de Djibouti, n° 287 du 30/09/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-01-287-1920-instituant-une-fete-nationale-de-jeanne-darc-fete-du-patriotisme/>
 
 En vigueur : 1920-09-30 (date du Journal officiel qui le publie).
 

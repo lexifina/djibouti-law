@@ -1,6 +1,6 @@
 # Loi n° 150/AN/22/8ème L portant organisation du Secrétariat d’Etat chargé des Investissements et du Développement du Secteur Privé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-22-8eme-l-portant-organisation-du-secretariat-detat-charge-des-investissements-et-du-developpement-du-secteur-prive/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-22-8eme-l-portant-organisation-du-secretariat-detat-charge-des-investissements-et-du-developpement-du-secteur-prive/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

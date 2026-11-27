@@ -1,6 +1,6 @@
 # Loi n° 36/AN/24/9ème L portant approbation des comptes financiers de l’Université de Djibouti pour l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-luniversite-de-djibouti-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-luniversite-de-djibouti-pour-lexercice-2021/>
 
 En vigueur : 2024-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

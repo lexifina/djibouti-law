@@ -1,6 +1,6 @@
 # Loi n° 52-345 rendant applicable, dans les Territoires d’Outre-Mer, au Togo et Cameroun, la loi du 11 février 1951 abrogeant les dispositions législatives qui, en matière de droit commun, suppriment ou limitent le droit qui appartient aux juges d’accorder le sursis aux peines qu’ils prononcent et de faire bénéficier le coupable des circonstances atténuantes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-52-345-rendant-applicable-dans-les-territoires-doutre-mer-au-togo-et-cameroun-la-loi-du-11-fevrier-1951-abrogeant-les-dispositions-legislatives-qui-en-matiere-de-droit-commun-suppr/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 01/06/1952 · <https://www.journalofficiel.dj/texte-juridique/loi-n-52-345-rendant-applicable-dans-les-territoires-doutre-mer-au-togo-et-cameroun-la-loi-du-11-fevrier-1951-abrogeant-les-dispositions-legislatives-qui-en-matiere-de-droit-commun-suppr/>
 
 En vigueur : 1952-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°51 le décret du 28 octobre 1919, rendant applicable aux colonies la loi du 23 octobre 1919 relative à la date de la cessation des hostilités..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 277 du 30/11/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n51-le-decret-du-28-octobre-1919-rendant-applicable-aux-colonies-la-loi-du-23-octobre-1919-relative-a-la-date-de-la-cessation-des-hostilites/>
+Décret · Journal officiel de la République de Djibouti, n° 277 du 30/11/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n51-le-decret-du-28-octobre-1919-rendant-applicable-aux-colonies-la-loi-du-23-octobre-1919-relative-a-la-date-de-la-cessation-des-hostilites/>
 
 En vigueur : 1919-11-30 (date du Journal officiel qui le publie).
 

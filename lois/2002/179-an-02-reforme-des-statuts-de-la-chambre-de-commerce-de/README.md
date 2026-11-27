@@ -1,6 +1,6 @@
 # Loi n° 179/AN/02/4ème L portant Réforme des Statuts de la Chambre de Commerce de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-02-4eme-l-portant-reforme-des-statuts-de-la-chambre-de-commerce-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-02-4eme-l-portant-reforme-des-statuts-de-la-chambre-de-commerce-de-djibouti/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

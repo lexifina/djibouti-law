@@ -1,6 +1,6 @@
 # Arrêté n° 82-0497/PR/FIN relevant le mécanique de la valeur unitaire du petit outillage non mécanique de consommation courante qui ne doit pas être pris en charge par les dépositaires comptables.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0497-pr-fin-relevant-le-mecanique-de-la-valeur-unitaire-du-petit-outillage-non-mecanique-de-consommation-courante-qui-ne-doit-pas-etre-pris-en-charge-par-les-depositaires-comptables/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0497-pr-fin-relevant-le-mecanique-de-la-valeur-unitaire-du-petit-outillage-non-mecanique-de-consommation-courante-qui-ne-doit-pas-etre-pris-en-charge-par-les-depositaires-comptables/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

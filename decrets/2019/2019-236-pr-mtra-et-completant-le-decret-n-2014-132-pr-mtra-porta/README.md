@@ -1,6 +1,6 @@
 # Décret n° 2019-236/PR/MTRA modifiant et complétant le Décret n° 2014-132/PR/MTRA portant organisation et fonctionnement de la Commission Nationale de l’Assurance Maladie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-236-pr-mtra-modifiant-et-completant-le-decret-n2014-132-pr-mtra-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-lassurance-maladie/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-236-pr-mtra-modifiant-et-completant-le-decret-n2014-132-pr-mtra-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-lassurance-maladie/>
 
 En vigueur : 2019-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

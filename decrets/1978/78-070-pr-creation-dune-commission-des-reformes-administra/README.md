@@ -1,6 +1,6 @@
 # Décret n° 78-070/PR Portant création d’une Commission des réformes administratives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-070-pr-portant-creation-dune-commission-des-reformes-administratives/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-070-pr-portant-creation-dune-commission-des-reformes-administratives/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 

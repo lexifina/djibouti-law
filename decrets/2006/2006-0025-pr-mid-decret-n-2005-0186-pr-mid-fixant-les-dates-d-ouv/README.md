@@ -1,6 +1,6 @@
 # Décret n° 2006-0025/PR/MID modifiant le décret n° 2005-0186/PR/MID fixant les dates d’ouverture et de fermeture de la campagne électorale pour les élections régionales du 10 et 31 mars 2006.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 22/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0025-pr-mid-modifiant-le-decret-n2005-0186-pr-mid-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-du-10-et-31-mars/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 22/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0025-pr-mid-modifiant-le-decret-n2005-0186-pr-mid-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-du-10-et-31-mars/>
 
 En vigueur : 2006-02-22 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

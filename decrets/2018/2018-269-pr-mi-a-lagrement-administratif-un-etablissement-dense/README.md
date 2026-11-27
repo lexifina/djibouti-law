@@ -1,6 +1,6 @@
 # Décret n° 2018-269/PR/MI relatif à l’agrément administratif un établissement d’enseignement de la conduite des véhicules à moteur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 13/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-269-pr-mi-relatif-a-lagrement-administratif-un-etablissement-denseignement-de-la-conduite-des-vehicules-a-moteur/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 13/09/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-269-pr-mi-relatif-a-lagrement-administratif-un-etablissement-denseignement-de-la-conduite-des-vehicules-a-moteur/>
 
 En vigueur : 2018-09-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

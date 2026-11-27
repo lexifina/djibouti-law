@@ -1,6 +1,6 @@
 # Loi n° 121/AN/21/8ème L portant ratification du financement additionnel du Projet Intégré de Réhabilitation des Bidonvilles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-21-8eme-l-portant-ratification-du-financement-additionnel-du-projet-integre-de-rehabilitation-des-bidonvilles/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-21-8eme-l-portant-ratification-du-financement-additionnel-du-projet-integre-de-rehabilitation-des-bidonvilles/>
 
 En vigueur : 2021-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 2002-0037/PR/MS portant organisation et fonctionnement de l’Hôpital Général Peltier pendant une période transitoire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0037-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-general-peltier-pendant-une-periode-transitoire/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0037-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-general-peltier-pendant-une-periode-transitoire/>
 
 En vigueur : 2002-03-31 (date du Journal officiel qui le publie).
 

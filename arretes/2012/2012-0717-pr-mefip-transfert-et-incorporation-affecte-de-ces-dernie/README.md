@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0717/PR/MEFIP portant transfert et incorporation affecté de ces derniers à la parcelle de terrain au ministère de la santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0717-pr-mefip-portant-transfert-et-incorporation-affecte-de-ces-derniers-a-la-parcelle-de-terrain-au-ministere-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0717-pr-mefip-portant-transfert-et-incorporation-affecte-de-ces-derniers-a-la-parcelle-de-terrain-au-ministere-de-la-sante/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

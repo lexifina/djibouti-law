@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0361/PR/MID modifiant l’Arrêté n° 86-0898/MINT du 06 juillet 1986 portant création du Poste Administratif de Damerjog.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0361-pr-mid-modifiant-larrete-n86-0898-mint-du-06-juillet-1986-portant-creation-du-poste-administratif-de-damerjog/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0361-pr-mid-modifiant-larrete-n86-0898-mint-du-06-juillet-1986-portant-creation-du-poste-administratif-de-damerjog/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 16/AN/87/2ème L portant approbation de l’extension du Lotissement Héron – Marabout à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-87-2eme-l-portant-approbation-de-lextension-du-lotissement-heron-marabout-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-87-2eme-l-portant-approbation-de-lextension-du-lotissement-heron-marabout-a-djibouti/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0376/PR/MEFPCP portant la démolition d’un immeuble objet du Titre Foncier n° 620.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0376-pr-mefpcp-portant-la-demolition-dun-immeuble-objet-du-titre-foncier-n620/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0376-pr-mefpcp-portant-la-demolition-dun-immeuble-objet-du-titre-foncier-n620/>
 
 En vigueur : 2006-05-31 (date du Journal officiel qui le publie).
 

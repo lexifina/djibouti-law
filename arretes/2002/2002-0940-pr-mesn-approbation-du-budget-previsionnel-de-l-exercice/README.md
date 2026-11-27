@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0940/PR/MESN Portant approbation du budget prévisionnel de l’exercice 2003 de l’Organisme de Protection Sociale (OPS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0940-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2003-de-lorganisme-de-protection-sociale-ops/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0940-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2003-de-lorganisme-de-protection-sociale-ops/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 

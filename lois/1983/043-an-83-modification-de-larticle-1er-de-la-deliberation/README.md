@@ -1,6 +1,6 @@
 # Loi n° 43/AN/83/1ère L portant modification de l’article 1er de la délibération N° 268/7° L du 3 Avril 1971 portant interdiction totale de la chasse sur toute l’étendue du territoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-83-1ere-l-portant-modification-de-larticle-1er-de-la-deliberation-n-268-7-l-du-3-avril-1971-portant-interdiction-totale-de-la-chasse-sur-toute-letendue-du-territoire/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-83-1ere-l-portant-modification-de-larticle-1er-de-la-deliberation-n-268-7-l-du-3-avril-1971-portant-interdiction-totale-de-la-chasse-sur-toute-letendue-du-territoire/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

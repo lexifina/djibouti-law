@@ -1,6 +1,6 @@
 # Loi n° 34/AN/13/7ème L portant ratification de la Convention arabe de Riyadh relative à l’entraide judiciaire signée à Riyadh le 06 avril 1983.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-13-7eme-l-portant-ratification-de-la-convention-arabe-de-riyadh-relative-a-lentraide-judiciaire-signee-a-riyadh-le-06-avril-1983/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-13-7eme-l-portant-ratification-de-la-convention-arabe-de-riyadh-relative-a-lentraide-judiciaire-signee-a-riyadh-le-06-avril-1983/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

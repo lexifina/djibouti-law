@@ -1,6 +1,6 @@
 # Décret n° 46-296 modifiant l’arrêté du 10 septembre 1944 relatif à l’indemnité de départ colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-296-modifiant-larrete-du-10-septembre-1944-relatif-a-lindemnite-de-depart-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-296-modifiant-larrete-du-10-septembre-1944-relatif-a-lindemnite-de-depart-colonial/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

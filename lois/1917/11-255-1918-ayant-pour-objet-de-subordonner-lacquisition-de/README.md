@@ -1,6 +1,6 @@
 # Loi n° 11-255-1918 ayant pour objet de subordonner l’acquisition de la nationalité française, en cas de mariage contracté entier un Français et une femme appartenant a une nation en hostilités avec la France, à une autorisation préalable du Gouvernement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 255 du 31/01/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-255-1918-ayant-pour-objet-de-subordonner-lacquisition-de-la-nationalite-francaise-en-cas-de-mariage-contracte-entier-un-francais-et-une-femme-appartenant-a-une-nation-en-hostilites/>
+Loi · Journal officiel de la République de Djibouti, n° 255 du 31/01/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-255-1918-ayant-pour-objet-de-subordonner-lacquisition-de-la-nationalite-francaise-en-cas-de-mariage-contracte-entier-un-francais-et-une-femme-appartenant-a-une-nation-en-hostilites/>
 
 En vigueur : 1918-01-31 (date du Journal officiel qui le publie).
 

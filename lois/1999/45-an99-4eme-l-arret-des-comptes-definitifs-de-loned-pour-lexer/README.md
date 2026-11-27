@@ -1,6 +1,6 @@
 # Loi n° 45/AN99/4ème L portant arrêt des comptes définitifs de l’ONED pour l’exercice 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n45-an99-4eme-l-portant-arret-des-comptes-definitifs-de-loned-pour-lexercice-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n45-an99-4eme-l-portant-arret-des-comptes-definitifs-de-loned-pour-lexercice-1997/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 

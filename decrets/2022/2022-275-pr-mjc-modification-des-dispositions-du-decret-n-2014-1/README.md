@@ -1,6 +1,6 @@
 # Décret n° 2022-275/PR/MJC portant modification des dispositions du décret n° 2014-162/PR/SEJS relatif aux modalités d’octroi du Grand Prix du Chef de l’Etat “Initiatives Jeunesse”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-275-pr-mjc-portant-modification-des-dispositions-du-decret-n2014-162-pr-sejs-relatif-aux-modalites-doctroi-du-grand-prix-du-chef-de-letat-initiatives-jeunesse/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-275-pr-mjc-portant-modification-des-dispositions-du-decret-n2014-162-pr-sejs-relatif-aux-modalites-doctroi-du-grand-prix-du-chef-de-letat-initiatives-jeunesse/>
 
 En vigueur : 2022-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

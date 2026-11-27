@@ -1,6 +1,6 @@
 # Décret n° 2009-0007/PR/MEFPCP portant déchéance partielle du décret n° 2006-0137/PR/MAPCPI.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0007-pr-mefpcp-portant-decheance-partielle-du-decret-n2006-0137-pr-mapcpi/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0007-pr-mefpcp-portant-decheance-partielle-du-decret-n2006-0137-pr-mapcpi/>
 
 En vigueur : 2009-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°334 Le Ministre des colonies Georges MANDEL Le Ministre des finances Paul REYNXAUD
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-ministre-des-colonies-georges-mandel-le-ministre-des-finances-paul-reynxaud/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-ministre-des-colonies-georges-mandel-le-ministre-des-finances-paul-reynxaud/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ Georges MANDEL
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

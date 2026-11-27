@@ -1,6 +1,6 @@
 # Loi n° 143/AN/91/2ème L accordant des parcelles de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-91-2eme-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-91-2eme-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

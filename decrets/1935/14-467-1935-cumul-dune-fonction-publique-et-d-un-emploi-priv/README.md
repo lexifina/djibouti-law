@@ -1,6 +1,6 @@
 # Décret n° 14-467-1935 Cumul d’une fonction publique et d’un emploi privé (service météorologique aux colonies).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-service-meteorologique-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-service-meteorologique-aux-colonies/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 

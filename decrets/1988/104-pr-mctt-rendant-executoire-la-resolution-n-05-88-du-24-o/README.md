@@ -1,6 +1,6 @@
 # Décret n° 104/PR/MCTT rendant exécutoire la résolution n° 05/88 du 24 octobre 1988 du Conseil d’administration d’Aéroport de Djibouti et portant approbation du budget définitif de l’exercice 1987 de l’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n104-pr-mctt-rendant-executoire-la-resolution-n05-88-du-24-octobre-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexercic/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n104-pr-mctt-rendant-executoire-la-resolution-n05-88-du-24-octobre-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexercic/>
 
 En vigueur : 1988-12-31 (date du Journal officiel qui le publie).
 

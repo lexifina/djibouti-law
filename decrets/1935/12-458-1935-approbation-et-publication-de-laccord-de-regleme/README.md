@@ -1,6 +1,6 @@
 # Décret n° 12-458-1935 Approbation et publication de l’accord de règlement des payements commerciaux conclu entre la France et l’Allemagne le 30 novembre 1934
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-458-1935-approbation-et-publication-de-laccord-de-reglement-des-payements-commerciaux-conclu-entre-la-france-et-lallemagne-le-30-novembre-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-458-1935-approbation-et-publication-de-laccord-de-reglement-des-payements-commerciaux-conclu-entre-la-france-et-lallemagne-le-30-novembre-1934/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Louis ROLLIN,
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi de finances n° 85/AN/04/5ème L portant Rectificatif du Budget de l’État pour l’Exercice 2004.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n85-an-04-5eme-l-portant-rectificatif-du-budget-de-letat-pour-lexercice-2004/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n85-an-04-5eme-l-portant-rectificatif-du-budget-de-letat-pour-lexercice-2004/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

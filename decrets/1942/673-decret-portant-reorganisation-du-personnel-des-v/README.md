@@ -1,6 +1,6 @@
 # Décret n° 673 le décret portant réorganisation du personnel des vétérinaires des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-673-le-decret-portant-reorganisation-du-personnel-des-veterinaires-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-673-le-decret-portant-reorganisation-du-personnel-des-veterinaires-des-colonies/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 86-074/PR/INT rendant exécutoire la délibération n° 3/86 du 2 juillet 1986 du Conseil d’Administration de l’Office des Postes et Télécommunications, portant approbation de la première décision modificative du budget de l’Office pour 1986.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-074-pr-int-rendant-executoire-la-deliberation-n3-86-du-2-juillet-1986-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-prem/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/08/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-074-pr-int-rendant-executoire-la-deliberation-n3-86-du-2-juillet-1986-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-prem/>
 
 En vigueur : 1986-08-31 (date du Journal officiel qui le publie).
 

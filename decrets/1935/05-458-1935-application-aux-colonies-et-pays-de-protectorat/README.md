@@ -1,6 +1,6 @@
 # Décret n° 05-458-1935 Application aux colonies et pays de protectorat relevant du ministère des colonies, au Togo et au Cameroun, de la loi du 26 juillet 1925 avant pour but de garantir l’appellation d’origine du fromage de Roquefort.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-458-1935-application-aux-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-au-togo-et-au-cameroun-de-la-loi-du-26-juillet-1925-avant-pour-but-de-garantir-lappel/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-458-1935-application-aux-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-au-togo-et-au-cameroun-de-la-loi-du-26-juillet-1925-avant-pour-but-de-garantir-lappel/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

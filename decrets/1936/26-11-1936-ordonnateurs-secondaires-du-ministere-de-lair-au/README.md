@@ -1,6 +1,6 @@
 # Décret n° 26/11/1936 Ordonnateurs secondaires du ministère de l’air aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-11-1936-ordonnateurs-secondaires-du-ministere-de-lair-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-11-1936-ordonnateurs-secondaires-du-ministere-de-lair-aux-colonies/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

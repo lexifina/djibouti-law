@@ -1,6 +1,6 @@
 # Loi n° 109/AN/15/7ème L portant modification de la Loi n° 24/AN/14/7ème L portant mise en place d’un système d’assurance maladie universelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-15-7eme-l-portant-modification-de-la-loi-n24-an-14-7eme-l-portant-mise-en-place-dun-systeme-dassurance-maladie-universelle/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-15-7eme-l-portant-modification-de-la-loi-n24-an-14-7eme-l-portant-mise-en-place-dun-systeme-dassurance-maladie-universelle/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

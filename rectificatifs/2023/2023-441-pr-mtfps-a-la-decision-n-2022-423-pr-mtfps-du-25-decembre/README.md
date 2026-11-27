@@ -1,6 +1,6 @@
 # Rectificatif n° 2023-441/PR/MTFPS à la décision n° 2022-423/PR/MTFPS du 25 décembre 2022 constatant l’avancement d’échelons de M. Houssein Abdi Bogoreh, à titre de l’année 2021.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2023-441-pr-mtfps-a-la-decision-n-2022-423-pr-mtfps-du-25-decembre-2022-constatant-lavancement-dechelons-de-m-houssein-abdi-bogoreh-a-titre-de-l/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 24 du 31/12/2023 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2023-441-pr-mtfps-a-la-decision-n-2022-423-pr-mtfps-du-25-decembre-2022-constatant-lavancement-dechelons-de-m-houssein-abdi-bogoreh-a-titre-de-l/>
 
 En vigueur : 2024-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

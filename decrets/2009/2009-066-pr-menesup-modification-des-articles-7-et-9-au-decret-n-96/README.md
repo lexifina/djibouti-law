@@ -1,6 +1,6 @@
 # Décret n° 2009-066/PR/MENESUP portant modification des articles 7 et 9 au décret n° 96-0147/PR/MFEN relatifs aux indemnités, aux logements administratifs et aux avantages en natures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-066-pr-menesup-portant-modification-des-articles-7-et-9-au-decret-n96-0147-pr-mfen-relatifs-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natures/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-066-pr-menesup-portant-modification-des-articles-7-et-9-au-decret-n96-0147-pr-mfen-relatifs-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natures/>
 
 En vigueur : 2009-04-15 (date du Journal officiel qui le publie).
 

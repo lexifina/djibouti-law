@@ -1,6 +1,6 @@
 # Arrêté n° 2015-095/PR/MHUEAT portant approbation du Budget Prévisionnel pour l’exercice 2014 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-095-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2014-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-095-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2014-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2015-02-15 (date du Journal officiel qui le publie).
 

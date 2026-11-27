@@ -1,6 +1,6 @@
 # Décret n° n°42 le décret du 4 mai 1931, portant ratification pour l’ensemble des colonies françaises des conventions et arrangements du congrès postal universel de Madrid.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 295 du 30/06/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n42-le-decret-du-4-mai-1931-portant-ratification-pour-lensemble-des-colonies-francaises-des-conventions-et-arrangements-du-congres-postal-universel-de-madrid-2/>
+Décret · Journal officiel de la République de Djibouti, n° 295 du 30/06/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n42-le-decret-du-4-mai-1931-portant-ratification-pour-lensemble-des-colonies-francaises-des-conventions-et-arrangements-du-congres-postal-universel-de-madrid-2/>
 
 En vigueur : 1921-06-30 (date du Journal officiel qui le publie).
 

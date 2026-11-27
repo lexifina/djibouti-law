@@ -1,6 +1,6 @@
 # Décret n° 46-722 portant réorganisation du Conseil du contentieux administratif à la Cote française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-722-portant-reorganisation-du-conseil-du-contentieux-administratif-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-722-portant-reorganisation-du-conseil-du-contentieux-administratif-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 
@@ -23,7 +23,7 @@ Marius MoUTET
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

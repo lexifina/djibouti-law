@@ -1,6 +1,6 @@
 # Loi n° 196/an/81 du 10 août 1981 sur la coordination, l’obligation et le secret en matière de statistique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 01/10/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-81-du-10-aout-1981-sur-la-coordination-lobligation-et-le-secret-en-matiere-de-statistique/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 01/10/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-81-du-10-aout-1981-sur-la-coordination-lobligation-et-le-secret-en-matiere-de-statistique/>
 
 En vigueur : 1981-10-01 (date du Journal officiel qui le publie).
 

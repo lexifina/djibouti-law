@@ -1,6 +1,6 @@
 # Loi n° 96/AN/89/2ème L du budget ordinaire de l’exercice 1988.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-89-2eme-l-du-budget-ordinaire-de-lexercice-1988/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-89-2eme-l-du-budget-ordinaire-de-lexercice-1988/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

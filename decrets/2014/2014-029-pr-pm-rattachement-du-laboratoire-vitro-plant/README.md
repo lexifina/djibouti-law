@@ -1,6 +1,6 @@
 # Décret n° 2014-029/PR/PM portant rattachement du Laboratoire Vitro Plant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-029-pr-pm-portant-rattachement-du-laboratoire-vitro-plant/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 27/02/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-029-pr-pm-portant-rattachement-du-laboratoire-vitro-plant/>
 
 En vigueur : 2014-02-27 (date du Journal officiel qui le publie).
 

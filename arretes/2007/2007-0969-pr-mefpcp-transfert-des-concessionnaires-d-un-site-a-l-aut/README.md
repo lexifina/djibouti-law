@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0969/PR/MEFPCP portant transfert des concessionnaires d’un site à l’autre dans la zone de PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0969-pr-mefpcp-portant-transfert-des-concessionnaires-dun-site-a-lautre-dans-la-zone-de-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0969-pr-mefpcp-portant-transfert-des-concessionnaires-dun-site-a-lautre-dans-la-zone-de-pk-12/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

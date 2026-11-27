@@ -1,6 +1,6 @@
 # Décret n° 5-342-1925 Trésoreries coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 342 du 31/05/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-342-1925-tresoreries-coloniales-2/>
+Décret · Journal officiel de la République de Djibouti, n° 342 du 31/05/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-342-1925-tresoreries-coloniales-2/>
 
 En vigueur : 1925-05-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ CLÉMENTEL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

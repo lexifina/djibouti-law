@@ -1,6 +1,6 @@
 # Décret n° 90-029/PR/MCTT approuvant et rendant exécutolre le budget primitif 1990 Je l’Office national d’Approvislonnement et de Commeciallisation
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-029-pr-mctt-approuvant-et-rendant-executolre-le-budget-primitif-1990-je-loffice-national-dapprovislonnement-et-de-commeciallisation/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-029-pr-mctt-approuvant-et-rendant-executolre-le-budget-primitif-1990-je-loffice-national-dapprovislonnement-et-de-commeciallisation/>
 
 En vigueur : 1990-03-15 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

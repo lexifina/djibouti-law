@@ -1,6 +1,6 @@
 # Loi n° 77/AN/14/7ème L portant ratification par la République de Djibouti du Protocole de Nagoya sur l’accès aux ressources génétiques et le partage juste et équitable des avantages découlant de leur utilisation relatif à la Convention sur la Diversité Biologique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-14-7eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-nagoya-sur-lacces-aux-ressources-genetiques-et-le-partage-juste-et-equitable-des-avantages-decoulant-de/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-14-7eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-nagoya-sur-lacces-aux-ressources-genetiques-et-le-partage-juste-et-equitable-des-avantages-decoulant-de/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0217/PRE portant organisation du Symposium sur la langue somalie.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0217-pre-portant-organisation-du-symposium-sur-la-langue-somalie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0217-pre-portant-organisation-du-symposium-sur-la-langue-somalie/>
 
 En vigueur : 2002-03-31 (date du Journal officiel qui le publie).
 

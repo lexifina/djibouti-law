@@ -1,6 +1,6 @@
 # Décret n° le 28 janvier 1940 autorisant l’entrée des sujets et protégés français dans les cadres généraux des ingénieurs et des opérateurs et mécaniciens radioélectriciens coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-28-janvier-1940-autorisant-lentree-des-sujets-et-proteges-francais-dans-les-cadres-generaux-des-ingenieurs-et-des-operateurs-et-mecaniciens-radioelectriciens-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-28-janvier-1940-autorisant-lentree-des-sujets-et-proteges-francais-dans-les-cadres-generaux-des-ingenieurs-et-des-operateurs-et-mecaniciens-radioelectriciens-coloniaux/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

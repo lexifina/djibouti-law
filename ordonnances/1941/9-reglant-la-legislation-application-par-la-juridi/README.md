@@ -1,6 +1,6 @@
 # Ordonnance n° 9 réglant la législation application par la juridictions militaires des Forces Françaises Libres dans le Royaume-Uni et dans les territoires soumis à l’autorité du Gouvernement de S.M. Britannique dans le Royaume-Uni.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-9-reglant-la-legislation-application-par-la-juridictions-militaires-des-forces-francaises-libres-dans-le-royaume-uni-et-dans-les-territoires-soumis-a-lautorite-du-gouverne/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-9-reglant-la-legislation-application-par-la-juridictions-militaires-des-forces-francaises-libres-dans-le-royaume-uni-et-dans-les-territoires-soumis-a-lautorite-du-gouverne/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

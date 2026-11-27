@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Décrète :
 Art. ler. — L’Ecole normale est un établissement d’enseignement public destiné à la formation des instituteurs et des
 institutrices pour les écoles primaires relevant du ministre chargé de l’Education nationale. Une école primaire publique

@@ -1,6 +1,6 @@
 # Loi n° 131/AN97/3ème L Portant suppression de la Cour Supérieure de Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an97-3eme-l-portant-suppression-de-la-cour-superieure-de-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an97-3eme-l-portant-suppression-de-la-cour-superieure-de-justice/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

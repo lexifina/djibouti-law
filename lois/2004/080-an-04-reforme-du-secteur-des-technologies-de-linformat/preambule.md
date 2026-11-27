@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE 1 :
 OBJET DE LA LOI. CITATION ET INTERPRETATION

@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art. Ier. Le texte de l’article ler du décret No. 349 en date du 26 septembre 1941 vise ci-dessus est remplacé par le suivant :
 Par dérogation aux prescriptions de l’article 10 du décret du 31 mai 1862, portant règlement générai sur la comptabilité publique et suivant lesquelles aucun paiement ne peut être effectué que pour l’acquittement d’un service lait, les dépenses de transport de personnel ou de matériel sur des moyens de transport étrangers ou sur des moyens de transport français aboutissant à des territoires étrangers pourront être acquittées sur certification de rembarquement.

@@ -1,6 +1,6 @@
 # Loi n° 232/AN/87/1ère L portant approbation de l’adhésion de République de Djibouti à la Convention Internationale des Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/02/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-87-1ere-l-portant-approbation-de-ladhesion-de-republique-de-djibouti-a-la-convention-internationale-des-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/02/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-87-1ere-l-portant-approbation-de-ladhesion-de-republique-de-djibouti-a-la-convention-internationale-des-telecommunications/>
 
 En vigueur : 1987-02-15 (date du Journal officiel qui le publie).
 

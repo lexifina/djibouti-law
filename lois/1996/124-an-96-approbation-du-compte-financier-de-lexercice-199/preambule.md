@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Article ler : Le compte financer de l’exercice 1995 de l’Office des Postes et Télécommunications est approuvé pour les montants ci-après
 1. Opérations de fonctionnement
 Total des produits : quatre milliards cent cinquante huit millions sept cent cinquante-neuf mille six cent quarante huit francs Djibouti (4 .158.759.648 FD)

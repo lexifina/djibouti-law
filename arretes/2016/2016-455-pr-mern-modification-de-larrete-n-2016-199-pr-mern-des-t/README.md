@@ -1,8 +1,8 @@
 # Arrêté n° 2016-455/PR/MERN portant modification de l’Arrêté n° 2016-199/PR/MERN des Tarifs de vente d’Energie Electrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-455-pr-mern-portant-modification-de-larrete-n2016-199-pr-mern-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-455-pr-mern-portant-modification-de-larrete-n2016-199-pr-mern-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2016-06-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-06-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

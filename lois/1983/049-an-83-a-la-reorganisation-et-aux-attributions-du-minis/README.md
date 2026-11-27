@@ -1,6 +1,6 @@
 # Loi n° 49/AN/83/1ère L relative à la réorganisation et aux attributions du Ministère des Travaux Publics, de l’Urbanisme et du Logement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-83-1ere-l-relative-a-la-reorganisation-et-aux-attributions-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-83-1ere-l-relative-a-la-reorganisation-et-aux-attributions-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

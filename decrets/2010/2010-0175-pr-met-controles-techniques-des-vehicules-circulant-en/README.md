@@ -1,6 +1,6 @@
 # Décret n° 2010-0175/PR/MET relatif aux contrôles techniques des véhicules circulant en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0175-pr-met-relatif-aux-controles-techniques-des-vehicules-circulant-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0175-pr-met-relatif-aux-controles-techniques-des-vehicules-circulant-en-republique-de-djibouti/>
 
 En vigueur : 2010-09-15 (date du Journal officiel qui le publie).
 

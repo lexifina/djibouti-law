@@ -1,6 +1,6 @@
 # Arrêté n° 2013-376/PR/MDC portant fortification de l’huile vegetable destinée à la consommation humaine en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-376-pr-mdc-portant-fortification-de-lhuile-vegetable-destinee-a-la-consommation-humaine-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-376-pr-mdc-portant-fortification-de-lhuile-vegetable-destinee-a-la-consommation-humaine-en-republique-de-djibouti/>
 
 En vigueur : 2013-06-30 (date du Journal officiel qui le publie).
 

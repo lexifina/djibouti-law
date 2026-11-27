@@ -1,6 +1,6 @@
 # Loi n° 71-1060 relative à la délimitation des eaux territoriales françaises.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1060-relative-a-la-delimitation-des-eaux-territoriales-francaises/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1060-relative-a-la-delimitation-des-eaux-territoriales-francaises/>
 
 En vigueur : 1972-02-10 (date du Journal officiel qui le publie).
 

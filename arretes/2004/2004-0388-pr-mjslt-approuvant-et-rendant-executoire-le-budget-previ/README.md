@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0388/PR/MJSLT approuvant et rendant exécutoire le Budget Prévisionnel 2004 de l’Office National du Tourisme de Djibouti (ONTD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0388-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2004-de-loffice-national-du-tourisme-de-djibouti-ontd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0388-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2004-de-loffice-national-du-tourisme-de-djibouti-ontd/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0253/PR/MEFPCP portant attribution d’une parcelle de terrain sise aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0253-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0253-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

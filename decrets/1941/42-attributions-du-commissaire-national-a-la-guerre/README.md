@@ -1,6 +1,6 @@
 # Décret n° 42 relatif aux attributions du Commissaire National à la Guerre et à l’organisation générale du Commissariat National à la Guerre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-42-relatif-aux-attributions-du-commissaire-national-a-la-guerre-et-a-lorganisation-generale-du-commissariat-national-a-la-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-42-relatif-aux-attributions-du-commissaire-national-a-la-guerre-et-a-lorganisation-generale-du-commissariat-national-a-la-guerre/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

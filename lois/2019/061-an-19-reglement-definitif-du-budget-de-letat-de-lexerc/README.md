@@ -1,6 +1,6 @@
 # Loi de finances n° 61/AN/19/8ème L portant règlement définitif du Budget de l’Etat de l’Exercice 2018.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n61-an-19-8eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2018/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n61-an-19-8eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2018/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

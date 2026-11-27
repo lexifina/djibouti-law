@@ -1,8 +1,8 @@
 # Décret n° 2006-0107/PR/MID portant attribution d’une indemnité et avantages en nature au Directeur National de la Protection Civile Commandant le corps des sapeurs-Pompiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0107-pr-mid-portant-attribution-dune-indemnite-et-avantages-en-nature-au-directeur-national-de-la-protection-civile-commandant-le-corps-des-sapeurs-pompiers/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0107-pr-mid-portant-attribution-dune-indemnite-et-avantages-en-nature-au-directeur-national-de-la-protection-civile-commandant-le-corps-des-sapeurs-pompiers/>
 
-En vigueur : 2006-04-16 (date fixÃ©e par le texte).
+En vigueur : 2006-04-16 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2015-842/PR/MET portant composition des membres du Conseil d’Administration de l’Autorité de l’Aviation Civile.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-842-pr-met-portant-composition-des-membres-du-conseil-dadministration-de-lautorite-de-laviation-civile/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-842-pr-met-portant-composition-des-membres-du-conseil-dadministration-de-lautorite-de-laviation-civile/>
 
-En vigueur : 2015-12-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-12-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0117/PRE portant rachat par l’État djiboutien des parts détenues par l’Agence Française de Développement dans le capital de la Société Immobilière de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0117-pre-portant-rachat-par-letat-djiboutien-des-parts-detenues-par-lagence-francaise-de-developpement-dans-le-capital-de-la-societe-immobiliere-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0117-pre-portant-rachat-par-letat-djiboutien-des-parts-detenues-par-lagence-francaise-de-developpement-dans-le-capital-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 1999-08-15 (date du Journal officiel qui le publie).
 

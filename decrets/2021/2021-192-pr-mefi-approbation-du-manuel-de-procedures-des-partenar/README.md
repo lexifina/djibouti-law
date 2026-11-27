@@ -1,8 +1,8 @@
 # Décret n° 2021-192/PR/MEFI portant approbation du Manuel de procédures des Partenariats Public- Privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-192-pr-mefi-portant-approbation-du-manuel-de-procedures-des-partenariats-public-prive/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-192-pr-mefi-portant-approbation-du-manuel-de-procedures-des-partenariats-public-prive/>
 
-En vigueur : 2021-08-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-08-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

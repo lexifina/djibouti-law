@@ -1,6 +1,6 @@
 # Décret n° 80-012/PR/J portant réorganisation administrative du Charia de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-012-pr-j-portant-reorganisation-administrative-du-charia-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-012-pr-j-portant-reorganisation-administrative-du-charia-de-djibouti/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

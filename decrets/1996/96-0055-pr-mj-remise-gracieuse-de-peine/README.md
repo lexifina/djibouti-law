@@ -1,6 +1,6 @@
 # Décret n° 96-0055/PR/MJ portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0055-pr-mj-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0055-pr-mj-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 1996-06-30 (date du Journal officiel qui le publie).
 

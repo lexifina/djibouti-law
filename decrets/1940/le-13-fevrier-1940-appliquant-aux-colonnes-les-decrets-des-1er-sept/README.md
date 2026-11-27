@@ -1,6 +1,6 @@
 # Décret n° le 13 février 1940 appliquant aux colonnes les décrets des 1er septembre et 23 décembre 1939 relatifs à la situation des personnels des administrations de l’Etat en temps de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-fevrier-1940-appliquant-aux-colonnes-les-decrets-des-1er-septembre-et-23-decembre-1939-relatifs-a-la-situation-des-personnels-des-administrations-de-letat-en-temps-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-fevrier-1940-appliquant-aux-colonnes-les-decrets-des-1er-septembre-et-23-decembre-1939-relatifs-a-la-situation-des-personnels-des-administrations-de-letat-en-temps-de-guerre/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

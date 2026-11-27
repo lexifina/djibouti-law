@@ -1,6 +1,6 @@
 # Décret n° 51-383 portant fixation des taxes télégraphiques applicables par les voies françaises aux correspondances échangées entre les départements français d’Outre-Mer, le Territoires d’Outre-Mer de la République Française et les Territoires administrés comme tels, d’une part, et le I Maroc (à l’exclusion de la zone espa- I gnole) d’autre part.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-383-portant-fixation-des-taxes-telegraphiques-applicables-par-les-voies-francaises-aux-correspondances-echangees-entre-les-departements-francais-doutre-mer-le-territoires-doutr/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-383-portant-fixation-des-taxes-telegraphiques-applicables-par-les-voies-francaises-aux-correspondances-echangees-entre-les-departements-francais-doutre-mer-le-territoires-doutr/>
 
 En vigueur : 1951-07-01 (date du Journal officiel qui le publie).
 
@@ -35,7 +35,7 @@ d'Outre-Mer. Lucien COFFIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1– |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

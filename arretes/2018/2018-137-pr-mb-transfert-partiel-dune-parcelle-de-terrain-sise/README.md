@@ -1,6 +1,6 @@
 # Arrêté n° 2018-137/PR/MB portant transfert partiel d’une parcelle de terrain sise au lotissement Zone Portuaire
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-137-pr-mb-portant-transfert-partiel-dune-parcelle-de-terrain-sise-au-lotissement-zone-portuaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-137-pr-mb-portant-transfert-partiel-dune-parcelle-de-terrain-sise-au-lotissement-zone-portuaire/>
 
 En vigueur : 2018-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

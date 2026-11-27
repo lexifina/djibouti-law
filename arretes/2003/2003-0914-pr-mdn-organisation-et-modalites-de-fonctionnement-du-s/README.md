@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0914/PR/MDN portant organisation et modalités de fonctionnement du Service National Adapté.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0914-pr-mdn-portant-organisation-et-modalites-de-fonctionnement-du-service-national-adapte/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0914-pr-mdn-portant-organisation-et-modalites-de-fonctionnement-du-service-national-adapte/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 6-369-1927 Application aux colonies de la Guadeloupe, de la Martinique et de la Côte française des Somalis, de la loi du 18 avril 1918 modifiant le taux de l’intérêt légal.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 369 du 31/08/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-369-1927-application-aux-colonies-de-la-guadeloupe-de-la-martinique-et-de-la-cote-francaise-des-somalis-de-la-loi-du-18-avril-1918-modifiant-le-taux-de-linteret-legal/>
+Décret · Journal officiel de la République de Djibouti, n° 369 du 31/08/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-369-1927-application-aux-colonies-de-la-guadeloupe-de-la-martinique-et-de-la-cote-francaise-des-somalis-de-la-loi-du-18-avril-1918-modifiant-le-taux-de-linteret-legal/>
 
 En vigueur : 1927-08-31 (date du Journal officiel qui le publie).
 

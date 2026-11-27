@@ -1,6 +1,6 @@
 # Loi n° 94/AN/24/9ème L portant approbation des comptes financiers définitifs du FOGAD pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-24-9eme-l-portant-approbation-des-comptes-financiers-definitifs-du-fogad-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-24-9eme-l-portant-approbation-des-comptes-financiers-definitifs-du-fogad-pour-lexercice-2019/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

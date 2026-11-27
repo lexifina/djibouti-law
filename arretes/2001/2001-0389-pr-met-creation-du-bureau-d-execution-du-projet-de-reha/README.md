@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0389/PR/MET portant création du Bureau d’Exécution du Projet de Réhabilitation du Corridor International Routier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0389-pr-met-portant-creation-du-bureau-dexecution-du-projet-de-rehabilitation-du-corridor-international-routier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0389-pr-met-portant-creation-du-bureau-dexecution-du-projet-de-rehabilitation-du-corridor-international-routier/>
 
-En vigueur : 2001-05-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2001-05-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

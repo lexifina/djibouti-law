@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0472/PR/MI portant fermeture des frontières terrestres à l’occasion de la Fête de l’Indépendance du 27 juin 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0472-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0472-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2001/>
 
 En vigueur : 2001-06-30 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ MOHAMED HASSAN ABDILLAHI
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2023-081/PR/MD portant création de l’Inspection Générale de la Gendarme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-081-pr-md-portant-creation-de-linspection-generale-de-la-gendarme/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-081-pr-md-portant-creation-de-linspection-generale-de-la-gendarme/>
 
 En vigueur : 2023-03-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

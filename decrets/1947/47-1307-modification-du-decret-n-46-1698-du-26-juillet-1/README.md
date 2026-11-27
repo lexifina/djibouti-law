@@ -1,6 +1,6 @@
 # Décret n° 47-1307 portant modification du décret n° 46-1698 du 26 juillet 1946 portant réquisition des va leurs mobilières étrangères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1307-portant-modification-du-decret-n-46-1698-du-26-juillet-1946-portant-requisition-des-va-leurs-mobilieres-etrangeres/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1307-portant-modification-du-decret-n-46-1698-du-26-juillet-1946-portant-requisition-des-va-leurs-mobilieres-etrangeres/>
 
 En vigueur : 1947-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 127/AN/11/6ème L portant ratification du Protocole relatif au Protocole pour la répression d’actes illicites contre la sécurité de plates formes fixes situées sur le plateau continental.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-11-6eme-l-portant-ratification-du-protocole-relatif-au-protocole-pour-la-repression-dactes-illicites-contre-la-securite-de-plates-formes-fixes-situees-sur-le-plateau-continental/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-11-6eme-l-portant-ratification-du-protocole-relatif-au-protocole-pour-la-repression-dactes-illicites-contre-la-securite-de-plates-formes-fixes-situees-sur-le-plateau-continental/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 15-358-1926 réprimant l’usurpation des titres professionnels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 358 du 30/09/1926 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-15-358-1926-reprimant-lusurpation-des-titres-professionnels/>
+Loi · Journal officiel de la République de Djibouti, n° 358 du 30/09/1926 · <https://www.journalofficiel.dj/texte-juridique/loi-n-15-358-1926-reprimant-lusurpation-des-titres-professionnels/>
 
 En vigueur : 1926-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2017-073/PR/MTRA portant Organisation de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-073-pr-mtra-portant-organisation-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-073-pr-mtra-portant-organisation-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 82-0873/PR/FIN affectant au Ministère de la Défense nationale, une parcelle de terrain sise sise à Obock.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0873-pr-fin-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-sise-a-obock/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0873-pr-fin-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-sise-a-obock/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

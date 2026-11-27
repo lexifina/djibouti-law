@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0161/PR/MD annule et remplace l’arrêté n° 2007-0966/PR/MD du 5 décembre 2007, portant organisation et fonctionnement de l’Académie Militaire Inter-Armées (AMIA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0161-pr-md-annule-et-remplace-larrete-n2007-0966-pr-md-du-5-decembre-2007-portant-organisation-et-fonctionnement-de-lacademie-militaire-inter-armees-amia/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0161-pr-md-annule-et-remplace-larrete-n2007-0966-pr-md-du-5-decembre-2007-portant-organisation-et-fonctionnement-de-lacademie-militaire-inter-armees-amia/>
 
 En vigueur : 2012-02-29 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

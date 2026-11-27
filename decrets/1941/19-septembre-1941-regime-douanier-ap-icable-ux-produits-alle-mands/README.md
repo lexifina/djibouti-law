@@ -1,6 +1,6 @@
 # Décret n° 19 SEPTEMBRE 1941 Régime douanier ap; icable ; ux produits alle mands à ‘entrée en France, dans les colo nies cl les possessions .] outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-septembre-1941-regime-douanier-ap-icable-ux-produits-alle-mands-a-entree-en-france-dans-les-colo-nies-cl-les-possessions-outre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-septembre-1941-regime-douanier-ap-icable-ux-produits-alle-mands-a-entree-en-france-dans-les-colo-nies-cl-les-possessions-outre-mer/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

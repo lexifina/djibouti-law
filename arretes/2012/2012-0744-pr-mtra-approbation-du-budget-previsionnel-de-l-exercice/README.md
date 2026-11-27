@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0744/PR/MTRA portant approbation du Budget prévisionnel de l’exercice 2013 de la Caisse Nationale de Sécurité Sociale (CNSS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0744-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2013-de-la-caisse-nationale-de-securite-sociale-cnss/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0744-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2013-de-la-caisse-nationale-de-securite-sociale-cnss/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

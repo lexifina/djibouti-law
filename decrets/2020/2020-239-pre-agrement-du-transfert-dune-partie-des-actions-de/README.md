@@ -1,8 +1,8 @@
 # Décret n° 2020-239/PRE portant agrément du transfert d’une partie des actions de la Société Great Horn Investment Holding SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-239-pre-portant-agrement-du-transfert-dune-partie-des-actions-de-la-societe-great-horn-investment-holding-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-239-pre-portant-agrement-du-transfert-dune-partie-des-actions-de-la-societe-great-horn-investment-holding-sas/>
 
-En vigueur : 2020-09-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-09-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

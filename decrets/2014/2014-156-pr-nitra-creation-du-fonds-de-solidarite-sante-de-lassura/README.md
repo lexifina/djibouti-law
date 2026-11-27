@@ -1,8 +1,8 @@
 # Décret n° 2014-156/PR/NITRA portant création du Fonds de Solidarité Santé de l’Assurance Maladie Universelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-156-pr-nitra-portant-creation-du-fonds-de-solidarite-sante-de-lassurance-maladie-universelle/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-156-pr-nitra-portant-creation-du-fonds-de-solidarite-sante-de-lassurance-maladie-universelle/>
 
-En vigueur : 2014-06-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-06-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

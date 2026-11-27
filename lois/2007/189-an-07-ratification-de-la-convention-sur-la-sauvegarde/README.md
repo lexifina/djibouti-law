@@ -1,6 +1,6 @@
 # Loi n° 189/AN/07/5ème L portant ratification de la Convention sur la sauvegarde du patrimoine culturel immatériel 2003 de l’UNESCO.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-07-5eme-l-portant-ratification-de-la-convention-sur-la-sauvegarde-du-patrimoine-culturel-immateriel-2003-de-lunesco/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-07-5eme-l-portant-ratification-de-la-convention-sur-la-sauvegarde-du-patrimoine-culturel-immateriel-2003-de-lunesco/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

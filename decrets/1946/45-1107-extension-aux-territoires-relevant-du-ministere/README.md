@@ -1,6 +1,6 @@
 # Décret n° 45-1107 portant extension aux territoires relevant du ministère des colonies, autres que les Anilles et la Réunion, de l’ordonnance du 29 mai 1945 relative a la transcription de l’acte de décès en marge de l’acte de naissance du défunt.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1107-portant-extension-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-anilles-et-la-reunion-de-lordonnance-du-29-mai-1945-relative-a-la-transcription-de-lac/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1107-portant-extension-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-anilles-et-la-reunion-de-lordonnance-du-29-mai-1945-relative-a-la-transcription-de-lac/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 
@@ -22,5 +22,5 @@ François de MENTHON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

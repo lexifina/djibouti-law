@@ -1,8 +1,8 @@
 # Décret n° 2006-0004/PR/MS portant revalorisation et harmonisation des rémunérations du corps de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0004-pr-ms-portant-revalorisation-et-harmonisation-des-remunerations-du-corps-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0004-pr-ms-portant-revalorisation-et-harmonisation-des-remunerations-du-corps-de-la-sante/>
 
-En vigueur : 2006-01-02 (date fixÃ©e par le texte).
+En vigueur : 2006-01-02 (date fixée par le texte).
 
 ## Visas
 

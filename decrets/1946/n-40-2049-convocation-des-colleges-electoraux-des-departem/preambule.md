@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art 1. — LE collèges des Clectours et électrices citorens francais des départements de la Guadeloupe, de la Martinique, de la Réunion et de la Guyane francaise, ainsi que des territoires relevant du ministère de la France d’outre-mer composant l’Union Francaise, sont convoqués pour le dimanche 13 octobre à l’effet de procéder à ia consultation par voie de referendum prévue par l’article 3 de la loi du 2 novembre 1945.

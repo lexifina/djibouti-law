@@ -1,6 +1,6 @@
 # Décret n° 47-1354 rendant applicable dans les territoires relevant du ministère de la France d outre-mer autres que les départements d’outre-mer, l’Indochine, Madagascar et l’Afrique-Equatoriale française, la loi n » 47-898 du 23 mai 1947.. interprétant l’article 16 de la loi d’amnistie du 16 avril 1946.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1354-rendant-applicable-dans-les-territoires-relevant-du-ministere-de-la-france-d-outre-mer-autres-que-les-departements-doutre-mer-lindochine-madagascar-et-lafrique-e/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1354-rendant-applicable-dans-les-territoires-relevant-du-ministere-de-la-france-d-outre-mer-autres-que-les-departements-doutre-mer-lindochine-madagascar-et-lafrique-e/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

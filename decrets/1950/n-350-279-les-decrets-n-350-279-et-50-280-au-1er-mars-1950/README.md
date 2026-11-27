@@ -1,6 +1,6 @@
 # Décret n° n°° 350-279 les décrets n°° 350-279 et 50-280 au 1er mars 1950
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-350-279-les-decrets-n-350-279-et-50-280-au-1er-mars-1950/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-350-279-les-decrets-n-350-279-et-50-280-au-1er-mars-1950/>
 
 En vigueur : 1950-08-01 (date du Journal officiel qui le publie).
 
@@ -34,5 +34,5 @@ Edgar FAURE,
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0821/PRE portant fixation des droits de Chancellerie perçus par l’Ambassade de Djibouti au Japon.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0821-pre-portant-fixation-des-droits-de-chancellerie-percus-par-lambassade-de-djibouti-au-japon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0821-pre-portant-fixation-des-droits-de-chancellerie-percus-par-lambassade-de-djibouti-au-japon/>
 
 En vigueur : 2000-11-15 (date du Journal officiel qui le publie).
 

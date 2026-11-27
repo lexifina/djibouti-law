@@ -1,8 +1,8 @@
 # Loi n° 8/AN/18/8ème L portant création de la Société Immobilière et d’Aménagement Foncier (SIAF).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-18-8eme-l-portant-creation-de-la-societe-immobiliere-et-damenagement-foncier-siaf/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-18-8eme-l-portant-creation-de-la-societe-immobiliere-et-damenagement-foncier-siaf/>
 
-En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -80,4 +80,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

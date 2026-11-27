@@ -1,6 +1,6 @@
 # Décret n° 2011-063/PR/MCC portant construction d’un câble à fibre terrestre Djibouti-Loyada.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-063-pr-mcc-portant-construction-dun-cable-a-fibre-terrestre-djibouti-loyada/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-063-pr-mcc-portant-construction-dun-cable-a-fibre-terrestre-djibouti-loyada/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

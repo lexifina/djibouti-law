@@ -1,6 +1,6 @@
 # Décret n° 89-071/PR portant approbation d’un contrat réglant la concession pour la construction et l’exploitation d’une raffinerie de pétrole brut.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-071-pr-portant-approbation-dun-contrat-reglant-la-concession-pour-la-construction-et-lexploitation-dune-raffinerie-de-petrole-brut/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-071-pr-portant-approbation-dun-contrat-reglant-la-concession-pour-la-construction-et-lexploitation-dune-raffinerie-de-petrole-brut/>
 
 En vigueur : 1989-06-15 (date du Journal officiel qui le publie).
 

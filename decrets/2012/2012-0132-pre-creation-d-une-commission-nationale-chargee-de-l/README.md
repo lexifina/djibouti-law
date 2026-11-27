@@ -1,8 +1,8 @@
 # Décret n° 2012-0132/PRE portant création d’une Commission nationale chargée de l’élaboration et de la rédaction d’un projet de texte sur le Sénat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0132-pre-portant-creation-dune-commission-nationale-chargee-de-lelaboration-et-de-la-redaction-dun-projet-de-texte-sur-le-senat/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0132-pre-portant-creation-dune-commission-nationale-chargee-de-lelaboration-et-de-la-redaction-dun-projet-de-texte-sur-le-senat/>
 
-En vigueur : 2012-06-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-06-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

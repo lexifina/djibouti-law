@@ -1,6 +1,6 @@
 # Loi de finances n° 169/AN/85/1ère L portant modification des budgets ordinaires et extraordinaires de l’exercice 1985.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n169-an-85-1ere-l-portant-modification-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1985/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n169-an-85-1ere-l-portant-modification-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1985/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

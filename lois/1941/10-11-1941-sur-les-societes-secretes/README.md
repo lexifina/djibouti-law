@@ -1,6 +1,6 @@
 # Loi n° 10/11/1941 sur les sociétés secrètes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-10-11-1941-sur-les-societes-secretes/>
+Loi · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-10-11-1941-sur-les-societes-secretes/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ PLATON.
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

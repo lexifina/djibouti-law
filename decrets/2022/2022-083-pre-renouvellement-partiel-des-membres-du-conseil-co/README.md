@@ -1,6 +1,6 @@
 # Décret n° 2022-083/PRE portant renouvellement partiel des membres du Conseil Constitutionnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-083-pre-portant-renouvellement-partiel-des-membres-du-conseil-constitutionnel/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-083-pre-portant-renouvellement-partiel-des-membres-du-conseil-constitutionnel/>
 
 En vigueur : 2022-04-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

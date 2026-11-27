@@ -1,8 +1,8 @@
 # Décret n° 2017-142/PR/MHUE définissant les compétences et expériences requises pour la conception des plans architecturaux, la réalisation des plans de structure et la supervision des travaux de construction.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-142-pr-mhue-definissant-les-competences-et-experiences-requises-pour-la-conception-des-plans-architecturaux-la-realisation-des-plans-de-structure-et-la-supervision-des-travaux-de-c/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-142-pr-mhue-definissant-les-competences-et-experiences-requises-pour-la-conception-des-plans-architecturaux-la-realisation-des-plans-de-structure-et-la-supervision-des-travaux-de-c/>
 
-En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

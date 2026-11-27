@@ -1,6 +1,6 @@
 # Décret n° 2000-0258/PR/MDN attribuant des noms de baptême à des bâtiments de la marine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0258-pr-mdn-attribuant-des-noms-de-bapteme-a-des-batiments-de-la-marine/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0258-pr-mdn-attribuant-des-noms-de-bapteme-a-des-batiments-de-la-marine/>
 
 En vigueur : 2000-10-15 (date du Journal officiel qui le publie).
 

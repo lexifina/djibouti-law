@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0207/PR/MHUEAT approuvant le bilan d’ouverture du Fonds de l’Habitat arrêté à la date du 1er janvier 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0207-pr-mhueat-approuvant-le-bilan-douverture-du-fonds-de-lhabitat-arrete-a-la-date-du-1er-janvier-2002/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0207-pr-mhueat-approuvant-le-bilan-douverture-du-fonds-de-lhabitat-arrete-a-la-date-du-1er-janvier-2002/>
 
 En vigueur : 2004-04-15 (date du Journal officiel qui le publie).
 

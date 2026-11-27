@@ -1,6 +1,6 @@
 # Arrêté n° 2017-148/PR/MB portant de transfert des parcelles de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-148-pr-mb-portant-de-transfert-des-parcelles-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-148-pr-mb-portant-de-transfert-des-parcelles-de-terrain/>
 
 En vigueur : 2017-10-15 (date du Journal officiel qui le publie).
 

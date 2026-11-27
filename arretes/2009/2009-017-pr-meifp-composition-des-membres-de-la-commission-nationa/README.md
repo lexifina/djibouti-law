@@ -1,8 +1,8 @@
 # Arrêté n° 2009-017/PR/MEIFP portant composition des membres de la Commission nationale chargée d’établir le bilan d’ouverture de la Caisse Nationale de Sécurité Sociale (CNSS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-017-pr-meifp-portant-composition-des-membres-de-la-commission-nationale-chargee-detablir-le-bilan-douverture-de-la-caisse-nationale-de-securite-sociale-cnss/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-017-pr-meifp-portant-composition-des-membres-de-la-commission-nationale-chargee-detablir-le-bilan-douverture-de-la-caisse-nationale-de-securite-sociale-cnss/>
 
-En vigueur : 2009-01-08 (date fixÃ©e par le texte).
+En vigueur : 2009-01-08 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2012-096/PR/MEERN portant modification des Tarifs de vente d’Energie Electrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-096-pr-meern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-096-pr-meern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2012-02-06 (date fixÃ©e par le texte).
+En vigueur : 2012-02-06 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 86-056/PR/EN portant modification du décret n° 80-069/PR/EN du 14 juin 1980 sur l’Organisation de l’École Normale d’Instituteurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-056-pr-en-portant-modification-du-decret-n80-069-pr-en-du-14-juin-1980-sur-lorganisation-de-lecole-normale-dinstituteurs/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/08/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-056-pr-en-portant-modification-du-decret-n80-069-pr-en-du-14-juin-1980-sur-lorganisation-de-lecole-normale-dinstituteurs/>
 
 En vigueur : 1986-08-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2005-0062/PR/MEFPCP portant autorisation de vente immobilier de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0062-pr-mefpcp-portant-autorisation-de-vente-immobilier-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0062-pr-mefpcp-portant-autorisation-de-vente-immobilier-de-letat/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

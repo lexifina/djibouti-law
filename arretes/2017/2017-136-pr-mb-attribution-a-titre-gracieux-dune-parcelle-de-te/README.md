@@ -1,6 +1,6 @@
 # Arrêté n° 2017-136/PR/MB portant attribution à titre gracieux d’une parcelle de terrain de 4 ha sise à Nagad au Profit de la République Fédérale et Démocratique d’Ethiopie.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-136-pr-mb-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-de-4-ha-sise-a-nagad-au-profit-de-la-republique-federale-et-democratique-dethiopie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 14/09/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-136-pr-mb-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-de-4-ha-sise-a-nagad-au-profit-de-la-republique-federale-et-democratique-dethiopie/>
 
 En vigueur : 2017-09-14 (date du Journal officiel qui le publie).
 

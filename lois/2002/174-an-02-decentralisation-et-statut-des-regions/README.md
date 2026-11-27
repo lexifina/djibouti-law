@@ -1,6 +1,6 @@
 # Loi n° 174/AN/02/4ème L portant Décentralisation et Statut des Régions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-02-4eme-l-portant-decentralisation-et-statut-des-regions/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-02-4eme-l-portant-decentralisation-et-statut-des-regions/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 90-0105/PR/AE relatif au «Plan Polmer» applicable en cas de situation critique provoquée par une pollution marine accidentelle en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-0105-pr-ae-relatif-au-plan-polmer-applicable-en-cas-de-situation-critique-provoquee-par-une-pollution-marine-accidentelle-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-0105-pr-ae-relatif-au-plan-polmer-applicable-en-cas-de-situation-critique-provoquee-par-une-pollution-marine-accidentelle-en-republique-de-djibouti/>
 
 En vigueur : 1990-09-15 (date du Journal officiel qui le publie).
 

@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Chapitre I :
 LES DISPOSITIONS GENERALES

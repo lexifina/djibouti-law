@@ -1,6 +1,6 @@
 # Décret n° 2017-072/PR/MI portant réquisition des véhicules administratifs à l’occasion des Elections Régionales et Communales du 24 février et 17 mars 2017.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 08/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-072-pr-mi-portant-requisition-des-vehicules-administratifs-a-loccasion-des-elections-regionales-et-communales-du-24-fevrier-et-17-mars-2017/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 08/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-072-pr-mi-portant-requisition-des-vehicules-administratifs-a-loccasion-des-elections-regionales-et-communales-du-24-fevrier-et-17-mars-2017/>
 
 En vigueur : 2017-03-08 (date du Journal officiel qui le publie).
 

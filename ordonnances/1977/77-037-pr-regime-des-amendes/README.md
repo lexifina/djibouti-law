@@ -1,6 +1,6 @@
 # Ordonnance n° 77-037/PR modifiant le régime des amendes.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 24/10/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-037-pr-modifiant-le-regime-des-amendes/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 24/10/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-037-pr-modifiant-le-regime-des-amendes/>
 
 En vigueur : 1977-10-24 (date du Journal officiel qui le publie).
 

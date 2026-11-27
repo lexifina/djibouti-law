@@ -1,6 +1,6 @@
 # Loi n° 09-286-1920 prorogeant des délais d’application de la loi du 21 janvier 19418, relative aux marchés à livrer et autre contrats commerciaux conclus avant la guerre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 286 du 30/08/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-09-286-1920-prorogeant-des-delais-dapplication-de-la-loi-du-21-janvier-19418-relative-aux-marches-a-livrer-et-autre-contrats-commerciaux-conclus-avant-la-guerre/>
+Loi · Journal officiel de la République de Djibouti, n° 286 du 30/08/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-09-286-1920-prorogeant-des-delais-dapplication-de-la-loi-du-21-janvier-19418-relative-aux-marches-a-livrer-et-autre-contrats-commerciaux-conclus-avant-la-guerre/>
 
 En vigueur : 1920-08-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Le Hopiteau
 | [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2005-0042/PR/MENESUP modifiant l’organisation du baccalauréat technologique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0042-pr-menesup-modifiant-lorganisation-du-baccalaureat-technologique/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0042-pr-menesup-modifiant-lorganisation-du-baccalaureat-technologique/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

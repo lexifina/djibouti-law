@@ -1,8 +1,8 @@
 # Loi n° 102/AN/05/5ème L portant réforme des services de l’État chargés de la fiscalité et des domaines.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-05-5eme-l-portant-reforme-des-services-de-letat-charges-de-la-fiscalite-et-des-domaines/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-05-5eme-l-portant-reforme-des-services-de-letat-charges-de-la-fiscalite-et-des-domaines/>
 
-En vigueur : 2005-04-10 (date fixÃ©e par le texte).
+En vigueur : 2005-04-10 (date fixée par le texte).
 
 ## Visas
 

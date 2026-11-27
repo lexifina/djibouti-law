@@ -1,8 +1,8 @@
 # Décret n° 77-057/PR/DEF portant sur le paiement des dépenses des corps de troupe au titre des diverses prestations du service de la solde et de l’alimentation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-057-pr-def-portant-sur-le-paiement-des-depenses-des-corps-de-troupe-au-titre-des-diverses-prestations-du-service-de-la-solde-et-de-lalimentation/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-057-pr-def-portant-sur-le-paiement-des-depenses-des-corps-de-troupe-au-titre-des-diverses-prestations-du-service-de-la-solde-et-de-lalimentation/>
 
-En vigueur : 1977-11-15 (date fixÃ©e par le texte).
+En vigueur : 1977-11-15 (date fixée par le texte).
 
 ## Visas
 
@@ -23,5 +23,5 @@ HASSAN GOULED APTIDON,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

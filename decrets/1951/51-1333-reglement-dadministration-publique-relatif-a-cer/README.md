@@ -1,6 +1,6 @@
 # Décret n° 51-1333 portant règlement d’administration publique relatif à certaines transformations de grade dans le cadre général des transmissions de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1333-portant-reglement-dadministration-publique-relatif-a-certaines-transformations-de-grade-dans-le-cadre-general-des-transmissions-de-la-france-doutre-mer-2/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1333-portant-reglement-dadministration-publique-relatif-a-certaines-transformations-de-grade-dans-le-cadre-general-des-transmissions-de-la-france-doutre-mer-2/>
 
 En vigueur : 1952-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2004-0027/PR/MEFPP portant autorisation de mise en concession du Port de Pêche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0027-pr-mefpp-portant-autorisation-de-mise-en-concession-du-port-de-peche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 29/02/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0027-pr-mefpp-portant-autorisation-de-mise-en-concession-du-port-de-peche-de-djibouti/>
 
 En vigueur : 2004-02-29 (date du Journal officiel qui le publie).
 

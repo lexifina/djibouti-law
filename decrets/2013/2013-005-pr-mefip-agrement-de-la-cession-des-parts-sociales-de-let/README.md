@@ -1,6 +1,6 @@
 # Décret n° 2013-005/PR/MEFIP portant agrément de la cession des parts sociales de l’Etat dans la société Port de Djibouti SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-005-pr-mefip-portant-agrement-de-la-cession-des-parts-sociales-de-letat-dans-la-societe-port-de-djibouti-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-005-pr-mefip-portant-agrement-de-la-cession-des-parts-sociales-de-letat-dans-la-societe-port-de-djibouti-sa/>
 
 En vigueur : 2013-01-31 (date du Journal officiel qui le publie).
 

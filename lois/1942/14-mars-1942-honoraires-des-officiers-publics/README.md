@@ -1,6 +1,6 @@
 # Loi n° 14 mars 1942 relative aux honoraires des officiers publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-14-mars-1942-relative-aux-honoraires-des-officiers-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-14-mars-1942-relative-aux-honoraires-des-officiers-publics/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

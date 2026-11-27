@@ -1,6 +1,6 @@
 # Décret n° 46-1632 relatif aux indemnités pour frais de déplacement en France et en Afrique du Nord, des fonctionnaires, employés et agents des services colo niaux et locaux rétribués sur les budgets généraux et locaux des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1632-relatif-aux-indemnites-pour-frais-de-deplacement-en-france-et-en-afrique-du-nord-des-fonctionnaires-employes-et-agents-des-services-colo-niaux-et-locaux-retribues-sur-les-bud/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1632-relatif-aux-indemnites-pour-frais-de-deplacement-en-france-et-en-afrique-du-nord-des-fonctionnaires-employes-et-agents-des-services-colo-niaux-et-locaux-retribues-sur-les-bud/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

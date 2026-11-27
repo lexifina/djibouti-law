@@ -1,8 +1,8 @@
 # Décret n° 2019-250/PR/MENFOP créant le Certificat de Formation Professionnelle, définissant les conditions d’accès et de délivrance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-250-pr-menfop-creant-le-certificat-de-formation-professionnelle-definissant-les-conditions-dacces-et-de-delivrance/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-250-pr-menfop-creant-le-certificat-de-formation-professionnelle-definissant-les-conditions-dacces-et-de-delivrance/>
 
-En vigueur : 2019-10-07 (date fixÃ©e par le texte).
+En vigueur : 2019-10-07 (date fixée par le texte).
 
 ## Visas
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2001-0123/PR/MEFPP modifiant le décret n° 2000-0104/PRE portant création du Fonds de Développement Économique de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0123-pr-mefpp-modifiant-le-decret-n2000-0104-pre-portant-creation-du-fonds-de-developpement-economique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0123-pr-mefpp-modifiant-le-decret-n2000-0104-pre-portant-creation-du-fonds-de-developpement-economique-de-djibouti/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

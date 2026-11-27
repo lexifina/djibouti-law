@@ -1,6 +1,6 @@
 # Loi n° 97/AN/00/4ème L portant réorganisation du Ministère de l’Energie et des Ressources Naturelles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-00-4eme-l-portant-reorganisation-du-ministere-de-lenergie-et-des-ressources-naturelles/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-00-4eme-l-portant-reorganisation-du-ministere-de-lenergie-et-des-ressources-naturelles/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

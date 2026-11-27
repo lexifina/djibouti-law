@@ -1,8 +1,8 @@
 # Loi n° 3/AN/92/2e L portant réorganisation de la Caisse Nationale de Retraites.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-92-2e-l-portant-reorganisation-de-la-caisse-nationale-de-retraites/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-92-2e-l-portant-reorganisation-de-la-caisse-nationale-de-retraites/>
 
-En vigueur : 1992-10-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1992-10-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

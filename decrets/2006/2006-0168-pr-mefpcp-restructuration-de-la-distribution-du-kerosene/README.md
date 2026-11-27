@@ -1,6 +1,6 @@
 # Décret n° 2006-0168/PR/MEFPCP portant Restructuration de la Distribution du kérosène.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0168-pr-mefpcp-portant-restructuration-de-la-distribution-du-kerosene/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0168-pr-mefpcp-portant-restructuration-de-la-distribution-du-kerosene/>
 
 En vigueur : 2006-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0514/PR/MET portant approbation du budget prévision de l’Exercice 2006 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0514-pr-met-portant-approbation-du-budget-prevision-de-lexercice-2006-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0514-pr-met-portant-approbation-du-budget-prevision-de-lexercice-2006-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

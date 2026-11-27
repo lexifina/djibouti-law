@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0868/PR/MEFPCP Portant rectification des Arrêtés n° s 99-0824/PR/MEFPP et n° 99-0139/PR/MEFPP affectant des Parcelles de terrain au Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0868-pr-mefpcp-portant-rectification-des-arretes-ns-99-0824-pr-mefpp-et-n99-0139-pr-mefpp-affectant-des-parcelles-de-terrain-au-ministere-de-la-jeunesse-des-sports-des/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0868-pr-mefpcp-portant-rectification-des-arretes-ns-99-0824-pr-mefpp-et-n99-0139-pr-mefpp-affectant-des-parcelles-de-terrain-au-ministere-de-la-jeunesse-des-sports-des/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

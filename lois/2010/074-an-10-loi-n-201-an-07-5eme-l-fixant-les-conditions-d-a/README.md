@@ -1,6 +1,6 @@
 # Loi n° 74/AN/10/6ème L modifiant la loi n° 201/AN/07/5ème L fixant les conditions d’accès en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-10-6eme-l-modifiant-la-loi-n201-an-07-5eme-l-fixant-les-conditions-dacces-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-10-6eme-l-modifiant-la-loi-n201-an-07-5eme-l-fixant-les-conditions-dacces-en-republique-de-djibouti/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

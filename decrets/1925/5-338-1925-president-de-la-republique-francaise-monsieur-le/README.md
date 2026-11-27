@@ -1,6 +1,6 @@
 # Décret n° 5-338-1925 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE. Monsieur le Président,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 338 du 31/01/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-338-1925-au-president-de-la-republique-francaise-monsieur-le-president/>
+Décret · Journal officiel de la République de Djibouti, n° 338 du 31/01/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-338-1925-au-president-de-la-republique-francaise-monsieur-le-president/>
 
 En vigueur : 1925-01-31 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ Clèmentel.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 23/AN/83/1ère L complétant la loi n° 148/AN/80 portant création et statut du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-83-1ere-l-completant-la-loi-n-148-an-80-portant-creation-et-statut-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-83-1ere-l-completant-la-loi-n-148-an-80-portant-creation-et-statut-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

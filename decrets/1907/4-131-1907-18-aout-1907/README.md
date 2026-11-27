@@ -1,6 +1,6 @@
 # Décret n° 4-131-1907 le 18 août 1907.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 131 du 01/10/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-131-1907-le-18-aout-1907/>
+Décret · Journal officiel de la République de Djibouti, n° 131 du 01/10/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-131-1907-le-18-aout-1907/>
 
 En vigueur : 1907-10-01 (date du Journal officiel qui le publie).
 

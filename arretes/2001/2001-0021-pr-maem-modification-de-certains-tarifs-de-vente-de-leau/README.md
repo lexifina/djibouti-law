@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0021/PR/MAEM portant modification de certains tarifs de vente de l’eau.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0021-pr-maem-portant-modification-de-certains-tarifs-de-vente-de-leau/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0021-pr-maem-portant-modification-de-certains-tarifs-de-vente-de-leau/>
 
 En vigueur : 2001-01-15 (date du Journal officiel qui le publie).
 

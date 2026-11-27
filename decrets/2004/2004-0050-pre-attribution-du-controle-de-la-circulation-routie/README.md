@@ -1,6 +1,6 @@
 # Décret n° 2004-0050/PRE portant attribution du contrôle de la circulation routière à la Gendarmerie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0050-pre-portant-attribution-du-controle-de-la-circulation-routiere-a-la-gendarmerie/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0050-pre-portant-attribution-du-controle-de-la-circulation-routiere-a-la-gendarmerie/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

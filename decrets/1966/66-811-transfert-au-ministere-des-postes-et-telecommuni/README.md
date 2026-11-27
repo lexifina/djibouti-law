@@ -1,8 +1,8 @@
 # Décret n° 66-811 portant transfert au Ministère des Postes et Télécommunications d’attributions du Ministre d’Etat en matière des postes et télécommunications dans les territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-811-portant-transfert-au-ministere-des-postes-et-telecommunications-dattributions-du-ministre-detat-en-matiere-des-postes-et-telecommunications-dans-les-territoires-d/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-811-portant-transfert-au-ministere-des-postes-et-telecommunications-dattributions-du-ministre-detat-en-matiere-des-postes-et-telecommunications-dans-les-territoires-d/>
 
-En vigueur : 1967-01-01 (date fixÃ©e par le texte).
+En vigueur : 1967-01-01 (date fixée par le texte).
 
 ## Visas
 

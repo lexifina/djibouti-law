@@ -1,6 +1,6 @@
 # Rectificatif n° 70-198/SG/FP accordant une bonification d’ancienneté à un planton du cadre territorial.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1970 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-70-198-sg-fp-accordant-une-bonification-danciennete-a-un-planton-du-cadre-territorial/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 5 du 10/03/1970 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-70-198-sg-fp-accordant-une-bonification-danciennete-a-un-planton-du-cadre-territorial/>
 
 En vigueur : 1970-03-10 (date du Journal officiel qui le publie).
 

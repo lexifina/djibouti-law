@@ -1,6 +1,6 @@
 # Loi n° 116/AN/24/9ème L autorisant la ratification du Traité portant création de l’Autorité Intergouvemementale pour le Développement (IGAD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-24-9eme-l-autorisant-la-ratification-du-traite-portant-creation-de-lautorite-intergouvemementale-pour-le-developpement-igad/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-24-9eme-l-autorisant-la-ratification-du-traite-portant-creation-de-lautorite-intergouvemementale-pour-le-developpement-igad/>
 
 En vigueur : 2024-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

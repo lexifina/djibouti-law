@@ -1,6 +1,6 @@
 # Loi n° 103/AN/00/4ème L portant ratification de la Convention de Prêt entre la République de Djibouti et le Fonds Arabe de Développement Economique et Social (F.A.D.E.S), concernant la participation au financement du projet de logement sociaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-00-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social-f-a-d-e-s-concernant-la-participati/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-00-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social-f-a-d-e-s-concernant-la-participati/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

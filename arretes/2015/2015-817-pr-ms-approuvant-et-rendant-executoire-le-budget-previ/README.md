@@ -1,6 +1,6 @@
 # Arrêté n° 2015-817/PR/MS approuvant et rendant exécutoire le Budget prévisionnel 2016 du Centre National de Référence en Santé de la Reproduction “Housseina”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-817-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-817-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

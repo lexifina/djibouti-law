@@ -1,6 +1,6 @@
 # Erratum n° 13-449-1934 Direction du Personnel ct de la Comptabilité
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 449 du 30/04/1934 Â· <https://www.journalofficiel.dj/texte-juridique/erratum-n-13-449-1934-direction-du-personnel-ct-de-la-comptabilite/>
+Erratum · Journal officiel de la République de Djibouti, n° 449 du 30/04/1934 · <https://www.journalofficiel.dj/texte-juridique/erratum-n-13-449-1934-direction-du-personnel-ct-de-la-comptabilite/>
 
 En vigueur : 1934-04-30 (date du Journal officiel qui le publie).
 

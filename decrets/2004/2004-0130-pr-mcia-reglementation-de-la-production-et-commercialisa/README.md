@@ -1,6 +1,6 @@
 # Décret n° 2004-0130/PR/MCIA portant réglementation de la production et commercialisation du «Pain Populaire».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0130-pr-mcia-portant-reglementation-de-la-production-et-commercialisation-du-pain-populaire/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0130-pr-mcia-portant-reglementation-de-la-production-et-commercialisation-du-pain-populaire/>
 
 En vigueur : 2004-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 51-778 relatif au règlement par virements, par mandats-cartes et par chèques des dépenses et des créances de l’État, des territoires, des collectivités et établissements publics dans les territoires d’outre-Mer relevant de l’autorité du Ministre de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-778-relatif-au-reglement-par-virements-par-mandats-cartes-et-par-cheques-des-depenses-et-des-creances-de-letat-des-territoires-des-collectivites-et-etablissements-publics-dans/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-778-relatif-au-reglement-par-virements-par-mandats-cartes-et-par-cheques-des-depenses-et-des-creances-de-letat-des-territoires-des-collectivites-et-etablissements-publics-dans/>
 
 En vigueur : 1951-08-01 (date du Journal officiel qui le publie).
 

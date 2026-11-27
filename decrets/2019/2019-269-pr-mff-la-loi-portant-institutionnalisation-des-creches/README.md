@@ -1,6 +1,6 @@
 # Décret d’application n° 2019-269/PR/MFF de la loi portant institutionnalisation des crèches et des garderies.
 
-DÃ©cret d'application Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-dapplication-n2019-269-pr-mff-de-la-loi-portant-institutionnalisation-des-creches-et-des-garderies/>
+Décret d'application · Journal officiel de la République de Djibouti, n° 20 du 31/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-dapplication-n2019-269-pr-mff-de-la-loi-portant-institutionnalisation-des-creches-et-des-garderies/>
 
 En vigueur : 2019-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

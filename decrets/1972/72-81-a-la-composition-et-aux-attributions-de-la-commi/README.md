@@ -1,6 +1,6 @@
 # Décret n° 72-81 relatif à la composition et aux attributions de la commission de réforme visée à l’article 61 du code du service national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-81-relatif-a-la-composition-et-aux-attributions-de-la-commission-de-reforme-visee-a-larticle-61-du-code-du-service-national/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-81-relatif-a-la-composition-et-aux-attributions-de-la-commission-de-reforme-visee-a-larticle-61-du-code-du-service-national/>
 
 En vigueur : 1972-03-25 (date du Journal officiel qui le publie).
 

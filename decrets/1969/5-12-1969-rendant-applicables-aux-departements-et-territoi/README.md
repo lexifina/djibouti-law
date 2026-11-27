@@ -1,6 +1,6 @@
 # Décret n° 5/12/1969 rendant applicables aux départements et territoires d’outre-mer certaines dispositions du décret modifié du 25 août 1937 portant réglementation des bons de caisse.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-12-1969-rendant-applicables-aux-departements-et-territoires-doutre-mer-certaines-dispositions-du-decret-modifie-du-25-aout-1937-portant-reglementation-des-bons-de-caisse/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-12-1969-rendant-applicables-aux-departements-et-territoires-doutre-mer-certaines-dispositions-du-decret-modifie-du-25-aout-1937-portant-reglementation-des-bons-de-caisse/>
 
 En vigueur : 1969-03-10 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ MICHEL INCHAUSPÉ.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

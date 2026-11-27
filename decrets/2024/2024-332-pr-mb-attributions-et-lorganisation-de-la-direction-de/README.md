@@ -1,6 +1,6 @@
 # Décret n° 2024-332/PR/MB fixant les attributions et l’organisation de la Direction des Grandes Entreprises (DGE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-332-pr-mb-fixant-les-attributions-et-lorganisation-de-la-direction-des-grandes-entreprises-dge/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-332-pr-mb-fixant-les-attributions-et-lorganisation-de-la-direction-des-grandes-entreprises-dge/>
 
 En vigueur : 2024-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

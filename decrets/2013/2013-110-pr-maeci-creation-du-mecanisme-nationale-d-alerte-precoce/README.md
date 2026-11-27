@@ -1,8 +1,8 @@
 # Décret n° 2013-110/PR/MAECI portant création du Mécanisme Nationale d’Alerte Précoce et de Réactions aux Conflits pastoraux et urbains ou CEWERU.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-110-pr-maeci-portant-creation-du-mecanisme-nationale-dalerte-precoce-et-de-reactions-aux-conflits-pastoraux-et-urbains-ou-ceweru/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-110-pr-maeci-portant-creation-du-mecanisme-nationale-dalerte-precoce-et-de-reactions-aux-conflits-pastoraux-et-urbains-ou-ceweru/>
 
-En vigueur : 2013-06-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-06-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

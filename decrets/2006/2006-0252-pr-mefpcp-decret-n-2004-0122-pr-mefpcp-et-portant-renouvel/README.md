@@ -1,6 +1,6 @@
 # Décret n° 2006-0252/PR/MEFPCP modifiant le Décret n° 2004-0122/PR/MEFPCP et portant renouvellement des membres du Comité de Crédit du Fonds de Développement Économique (FDED).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0252-pr-mefpcp-modifiant-le-decret-n2004-0122-pr-mefpcp-et-portant-renouvellement-des-membres-du-comite-de-credit-du-fonds-de-developpement-economique-fded/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0252-pr-mefpcp-modifiant-le-decret-n2004-0122-pr-mefpcp-et-portant-renouvellement-des-membres-du-comite-de-credit-du-fonds-de-developpement-economique-fded/>
 
 En vigueur : 2006-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 18 février 1937 Application aux colonies, pays de protectorat et territoires sous mandat relevant du Ministère des colonies des décrets du 8 décembre 1936 concernant la définition des appellations d’origine contrôlées de certains vins
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-du-8-decembre-1936-concernant-la-definition-des/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-du-8-decembre-1936-concernant-la-definition-des/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

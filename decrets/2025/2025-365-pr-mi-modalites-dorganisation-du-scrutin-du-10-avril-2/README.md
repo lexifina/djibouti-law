@@ -1,6 +1,6 @@
 # Décret n° 2025-365/PR/MI fixant les modalités d’organisation du scrutin du 10 AVRIL 2026.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 08/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-365-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-10-avril-2026/>
+Décret · Journal officiel de la République de Djibouti, n° 01 du 08/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-365-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-10-avril-2026/>
 
 En vigueur : 2026-01-09 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 49-1622 portant modification du décret n° 49-529 du 15 avril 1949 au régime des soldes du personnel des cadres régis par décret relevant du Ministère de la Fiance d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1622-portant-modification-du-decret-n-49-529-du-15-avril-1949-au-regime-des-soldes-du-personnel-des-cadres-regis-par-decret-relevant-du-ministere-de-la-fiance-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1622-portant-modification-du-decret-n-49-529-du-15-avril-1949-au-regime-des-soldes-du-personnel-des-cadres-regis-par-decret-relevant-du-ministere-de-la-fiance-doutre-mer/>
 
 En vigueur : 1950-01-31 (date du Journal officiel qui le publie).
 

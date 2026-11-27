@@ -1,6 +1,6 @@
 # Décret n° 2009-0291/PR/MS portant statuts de l’Ecole de Médecine de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0291-pr-ms-portant-statuts-de-lecole-de-medecine-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0291-pr-ms-portant-statuts-de-lecole-de-medecine-de-djibouti/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 
@@ -109,4 +109,4 @@ Le Conseil des Ministres entendu en sa séance du 10 novembre 2009.
 | [art-051.md](art-051.md) | Article 51 |
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

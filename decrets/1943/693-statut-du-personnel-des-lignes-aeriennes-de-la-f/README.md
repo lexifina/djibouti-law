@@ -1,6 +1,6 @@
 # Décret n° 693 fixant le statut du personnel des lignes aériennes de la France Combattante et du Service Météorologique de l’Afrique Française Libre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/06/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-693-fixant-le-statut-du-personnel-des-lignes-aeriennes-de-la-france-combattante-et-du-service-meteorologique-de-lafrique-francaise-libre/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/06/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-693-fixant-le-statut-du-personnel-des-lignes-aeriennes-de-la-france-combattante-et-du-service-meteorologique-de-lafrique-francaise-libre/>
 
 En vigueur : 1943-06-01 (date du Journal officiel qui le publie).
 

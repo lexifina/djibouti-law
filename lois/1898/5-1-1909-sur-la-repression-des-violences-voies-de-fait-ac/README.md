@@ -1,6 +1,6 @@
 # Loi n° 5-1-1909 sur la répression des violences, voies de fait, actes de cruauté et ‘attentats Commis envers les enfants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 146 du 01/01/1909 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-1-1909-sur-la-repression-des-violences-voies-de-fait-actes-de-cruaute-et-attentats-commis-envers-les-enfants/>
+Loi · Journal officiel de la République de Djibouti, n° 146 du 01/01/1909 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-1-1909-sur-la-repression-des-violences-voies-de-fait-actes-de-cruaute-et-attentats-commis-envers-les-enfants/>
 
 En vigueur : 1909-01-01 (date du Journal officiel qui le publie).
 

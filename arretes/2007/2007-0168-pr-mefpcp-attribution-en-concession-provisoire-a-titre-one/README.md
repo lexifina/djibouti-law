@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0168/PR/MEFPCP portant attribution en concession provisoire à titre onéreux, une parcelle de terrain sise au Marabou.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0168-pr-mefpcp-portant-attribution-en-concession-provisoire-a-titre-onereux-une-parcelle-de-terrain-sise-au-marabou/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0168-pr-mefpcp-portant-attribution-en-concession-provisoire-a-titre-onereux-une-parcelle-de-terrain-sise-au-marabou/>
 
 En vigueur : 2007-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 26 mai 1937. Règlementation de ‘ameublement, de la domesticité et des frai* divers des hôtels des [ gouverneurs généraux, gouverneurs, secrétaires généraux et chefs d’administration des colonies, ainsi que des moyens de transport mis à la disposition des fonctionnaires colonial .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-mai-1937-reglementation-de-ameublement-de-la-domesticite-et-des-frai-divers-des-hotels-des-gouverneurs-generaux-gouverneurs-secretaires-generaux-et-chefs-da/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-mai-1937-reglementation-de-ameublement-de-la-domesticite-et-des-frai-divers-des-hotels-des-gouverneurs-generaux-gouverneurs-secretaires-generaux-et-chefs-da/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

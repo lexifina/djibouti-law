@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0064/PR/MID modifiant et complétant l’Arrêté n° 2008-0037/PR/MID fixant le nombre et l’Emplacement des bureaux de vote pour les Elections Législatives du Vendredi 08 Février 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 05/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0064-pr-mid-modifiant-et-completant-larrete-n2008-0037-pr-mid-fixant-le-nombre-et-lemplacement-des-bureaux-de-vote-pour-les-elections-legislatives-du-vendred/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 05/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0064-pr-mid-modifiant-et-completant-larrete-n2008-0037-pr-mid-fixant-le-nombre-et-lemplacement-des-bureaux-de-vote-pour-les-elections-legislatives-du-vendred/>
 
 En vigueur : 2008-02-05 (date du Journal officiel qui le publie).
 

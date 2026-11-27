@@ -1,6 +1,6 @@
 # Loi de Finances n° 45/AN/23/9ème L portant budget rectificatif de l’Etat pour l’exercice 2023.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-45-an-23-9eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2023/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-45-an-23-9eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2023/>
 
 En vigueur : 2024-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0443/PR/MEFPCP portant attribution à titre gracieux d’une parcelle de terrain d’une superficie de 50 ha à Hanlé 1 à la Société Djiboutienne de Production et d’Expérimentation Agricole.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0443-pr-mefpcp-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-50-ha-a-hanle-1-a-la-societe-djiboutienne-de-production-et-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0443-pr-mefpcp-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-50-ha-a-hanle-1-a-la-societe-djiboutienne-de-production-et-d/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

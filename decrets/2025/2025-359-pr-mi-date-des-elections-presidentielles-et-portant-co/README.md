@@ -1,6 +1,6 @@
 # Décret n° 2025-359/PR/MI fixant la date des élections présidentielles et portant convocation du collège électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 08/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-359-pr-mi-fixant-la-date-des-elections-presidentielles-et-portant-convocation-du-college-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 01 du 08/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-359-pr-mi-fixant-la-date-des-elections-presidentielles-et-portant-convocation-du-college-electoral/>
 
 En vigueur : 2026-01-09 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

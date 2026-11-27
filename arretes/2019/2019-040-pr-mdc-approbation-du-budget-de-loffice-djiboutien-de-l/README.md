@@ -1,6 +1,6 @@
 # Arrêté n° 2019-040/PR/MDC portant approbation du Budget de l’Office Djiboutien de la Propriété Industrielle et Commerciale de l’année 2019.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-040-pr-mdc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2019/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-040-pr-mdc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2019/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

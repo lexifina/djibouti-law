@@ -1,6 +1,6 @@
 # Décret n° 30-468-1935 Réglementation de l’assistance judiciaire à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-468-1935-reglementation-de-lassistance-judiciaire-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-468-1935-reglementation-de-lassistance-judiciaire-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ Louis RROLLIN,
 | [art-010.md](art-010.md) | Art.10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

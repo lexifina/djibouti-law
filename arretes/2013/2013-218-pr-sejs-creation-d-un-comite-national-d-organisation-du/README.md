@@ -1,6 +1,6 @@
 # Arrêté n° 2013-218/PR/SEJS portant creation d’un Comité National d’Organisation du Tournoi Continental de l’IHF Trophy Feminin et Masculin de Handball.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-218-pr-sejs-portant-creation-dun-comite-national-dorganisation-du-tournoi-continental-de-lihf-trophy-feminin-et-masculin-de-handball/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-218-pr-sejs-portant-creation-dun-comite-national-dorganisation-du-tournoi-continental-de-lihf-trophy-feminin-et-masculin-de-handball/>
 
 En vigueur : 2013-03-31 (date du Journal officiel qui le publie).
 

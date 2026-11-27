@@ -1,6 +1,6 @@
 # Décret n° 2 février 1937 Application dans les territoires d’outre-mer de la loi du 16 juin 1933 et du décret du 1er septembre 1934 sur la sécurité de la navigation et sur l’hygiène à bord des navires immatriculés dans la métropole.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-fevrier-1937-application-dans-les-territoires-doutre-mer-de-la-loi-du-16-juin-1933-et-du-decret-du-1er-septembre-1934-sur-la-securite-de-la-navigation-et-sur-lhygiene-a-bo/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-fevrier-1937-application-dans-les-territoires-doutre-mer-de-la-loi-du-16-juin-1933-et-du-decret-du-1er-septembre-1934-sur-la-securite-de-la-navigation-et-sur-lhygiene-a-bo/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

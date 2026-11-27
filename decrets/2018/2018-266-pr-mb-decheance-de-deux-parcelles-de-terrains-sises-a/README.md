@@ -1,8 +1,8 @@
 # Décret n° 2018-266/PR/MB portant la déchéance de deux parcelles de terrains sises à Balbala au Nord de la Route d’Arta
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 13/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-266-pr-mb-portant-la-decheance-de-deux-parcelles-de-terrains-sises-a-balbala-au-nord-de-la-route-darta/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 13/09/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-266-pr-mb-portant-la-decheance-de-deux-parcelles-de-terrains-sises-a-balbala-au-nord-de-la-route-darta/>
 
-En vigueur : 2018-09-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-09-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2013-579PR/MDC portant modification de l’Arrêté n° 2012-118/PR/MDCC relatif à la redevance sur les nuitées des chambres d’hôtel.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-579pr-mdc-portant-modification-de-larrete-n2012-118-pr-mdcc-relatif-a-la-redevance-sur-les-nuitees-des-chambres-dhotel/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-579pr-mdc-portant-modification-de-larrete-n2012-118-pr-mdcc-relatif-a-la-redevance-sur-les-nuitees-des-chambres-dhotel/>
 
 En vigueur : 2013-09-15 (date du Journal officiel qui le publie).
 

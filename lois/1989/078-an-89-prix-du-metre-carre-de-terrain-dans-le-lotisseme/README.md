@@ -1,6 +1,6 @@
 # Loi n° 78/AN/89/2ème L fixant le prix du mètre carré de terrain dans le lotissement « Gabode V ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-89-2eme-l-fixant-le-prix-du-metre-carre-de-terrain-dans-le-lotissement-gabode-v/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-89-2eme-l-fixant-le-prix-du-metre-carre-de-terrain-dans-le-lotissement-gabode-v/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

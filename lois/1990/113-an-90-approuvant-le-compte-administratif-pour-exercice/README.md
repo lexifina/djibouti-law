@@ -1,6 +1,6 @@
 # Loi n° 113/AN/90/2e L approuvant le compte administratif, pour exercice 1988 de l’ Etablisement public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-90-2e-l-approuvant-le-compte-administratif-pour-exercice-1988-de-l-etablisement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-90-2e-l-approuvant-le-compte-administratif-pour-exercice-1988-de-l-etablisement-public-des-hydrocarbures/>
 
 En vigueur : 1990-03-15 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

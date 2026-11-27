@@ -1,6 +1,6 @@
 # Décret n° 2022-119/PR/MD portant création et mission du 9° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-119-pr-md-portant-creation-et-mission-du-9-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-119-pr-md-portant-creation-et-mission-du-9-bataillon-releve/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

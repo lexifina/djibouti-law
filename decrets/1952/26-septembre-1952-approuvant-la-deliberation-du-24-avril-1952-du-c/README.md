@@ -1,6 +1,6 @@
 # Décret n° 26 SEPTEMBRE 1952 approuvant la délibération du 24 avril 1952 du Conseil Représentatif de la Côte Française des Somalis modifiant la règlemtation de l’Enregistrement et du Timbre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-septembre-1952-approuvant-la-deliberation-du-24-avril-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-la-reglemtation-de-lenregistrement-et-du-timbre/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-septembre-1952-approuvant-la-deliberation-du-24-avril-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-la-reglemtation-de-lenregistrement-et-du-timbre/>
 
 En vigueur : 1952-12-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 68-1181 relative à l’exploration du plateau continental et à l’exploitation de ses ressources naturelles
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1969 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-68-1181-relative-a-lexploration-du-plateau-continental-et-a-lexploitation-de-ses-ressources-naturelles/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 10/03/1969 · <https://www.journalofficiel.dj/texte-juridique/loi-n-68-1181-relative-a-lexploration-du-plateau-continental-et-a-lexploitation-de-ses-ressources-naturelles/>
 
 En vigueur : 1969-03-10 (date du Journal officiel qui le publie).
 
@@ -18,6 +18,6 @@ André BETTENCOURT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

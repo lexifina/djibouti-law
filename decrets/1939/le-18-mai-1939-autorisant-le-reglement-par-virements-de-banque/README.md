@@ -1,6 +1,6 @@
 # Décret n° le 18 mai 1939 autorisant le règlement par virements de banque et par chèques des dépenses et des créances de l’Etat, de la colonie et des collectivités et établissements publics,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-mai-1939-autorisant-le-reglement-par-virements-de-banque-et-par-cheques-des-depenses-et-des-creances-de-letat-de-la-colonie-et-des-collectivites-et-etablissements-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-mai-1939-autorisant-le-reglement-par-virements-de-banque-et-par-cheques-des-depenses-et-des-creances-de-letat-de-la-colonie-et-des-collectivites-et-etablissements-publics/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 

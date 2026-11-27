@@ -1,6 +1,6 @@
 # Loi n° 56/AN/99/4ème L portant Loi de Finances rectificative pour l’exercice 1999.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-99-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-99-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-1999/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 

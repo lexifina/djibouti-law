@@ -1,6 +1,6 @@
 # Loi n° 15-163-1910 modifiant le point de départ du délai de dix mois imposé à la femme divorcée avant de se remarier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 163 du 01/06/1910 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-15-163-1910-modifiant-le-point-de-depart-du-delai-de-dix-mois-impose-a-la-femme-divorcee-avant-de-se-remarier/>
+Loi · Journal officiel de la République de Djibouti, n° 163 du 01/06/1910 · <https://www.journalofficiel.dj/texte-juridique/loi-n-15-163-1910-modifiant-le-point-de-depart-du-delai-de-dix-mois-impose-a-la-femme-divorcee-avant-de-se-remarier/>
 
 En vigueur : 1910-06-01 (date du Journal officiel qui le publie).
 

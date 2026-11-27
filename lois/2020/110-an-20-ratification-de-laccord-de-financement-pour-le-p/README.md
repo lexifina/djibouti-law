@@ -1,6 +1,6 @@
 # Loi n° 110/AN/20/8ème L portant ratification de l’accord de financement pour le projet de réhabilitation de la route Djibouti-Galafi.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-20-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-rehabilitation-de-la-route-djibouti-galafi/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-20-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-rehabilitation-de-la-route-djibouti-galafi/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

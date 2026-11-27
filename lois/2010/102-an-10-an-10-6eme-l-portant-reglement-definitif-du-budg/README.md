@@ -1,6 +1,6 @@
 # Loi n° 102/AN/10/6ème L /AN/10/6ème L portant règlement définitif du Budget de l’Etat pour l’Exercice 2009.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-10-6eme-l-an-10-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2009/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-10-6eme-l-an-10-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2009/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

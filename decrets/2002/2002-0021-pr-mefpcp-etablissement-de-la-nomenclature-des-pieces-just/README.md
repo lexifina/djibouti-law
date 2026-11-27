@@ -1,6 +1,6 @@
 # Décret n° 2002-0021/PR/MEFPCP portant établissement de la nomenclature des pièces justificatives des dépenses de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0021-pr-mefpcp-portant-etablissement-de-la-nomenclature-des-pieces-justificatives-des-depenses-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0021-pr-mefpcp-portant-etablissement-de-la-nomenclature-des-pieces-justificatives-des-depenses-de-letat/>
 
 En vigueur : 2002-02-14 (date du Journal officiel qui le publie).
 

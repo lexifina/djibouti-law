@@ -1,6 +1,6 @@
 # Décret n° 46-2356 déterminant les conditions dans lesquelles la Caisse centrale de la France d’outre mer effectue les opérations autorisées par la loi du 30 avril 1946
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2356-determinant-les-conditions-dans-lesquelles-la-caisse-centrale-de-la-france-doutre-mer-effectue-les-operations-autorisees-par-la-loi-du-30-avril-1946/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2356-determinant-les-conditions-dans-lesquelles-la-caisse-centrale-de-la-france-doutre-mer-effectue-les-operations-autorisees-par-la-loi-du-30-avril-1946/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

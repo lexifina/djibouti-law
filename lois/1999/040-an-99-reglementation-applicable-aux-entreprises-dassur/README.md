@@ -1,6 +1,6 @@
 # Loi n° 40/AN/99/4éme L fixant la réglementation applicable aux entreprises d’assurance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-99-4eme-l-fixant-la-reglementation-applicable-aux-entreprises-dassurance/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-99-4eme-l-fixant-la-reglementation-applicable-aux-entreprises-dassurance/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 
@@ -183,4 +183,4 @@ ISMAÏL OMAR GUELLEH
 | [art-169.md](art-169.md) | Article 169 |
 | [art-170.md](art-170.md) | Article 170 |
 | [art-170-bis.md](art-170-bis.md) | Article 170 bis |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

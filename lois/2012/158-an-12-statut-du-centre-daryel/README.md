@@ -1,6 +1,6 @@
 # Loi n° 158/AN/12/6ème L portant statut du centre DARYEL.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-12-6eme-l-portant-statut-du-centre-daryel/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-12-6eme-l-portant-statut-du-centre-daryel/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 
@@ -54,4 +54,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

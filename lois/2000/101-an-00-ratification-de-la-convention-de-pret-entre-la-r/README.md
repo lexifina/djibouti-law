@@ -1,6 +1,6 @@
 # Loi n° 101/AN/00/4ème L portant ratification de la Convention de Prêt entre la République de Djibouti et le Fond Arabe de Développement Economique et Social pour la contribution au financement du projet d’extension du Port de Djibouti (4ème Phase).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-00-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fond-arabe-de-developpement-economique-et-social-pour-la-contribution-au-financement-du/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-00-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fond-arabe-de-developpement-economique-et-social-pour-la-contribution-au-financement-du/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

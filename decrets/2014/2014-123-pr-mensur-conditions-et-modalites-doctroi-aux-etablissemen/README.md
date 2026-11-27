@@ -1,6 +1,6 @@
 # Décret n° 2014-123/PR/MENSUR fixant les conditions et modalités d’octroi, aux établissements privés d’enseignement supérieur, de l’accréditation des filières de formation et de son retrait.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-123-pr-mensur-fixant-les-conditions-et-modalites-doctroi-aux-etablissements-prives-denseignement-superieur-de-laccreditation-des-filieres-de-formation-et-de-son-retrait/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-123-pr-mensur-fixant-les-conditions-et-modalites-doctroi-aux-etablissements-prives-denseignement-superieur-de-laccreditation-des-filieres-de-formation-et-de-son-retrait/>
 
 En vigueur : 2014-05-15 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

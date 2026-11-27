@@ -1,6 +1,6 @@
 # Loi n° 212/AN/86/1ère L portant création d’un fonds d’investissement pour la maîtrise de l’énergie en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/10/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-86-1ere-l-portant-creation-dun-fonds-dinvestissement-pour-la-maitrise-de-lenergie-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/10/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-86-1ere-l-portant-creation-dun-fonds-dinvestissement-pour-la-maitrise-de-lenergie-en-republique-de-djibouti/>
 
 En vigueur : 1986-10-15 (date du Journal officiel qui le publie).
 

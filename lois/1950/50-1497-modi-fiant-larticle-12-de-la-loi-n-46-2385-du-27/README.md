@@ -1,6 +1,6 @@
 # Loi n° 50-1497 modi fiant l’article 12 de la loi n» 46-2385 du 27 octobre 1946 sur la composition cl •l’élection, de l’Assemblée de l’Union franceaise. (J. O. du 2 décembre 1950, page 12199.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1950 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-1497-modi-fiant-larticle-12-de-la-loi-n-46-2385-du-27-octobre-1946-sur-la-composition-cl-lelection-de-lassemblee-de-lunion-franceaise-j-o-du-2-decembre-1/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 31/12/1950 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-1497-modi-fiant-larticle-12-de-la-loi-n-46-2385-du-27-octobre-1946-sur-la-composition-cl-lelection-de-lassemblee-de-lunion-franceaise-j-o-du-2-decembre-1/>
 
 En vigueur : 1950-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 51-1185 modifiant les régimes de rémunération et de prestations familiales des militaires à solde mensuelle et à solde spéciale progressive entretenus au compte du budget du Ministère de la France d’Outre-Mer dans les territoires relevant dudit Ministère.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1185-modifiant-les-regimes-de-remuneration-et-de-prestations-familiales-des-militaires-a-solde-mensuelle-et-a-solde-speciale-progressive-entretenus-au-compte-du-budget-du-ministere/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1185-modifiant-les-regimes-de-remuneration-et-de-prestations-familiales-des-militaires-a-solde-mensuelle-et-a-solde-speciale-progressive-entretenus-au-compte-du-budget-du-ministere/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

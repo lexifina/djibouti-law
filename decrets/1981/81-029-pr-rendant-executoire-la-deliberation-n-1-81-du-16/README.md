@@ -1,6 +1,6 @@
 # Décret n° 81-029/PR rendant exécutoire la délibération n° 1-81 du 16 février 1981 du Conseil d’Administration de l’Office des Postes et Télécommunications portant approbation du budget primitif pour l’exercice 1981.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-029-pr-rendant-executoire-la-deliberation-n1-81-du-16-fevrier-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget-primi/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-029-pr-rendant-executoire-la-deliberation-n1-81-du-16-fevrier-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budget-primi/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

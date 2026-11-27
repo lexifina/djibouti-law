@@ -1,6 +1,6 @@
 # Loi n° 69-1165 DU 24 DECEMBRE 1969 complétant l’article 11 du Code pénal en vigueur aux Comores, aux îles Wallis et Futuna, à la Nouvelle-Calédonie et dépendances, à la Polynésie française, à Saint-Pierre et Miquelon et dans le Territoire Français des Afars et des Issas.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-69-1165-du-24-decembre-1969-completant-larticle-11-du-code-penal-en-vigueur-aux-comores-aux-iles-wallis-et-futuna-a-la-nouvelle-caledonie-et-dependances-a-la-polynesie-francai/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 10/04/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-69-1165-du-24-decembre-1969-completant-larticle-11-du-code-penal-en-vigueur-aux-comores-aux-iles-wallis-et-futuna-a-la-nouvelle-caledonie-et-dependances-a-la-polynesie-francai/>
 
 En vigueur : 1970-04-10 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Henry REY.
 | Fichier | Disposition |
 | --- | --- |
 | [art-unique.md](art-unique.md) | Article unique |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

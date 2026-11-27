@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0149/PR/MPI portant Agrément au Code des Investissements de la Société “ORIENTAL AFRICAN LOGISTIC”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0149-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-oriental-african-logistic/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0149-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-oriental-african-logistic/>
 
 En vigueur : 2010-03-15 (date du Journal officiel qui le publie).
 

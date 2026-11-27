@@ -1,6 +1,6 @@
 # Loi n° 96/AN/00/4ème L portant orientation du système éducatif djiboutien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-00-4eme-l-portant-orientation-du-systeme-educatif-djiboutien/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-00-4eme-l-portant-orientation-du-systeme-educatif-djiboutien/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 
@@ -111,4 +111,4 @@ ISMAÏL OMAR GUELLEH
 | [art-090.md](art-090.md) | Article 90 |
 | [art-091.md](art-091.md) | Article 91 |
 | [art-092.md](art-092.md) | Article 92 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

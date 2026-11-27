@@ -1,8 +1,8 @@
 # Décret n° 2008-0026/PR portant sur le Statut Particulier de l’Agence Djiboutienne de Développement Social (ADDS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0026-pr-portant-sur-le-statut-particulier-de-lagence-djiboutienne-de-developpement-social-adds/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0026-pr-portant-sur-le-statut-particulier-de-lagence-djiboutienne-de-developpement-social-adds/>
 
-En vigueur : 2008-01-20 (date fixÃ©e par le texte).
+En vigueur : 2008-01-20 (date fixée par le texte).
 
 ## Visas
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-060.md](art-060.md) | Article 60 |
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

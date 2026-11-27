@@ -1,6 +1,6 @@
 # Décret n° 34-407-1930 Taux de l’indemnité d’absence temporaire et des indemnités de déplacement allouées au personnel militaire en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-34-407-1930-taux-de-lindemnite-dabsence-temporaire-et-des-indemnites-de-deplacement-allouees-au-personnel-militaire-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-34-407-1930-taux-de-lindemnite-dabsence-temporaire-et-des-indemnites-de-deplacement-allouees-au-personnel-militaire-en-service-aux-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 

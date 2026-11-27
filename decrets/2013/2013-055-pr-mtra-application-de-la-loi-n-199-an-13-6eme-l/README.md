@@ -1,6 +1,6 @@
 # Décret n° 2013-055/PR/MTRA portant application de la loi n° 199/AN/13/6ème L.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-055-pr-mtra-portant-application-de-la-loi-n199-an-13-6eme-l/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-055-pr-mtra-portant-application-de-la-loi-n199-an-13-6eme-l/>
 
 En vigueur : 2013-04-15 (date du Journal officiel qui le publie).
 
@@ -64,4 +64,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

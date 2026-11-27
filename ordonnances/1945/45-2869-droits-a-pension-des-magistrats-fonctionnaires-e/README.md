@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2869 relative aux droits a pension des magistrats, fonctionnaires et agents de l’État, ainsi que des militaires ayant fait l’objet de certaines mesures disciplinaires prévues par l’ordonnance du 27 juin 1944 sur l’épuration administrative
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2869-relative-aux-droits-a-pension-des-magistrats-fonctionnaires-et-agents-de-letat-ainsi-que-des-militaires-ayant-fait-lobjet-de-certaines-mesures-disciplin/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2869-relative-aux-droits-a-pension-des-magistrats-fonctionnaires-et-agents-de-letat-ainsi-que-des-militaires-ayant-fait-lobjet-de-certaines-mesures-disciplin/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

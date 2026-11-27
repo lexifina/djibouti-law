@@ -1,6 +1,6 @@
 # Décret n° 11 février 1938 complétant le décret du 31 décembre 1935 relatif au délais. Les sement forfaitaire des marins blessés ou malades.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 497 du 30/04/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-fevrier-1938-completant-le-decret-du-31-decembre-1935-relatif-au-delais-les-sement-forfaitaire-des-marins-blesses-ou-malades/>
+Décret · Journal officiel de la République de Djibouti, n° 497 du 30/04/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-fevrier-1938-completant-le-decret-du-31-decembre-1935-relatif-au-delais-les-sement-forfaitaire-des-marins-blesses-ou-malades/>
 
 En vigueur : 1938-04-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Paul MARCHANDEAU.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

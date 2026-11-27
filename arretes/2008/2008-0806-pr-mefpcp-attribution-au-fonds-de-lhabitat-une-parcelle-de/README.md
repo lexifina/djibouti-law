@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0806/PR/MEFPCP portant attribution au Fonds de l’Habitat, une parcelle de terrain sise au PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0806-pr-mefpcp-portant-attribution-au-fonds-de-lhabitat-une-parcelle-de-terrain-sise-au-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0806-pr-mefpcp-portant-attribution-au-fonds-de-lhabitat-une-parcelle-de-terrain-sise-au-pk-12/>
 
 En vigueur : 2008-11-15 (date du Journal officiel qui le publie).
 

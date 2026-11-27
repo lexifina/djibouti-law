@@ -1,6 +1,6 @@
 # Décret n° 11-350-1926 Budget local de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 350 du 31/01/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-350-1926-budget-local-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 350 du 31/01/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-350-1926-budget-local-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1926-01-31 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ Léon PERRIER.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 90-115/PR/MCTT rendant exécutoire la résolution n° 2/90 du 1er août 1990 du conseil d’administration de l’Aéroport de Djibouti et portant approbation du budget rectificatif de l’exercice 1990 de l’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-115-pr-mctt-rendant-executoire-la-resolution-n2-90-du-1er-aout-1990-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-rectificatif-de-le/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-115-pr-mctt-rendant-executoire-la-resolution-n2-90-du-1er-aout-1990-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-rectificatif-de-le/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0338/PR/MEFPCP portant distraction du Titre Foncier n° 7165 et transfert au profit de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0338-pr-mefpcp-portant-distraction-du-titre-foncier-n7165-et-transfert-au-profit-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0338-pr-mefpcp-portant-distraction-du-titre-foncier-n7165-et-transfert-au-profit-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2011-04-30 (date du Journal officiel qui le publie).
 

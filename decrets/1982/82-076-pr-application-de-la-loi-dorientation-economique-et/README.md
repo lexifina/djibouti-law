@@ -1,6 +1,6 @@
 # Décret n° 82-076/PR portant application de la loi d’orientation économique et sociale (1983-1989).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-076-pr-portant-application-de-la-loi-dorientation-economique-et-sociale-1983-1989/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-076-pr-portant-application-de-la-loi-dorientation-economique-et-sociale-1983-1989/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

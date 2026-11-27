@@ -1,8 +1,8 @@
 # Décret n° 2017-143/PR/MJDH portant mise en place d’un compte des dépôts et des consignations auprès de la Banque Centrale pour les fonds et valeurs remis aux notaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-143-pr-mjdh-portant-mise-en-place-dun-compte-des-depots-et-des-consignations-aupres-de-la-banque-centrale-pour-les-fonds-et-valeurs-remis-aux-notaires/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-143-pr-mjdh-portant-mise-en-place-dun-compte-des-depots-et-des-consignations-aupres-de-la-banque-centrale-pour-les-fonds-et-valeurs-remis-aux-notaires/>
 
-En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 62/AN/99/4ème L portant organisation du Ministère Délégué auprès du Premier Ministre, chargé de la Promotion de la Femme, du Bien-Être Familial et des Affaires Sociales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-99-4eme-l-portant-organisation-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-promotion-de-la-femme-du-bien-etre-familial-et-des-affaires-sociales/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/12/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-99-4eme-l-portant-organisation-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-promotion-de-la-femme-du-bien-etre-familial-et-des-affaires-sociales/>
 
 En vigueur : 1999-12-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2001-0101/PR/MI modifiant le décret n° 77-054/PR/AE du 09 novembre 1977 portant création de la Commission Nationale d’Éligibilité au statut des réfugiés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0101-pr-mi-modifiant-le-decret-n77-054-pr-ae-du-09-novembre-1977-portant-creation-de-la-commission-nationale-deligibilite-au-statut-des-refugies/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0101-pr-mi-modifiant-le-decret-n77-054-pr-ae-du-09-novembre-1977-portant-creation-de-la-commission-nationale-deligibilite-au-statut-des-refugies/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

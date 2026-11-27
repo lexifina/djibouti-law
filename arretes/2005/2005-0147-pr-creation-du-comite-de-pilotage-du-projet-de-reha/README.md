@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0147/PR portant création du Comité de Pilotage du Projet de Réhabilitation d’Urgence Suite aux Inondations.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0147-pr-portant-creation-du-comite-de-pilotage-du-projet-de-rehabilitation-durgence-suite-aux-inondations/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0147-pr-portant-creation-du-comite-de-pilotage-du-projet-de-rehabilitation-durgence-suite-aux-inondations/>
 
 En vigueur : 2005-02-28 (date du Journal officiel qui le publie).
 

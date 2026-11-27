@@ -1,6 +1,6 @@
 # Décret n° 02-196-1913 sur la solde et Les accessoires de solde des troupes coloniales et métropolitaines, à la charge du département des colonies, et déterminant les allocations de solde et indemnités à attribuer aux colonies, aux armuriers de la marine versés dans les troupes coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 196 du 28/02/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-196-1913-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies-et-determinant-les-allocations-de-solde-et-indem/>
+Décret · Journal officiel de la République de Djibouti, n° 196 du 28/02/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-196-1913-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies-et-determinant-les-allocations-de-solde-et-indem/>
 
 En vigueur : 1913-02-28 (date du Journal officiel qui le publie).
 

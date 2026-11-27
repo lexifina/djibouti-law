@@ -1,8 +1,8 @@
 # 2023-175/PR/MTFPS portant confirmation de M. Mahdi Absieh Bouh, Directeur des Relations Bilatéralles au Ministère des Affaires Etrangères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-175-pr-mtfps-portant-confirmation-de-m-mahdi-absieh-bouh-directeur-des-relations-bilateralles-au-ministere-des-affaires-etrangeres/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-175-pr-mtfps-portant-confirmation-de-m-mahdi-absieh-bouh-directeur-des-relations-bilateralles-au-ministere-des-affaires-etrangeres/>
 
-En vigueur : 2022-12-06 (date fixÃ©e par le texte).
+En vigueur : 2022-12-06 (date fixée par le texte).
 
 | Fichier | Disposition |
 | --- | --- |

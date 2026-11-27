@@ -1,6 +1,6 @@
 # Décret n° 93-0002/PRE portant reconduction par douzièmes provisoires du budget de l’année 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0002-pre-portant-reconduction-par-douziemes-provisoires-du-budget-de-lannee-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 16/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0002-pre-portant-reconduction-par-douziemes-provisoires-du-budget-de-lannee-1992/>
 
 En vigueur : 1993-01-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0491/PR/MPI portant Agrément au Code des Investissements de la Société “LM DELTA”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0491-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-lm-delta/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0491-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-lm-delta/>
 
 En vigueur : 2009-06-30 (date du Journal officiel qui le publie).
 

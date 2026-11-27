@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0347/PR/MPI portant Agrément au Code des Investissements de la Société “Djib-Sat”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0347-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-djib-sat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0347-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-djib-sat/>
 
 En vigueur : 2010-05-15 (date du Journal officiel qui le publie).
 

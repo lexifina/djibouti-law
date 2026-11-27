@@ -1,6 +1,6 @@
 # Décret n° 12/09/1939 complétant le décret du 27 août 1939 pris en application du décret du 24 août 1939 concernant le contrôle de la presse et des publications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1939-completant-le-decret-du-27-aout-1939-pris-en-application-du-decret-du-24-aout-1939-concernant-le-controle-de-la-presse-et-des-publications/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1939-completant-le-decret-du-27-aout-1939-pris-en-application-du-decret-du-24-aout-1939-concernant-le-controle-de-la-presse-et-des-publications/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

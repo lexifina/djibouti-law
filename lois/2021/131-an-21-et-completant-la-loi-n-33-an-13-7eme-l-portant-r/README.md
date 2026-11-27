@@ -1,6 +1,6 @@
 # Loi n° 131/AN/21/8ème L modifiant et complétant la loi n° 33/AN/13/7ème L portant régulation des activités d’importation, de stockage, de transport et de distribution des hydrocarbures et de raffinage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-21-8eme-l-modifiant-et-completant-la-loi-n33-an-13-7eme-l-portant-regulation-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures-et-de/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-21-8eme-l-modifiant-et-completant-la-loi-n33-an-13-7eme-l-portant-regulation-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures-et-de/>
 
 En vigueur : 2021-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -58,4 +58,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

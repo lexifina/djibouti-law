@@ -1,6 +1,6 @@
 # Décret n° 2012-225/PR/MDC portant adoption de la Norme Générale pour l’étiquetage des denrées alimentaires préemballées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-225-pr-mdc-portant-adoption-de-la-norme-generale-pour-letiquetage-des-denrees-alimentaires-preemballees/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-225-pr-mdc-portant-adoption-de-la-norme-generale-pour-letiquetage-des-denrees-alimentaires-preemballees/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

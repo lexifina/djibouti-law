@@ -1,6 +1,6 @@
 # Décret n° 89-053/PR/DEF portant réorganisation des Forces Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-053-pr-def-portant-reorganisation-des-forces-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-053-pr-def-portant-reorganisation-des-forces-armees/>
 
 En vigueur : 1989-05-31 (date du Journal officiel qui le publie).
 

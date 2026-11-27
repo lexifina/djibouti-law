@@ -1,8 +1,8 @@
 # Ordonnance n° 2018-001/PRE portant transfert à l’Etat de la propriété des actions détenues par le Port de Djibouti S.A dans le capital de la société DCT S.A.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 13/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n2018-001-pre-portant-transfert-a-letat-de-la-propriete-des-actions-detenues-par-le-port-de-djibouti-s-a-dans-le-capital-de-la-societe-dct-s-a/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 17 du 13/09/2018 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n2018-001-pre-portant-transfert-a-letat-de-la-propriete-des-actions-detenues-par-le-port-de-djibouti-s-a-dans-le-capital-de-la-societe-dct-s-a/>
 
-En vigueur : 2018-09-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-09-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

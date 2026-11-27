@@ -1,6 +1,6 @@
 # Loi n° 17-214-1914 relative à l’amnistie pour les insoumis et les déserteurs de l’Armée de Terre el de l’Armée de Mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 214 du 31/08/1914 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-17-214-1914-relative-a-lamnistie-pour-les-insoumis-et-les-deserteurs-de-larmee-de-terre-el-de-larmee-de-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 214 du 31/08/1914 · <https://www.journalofficiel.dj/texte-juridique/loi-n-17-214-1914-relative-a-lamnistie-pour-les-insoumis-et-les-deserteurs-de-larmee-de-terre-el-de-larmee-de-mer/>
 
 En vigueur : 1914-08-31 (date du Journal officiel qui le publie).
 

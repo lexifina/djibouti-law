@@ -1,8 +1,8 @@
 # Loi n° 116/AN/11/6ème L relative à l’établissement des Banques Islamiques à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-11-6eme-l-relative-a-letablissement-des-banques-islamiques-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-11-6eme-l-relative-a-letablissement-des-banques-islamiques-a-djibouti/>
 
-En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

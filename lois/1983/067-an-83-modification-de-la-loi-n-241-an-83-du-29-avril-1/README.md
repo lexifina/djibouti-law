@@ -1,6 +1,6 @@
 # Loi n° 67/AN/83/1ère L portant modification de la loi n° 241/AN/83 du 29 Avril 1982 créant un Laboratoire d’Analyse de Sols et des Eaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-83-1ere-l-portant-modification-de-la-loi-n-241-an-83-du-29-avril-1982-creant-un-laboratoire-danalyse-de-sols-et-des-eaux/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-83-1ere-l-portant-modification-de-la-loi-n-241-an-83-du-29-avril-1982-creant-un-laboratoire-danalyse-de-sols-et-des-eaux/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 

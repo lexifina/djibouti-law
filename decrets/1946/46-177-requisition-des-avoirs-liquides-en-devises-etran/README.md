@@ -1,6 +1,6 @@
 # Décret n° 46-177 portant réquisition des avoirs liquides en devises étrangères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-177-portant-requisition-des-avoirs-liquides-en-devises-etrangeres/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-177-portant-requisition-des-avoirs-liquides-en-devises-etrangeres/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

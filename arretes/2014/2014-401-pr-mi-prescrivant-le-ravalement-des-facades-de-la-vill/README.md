@@ -1,6 +1,6 @@
 # Arrêté n° 2014-401/PR/MI prescrivant le Ravalement des Façades de la Ville de Djibouti à l’Occasion du 37ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-401-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-37eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-401-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-37eme-anniversaire-de-lindependance/>
 
 En vigueur : 2014-06-15 (date du Journal officiel qui le publie).
 

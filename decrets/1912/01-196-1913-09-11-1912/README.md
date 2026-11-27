@@ -1,6 +1,6 @@
 # Décret n° 01-196-1913 09/11/1912
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 196 du 28/02/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-196-1913-09-11-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 196 du 28/02/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-196-1913-09-11-1912/>
 
 En vigueur : 1913-02-28 (date du Journal officiel qui le publie).
 

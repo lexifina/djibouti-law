@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0728/PR/MAEM relatif aux critères microbiologiques auxquels doivent satisfaire certaines denrées animales ou d’origine animale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0728-pr-maem-relatif-aux-criteres-microbiologiques-auxquels-doivent-satisfaire-certaines-denrees-animales-ou-dorigine-animale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0728-pr-maem-relatif-aux-criteres-microbiologiques-auxquels-doivent-satisfaire-certaines-denrees-animales-ou-dorigine-animale/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 

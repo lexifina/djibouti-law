@@ -1,6 +1,6 @@
 # Loi n° 88/AN/10/6ème L portant modification de la loi n° 213/AN/08/5ème L relative à l’organisation et au fonctionnement de l’Ordre Nationale des Professions Médicales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-10-6eme-l-portant-modification-de-la-loi-n213-an-08-5eme-l-relative-a-lorganisation-et-au-fonctionnement-de-lordre-nationale-des-professions-medicales/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-10-6eme-l-portant-modification-de-la-loi-n213-an-08-5eme-l-relative-a-lorganisation-et-au-fonctionnement-de-lordre-nationale-des-professions-medicales/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

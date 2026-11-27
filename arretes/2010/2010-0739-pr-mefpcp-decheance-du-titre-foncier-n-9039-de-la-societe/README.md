@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0739/PR/MEFPCP portant déchéance du titre foncier n° 9039 de la Société Barberrela Holding et attribution de terrain à la Société L.M Delta.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0739-pr-mefpcp-portant-decheance-du-titre-foncier-n9039-de-la-societe-barberrela-holding-et-attribution-de-terrain-a-la-societe-l-m-delta/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0739-pr-mefpcp-portant-decheance-du-titre-foncier-n9039-de-la-societe-barberrela-holding-et-attribution-de-terrain-a-la-societe-l-m-delta/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

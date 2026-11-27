@@ -1,6 +1,6 @@
 # Décret n° 47-2077 modifiant l’article 5 «lu décret n° 47-556 du 24 mars 1947 portant réorganisation «le la Chambre «le commerce de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2077-modifiant-larticle-5-lu-decret-n-47-556-du-24-mars-1947-portant-reorganisation-le-la-chambre-le-commerce-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2077-modifiant-larticle-5-lu-decret-n-47-556-du-24-mars-1947-portant-reorganisation-le-la-chambre-le-commerce-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1947-11-30 (date du Journal officiel qui le publie).
 

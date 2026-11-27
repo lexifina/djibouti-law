@@ -1,6 +1,6 @@
 # Décret n° 99-0003/PR/MTT relatif à la redevance due par les affectataires de fréquences radioélectriques
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0003-pr-mtt-relatif-a-la-redevance-due-par-les-affectataires-de-frequences-radioelectriques/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 16/01/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0003-pr-mtt-relatif-a-la-redevance-due-par-les-affectataires-de-frequences-radioelectriques/>
 
 En vigueur : 1999-01-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 42/AN/04/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement (BID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
 
 En vigueur : 2004-01-31 (date du Journal officiel qui le publie).
 

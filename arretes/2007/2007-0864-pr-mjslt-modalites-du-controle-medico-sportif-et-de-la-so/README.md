@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0864/PR/MJSLT fixant les modalités du Contrôle Médico Sportif et de la Souscription d’Assurance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0864-pr-mjslt-fixant-les-modalites-du-controle-medico-sportif-et-de-la-souscription-dassurance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0864-pr-mjslt-fixant-les-modalites-du-controle-medico-sportif-et-de-la-souscription-dassurance/>
 
 En vigueur : 2007-11-29 (date du Journal officiel qui le publie).
 

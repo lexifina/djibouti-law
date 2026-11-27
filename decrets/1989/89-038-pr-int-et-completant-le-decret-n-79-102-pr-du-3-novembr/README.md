@@ -1,6 +1,6 @@
 # Décret n° 89-038/PR/INT modifiant et complétant le décret n° 79-102/PR du 3 novembre 1979 relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-038-pr-int-modifiant-et-completant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-038-pr-int-modifiant-et-completant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1989-03-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° le 6 décembre 1169. le 6 décembre 1169.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-decembre-1169-le-6-decembre-1169-3/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-decembre-1169-le-6-decembre-1169-3/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

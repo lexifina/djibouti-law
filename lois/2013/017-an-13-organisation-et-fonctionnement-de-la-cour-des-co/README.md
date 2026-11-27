@@ -1,6 +1,6 @@
 # Loi n° 17/AN/13/7ème L portant organisation et fonctionnement de la Cour des comptes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-13-7eme-l-portant-organisation-et-fonctionnement-de-la-cour-des-comptes/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-13-7eme-l-portant-organisation-et-fonctionnement-de-la-cour-des-comptes/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 
@@ -159,4 +159,4 @@ ISMAÏL OMAR GUELLEH
 | [art-122.md](art-122.md) | Article 122 |
 | [art-123.md](art-123.md) | Article 123 |
 | [art-124.md](art-124.md) | Article 124 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

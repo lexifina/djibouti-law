@@ -1,6 +1,6 @@
 # Arrêté n° 2015-202/PR/MB portant attribution d’une parcelle de terrain dans la ville d’Obock à la Société “Djibouti Aqua-Mater Sarl”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-202-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-dobock-a-la-societe-djibouti-aqua-mater-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-202-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-dobock-a-la-societe-djibouti-aqua-mater-sarl/>
 
 En vigueur : 2015-03-31 (date du Journal officiel qui le publie).
 

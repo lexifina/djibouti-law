@@ -1,6 +1,6 @@
 # Décret n° 45-1564 portant application aux territoires relevant du ministère des clonies de l’ordonnance n° 45-87 du 17 janvier 1945 relative aux recensement de l’or, des devises étrangères et des valeurs mobilières étrangères conservés en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1564-portant-application-aux-territoires-relevant-du-ministere-des-clonies-de-lordonnance-n-45-87-du-17-janvier-1945-relative-aux-recensement-de-lor-des-devises-etrangere/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1564-portant-application-aux-territoires-relevant-du-ministere-des-clonies-de-lordonnance-n-45-87-du-17-janvier-1945-relative-aux-recensement-de-lor-des-devises-etrangere/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

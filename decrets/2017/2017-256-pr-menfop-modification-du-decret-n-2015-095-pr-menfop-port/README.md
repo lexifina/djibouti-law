@@ -1,8 +1,8 @@
 # Décret n° 2017-256/PR/MENFOP portant modification du décret n° 2015-095/PR/MENFOP portant du décret n° 2006-0068/PR/MENSUP portant modification du décret n° 89-062/PRE du 29 mai 1989 portant statut particulier des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-256-pr-menfop-portant-modification-du-decret-n2015-095-pr-menfop-portant-du-decret-n2006-0068-pr-mensup-portant-modification-du-decret-n89-062-pre-du-29-mai-1989-p/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-256-pr-menfop-portant-modification-du-decret-n2015-095-pr-menfop-portant-du-decret-n2006-0068-pr-mensup-portant-modification-du-decret-n89-062-pre-du-29-mai-1989-p/>
 
-En vigueur : 2017-07-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-07-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

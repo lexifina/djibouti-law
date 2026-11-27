@@ -1,8 +1,8 @@
 # Décret n° 2016-293/PRE portant création d’une Commission Nationale chargée de l’élaboration d’un projet de code électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-293-pre-portant-creation-dune-commission-nationale-chargee-de-lelaboration-dun-projet-de-code-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-293-pre-portant-creation-dune-commission-nationale-chargee-de-lelaboration-dun-projet-de-code-electoral/>
 
-En vigueur : 2016-10-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-10-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

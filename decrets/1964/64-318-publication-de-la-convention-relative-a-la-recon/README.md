@@ -1,6 +1,6 @@
 # Décret n° 64-318 portant publication de la convention relative à la reconnaissance internationale des droits sur les aéronefs du 19 juin 1948.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-318-portant-publication-de-la-convention-relative-a-la-reconnaissance-internationale-des-droits-sur-les-aeronefs-du-19-juin-1948/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-318-portant-publication-de-la-convention-relative-a-la-reconnaissance-internationale-des-droits-sur-les-aeronefs-du-19-juin-1948/>
 
 En vigueur : 1964-06-01 (date du Journal officiel qui le publie).
 

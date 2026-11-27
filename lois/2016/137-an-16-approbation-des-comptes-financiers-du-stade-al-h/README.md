@@ -1,6 +1,6 @@
 # Loi n° 137/AN/16/7ème L portant approbation des comptes financiers du Stade “Al Hadj Hassan Gouled Aptidon” pour l’exercice 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-16-7eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-16-7eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2013/>
 
 En vigueur : 2016-06-15 (date du Journal officiel qui le publie).
 

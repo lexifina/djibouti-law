@@ -1,6 +1,6 @@
 # Loi n° 124/AN/30 portant modification du statut de la Force Nationale de Sécurité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-30-portant-modification-du-statut-de-la-force-nationale-de-securite/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-30-portant-modification-du-statut-de-la-force-nationale-de-securite/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

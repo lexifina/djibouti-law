@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0456/PRE portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2011 du Fonds de Développement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0456-pre-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2011-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0456-pre-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2011-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

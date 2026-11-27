@@ -1,6 +1,6 @@
 # Décret n° n°68 Décret du 5 octobre 1929 portant publication et mise en application à titre provisoire du modus rirendi commereial du 29 août 1929 entre la France et la Turquie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 401 du 30/04/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n68-decret-du-5-octobre-1929-portant-publication-et-mise-en-application-a-titre-provisoire-du-modus-rirendi-commereial-du-29-aout-1929-entre-la-france-et-la-turquie/>
+Décret · Journal officiel de la République de Djibouti, n° 401 du 30/04/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n68-decret-du-5-octobre-1929-portant-publication-et-mise-en-application-a-titre-provisoire-du-modus-rirendi-commereial-du-29-aout-1929-entre-la-france-et-la-turquie/>
 
 En vigueur : 1930-04-30 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ André MaGinor
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

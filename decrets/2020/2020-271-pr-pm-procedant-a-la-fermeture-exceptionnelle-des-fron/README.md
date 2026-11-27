@@ -1,8 +1,8 @@
 # Décret n° 2020-271/PR/PM procédant à la fermeture exceptionnelle des frontières terrestres pour lutter la propagation du COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 28/10/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-271-pr-pm-procedant-a-la-fermeture-exceptionnelle-des-frontieres-terrestres-pour-lutter-la-propagation-du-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 28/10/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-271-pr-pm-procedant-a-la-fermeture-exceptionnelle-des-frontieres-terrestres-pour-lutter-la-propagation-du-covid-19/>
 
-En vigueur : 2020-10-20 (date fixÃ©e par le texte).
+En vigueur : 2020-10-20 (date fixée par le texte).
 
 ## Visas
 

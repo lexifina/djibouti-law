@@ -1,6 +1,6 @@
 # Arrêté n° 2016-319/PR/MB portant modification de l’arrêté n° 2016-210-PR/MB du 24/03/2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-319-pr-mb-portant-modification-de-larrete-n2016-210-pr-mb-du-24-03-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-319-pr-mb-portant-modification-de-larrete-n2016-210-pr-mb-du-24-03-2016/>
 
 En vigueur : 2016-05-15 (date du Journal officiel qui le publie).
 

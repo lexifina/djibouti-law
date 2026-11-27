@@ -1,6 +1,6 @@
 # Décret n° 50-297 modifiant et complétant le décret n° 48-163 du 28 janvier 1948 déterminant les conditions d’application dans les Territoires d’Outre-Mer et les Territoires sous tutelle relevant du Ministère de la France d’Outre-Mer des dispositions du décret du 10 mai 1947 concernant l’Office national des Anciens Combattants et Victimes de la guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 25/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-297-modifiant-et-completant-le-decret-n-48-163-du-28-janvier-1948-determinant-les-conditions-dapplication-dans-les-territoires-doutre-mer-et-les-territoires-sous-tu/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 25/07/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-297-modifiant-et-completant-le-decret-n-48-163-du-28-janvier-1948-determinant-les-conditions-dapplication-dans-les-territoires-doutre-mer-et-les-territoires-sous-tu/>
 
 En vigueur : 1953-07-25 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ Edgar FAURE.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

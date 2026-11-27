@@ -1,6 +1,6 @@
 # Loi n° 122/AN/96/3ème L Portant approbation des Comptes du Bilan de l’Exercice 1994 de la SHED.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-96-3eme-l-portant-approbation-des-comptes-du-bilan-de-lexercice-1994-de-la-shed/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-96-3eme-l-portant-approbation-des-comptes-du-bilan-de-lexercice-1994-de-la-shed/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

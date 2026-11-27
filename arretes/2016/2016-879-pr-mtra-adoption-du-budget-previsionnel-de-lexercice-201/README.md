@@ -1,6 +1,6 @@
 # Arrêté n° 2016-879/PR/MTRA portant adoption du Budget Prévisionnel de l’exercice 2017 de la Caisse Nationale de Sécurité Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-879-pr-mtra-portant-adoption-du-budget-previsionnel-de-lexercice-2017-de-la-caisse-nationale-de-securite-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-879-pr-mtra-portant-adoption-du-budget-previsionnel-de-lexercice-2017-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

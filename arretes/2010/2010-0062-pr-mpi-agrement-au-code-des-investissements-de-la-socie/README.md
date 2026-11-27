@@ -1,7 +1,7 @@
 # Arrêté n° 2010-0062/PR/MPI portant Âgrément au Code
 des Investissements de la Société « Entreprise Chirdon ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0062-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-entreprise-chirdon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0062-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-entreprise-chirdon/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

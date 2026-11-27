@@ -1,6 +1,6 @@
 # Loi n° 107/AN/00/4ème L relative aux lois des Finances.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-00-4eme-l-relative-aux-lois-des-finances/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-00-4eme-l-relative-aux-lois-des-finances/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 
@@ -108,4 +108,4 @@ ISMAÏL OMAR GUELLEH
 | [art-083.md](art-083.md) | Article 83 |
 | [art-084.md](art-084.md) | Article 84 |
 | [art-085.md](art-085.md) | Article 85 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

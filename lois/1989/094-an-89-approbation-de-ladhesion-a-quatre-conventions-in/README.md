@@ -1,6 +1,6 @@
 # Loi n° 94/AN/89/2ème L portant approbation de l’Adhésion à quatre conventions internationales concernant la pollution des eaux maritimes
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-89-2eme-l-portant-approbation-de-ladhesion-a-quatre-conventions-internationales-concernant-la-pollution-des-eaux-maritimes/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-89-2eme-l-portant-approbation-de-ladhesion-a-quatre-conventions-internationales-concernant-la-pollution-des-eaux-maritimes/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

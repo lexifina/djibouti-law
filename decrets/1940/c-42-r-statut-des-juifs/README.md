@@ -1,6 +1,6 @@
 # Décret n° C. 42 R. portant statut des Juifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 527 du 31/10/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-c-42-r-portant-statut-des-juifs/>
+Décret · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-c-42-r-portant-statut-des-juifs/>
 
 En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-244/PR/MEFIP portant adoption et application de la Nouvelle nomenclature budgétaire de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-244-pr-mefip-portant-adoption-et-application-de-la-nouvelle-nomenclature-budgetaire-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-244-pr-mefip-portant-adoption-et-application-de-la-nouvelle-nomenclature-budgetaire-de-letat/>
 
 En vigueur : 2012-11-15 (date du Journal officiel qui le publie).
 

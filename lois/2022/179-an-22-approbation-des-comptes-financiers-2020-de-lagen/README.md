@@ -1,6 +1,6 @@
 # Loi n° 179/AN/22/8ème L portant approbation des Comptes Financiers 2020 de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-22-8eme-l-portant-approbation-des-comptes-financiers-2020-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-22-8eme-l-portant-approbation-des-comptes-financiers-2020-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

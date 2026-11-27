@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0550/PR/MEFPCP portant attribution d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0550-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0550-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

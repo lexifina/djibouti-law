@@ -1,6 +1,6 @@
 # Décret n° 84-012/PR/PORT portant approbation de l’état prévisionnel des recettes et des dépenses du Port autonome International de Djibouti pour l’exercice 1984.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-012-pr-port-portant-approbation-de-letat-previsionnel-des-recettes-et-des-depenses-du-port-autonome-international-de-djibouti-pour-lexercice-1984/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-012-pr-port-portant-approbation-de-letat-previsionnel-des-recettes-et-des-depenses-du-port-autonome-international-de-djibouti-pour-lexercice-1984/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Le conseil des ministres entendu en sa séance du 14 février 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article Premier |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

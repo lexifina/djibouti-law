@@ -1,6 +1,6 @@
 # Décret n° 14-478-1936 Réglementation du logement et de l’ameublement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-478-1936-reglementation-du-logement-et-de-lameublement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-478-1936-reglementation-du-logement-et-de-lameublement-aux-colonies/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 78-088/PR/J portant modification du décret du 30 novembre 1928 instituant le régime applicable aux mineurs délinquants.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-088-pr-j-portant-modification-du-decret-du-30-novembre-1928-instituant-le-regime-applicable-aux-mineurs-delinquants/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-088-pr-j-portant-modification-du-decret-du-30-novembre-1928-instituant-le-regime-applicable-aux-mineurs-delinquants/>
 
 En vigueur : 1979-04-24 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ HASSAN GOULED APTIDON
 | --- | --- |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

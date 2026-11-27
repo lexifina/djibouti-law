@@ -1,6 +1,6 @@
 # Décret n° 14-346-1925 Application aux colonies de la convention et des arrangements de l’union postale universelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-346-1925-application-aux-colonies-de-la-convention-et-des-arrangements-de-lunion-postale-universelle/>
+Décret · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-346-1925-application-aux-colonies-de-la-convention-et-des-arrangements-de-lunion-postale-universelle/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ André Hesse.
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

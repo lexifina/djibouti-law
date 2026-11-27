@@ -1,6 +1,6 @@
 # Décret n° 2010-0208/PR/MCI portant création du “Grand Prix de l’Artisan”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0208-pr-mci-portant-creation-du-grand-prix-de-lartisan/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0208-pr-mci-portant-creation-du-grand-prix-de-lartisan/>
 
 En vigueur : 2010-11-15 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

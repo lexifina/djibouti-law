@@ -1,6 +1,6 @@
 # Décret n° 2017-354/PR/MFF modifiant le Décret n° 2012-067/PR/MPF portant Création et Organisation du Conseil National de l’Enfant (CNE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-354-pr-mff-modifiant-le-decret-n2012-067-pr-mpf-portant-creation-et-organisation-du-conseil-national-de-lenfant-cne/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-354-pr-mff-modifiant-le-decret-n2012-067-pr-mpf-portant-creation-et-organisation-du-conseil-national-de-lenfant-cne/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

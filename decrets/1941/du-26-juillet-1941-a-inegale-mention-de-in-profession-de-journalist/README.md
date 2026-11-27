@@ -1,6 +1,6 @@
 # Décret n° du 26 juillet 1941 relatif à inégale mention de In profession de journaliste et délivrance de In carte d’identité professionnelle de journalisme dans les territoires d‘outre-mer relevant du Secrétariat d’Etat aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 538 du 30/09/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-26-juillet-1941-relatif-a-inegale-mention-de-in-profession-de-journaliste-et-delivrance-de-in-carte-didentite-professionnelle-de-journalisme-dans-les-territoires-d/>
+Décret · Journal officiel de la République de Djibouti, n° 538 du 30/09/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-26-juillet-1941-relatif-a-inegale-mention-de-in-profession-de-journaliste-et-delivrance-de-in-carte-didentite-professionnelle-de-journalisme-dans-les-territoires-d/>
 
 En vigueur : 1941-09-30 (date du Journal officiel qui le publie).
 

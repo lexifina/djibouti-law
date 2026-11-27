@@ -1,6 +1,6 @@
 # Décret n° 94‑0001/PR/DEF portant dispositions particulières pour le retour à la vie civile des personnels concernés par le décret n° 91‑0158/PR/DEF du 13/11/91 portant sur la mobilisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910001-pr-def-portant-dispositions-particulieres-pour-le-retour-a-la-vie-civile-des-personnels-concernes-par-le-decret-n91%e2%80%910158-pr-def-du-13-11-91-portant-sur-la-m/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910001-pr-def-portant-dispositions-particulieres-pour-le-retour-a-la-vie-civile-des-personnels-concernes-par-le-decret-n91%e2%80%910158-pr-def-du-13-11-91-portant-sur-la-m/>
 
 En vigueur : 1994-01-15 (date du Journal officiel qui le publie).
 

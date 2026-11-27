@@ -1,8 +1,8 @@
 # Loi n° 179/AN/07/5ème L portant réglementation des activités de Micro finance sur le Territoire de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-07-5eme-l-portant-reglementation-des-activites-de-micro-finance-sur-le-territoire-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-07-5eme-l-portant-reglementation-des-activites-de-micro-finance-sur-le-territoire-de-la-republique-de-djibouti/>
 
-En vigueur : 2007-05-16 (date fixÃ©e par le texte).
+En vigueur : 2007-05-16 (date fixée par le texte).
 
 ## Visas
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

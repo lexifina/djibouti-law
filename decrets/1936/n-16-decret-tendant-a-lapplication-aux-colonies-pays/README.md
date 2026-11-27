@@ -1,6 +1,6 @@
 # Décret n° n°16 Décret. tendant à l’application. aux colonies, pays de protectorat. et territoires sous mandat dépendant du ministère des colonies, de la loi de 30 décembre 1938 et du décret du 4 octobre 1932 sur la répression des fraudes dans: le commerce de l’essence detérébenthine et des. produits résineux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-tendant-a-lapplication-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-de-la-loi-de-30-decembre-1938-et-du-dec/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-tendant-a-lapplication-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-de-la-loi-de-30-decembre-1938-et-du-dec/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 
@@ -22,10 +22,10 @@ marius moutete
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

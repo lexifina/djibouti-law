@@ -1,6 +1,6 @@
 # Décret n° 99-0168/PR/MET confiant au Port Autonome International de Djibouti l’Exploitation et la Gestion de deux Ports.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0168-pr-met-confiant-au-port-autonome-international-de-djibouti-lexploitation-et-la-gestion-de-deux-ports/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0168-pr-met-confiant-au-port-autonome-international-de-djibouti-lexploitation-et-la-gestion-de-deux-ports/>
 
 En vigueur : 1999-09-30 (date du Journal officiel qui le publie).
 

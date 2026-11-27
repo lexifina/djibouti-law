@@ -1,6 +1,6 @@
 # Loi n° 120/AN/96/3ème L Portant Ratification d’un prêt entre la République de Djibouti et la Banque Islamique de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-96-3eme-l-portant-ratification-dun-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-96-3eme-l-portant-ratification-dun-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 4-406-1930 Allocations aux familles résidant à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 406 du 30/09/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-406-1930-allocations-aux-familles-residant-a-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 406 du 30/09/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-406-1930-allocations-aux-familles-residant-a-letranger/>
 
 En vigueur : 1930-09-30 (date du Journal officiel qui le publie).
 

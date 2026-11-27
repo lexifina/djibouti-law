@@ -1,6 +1,6 @@
 # Loi n° 118/AN/05/5ème L portant approbation du Compte Financier de l’Exercice 2003 de l’Office National du Tourisme de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-05-5eme-l-portant-approbation-du-compte-financier-de-lexercice-2003-de-loffice-national-du-tourisme-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-05-5eme-l-portant-approbation-du-compte-financier-de-lexercice-2003-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2005-10-31 (date du Journal officiel qui le publie).
 

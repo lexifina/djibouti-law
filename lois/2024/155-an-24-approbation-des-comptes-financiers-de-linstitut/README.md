@@ -1,6 +1,6 @@
 # Loi n° 155/AN/24/9ème L portant approbation des comptes financiers de l’Institut National de l’Administration Publique pour l’exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-linstitut-national-de-ladministration-publique-pour-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-linstitut-national-de-ladministration-publique-pour-lexercice-2023/>
 
 En vigueur : 2025-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

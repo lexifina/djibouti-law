@@ -1,6 +1,6 @@
 # Décret n° 2004-0230/PR/MHUEAT portant création d’un Conseil National de l’Aménagement du Territoire (CNAT).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0230-pr-mhueat-portant-creation-dun-conseil-national-de-lamenagement-du-territoire-cnat/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0230-pr-mhueat-portant-creation-dun-conseil-national-de-lamenagement-du-territoire-cnat/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

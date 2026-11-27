@@ -1,8 +1,8 @@
 # Décret n° 2019-064/PR/MI portant création, organisation et fonctionnement du comité national pour la mise en place du registre national des personnes physiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-064-pr-mi-portant-creation-organisation-et-fonctionnement-du-comite-national-pour-la-mise-en-place-du-registre-national-des-personnes-physiques/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-064-pr-mi-portant-creation-organisation-et-fonctionnement-du-comite-national-pour-la-mise-en-place-du-registre-national-des-personnes-physiques/>
 
-En vigueur : 2019-04-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-04-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

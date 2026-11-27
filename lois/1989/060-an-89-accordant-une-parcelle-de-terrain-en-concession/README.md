@@ -1,6 +1,6 @@
 # Loi n° 60/AN/89/2ème L accordant une parcelle de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-89-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-89-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1989-04-15 (date du Journal officiel qui le publie).
 

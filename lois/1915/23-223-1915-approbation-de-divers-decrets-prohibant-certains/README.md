@@ -1,6 +1,6 @@
 # Loi n° 23-223-1915 portant approbation de divers décrets prohibant certains produits à la sortie des Colonies et protectorats autres que la Tunisie et le Maroc.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 223 du 31/05/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-23-223-1915-portant-approbation-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
+Loi · Journal officiel de la République de Djibouti, n° 223 du 31/05/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-23-223-1915-portant-approbation-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
 
 En vigueur : 1915-05-31 (date du Journal officiel qui le publie).
 
@@ -34,8 +34,8 @@ Gaston THOMSON.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art.5— |
-| [art-006.md](art-006.md) | Art.6– |
+| [art-005.md](art-005.md) | Art.5 |
+| [art-006.md](art-006.md) | Art.6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [art-009.md](art-009.md) | Art. 9– |
+| [art-009.md](art-009.md) | Art. 9 |

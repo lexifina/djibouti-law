@@ -1,6 +1,6 @@
 # Arrêté n° 2018-084/PR/MENSUR portant dérogation à la disposition de l’Arrêté modificatif n° 2004-610/PR/MENESUP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-084-pr-mensur-portant-derogation-a-la-disposition-de-larrete-modificatif-n2004-610-pr-menesup/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-084-pr-mensur-portant-derogation-a-la-disposition-de-larrete-modificatif-n2004-610-pr-menesup/>
 
 En vigueur : 2018-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

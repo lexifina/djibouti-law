@@ -1,6 +1,6 @@
 # Décret n° 22-387-1929 Honoraires, indemnités et frais de justice aux colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 387 du 28/02/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-387-1929-honoraires-indemnites-et-frais-de-justice-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 387 du 28/02/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-387-1929-honoraires-indemnites-et-frais-de-justice-aux-colonies/>
 
 En vigueur : 1929-02-28 (date du Journal officiel qui le publie).
 

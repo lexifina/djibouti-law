@@ -1,8 +1,8 @@
 # Loi n° 73/AN/89/2ème L portant codification du régime des prestations familiales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-89-2eme-l-portant-codification-du-regime-des-prestations-familiales/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-89-2eme-l-portant-codification-du-regime-des-prestations-familiales/>
 
-En vigueur : 1989-06-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1989-06-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

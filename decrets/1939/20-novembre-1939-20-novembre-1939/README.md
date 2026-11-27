@@ -1,6 +1,6 @@
 # Décret n° 20 novembre 1939. 20 novembre 1939.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-novembre-1939-20-novembre-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-novembre-1939-20-novembre-1939/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ Paul REYXAUD,
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

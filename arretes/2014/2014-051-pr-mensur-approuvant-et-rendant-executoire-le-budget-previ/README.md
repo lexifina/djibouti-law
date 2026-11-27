@@ -1,6 +1,6 @@
 # Arrêté n° 2014-051/PR/MENSUR approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2014 de l’Institut Supérieur des Sciences de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-051-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-linstitut-superieur-des-sciences-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 30/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-051-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-linstitut-superieur-des-sciences-de-la-sante/>
 
 En vigueur : 2014-01-30 (date du Journal officiel qui le publie).
 

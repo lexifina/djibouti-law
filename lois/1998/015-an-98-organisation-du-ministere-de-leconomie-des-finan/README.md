@@ -1,6 +1,6 @@
 # Loi de finances n° 15/AN/98/4ème L portant organisation du Ministère de l’Économie, des Finances et de la Planification, Chargé de la Privatisation.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n15-an-98-4eme-l-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 7 du 15/04/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n15-an-98-4eme-l-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
 
 En vigueur : 1998-04-15 (date du Journal officiel qui le publie).
 

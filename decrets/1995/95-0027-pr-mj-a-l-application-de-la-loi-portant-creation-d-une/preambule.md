@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE I – LA COUR D’APPEL

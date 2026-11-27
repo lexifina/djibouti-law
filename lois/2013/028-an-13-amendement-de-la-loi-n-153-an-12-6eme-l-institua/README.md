@@ -1,8 +1,8 @@
 # Loi n° 28/AN/13/7ème L portant amendement de la loi n° 153/AN/12/6ème L instituant le tarif applicable aux permis de travail pour les travailleurs étrangers en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-13-7eme-l-portant-amendement-de-la-loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-travail-pour-les-travailleurs-etrangers-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-13-7eme-l-portant-amendement-de-la-loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-travail-pour-les-travailleurs-etrangers-en-republique-de-djibouti/>
 
-En vigueur : 2013-12-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-12-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

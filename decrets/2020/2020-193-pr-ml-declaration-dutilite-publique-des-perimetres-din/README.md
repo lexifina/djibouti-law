@@ -1,6 +1,6 @@
 # Décret n° 2020-193/PR/ML portant Déclaration d’Utilité Publique des périmètres d’intervention du Projet Intégré de Résorption des Bidonvilles (PIRB).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-193-pr-ml-portant-declaration-dutilite-publique-des-perimetres-dintervention-du-projet-integre-de-resorption-des-bidonvilles-pirb/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-193-pr-ml-portant-declaration-dutilite-publique-des-perimetres-dintervention-du-projet-integre-de-resorption-des-bidonvilles-pirb/>
 
 En vigueur : 2020-08-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

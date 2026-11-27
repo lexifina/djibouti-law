@@ -1,6 +1,6 @@
 # Décret n° 08-399-1930 réorganisation du personnel des administrateurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 399 du 01/02/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-399-1930-reorganisation-du-personnel-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 399 du 01/02/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-399-1930-reorganisation-du-personnel-des-administrateurs-des-colonies/>
 
 En vigueur : 1930-02-01 (date du Journal officiel qui le publie).
 

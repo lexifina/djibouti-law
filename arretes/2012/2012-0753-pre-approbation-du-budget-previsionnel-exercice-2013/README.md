@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0753/PRE portant approbation du Budget Prévisionnel, Exercice 2013 du Palais du Peuple.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0753-pre-portant-approbation-du-budget-previsionnel-exercice-2013-du-palais-du-peuple/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0753-pre-portant-approbation-du-budget-previsionnel-exercice-2013-du-palais-du-peuple/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

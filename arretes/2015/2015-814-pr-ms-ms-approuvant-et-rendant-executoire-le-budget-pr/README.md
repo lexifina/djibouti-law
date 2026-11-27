@@ -1,6 +1,6 @@
 # Arrêté n° 2015-814/PR/MS MS approuvant et rendant exécutoire le Budget prévisionnel 2016 de l’Hôpital Dr Chakib Saad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-814-pr-ms-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-dr-chakib-saad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-814-pr-ms-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-dr-chakib-saad/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 97-0760/PRE portant interdiction d’importation des véhicules dont le volant est à droite.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0760-pre-portant-interdiction-dimportation-des-vehicules-dont-le-volant-est-a-droite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0760-pre-portant-interdiction-dimportation-des-vehicules-dont-le-volant-est-a-droite/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

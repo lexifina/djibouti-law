@@ -1,6 +1,6 @@
 # Décret n° 2-451-1934 Statut de la magistrature coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 451 du 30/06/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-451-1934-statut-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 451 du 30/06/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-451-1934-statut-de-la-magistrature-coloniale/>
 
 En vigueur : 1934-06-30 (date du Journal officiel qui le publie).
 

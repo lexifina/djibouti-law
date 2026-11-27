@@ -1,6 +1,6 @@
 # Loi n° 15-278-1919 établissant une carte d’identité professionnelle à l’usage des voyageurs et représentants de commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 278 du 31/12/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-15-278-1919-etablissant-une-carte-didentite-professionnelle-a-lusage-des-voyageurs-et-representants-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 278 du 31/12/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-15-278-1919-etablissant-une-carte-didentite-professionnelle-a-lusage-des-voyageurs-et-representants-de-commerce/>
 
 En vigueur : 1919-12-31 (date du Journal officiel qui le publie).
 

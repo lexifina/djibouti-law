@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0105/PR/MCC rendant exécutoire la résolution n° 02 du Conseil d’Administration de l’Imprimerie Nationale de Djibouti portant approbation du projet du Budget Prévisionnel 2000.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0105-pr-mcc-rendant-executoire-la-resolution-n02-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-prev/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0105-pr-mcc-rendant-executoire-la-resolution-n02-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-prev/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

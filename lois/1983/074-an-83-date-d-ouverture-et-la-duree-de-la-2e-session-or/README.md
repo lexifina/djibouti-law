@@ -1,6 +1,6 @@
 # Loi n° 74/AN/83/1 re L fixant la date d’ouverture et la durée de la 2e Session ordinaire de 1983 dite “Session budgétaire”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/12/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-83-1-re-l-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-de-1983-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 31/12/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-83-1-re-l-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-de-1983-dite-session-budgetaire/>
 
 En vigueur : 1983-12-31 (date du Journal officiel qui le publie).
 

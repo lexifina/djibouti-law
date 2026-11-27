@@ -1,6 +1,6 @@
 # Décret n° 93-111/Bis/PR/DEF Relatif à la fin de la campagne de mobilisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-111-bis-pr-def-relatif-a-la-fin-de-la-campagne-de-mobilisation/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-111-bis-pr-def-relatif-a-la-fin-de-la-campagne-de-mobilisation/>
 
 En vigueur : 1993-12-15 (date du Journal officiel qui le publie).
 

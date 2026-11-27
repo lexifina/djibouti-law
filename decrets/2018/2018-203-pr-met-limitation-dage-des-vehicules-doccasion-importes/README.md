@@ -1,6 +1,6 @@
 # Décret n° 2018-203/PR/MET portant limitation d’âge des véhicules d’occasion importés en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-203-pr-met-portant-limitation-dage-des-vehicules-doccasion-importes-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-203-pr-met-portant-limitation-dage-des-vehicules-doccasion-importes-en-republique-de-djibouti/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

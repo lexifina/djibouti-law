@@ -1,6 +1,6 @@
 # Loi n° 32/AN/93/3eme L portant adhésion de la République de Djibouti au protocole de Montréal relatif à des substances qui appauvrissent la couche d’ozone.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-93-3eme-l-portant-adhesion-de-la-republique-de-djibouti-au-protocole-de-montreal-relatif-a-des-substances-qui-appauvrissent-la-couche-dozone/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-93-3eme-l-portant-adhesion-de-la-republique-de-djibouti-au-protocole-de-montreal-relatif-a-des-substances-qui-appauvrissent-la-couche-dozone/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 

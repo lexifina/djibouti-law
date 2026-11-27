@@ -1,6 +1,6 @@
 # Décret n° 04-393-1929 Indemnité de déplacement et passage dans le personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 393 du 31/08/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-393-1929-indemnite-de-deplacement-et-passage-dans-le-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 393 du 31/08/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-393-1929-indemnite-de-deplacement-et-passage-dans-le-personnel-colonial/>
 
 En vigueur : 1929-08-31 (date du Journal officiel qui le publie).
 

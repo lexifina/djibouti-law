@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0409/PR/MHUEAT portant obligation de conception des projets de construction par des bureaux d’architecture et d’études agrées.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0409-pr-mhueat-portant-obligation-de-conception-des-projets-de-construction-par-des-bureaux-darchitecture-et-detudes-agrees/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0409-pr-mhueat-portant-obligation-de-conception-des-projets-de-construction-par-des-bureaux-darchitecture-et-detudes-agrees/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 

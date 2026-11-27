@@ -1,6 +1,6 @@
 # ectificatif n° 2023-293/PR/MTFPS à la décision n° 2022-252/PR/MTFPS du 15 août 2022 accordant une indemnité de congé non pris aux ayants droit du regretté Abdirahman Adaweh Wais.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2023 Â· <https://www.journalofficiel.dj/texte-juridique/ectificatif-n-2023-293-pr-mtfps-a-la-decision-n-2022-252-pr-mtfps-du-15-aout-2022-accordant-une-indemnite-de-conge-non-pris-aux-ayants-droit-du-regrette-abdirahman-adaweh-wais/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 15 du 15/08/2023 · <https://www.journalofficiel.dj/texte-juridique/ectificatif-n-2023-293-pr-mtfps-a-la-decision-n-2022-252-pr-mtfps-du-15-aout-2022-accordant-une-indemnite-de-conge-non-pris-aux-ayants-droit-du-regrette-abdirahman-adaweh-wais/>
 
 En vigueur : 2023-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

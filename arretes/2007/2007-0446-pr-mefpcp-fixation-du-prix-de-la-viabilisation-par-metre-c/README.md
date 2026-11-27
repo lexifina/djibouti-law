@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0446/PR/MEFPCP portant fixation du prix de la viabilisation par mètre carré cessible du Lotissement de Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0446-pr-mefpcp-portant-fixation-du-prix-de-la-viabilisation-par-metre-carre-cessible-du-lotissement-de-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0446-pr-mefpcp-portant-fixation-du-prix-de-la-viabilisation-par-metre-carre-cessible-du-lotissement-de-salines-ouest/>
 
 En vigueur : 2007-05-15 (date du Journal officiel qui le publie).
 

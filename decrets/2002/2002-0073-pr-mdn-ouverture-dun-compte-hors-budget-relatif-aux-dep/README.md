@@ -1,8 +1,8 @@
 # Décret n° 2002-0073/PR/MDN portant ouverture d’un compte hors budget relatif aux dépenses sociales des Forces Armées Djiboutiennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0073-pr-mdn-portant-ouverture-dun-compte-hors-budget-relatif-aux-depenses-sociales-des-forces-armees-djiboutiennes/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0073-pr-mdn-portant-ouverture-dun-compte-hors-budget-relatif-aux-depenses-sociales-des-forces-armees-djiboutiennes/>
 
-En vigueur : 2002-05-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-05-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

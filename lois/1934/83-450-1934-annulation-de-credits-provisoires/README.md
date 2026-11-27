@@ -1,6 +1,6 @@
 # Amendement n° 83-450-1934 portant annulation de crédits provisoires.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-83-450-1934-portant-annulation-de-credits-provisoires/>
+Amendement · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-83-450-1934-portant-annulation-de-credits-provisoires/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

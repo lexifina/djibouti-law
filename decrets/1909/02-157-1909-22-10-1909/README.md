@@ -1,6 +1,6 @@
 # Décret n° 02-157-1909 22/10/1909
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 157 du 01/12/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-157-1909-22-10-1909/>
+Décret · Journal officiel de la République de Djibouti, n° 157 du 01/12/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-157-1909-22-10-1909/>
 
 En vigueur : 1909-12-01 (date du Journal officiel qui le publie).
 

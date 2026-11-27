@@ -1,6 +1,6 @@
 # Arrêté n° 2011-045/PR/MET portant adoption du Budget prévisionnel de l’Exercice 2011 du Fonds d’Entretien Routier (FER).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-045-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2011-du-fonds-dentretien-routier-fer/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-045-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2011-du-fonds-dentretien-routier-fer/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 118/AN/01/4ème L relative aux attributions et à l’organisation du Ministère de la Santé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-01-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-01-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-sante/>
 
-En vigueur : 2001-01-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2001-01-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

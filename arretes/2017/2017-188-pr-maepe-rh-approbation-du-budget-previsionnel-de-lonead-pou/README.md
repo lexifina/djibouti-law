@@ -1,6 +1,6 @@
 # Arrêté n° 2017-188/PR/MAEPE-RH portant approbation du Budget Prévisionnel de l’ONEAD pour l’année 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-188-pr-maepe-rh-portant-approbation-du-budget-previsionnel-de-lonead-pour-lannee-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-188-pr-maepe-rh-portant-approbation-du-budget-previsionnel-de-lonead-pour-lannee-2018/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 

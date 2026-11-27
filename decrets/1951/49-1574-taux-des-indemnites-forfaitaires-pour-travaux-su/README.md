@@ -1,6 +1,6 @@
 # Décret n° 49-1574 modifiant le taux des indemnités forfaitaires pour travaux supplémentaires pouvant être attribuées aux ingénieurs des travaux météorologiques (cadre colonial).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1574-modifiant-le-taux-des-indemnites-forfaitaires-pour-travaux-supplementaires-pouvant-etre-attribuees-aux-ingenieurs-des-travaux-meteorologiques-cadre-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1574-modifiant-le-taux-des-indemnites-forfaitaires-pour-travaux-supplementaires-pouvant-etre-attribuees-aux-ingenieurs-des-travaux-meteorologiques-cadre-colonial/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 

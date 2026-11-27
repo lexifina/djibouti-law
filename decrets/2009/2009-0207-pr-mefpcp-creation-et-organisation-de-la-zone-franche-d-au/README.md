@@ -1,8 +1,8 @@
 # Décret n° 2009-0207/PR/MEFPCP portant création et organisation de la Zone Franche d’Automobiles et d’Equipements Lourds “D.A.H.E.Z.”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0207-pr-mefpcp-portant-creation-et-organisation-de-la-zone-franche-dautomobiles-et-dequipements-lourds-d-a-h-e-z/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0207-pr-mefpcp-portant-creation-et-organisation-de-la-zone-franche-dautomobiles-et-dequipements-lourds-d-a-h-e-z/>
 
-En vigueur : 2009-09-07 (date fixÃ©e par le texte).
+En vigueur : 2009-09-07 (date fixée par le texte).
 
 ## Visas
 
@@ -28,4 +28,4 @@ VU le Décret n°2003-0202/PRE du 09 octobre 2003 portant réglementation des ac
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

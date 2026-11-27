@@ -1,6 +1,6 @@
 # Rectificatif n° 71-450-1934 Bénéfice d’un congé aux fonctionnaires et agents relevant du ministère des colonies admis à la retraite par mesure de réduction d’effectifs. (Rectificatif)
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-71-450-1934-benefice-dun-conge-aux-fonctionnaires-et-agents-relevant-du-ministere-des-colonies-admis-a-la-retraite-par-mesure-de-reduction-deffectifs-rectificatif/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-71-450-1934-benefice-dun-conge-aux-fonctionnaires-et-agents-relevant-du-ministere-des-colonies-admis-a-la-retraite-par-mesure-de-reduction-deffectifs-rectificatif/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

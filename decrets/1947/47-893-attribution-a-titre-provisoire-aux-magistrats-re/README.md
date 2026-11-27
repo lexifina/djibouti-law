@@ -1,6 +1,6 @@
 # Décret n° 47-893 portant attribution à titre provisoire aux Magistrats relevant du ministère de la France d’outre-mer de versements mensuels et suppression de l’indemnité exceptionnelle et temporaire allouée par le décret du 25 février 1947.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-893-portant-attribution-a-titre-provisoire-aux-magistrats-relevant-du-ministere-de-la-france-doutre-mer-de-versements-mensuels-et-suppression-de-lindemnite-exceptionnelle-et-tem/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-893-portant-attribution-a-titre-provisoire-aux-magistrats-relevant-du-ministere-de-la-france-doutre-mer-de-versements-mensuels-et-suppression-de-lindemnite-exceptionnelle-et-tem/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 94-0039/PR/MEC fixant la date des élections consulaires et la répartition des sièges à pourvoir entre résidents nationaux et étrangers
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0039-pr-mec-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0039-pr-mec-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
 
 En vigueur : 1994-03-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |

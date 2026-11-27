@@ -1,6 +1,6 @@
 # Décret n° 50-826 le décret du 30 juin 1950 rendant applicable aux territoires relevant de la France d’outre-mer autres que l’Indochine, la loi n° 48-1282 du 18 août
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-826-le-decret-du-30-juin-1950-rendant-applicable-aux-territoires-relevant-de-la-france-doutre-mer-autres-que-lindochine-la-loi-n-48-1282-du-18-aout/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-826-le-decret-du-30-juin-1950-rendant-applicable-aux-territoires-relevant-de-la-france-doutre-mer-autres-que-lindochine-la-loi-n-48-1282-du-18-aout/>
 
 En vigueur : 1950-08-01 (date du Journal officiel qui le publie).
 

@@ -1,1 +1,0 @@
-pendant la durée de l’absence de S.E.M. Hassan Omar Mohamed, l’intérim des fonctions du Ministre de l’Intérieur sera assuré par S.E.M. Abdoulkader Kamil Mohamed, Premier Ministre cumulativement avec ses fonctions.

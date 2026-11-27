@@ -1,6 +1,6 @@
 # Décret n° 15-479-1936 Extension aux colonies relevant de l’autorité du Ministre des colonies, à l’exception de l’Indochine, de l’Afrique occidentale fran- caise, de l’Afrique équatoriale française et de Madagascar, des dispositions de la loi du 9 juillet 1934, modifiant et complétant les articles 187 et 193 du Code d’’instruclion criminelle,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-479-1936-extension-aux-colonies-relevant-de-lautorite-du-ministre-des-colonies-a-lexception-de-lindochine-de-lafrique-occidentale-fran-caise-de-lafrique-equatoriale-fr/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-479-1936-extension-aux-colonies-relevant-de-lautorite-du-ministre-des-colonies-a-lexception-de-lindochine-de-lafrique-occidentale-fran-caise-de-lafrique-equatoriale-fr/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

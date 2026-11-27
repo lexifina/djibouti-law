@@ -1,6 +1,6 @@
 # Décret n° n°3 Décret relatif aux frais de traitement, d’entretien et de rapatriement des marins du commerce délaissés pour cause de maladie ou de blessure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 447 du 28/02/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n3-decret-relatif-aux-frais-de-traitement-dentretien-et-de-rapatriement-des-marins-du-commerce-delaisses-pour-cause-de-maladie-ou-de-blessure/>
+Décret · Journal officiel de la République de Djibouti, n° 447 du 28/02/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n3-decret-relatif-aux-frais-de-traitement-dentretien-et-de-rapatriement-des-marins-du-commerce-delaisses-pour-cause-de-maladie-ou-de-blessure/>
 
 En vigueur : 1934-02-28 (date du Journal officiel qui le publie).
 

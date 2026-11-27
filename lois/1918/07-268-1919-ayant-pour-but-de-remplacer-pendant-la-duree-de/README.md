@@ -1,6 +1,6 @@
 # Loi n° 07-268-1919 ayant pour but de remplacer, pendant la durée de la guerre, les lois et règlements concernant actuellement le sauvetage des épares.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 268 du 28/02/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-07-268-1919-ayant-pour-but-de-remplacer-pendant-la-duree-de-la-guerre-les-lois-et-reglements-concernant-actuellement-le-sauvetage-des-epares/>
+Loi · Journal officiel de la République de Djibouti, n° 268 du 28/02/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-07-268-1919-ayant-pour-but-de-remplacer-pendant-la-duree-de-la-guerre-les-lois-et-reglements-concernant-actuellement-le-sauvetage-des-epares/>
 
 En vigueur : 1919-02-28 (date du Journal officiel qui le publie).
 

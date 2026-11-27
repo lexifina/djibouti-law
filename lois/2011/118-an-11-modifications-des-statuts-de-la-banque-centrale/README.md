@@ -1,8 +1,8 @@
 # Loi n° 118/AN/11/6ème L portant modifications des statuts de la Banque Centrale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-11-6eme-l-portant-modifications-des-statuts-de-la-banque-centrale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-11-6eme-l-portant-modifications-des-statuts-de-la-banque-centrale-de-djibouti/>
 
-En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -104,4 +104,4 @@ ISMAÏL OMAR GUELLEH
 | [art-059.md](art-059.md) | Article 59 |
 | [art-060.md](art-060.md) | Article 60 |
 | [art-061.md](art-061.md) | Article 61 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

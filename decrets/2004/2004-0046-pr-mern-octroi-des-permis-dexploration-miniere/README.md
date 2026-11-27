@@ -1,6 +1,6 @@
 # Décret n° 2004-0046/PR/MERN portant octroi des permis d’exploration minière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0046-pr-mern-portant-octroi-des-permis-dexploration-miniere/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0046-pr-mern-portant-octroi-des-permis-dexploration-miniere/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

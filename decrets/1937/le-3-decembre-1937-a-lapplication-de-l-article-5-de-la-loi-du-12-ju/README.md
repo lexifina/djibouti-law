@@ -1,6 +1,6 @@
 # Décret n° le 3 décembre 1937. relatif à l’application de l’article 5 de la loi du 12 juillet 1937 portant amnistie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-3-decembre-1937-relatif-a-lapplication-de-larticle-5-de-la-loi-du-12-juillet-1937-portant-amnistie/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-3-decembre-1937-relatif-a-lapplication-de-larticle-5-de-la-loi-du-12-juillet-1937-portant-amnistie/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 

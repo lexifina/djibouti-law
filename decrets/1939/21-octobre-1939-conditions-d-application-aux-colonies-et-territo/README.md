@@ -1,6 +1,6 @@
 # Décret n° 21 octobre 1939 fixant les conditions d° application aux colonies et territoires africains sous mandat Français des décrets du 9 septembre et du 4 octobre 1939 relatifs aux avoirs à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-octobre-1939-fixant-les-conditions-d-application-aux-colonies-et-territoires-africains-sous-mandat-francais-des-decrets-du-9-septembre-et-du-4-octobre-1939-relatifs-aux-avoirs/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-octobre-1939-fixant-les-conditions-d-application-aux-colonies-et-territoires-africains-sous-mandat-francais-des-decrets-du-9-septembre-et-du-4-octobre-1939-relatifs-aux-avoirs/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Greorves MANDEI
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

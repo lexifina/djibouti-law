@@ -1,6 +1,6 @@
 # Décret n° 64-1200 portant création d’une assemblée permanente des chambres de commerce et d’industrie (J.O.R.F. du 5 décembre 1964, p. 10835) [arrêté de promulgation n° 127 du 28 janvier 1965].
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-1200-portant-creation-dune-assemblee-permanente-des-chambres-de-commerce-et-dindustrie-j-o-r-f-du-5-decembre-1964-p-10835-arrete-de-promulgation-n-127/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-1200-portant-creation-dune-assemblee-permanente-des-chambres-de-commerce-et-dindustrie-j-o-r-f-du-5-decembre-1964-p-10835-arrete-de-promulgation-n-127/>
 
 En vigueur : 1965-03-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1617 relatif aux traitements et aux classes du personnel des trésoreries coloniales (1er et 2e groupe).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1617-relatif-aux-traitements-et-aux-classes-du-personnel-des-tresoreries-coloniales-1er-et-2e-groupe/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1617-relatif-aux-traitements-et-aux-classes-du-personnel-des-tresoreries-coloniales-1er-et-2e-groupe/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

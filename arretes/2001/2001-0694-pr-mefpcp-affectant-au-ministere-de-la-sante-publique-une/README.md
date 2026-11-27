@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0694/PR/MEFPCP affectant au Ministère de la Santé Publique une parcelle de terrain sise à Balbala T3.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0694-pr-mefpcp-affectant-au-ministere-de-la-sante-publique-une-parcelle-de-terrain-sise-a-balbala-t3/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0694-pr-mefpcp-affectant-au-ministere-de-la-sante-publique-une-parcelle-de-terrain-sise-a-balbala-t3/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

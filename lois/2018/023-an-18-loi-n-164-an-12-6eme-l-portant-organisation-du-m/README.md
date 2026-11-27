@@ -1,6 +1,6 @@
 # Loi n° 23/AN/18/8ème L modifiant la loi n° 164/AN/12/6ème L portant organisation du Ministère de l’Education Nationale et de la Formation Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-18-8eme-l-modifiant-la-loi-n164-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-18-8eme-l-modifiant-la-loi-n164-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
 En vigueur : 2018-11-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

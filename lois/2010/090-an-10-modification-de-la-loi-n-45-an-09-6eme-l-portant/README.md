@@ -1,6 +1,6 @@
 # Loi n° 90/AN/10/6ème L portant modification de la loi n° 45/AN/09/6ème L portant création de la Société Djiboutienne de Sécurité Alimentaire (SDSA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-10-6eme-l-portant-modification-de-la-loi-n45-an-09-6eme-l-portant-creation-de-la-societe-djiboutienne-de-securite-alimentaire-sdsa/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-10-6eme-l-portant-modification-de-la-loi-n45-an-09-6eme-l-portant-creation-de-la-societe-djiboutienne-de-securite-alimentaire-sdsa/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

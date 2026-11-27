@@ -1,6 +1,6 @@
 # Loi n° 9/AN/87/2ème L portant approbation de l’extension de la Zone Industrielle Sud, aux Salines Est de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-87-2eme-l-portant-approbation-de-lextension-de-la-zone-industrielle-sud-aux-salines-est-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-87-2eme-l-portant-approbation-de-lextension-de-la-zone-industrielle-sud-aux-salines-est-de-djibouti/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2019-309/PRE portant modification du Décret n° 2014-278/PRE portant création, en République de Djibouti, de “Djibouti Data Center”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-309-pre-portant-modification-du-decret-n2014-278-pre-portant-creation-en-republique-de-djibouti-de-djibouti-data-center/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-309-pre-portant-modification-du-decret-n2014-278-pre-portant-creation-en-republique-de-djibouti-de-djibouti-data-center/>
 
 En vigueur : 2019-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

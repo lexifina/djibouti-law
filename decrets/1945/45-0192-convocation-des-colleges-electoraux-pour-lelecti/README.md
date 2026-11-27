@@ -1,6 +1,6 @@
 # Décret n° 45-0192 portant convocation des collèges électoraux pour l’élection du Conseil re présentatif de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0192-portant-convocation-des-colleges-electoraux-pour-lelection-du-conseil-re-presentatif-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0192-portant-convocation-des-colleges-electoraux-pour-lelection-du-conseil-re-presentatif-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1946-01-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ J. SOUSTELLE.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

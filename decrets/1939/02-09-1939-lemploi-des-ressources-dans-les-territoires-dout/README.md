@@ -1,6 +1,6 @@
 # Décret n° 02/09/1939 l’emploi des ressources dans les territoires d’outre-mer dépendant du Ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-09-1939-lemploi-des-ressources-dans-les-territoires-doutre-mer-dependant-du-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-09-1939-lemploi-des-ressources-dans-les-territoires-doutre-mer-dependant-du-ministere-des-colonies/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

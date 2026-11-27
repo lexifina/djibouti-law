@@ -1,6 +1,6 @@
 # Loi n° 104/AN/841re L. du budget ordinaire de l’exercice
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-841re-l-du-budget-ordinaire-de-lexercice/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-841re-l-du-budget-ordinaire-de-lexercice/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 

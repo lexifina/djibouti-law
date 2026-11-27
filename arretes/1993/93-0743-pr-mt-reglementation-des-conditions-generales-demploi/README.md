@@ -1,6 +1,6 @@
 # Arrêté n° 93-0743/PR/MT portant réglementation des conditions générales d’emploi des travailleurs civiles des forces armées étrangères stationnées à Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0743-pr-mt-portant-reglementation-des-conditions-generales-demploi-des-travailleurs-civiles-des-forces-armees-etrangeres-stationnees-a-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0743-pr-mt-portant-reglementation-des-conditions-generales-demploi-des-travailleurs-civiles-des-forces-armees-etrangeres-stationnees-a-djibouti/>
 
 En vigueur : 1993-07-31 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ HASSAN GOULED APTIDON
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

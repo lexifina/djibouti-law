@@ -1,6 +1,6 @@
 # Loi de finances n° 181/AN/22/8ème L portant Budget Initial de l’Etat de l’exercice 2023.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 29/12/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n181-an-22-8eme-l-portant-budget-initial-de-letat-de-lexercice-2023/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 29/12/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n181-an-22-8eme-l-portant-budget-initial-de-letat-de-lexercice-2023/>
 
 En vigueur : 2022-12-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

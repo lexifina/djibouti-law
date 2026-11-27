@@ -1,6 +1,6 @@
 # Loi n° 30/AN/88/2ème L accordant une parcelle de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-88-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-88-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

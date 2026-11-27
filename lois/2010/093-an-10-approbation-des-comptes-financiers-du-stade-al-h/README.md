@@ -1,6 +1,6 @@
 # Loi n° 93/AN/10/6ème L portant approbation des Comptes Financiers du Stade “Al Hadj Hassan Gouled Aptidon” pour l’exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-10-6eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-10-6eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2008/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

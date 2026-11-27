@@ -1,6 +1,6 @@
 # Arrêté n° 2019-008/PR/MS approuvant et rendant exécutoire le Budget prévisionnel consolidé 2019 de l’Hôpital de Balbala.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-008-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2019-de-lhopital-de-balbala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-008-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2019-de-lhopital-de-balbala/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

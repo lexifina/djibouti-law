@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0340/PRE portant création du Comité National d’Organisation du Séminaire de Réflexion sur l’Action Gouvernementale 2002-2009.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0340-pre-portant-creation-du-comite-national-dorganisation-du-seminaire-de-reflexion-sur-laction-gouvernementale-2002-2009/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0340-pre-portant-creation-du-comite-national-dorganisation-du-seminaire-de-reflexion-sur-laction-gouvernementale-2002-2009/>
 
 En vigueur : 2009-04-30 (date du Journal officiel qui le publie).
 

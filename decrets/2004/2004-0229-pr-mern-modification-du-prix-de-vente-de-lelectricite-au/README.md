@@ -1,6 +1,6 @@
 # Décret n° 2004-0229/PR/MERN portant modification du prix de vente de l’électricité aux boulangeries.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0229-pr-mern-portant-modification-du-prix-de-vente-de-lelectricite-aux-boulangeries/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0229-pr-mern-portant-modification-du-prix-de-vente-de-lelectricite-aux-boulangeries/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

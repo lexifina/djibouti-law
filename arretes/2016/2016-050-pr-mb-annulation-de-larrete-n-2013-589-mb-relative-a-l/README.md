@@ -1,6 +1,6 @@
 # Arrêté n° 2016-050/PR/MB portant annulation de l’Arrêté n° 2013-589/MB relative à la déchéance des droits accordés sur le Titre Foncier n° 326.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-050-pr-mb-portant-annulation-de-larrete-n2013-589-mb-relative-a-la-decheance-des-droits-accordes-sur-le-titre-foncier-n326/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-050-pr-mb-portant-annulation-de-larrete-n2013-589-mb-relative-a-la-decheance-des-droits-accordes-sur-le-titre-foncier-n326/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

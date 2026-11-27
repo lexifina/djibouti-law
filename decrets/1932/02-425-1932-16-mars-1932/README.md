@@ -1,6 +1,6 @@
 # Décret n° 02-425-1932 16 mars 1932
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 425 du 30/04/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-425-1932-16-mars-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 425 du 30/04/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-425-1932-16-mars-1932/>
 
 En vigueur : 1932-04-30 (date du Journal officiel qui le publie).
 
@@ -22,5 +22,5 @@ DE CHAPPEDELAINE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er – |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art. 2 |

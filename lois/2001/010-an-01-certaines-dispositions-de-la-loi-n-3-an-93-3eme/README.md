@@ -1,6 +1,6 @@
 # Loi Organique n° 10/AN/01/4ème L modifiant certaines dispositions de la loi n° 3/AN/93/3ème L du 07 avril 1993 relative à l’organisation et au fonctionnement du Conseil Supérieur de la Magistrature.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n10-an-01-4eme-l-modifiant-certaines-dispositions-de-la-loi-n3-an-93-3eme-l-du-07-avril-1993-relative-a-lorganisation-et-au-fonctionnement-du-conseil-superieur-de-la/>
+Loi organique · Journal officiel de la République de Djibouti, n° 4 du 28/02/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n10-an-01-4eme-l-modifiant-certaines-dispositions-de-la-loi-n3-an-93-3eme-l-du-07-avril-1993-relative-a-lorganisation-et-au-fonctionnement-du-conseil-superieur-de-la/>
 
 En vigueur : 2001-02-28 (date du Journal officiel qui le publie).
 

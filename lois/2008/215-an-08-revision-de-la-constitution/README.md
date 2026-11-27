@@ -1,6 +1,6 @@
 # Loi n° 215/AN/08/5ème L portant révision de la Constitution.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-08-5eme-l-portant-revision-de-la-constitution/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-08-5eme-l-portant-revision-de-la-constitution/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 60-752 portant modification de certaines dispositions du code de la nationalité
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1962 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-60-752-portant-modification-de-certaines-dispositions-du-code-de-la-nationalite/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 28/02/1962 · <https://www.journalofficiel.dj/texte-juridique/loi-n-60-752-portant-modification-de-certaines-dispositions-du-code-de-la-nationalite/>
 
 En vigueur : 1962-02-28 (date du Journal officiel qui le publie).
 

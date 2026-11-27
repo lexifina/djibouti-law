@@ -1,8 +1,8 @@
 # Loi n° 83/AN/00/4ème L portant statuts des auxiliaires de Transport Maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-00-4eme-l-portant-statuts-des-auxiliaires-de-transport-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-00-4eme-l-portant-statuts-des-auxiliaires-de-transport-maritime/>
 
-En vigueur : 2000-07-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-07-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | ARTICLE 40 |
 | [art-041.md](art-041.md) | ARTICLE 41 |
 | [art-042.md](art-042.md) | ARTICLE 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

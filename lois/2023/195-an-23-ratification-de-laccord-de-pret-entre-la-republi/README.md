@@ -1,6 +1,6 @@
 # Loi n° 195/AN/23/8ème L portant ratification de l’accord de prêt entre la République de Djibouti et la Banque Islamique de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-23-8eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-23-8eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
 
 En vigueur : 2023-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

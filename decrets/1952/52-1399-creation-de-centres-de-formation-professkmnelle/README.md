@@ -1,6 +1,6 @@
 # Décret n° 52-1399 portant création de centres de formation professkmnelle rapide.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1399-portant-creation-de-centres-de-formation-professkmnelle-rapide/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1399-portant-creation-de-centres-de-formation-professkmnelle-rapide/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ LOUIS-PAUL AUJOULAT.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 5308 rendant applicables aux équipages des navires ayant leur port d’attache dans les colonie». les dispositions de la loi du 23 août 1941 réprimant le» désertions des marins du commerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5308-rendant-applicables-aux-equipages-des-navires-ayant-leur-port-dattache-dans-les-colonie-les-dispositions-de-la-loi-du-23-aout-1941-reprimant-le-desertions-de/>
+Décret · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5308-rendant-applicables-aux-equipages-des-navires-ayant-leur-port-dattache-dans-les-colonie-les-dispositions-de-la-loi-du-23-aout-1941-reprimant-le-desertions-de/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

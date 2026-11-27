@@ -1,6 +1,6 @@
 # Décret n° n° » 47-1615 portant modification au décret du 16 février 1925 réglant le service de Ja gendarmerie détachée aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-1615-portant-modification-au-decret-du-16-fevrier-1925-reglant-le-service-de-ja-gendarmerie-detachee-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-1615-portant-modification-au-decret-du-16-fevrier-1925-reglant-le-service-de-ja-gendarmerie-detachee-aux-colonies/>
 
 En vigueur : 1947-10-31 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ paul coste -floret
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

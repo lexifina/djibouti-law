@@ -1,1 +1,0 @@
-Par décret n°2023-248/PRE, du Président de la République, Chef du Gouvernement, en date du 08 août 2023, pendant la durée de l’absence de S.E.M. HASSAN HOUMED IBRAHIM, l’intérim des fonctions du Ministre des Infrastructures et de l’Equipement sera assuré par S.E.Dr. HIBO MOUMIN ASSOWEH, Ministre de la Jeunesse et de la Culture cumulativement avec ses fonctions.

@@ -1,6 +1,6 @@
 # Loi n° 189/AN/02/4ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et l’Association Internationale de Développement (Banque Mondiale).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-02-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement-banque-mondiale/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-02-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement-banque-mondiale/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 

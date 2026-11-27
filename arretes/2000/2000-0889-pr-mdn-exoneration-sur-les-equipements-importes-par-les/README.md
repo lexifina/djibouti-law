@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0889/PR/MDN portant exonération sur les équipements importés par les U.S.A au profit du Centre de déminage.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0889-pr-mdn-portant-exoneration-sur-les-equipements-importes-par-les-u-s-a-au-profit-du-centre-de-deminage/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0889-pr-mdn-portant-exoneration-sur-les-equipements-importes-par-les-u-s-a-au-profit-du-centre-de-deminage/>
 
 En vigueur : 2000-11-30 (date du Journal officiel qui le publie).
 

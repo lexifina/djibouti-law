@@ -1,8 +1,8 @@
 # Loi n° 043/AN/19/8ème L portant adoption de la Stratégie nationale de protection sociale 2018-2022 de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n043-an-19-8eme-l-portant-adoption-de-la-strategie-nationale-de-protection-sociale-2018-2022-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n043-an-19-8eme-l-portant-adoption-de-la-strategie-nationale-de-protection-sociale-2018-2022-de-la-republique-de-djibouti/>
 
-En vigueur : 2019-06-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-06-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

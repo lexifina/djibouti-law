@@ -1,6 +1,6 @@
 # Décret n° 2026-051/PR/MJDH portant mesures de Grâce Présidentielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 31/03/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-051-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 06 du 31/03/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-051-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2026-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

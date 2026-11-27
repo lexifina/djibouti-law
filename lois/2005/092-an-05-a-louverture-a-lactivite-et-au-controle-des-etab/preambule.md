@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE PREMIER : DES BANQUES ET DES
 ETABLISSEMENTS FINANCIERS CONCERNES
 Chapitre I : Des généralités

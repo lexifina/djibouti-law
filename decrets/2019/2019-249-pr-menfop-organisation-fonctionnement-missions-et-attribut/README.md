@@ -1,6 +1,6 @@
 # Décret n° 2019-249/PR/MENFOP portant organisation, fonctionnement, missions et attributions de l’Inspection Générale de l’Education Nationale (IGEN).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-249-pr-menfop-portant-organisation-fonctionnement-missions-et-attributions-de-linspection-generale-de-leducation-nationale-igen/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-249-pr-menfop-portant-organisation-fonctionnement-missions-et-attributions-de-linspection-generale-de-leducation-nationale-igen/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

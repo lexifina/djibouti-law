@@ -1,6 +1,6 @@
 # Décret n° 9 mars 1938 portant approbation du budget local de la Côte française des Somalis pour l’exercice 1938.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 497 du 30/04/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mars-1938-portant-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 497 du 30/04/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mars-1938-portant-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1938/>
 
 En vigueur : 1938-04-30 (date du Journal officiel qui le publie).
 

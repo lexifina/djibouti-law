@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 à Art 1er. — Les recettes réalisées et les dépenses ordonnancées au
 titre du budget de l’Etat de l’exercice 1979 sont arrêtées définitivement
 comme suit :

@@ -1,6 +1,6 @@
 # Arrêté n° 2020-007/PRE portant exonération d’impôts et de taxes des activités du Projet de Modernisation de l’Administration Publique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-007-pre-portant-exoneration-dimpots-et-de-taxes-des-activites-du-projet-de-modernisation-de-ladministration-publique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-007-pre-portant-exoneration-dimpots-et-de-taxes-des-activites-du-projet-de-modernisation-de-ladministration-publique/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 107/AN/90/2eL relative aux prêts consentis par la caisse de Développement d Djibouti .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-90-2el-relative-aux-prets-consentis-par-la-caisse-de-developpement-d-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-90-2el-relative-aux-prets-consentis-par-la-caisse-de-developpement-d-djibouti/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 

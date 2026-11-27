@@ -1,6 +1,6 @@
 # Décret n° 24 septembre 1940 Loi autorisant la prise en charge par les colonies des intérêts des avances garanties par la loi du 20 août 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-septembre-1940-loi-autorisant-la-prise-en-charge-par-les-colonies-des-interets-des-avances-garanties-par-la-loi-du-20-aout-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-septembre-1940-loi-autorisant-la-prise-en-charge-par-les-colonies-des-interets-des-avances-garanties-par-la-loi-du-20-aout-1940/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 
@@ -24,6 +24,6 @@ BAUDOUIN
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3– |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art.4 |
 | [art-005.md](art-005.md) | Art. 5 |

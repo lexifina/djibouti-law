@@ -1,1 +1,0 @@
-Par décret n°2023-328/PR/MI, du Président de la République, chef du Gouvernement, en date du 06 novembre 2023, pendant la durée de l’absence de S.E.M. SAID NOUH HASSAN, l’intérim des fonctions du Ministre de l’Intérieur sera assuré par S.E.M. KASSIM HAROUN ALI, Ministre Délégué chargé de la Décentralisation cumulativement avec ses fonctions.

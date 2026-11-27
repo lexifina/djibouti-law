@@ -1,6 +1,6 @@
 # Loi n° 64/AN/14/7ème L portant ratification de l’Accord de financement du programme d’appui à la réduction de la vulnérabilité dans les zones de pêches côtières financées par le FIDA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-programme-dappui-a-la-reduction-de-la-vulnerabilite-dans-les-zones-de-peches-cotieres-financees-par-le-fida/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-programme-dappui-a-la-reduction-de-la-vulnerabilite-dans-les-zones-de-peches-cotieres-financees-par-le-fida/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0111/PRE approuvant et rendant exécutoire le Budget Primitif 1996 de l’Office National du Tourisme et de l’Artisanat
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0111-pre-approuvant-et-rendant-executoire-le-budget-primitif-1996-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0111-pre-approuvant-et-rendant-executoire-le-budget-primitif-1996-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1997-07-15 (date du Journal officiel qui le publie).
 

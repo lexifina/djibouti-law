@@ -1,6 +1,6 @@
 # Décret n° 5-437-1933 Application aux colonies et aux territoires sous mandat du Togo et du Cameroun de la convention aérienne franco-espagnole du 22 mars 1928.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 437 du 30/04/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-437-1933-application-aux-colonies-et-aux-territoires-sous-mandat-du-togo-et-du-cameroun-de-la-convention-aerienne-franco-espagnole-du-22-mars-1928/>
+Décret · Journal officiel de la République de Djibouti, n° 437 du 30/04/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-437-1933-application-aux-colonies-et-aux-territoires-sous-mandat-du-togo-et-du-cameroun-de-la-convention-aerienne-franco-espagnole-du-22-mars-1928/>
 
 En vigueur : 1933-04-30 (date du Journal officiel qui le publie).
 

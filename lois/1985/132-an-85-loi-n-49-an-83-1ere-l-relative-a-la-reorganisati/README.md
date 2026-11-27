@@ -1,6 +1,6 @@
 # Loi n° 132/AN/85/1ère L Modifiant la Loi n° 49/AN/83/ 1ère L relative à la réorganisation et aux attributions du Ministre des Travaux Publics de l’Urbanisme et du Logement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-85-1ere-l-modifiant-la-loi-n-49-an-83-1ere-l-relative-a-la-reorganisation-et-aux-attributions-du-ministre-des-travaux-publics-de-lurbanisme-et-du-logement/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-85-1ere-l-modifiant-la-loi-n-49-an-83-1ere-l-relative-a-la-reorganisation-et-aux-attributions-du-ministre-des-travaux-publics-de-lurbanisme-et-du-logement/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

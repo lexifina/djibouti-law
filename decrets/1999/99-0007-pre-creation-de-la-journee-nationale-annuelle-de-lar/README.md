@@ -1,8 +1,8 @@
 # Décret n° 99-0007/PRE portant création de la Journée Nationale Annuelle de l’Artiste
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0007-pre-portant-creation-de-la-journee-nationale-annuelle-de-lartiste/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0007-pre-portant-creation-de-la-journee-nationale-annuelle-de-lartiste/>
 
-En vigueur : 1999-01-31 (date fixÃ©e par le texte).
+En vigueur : 1999-01-31 (date fixée par le texte).
 
 ## Visas
 

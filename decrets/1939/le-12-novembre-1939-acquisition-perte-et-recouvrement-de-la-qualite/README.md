@@ -1,6 +1,6 @@
 # Décret n° le 12 novembre 1939. Acquisition, perte et recouvrement de la qualité de Français dans les colonies autres que les Antilles et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-novembre-1939-acquisition-perte-et-recouvrement-de-la-qualite-de-francais-dans-les-colonies-autres-que-les-antilles-et-la-reunion/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-novembre-1939-acquisition-perte-et-recouvrement-de-la-qualite-de-francais-dans-les-colonies-autres-que-les-antilles-et-la-reunion/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

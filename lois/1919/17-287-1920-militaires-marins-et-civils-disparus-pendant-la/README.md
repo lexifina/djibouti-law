@@ -1,6 +1,6 @@
 # Loi n° 17-287-1920 relative aux militaires, marins et civils disparus pendant la durée des hostilités.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 287 du 30/09/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-17-287-1920-relative-aux-militaires-marins-et-civils-disparus-pendant-la-duree-des-hostilites/>
+Loi · Journal officiel de la République de Djibouti, n° 287 du 30/09/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-17-287-1920-relative-aux-militaires-marins-et-civils-disparus-pendant-la-duree-des-hostilites/>
 
 En vigueur : 1920-09-30 (date du Journal officiel qui le publie).
 

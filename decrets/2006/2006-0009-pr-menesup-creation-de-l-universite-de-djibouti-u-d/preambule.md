@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Titre I
 DU CHANGEMENT DE DÉNOMINATION

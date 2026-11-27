@@ -1,6 +1,6 @@
 # Décret n° 2014-290/PR/MEFCI portant création du Comité National d’Organisation des travaux des réunions conjointes et de la 8ème réunion des Ministres des infrastructures des pays membres du COMESA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-290-pr-mefci-portant-creation-du-comite-national-dorganisation-des-travaux-des-reunions-conjointes-et-de-la-8eme-reunion-des-ministres-des-infrastructures-des-pays-membres-du-com/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-290-pr-mefci-portant-creation-du-comite-national-dorganisation-des-travaux-des-reunions-conjointes-et-de-la-8eme-reunion-des-ministres-des-infrastructures-des-pays-membres-du-com/>
 
 En vigueur : 2014-10-15 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

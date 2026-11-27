@@ -1,6 +1,6 @@
 # Décret n° Texte de l’acte constitutionnel n° 7. Nous, Maréchal de France, Chef de l’État français,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 531 du 28/02/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-texte-de-lacte-constitutionnel-n-7-nous-marechal-de-france-chef-de-letat-francais/>
+Décret · Journal officiel de la République de Djibouti, n° 531 du 28/02/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-texte-de-lacte-constitutionnel-n-7-nous-marechal-de-france-chef-de-letat-francais/>
 
 En vigueur : 1941-02-28 (date du Journal officiel qui le publie).
 

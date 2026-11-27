@@ -1,6 +1,6 @@
 # Loi n° 56/AN/04/5ème L portant adhésion de la République de Djibouti aux amendements des Chapitres V, XI et les nouvelles dispositions du Chapitre XI-2 de la Convention internationale pour la sauvegarde de la vie humaine en mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-04-5eme-l-portant-adhesion-de-la-republique-de-djibouti-aux-amendements-des-chapitres-v-xi-et-les-nouvelles-dispositions-du-chapitre-xi-2-de-la-convention-internationale-pour-la-sauv/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-04-5eme-l-portant-adhesion-de-la-republique-de-djibouti-aux-amendements-des-chapitres-v-xi-et-les-nouvelles-dispositions-du-chapitre-xi-2-de-la-convention-internationale-pour-la-sauv/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

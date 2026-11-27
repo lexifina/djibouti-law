@@ -1,6 +1,6 @@
 # Décret n° 99-0040/PR/MJAPM portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0040-pr-mjapm-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0040-pr-mjapm-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 1999-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 80-151/MI complétant le Code de la Route et relatif aux bruits, fumées, gaze toxiques, perturbations radioélectriques émis par les véhicules.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-151-mi-completant-le-code-de-la-route-et-relatif-aux-bruits-fumees-gaze-toxiques-perturbations-radioelectriques-emis-par-les-vehicules/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-151-mi-completant-le-code-de-la-route-et-relatif-aux-bruits-fumees-gaze-toxiques-perturbations-radioelectriques-emis-par-les-vehicules/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Le Conseil des Ministres entendu en sa séance du 28 décembre1980.
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

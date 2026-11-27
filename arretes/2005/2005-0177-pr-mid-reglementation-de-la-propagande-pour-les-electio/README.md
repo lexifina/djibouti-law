@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0177/PR/MID Portant réglementation de la propagande pour les Élections Présidentielles du 08 avril 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0177-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2005/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0177-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2005/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

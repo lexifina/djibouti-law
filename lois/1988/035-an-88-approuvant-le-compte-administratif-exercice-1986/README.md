@@ -1,6 +1,6 @@
 # Loi n° 35/AN/88/2ème L approuvant le compte administratif, exercice 1986 de l’Établissement public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-88-2eme-l-approuvant-le-compte-administratif-exercice-1986-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-88-2eme-l-approuvant-le-compte-administratif-exercice-1986-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

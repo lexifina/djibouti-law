@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0313/PR/MID portant implantation et désignation des membres des bureaux de vote à l’étranger.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0313-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote-a-letranger/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 17/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0313-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote-a-letranger/>
 
 En vigueur : 2011-04-17 (date du Journal officiel qui le publie).
 

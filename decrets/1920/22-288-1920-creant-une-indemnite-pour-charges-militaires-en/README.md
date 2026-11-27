@@ -1,6 +1,6 @@
 # Décret n° 22-288-1920 créant une indemnité pour charges militaires en faveur des officiers et militaires de carrière à solde mensuelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 288 du 31/10/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-288-1920-creant-une-indemnite-pour-charges-militaires-en-faveur-des-officiers-et-militaires-de-carriere-a-solde-mensuelle/>
+Décret · Journal officiel de la République de Djibouti, n° 288 du 31/10/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-288-1920-creant-une-indemnite-pour-charges-militaires-en-faveur-des-officiers-et-militaires-de-carriere-a-solde-mensuelle/>
 
 En vigueur : 1920-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi Organique n° 96/AN/20/8ème L portant pluralisme politique lors des campagnes électorales et modifiant certaines dispositions de la loi organique n° 1/AN/92 relative aux élections.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 04/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n96-an-20-8eme-l-portant-pluralisme-politique-lors-des-campagnes-electorales-et-modifiant-certaines-dispositions-de-la-loi-organique-n1-an-92-relative-aux-elections-2/>
+Loi organique · Journal officiel de la République de Djibouti, n° 1 du 04/03/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n96-an-20-8eme-l-portant-pluralisme-politique-lors-des-campagnes-electorales-et-modifiant-certaines-dispositions-de-la-loi-organique-n1-an-92-relative-aux-elections-2/>
 
 En vigueur : 2021-03-05 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

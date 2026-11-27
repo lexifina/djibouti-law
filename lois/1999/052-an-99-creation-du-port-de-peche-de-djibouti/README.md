@@ -1,6 +1,6 @@
 # Loi n° 52/AN/99/4ème L portant création du Port de Pêche de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-99-4eme-l-portant-creation-du-port-de-peche-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-99-4eme-l-portant-creation-du-port-de-peche-de-djibouti/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 

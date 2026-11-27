@@ -1,6 +1,6 @@
 # Décret n° 92-0010/PR/CAB portant création d’une commission pour l’élaboration et la rédaction d’un projet de constitution.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0010-pr-cab-portant-creation-dune-commission-pour-lelaboration-et-la-redaction-dun-projet-de-constitution/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 30/01/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0010-pr-cab-portant-creation-dune-commission-pour-lelaboration-et-la-redaction-dun-projet-de-constitution/>
 
 En vigueur : 1992-01-30 (date du Journal officiel qui le publie).
 

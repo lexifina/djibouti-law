@@ -1,6 +1,6 @@
 # Loi n° 5-414-1931 portant renouvellement du privilège d’émission de la banque de l’Indochine.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 414 du 31/05/1931 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-414-1931-portant-renouvellement-du-privilege-demission-de-la-banque-de-lindochine/>
+Loi · Journal officiel de la République de Djibouti, n° 414 du 31/05/1931 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-414-1931-portant-renouvellement-du-privilege-demission-de-la-banque-de-lindochine/>
 
 En vigueur : 1931-05-31 (date du Journal officiel qui le publie).
 

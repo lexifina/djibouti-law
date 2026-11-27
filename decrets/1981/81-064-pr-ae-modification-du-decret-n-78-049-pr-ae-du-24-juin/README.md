@@ -1,8 +1,8 @@
 # Décret n° 81-064/PR/AE portant modification du décret n° 78-049/PR/AE du 24 juin 1978, portant lui-même statut particulier du personnel du corps des Conseillers d’Ambassade, Ministres Conseillers et Ministres Plénipotentiaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-064-pr-ae-portant-modification-du-decret-n78-049-pr-ae-du-24-juin-1978-portant-lui-meme-statut-particulier-du-personnel-du-corps-des-conseillers-dambassade-ministres-conseil/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-064-pr-ae-portant-modification-du-decret-n78-049-pr-ae-du-24-juin-1978-portant-lui-meme-statut-particulier-du-personnel-du-corps-des-conseillers-dambassade-ministres-conseil/>
 
-En vigueur : 1981-01-01 (date fixÃ©e par le texte).
+En vigueur : 1981-01-01 (date fixée par le texte).
 
 ## Visas
 

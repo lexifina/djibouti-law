@@ -1,6 +1,6 @@
 # Loi n° 135/AN/11/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement (B.I.D).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-11-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-b-i-d/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-11-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-b-i-d/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

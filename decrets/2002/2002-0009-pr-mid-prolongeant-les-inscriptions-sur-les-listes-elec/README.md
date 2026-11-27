@@ -1,6 +1,6 @@
 # Décret n° 2002-0009/PR/MID prolongeant les inscriptions sur les listes électorales et réduisant la période de contrôle des listes électorables.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0009-pr-mid-prolongeant-les-inscriptions-sur-les-listes-electorales-et-reduisant-la-periode-de-controle-des-listes-electorables/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0009-pr-mid-prolongeant-les-inscriptions-sur-les-listes-electorales-et-reduisant-la-periode-de-controle-des-listes-electorables/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

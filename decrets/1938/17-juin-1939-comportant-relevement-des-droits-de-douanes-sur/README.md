@@ -1,6 +1,6 @@
 # Décret n° 17 juin 1939 comportant relèvement des droits de douanes sur les denrées coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-juin-1939-comportant-relevement-des-droits-de-douanes-sur-les-denrees-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-juin-1939-comportant-relevement-des-droits-de-douanes-sur-les-denrees-coloniales/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 46-729 portant amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-729-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-729-portant-amnistie/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Marins MOUTET.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

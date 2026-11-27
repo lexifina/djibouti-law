@@ -1,6 +1,6 @@
 # Loi n° 72/AN/04/5ème L portant ratification d’un Accord pour l’Encouragement et la Protection de l’Investissement entre la République de Djibouti et le Fonds de l’Organisation des Pays Exportateurs de Pétrole (OPEP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-04-5eme-l-portant-ratification-dun-accord-pour-lencouragement-et-la-protection-de-linvestissement-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exporta/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-04-5eme-l-portant-ratification-dun-accord-pour-lencouragement-et-la-protection-de-linvestissement-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exporta/>
 
 En vigueur : 2004-07-15 (date du Journal officiel qui le publie).
 

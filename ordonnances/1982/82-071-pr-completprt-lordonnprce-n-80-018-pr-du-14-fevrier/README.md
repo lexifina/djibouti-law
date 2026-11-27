@@ -1,6 +1,6 @@
 # Ordonnance n° 82-071/PR complétprt l’ordonnprce n° 80-018/PR du 14 février 1980 sur les Sociétés anonymes de la zone franche et relative à leur immatriculation directe au Registre du Commerce de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-071-pr-completprt-lordonnprce-n80-018-pr-du-14-fevrier-1980-sur-les-societes-anonymes-de-la-zone-franche-et-relative-a-leur-immatriculation-directe-au-registre-du-commerce/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-071-pr-completprt-lordonnprce-n80-018-pr-du-14-fevrier-1980-sur-les-societes-anonymes-de-la-zone-franche-et-relative-a-leur-immatriculation-directe-au-registre-du-commerce/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

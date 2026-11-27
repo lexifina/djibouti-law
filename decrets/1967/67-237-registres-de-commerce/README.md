@@ -1,6 +1,6 @@
 # Décret n° 67-237 relatif au registres de commerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-237-relatif-au-registres-de-commerce/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-237-relatif-au-registres-de-commerce/>
 
 En vigueur : 1967-06-30 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ Par le Premier ministre : Le garde des sceaux, ministre de la justice, JEAN FOYE
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

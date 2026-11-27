@@ -1,6 +1,6 @@
 # Loi n° 139/85/1re L/AN Portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la première session ordinaire de 1985
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-85-1re-l-an-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-85-1re-l-an-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1985/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

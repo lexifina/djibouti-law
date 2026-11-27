@@ -1,6 +1,6 @@
 # Loi n° 40/AN/19/8ème L relative aux conditions d’entrée et de séjour des étrangers en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-19-8eme-l-relative-aux-conditions-dentree-et-de-sejour-des-etrangers-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-19-8eme-l-relative-aux-conditions-dentree-et-de-sejour-des-etrangers-en-republique-de-djibouti/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -112,4 +112,4 @@ ISMAÏL OMAR GUELLEH
 | [art-050.md](art-050.md) | Article 50 |
 | [art-051.md](art-051.md) | Article 51 |
 | [art-052.md](art-052.md) | Article 52 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

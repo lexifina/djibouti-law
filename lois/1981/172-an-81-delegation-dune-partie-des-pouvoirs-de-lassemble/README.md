@@ -1,6 +1,6 @@
 # Loi n° 172/AN/81 portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente, jusqu’à l’ouverture de la première session ordinaire de 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-81-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1981/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/03/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-81-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1981/>
 
 En vigueur : 1981-03-01 (date du Journal officiel qui le publie).
 

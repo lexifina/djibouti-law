@@ -1,6 +1,6 @@
 # Décret n° 73-895 du 12 septembre 1973 complétant le décret n° 71-1007 du 17 décembre 1971 relatif à l’organisation de l’espace aérien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-895-du-12-septembre-1973-completant-le-decret-n-71-1007-du-17-decembre-1971-relatif-a-lorganisation-de-lespace-aerien/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-895-du-12-septembre-1973-completant-le-decret-n-71-1007-du-17-decembre-1971-relatif-a-lorganisation-de-lespace-aerien/>
 
 En vigueur : 1973-10-10 (date du Journal officiel qui le publie).
 

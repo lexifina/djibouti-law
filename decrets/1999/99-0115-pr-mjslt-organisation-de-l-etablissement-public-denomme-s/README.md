@@ -1,6 +1,6 @@
 # Décret n° 99-0115/PR/MJSLT portant Organisation de l’établissement public dénommé “Stade El Hadj Hassan Gouled Aptidon”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0115-pr-mjslt-portant-organisation-de-letablissement-public-denomme-stade-el-hadj-hassan-gouled-aptidon/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0115-pr-mjslt-portant-organisation-de-letablissement-public-denomme-stade-el-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 1999-08-15 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

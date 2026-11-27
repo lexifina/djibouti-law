@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. — Est constatée la nullité des asso ciations dites : La Grande-Loge de Fraternité Universelle, 8. cité des Fleurs, Paris; la Grande-Loge Mixte, 71 bis. rue de la Condamine, Paris; la Loge Unie des Théosophes, 14, rue de l‘Abbé-de-l‘Epée, Paris, l’Eglise catholique libérale, 4, square Rapp, Paris; le Rite Ancien et Primitif de Memphis Misraim, l’Ordre Martiniste, l’Eglise catholique gnostique, 20, rue des Macchabées. Lyon ; les Loges françaises de l’Ordre Universel Indépendant des Bené Berith, 68, rue Hauteville, Paris, et tous groupe ments s’y rattachant, situés en France, en Algérie, dans les colonies, pays de protectorat et territoires sous mandat.

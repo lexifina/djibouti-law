@@ -1,6 +1,6 @@
 # Décret n° 2023-334/PR/MAMBW portant composition des membres du Conseil d’Administration de l’lnstitut Al-Wassatiya et la Culture de Paix.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-334-pr-mambw-portant-composition-des-membres-du-conseil-dadministration-de-llnstitut-al-wassatiya-et-la-culture-de-paix/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-334-pr-mambw-portant-composition-des-membres-du-conseil-dadministration-de-llnstitut-al-wassatiya-et-la-culture-de-paix/>
 
 En vigueur : 2023-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

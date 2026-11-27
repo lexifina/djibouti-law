@@ -1,8 +1,8 @@
 # Arrêté n° 2007-0629/PR/MERN portant modification des Tarifs de vente d’Energie Electrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0629-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0629-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2007-07-16 (date fixÃ©e par le texte).
+En vigueur : 2007-07-16 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0378/PR/MEFPCP portant attribution d’une parcelle de terrain à la République Française.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0378-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-la-republique-francaise/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0378-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-la-republique-francaise/>
 
 En vigueur : 2006-05-31 (date du Journal officiel qui le publie).
 

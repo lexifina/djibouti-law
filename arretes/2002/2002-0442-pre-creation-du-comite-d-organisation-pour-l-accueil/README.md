@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0442/PRE portant création du Comité d’Organisation pour l’accueil d’une Délégation Parlementaire Chinoise en visite officielle en République de Djibouti, du 24 au 28 juin 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0442-pre-portant-creation-du-comite-dorganisation-pour-laccueil-dune-delegation-parlementaire-chinoise-en-visite-officielle-en-republique-de-djibouti-du/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0442-pre-portant-creation-du-comite-dorganisation-pour-laccueil-dune-delegation-parlementaire-chinoise-en-visite-officielle-en-republique-de-djibouti-du/>
 
 En vigueur : 2002-06-15 (date du Journal officiel qui le publie).
 

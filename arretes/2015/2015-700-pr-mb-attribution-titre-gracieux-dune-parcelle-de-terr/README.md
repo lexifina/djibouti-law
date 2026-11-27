@@ -1,6 +1,6 @@
 # Arrêté n° 2015-700/PR/MB portant attribution titre gracieux d’une parcelle de terrain d’une superficie de 500 Ha sis à Doraleh.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-700-pr-mb-portant-attribution-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-500-ha-sis-a-doraleh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-700-pr-mb-portant-attribution-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-500-ha-sis-a-doraleh/>
 
 En vigueur : 2015-11-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-158/PR/MENFOP portant organisation de la formation initiale des professeurs du corps de l’Éducation Nationale et adoption des plans et programmes de la formation initiale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-158-pr-menfop-portant-organisation-de-la-formation-initiale-des-professeurs-du-corps-de-leducation-nationale-et-adoption-des-plans-et-programmes-de-la-formation-initiale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-158-pr-menfop-portant-organisation-de-la-formation-initiale-des-professeurs-du-corps-de-leducation-nationale-et-adoption-des-plans-et-programmes-de-la-formation-initiale/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

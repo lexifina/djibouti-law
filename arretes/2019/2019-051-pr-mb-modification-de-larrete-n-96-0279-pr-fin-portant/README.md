@@ -1,6 +1,6 @@
 # Arrêté n° 2019-051/PR/MB portant modification de l’arrêté n° 96-0279/PR/FIN portant attribution d’une parcelle de terrain à Tadjourah.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-051-pr-mb-portant-modification-de-larrete-n96-0279-pr-fin-portant-attribution-dune-parcelle-de-terrain-a-tadjourah/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-051-pr-mb-portant-modification-de-larrete-n96-0279-pr-fin-portant-attribution-dune-parcelle-de-terrain-a-tadjourah/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

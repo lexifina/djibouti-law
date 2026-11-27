@@ -1,6 +1,6 @@
 # Loi n° 177/AN/84/1re L portant octroi de l’aval de la République de Djibouti à un emprunt de 10 000 000 francs français, contracté par la STID auprès de la Caisse centrale de Coopération économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-84-1re-l-portant-octroi-de-laval-de-la-republique-de-djibouti-a-un-emprunt-de-10-000-000-francs-francais-contracte-par-la-stid-aupres-de-la-caisse-centrale-de-cooperation-economiq/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-84-1re-l-portant-octroi-de-laval-de-la-republique-de-djibouti-a-un-emprunt-de-10-000-000-francs-francais-contracte-par-la-stid-aupres-de-la-caisse-centrale-de-cooperation-economiq/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

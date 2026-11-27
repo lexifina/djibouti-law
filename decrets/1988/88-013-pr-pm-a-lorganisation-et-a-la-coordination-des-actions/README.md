@@ -1,6 +1,6 @@
 # Décret n° 88-013/PR/PM relatif à l’organisation et à la coordination des actions de l’Etat en mer .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-013-pr-pm-relatif-a-lorganisation-et-a-la-coordination-des-actions-de-letat-en-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-013-pr-pm-relatif-a-lorganisation-et-a-la-coordination-des-actions-de-letat-en-mer/>
 
 En vigueur : 1988-02-15 (date du Journal officiel qui le publie).
 

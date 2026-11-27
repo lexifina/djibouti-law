@@ -1,6 +1,6 @@
 # Décret n° 13 janvier 1938 établissant un régime forestier à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 495 du 28/02/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-etablissant-un-regime-forestier-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 495 du 28/02/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-etablissant-un-regime-forestier-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-02-28 (date du Journal officiel qui le publie).
 

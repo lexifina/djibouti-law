@@ -1,6 +1,6 @@
 # 2023-044/PR/MD portant prolongation de mission en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti à Nairobi, le Colonel Aden Fouad Daher.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-044-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-a-nairobi-le-colonel-aden-fouad-daher/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-044-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-a-nairobi-le-colonel-aden-fouad-daher/>
 
 En vigueur : 2023-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

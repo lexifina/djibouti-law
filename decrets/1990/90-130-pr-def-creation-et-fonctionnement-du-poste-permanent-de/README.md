@@ -1,6 +1,6 @@
 # Décret n° 90-130/PR/DEF portant création et fonctionnement du poste permanent de Gendarmerie de Guélileh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-130-pr-def-portant-creation-et-fonctionnement-du-poste-permanent-de-gendarmerie-de-guelileh/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-130-pr-def-portant-creation-et-fonctionnement-du-poste-permanent-de-gendarmerie-de-guelileh/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

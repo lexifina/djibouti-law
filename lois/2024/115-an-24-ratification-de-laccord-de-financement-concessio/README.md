@@ -1,6 +1,6 @@
 # Loi n° 115/AN/24/9ème L portant ratification de l’Accord de financement concessionnel au projet d’Appui aux filières d’Agro-business de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-24-9eme-l-portant-ratification-de-laccord-de-financement-concessionnel-au-projet-dappui-aux-filieres-dagro-business-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-24-9eme-l-portant-ratification-de-laccord-de-financement-concessionnel-au-projet-dappui-aux-filieres-dagro-business-de-djibouti/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 53-591 fixant le Code de Déontologie des Pharmaciens en application de l’article 28 du Code de la Pharmacie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-591-fixant-le-code-de-deontologie-des-pharmaciens-en-application-de-larticle-28-du-code-de-la-pharmacie-2/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-591-fixant-le-code-de-deontologie-des-pharmaciens-en-application-de-larticle-28-du-code-de-la-pharmacie-2/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

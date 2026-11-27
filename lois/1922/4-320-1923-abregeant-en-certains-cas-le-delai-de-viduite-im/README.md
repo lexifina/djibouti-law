@@ -1,6 +1,6 @@
 # Loi n° 4-320-1923 abrégeant en certains cas le délai de viduité imposé à la femme par les articles 228 et 296 du code civil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-4-320-1923-abregeant-en-certains-cas-le-delai-de-viduite-impose-a-la-femme-par-les-articles-228-et-296-du-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/loi-n-4-320-1923-abregeant-en-certains-cas-le-delai-de-viduite-impose-a-la-femme-par-les-articles-228-et-296-du-code-civil/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

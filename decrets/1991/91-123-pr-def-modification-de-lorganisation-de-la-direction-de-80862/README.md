@@ -1,6 +1,6 @@
 # Décret n° 91-123/PR/DEF Portant modification de l’organisation de la Direction des Services administratifs et financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-123-pr-def-portant-modification-de-lorganisation-de-la-direction-des-services-administratifs-et-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-123-pr-def-portant-modification-de-lorganisation-de-la-direction-des-services-administratifs-et-financiers/>
 
 En vigueur : 1991-08-31 (date du Journal officiel qui le publie).
 
@@ -16,5 +16,5 @@ Vu le décret n° 82-031 /PR/DEF du 29 avril 1982 portant création et organisat
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-001.md](art-001.md) | Article premier |
+| [preambule.md](preambule.md) | Préambule |

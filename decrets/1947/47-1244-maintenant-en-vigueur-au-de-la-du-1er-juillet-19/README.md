@@ -1,6 +1,6 @@
 # Décret n° 47-1244 maintenant en vigueur au de là du 1er juillet 1947 dans les territoires autre que l’Indochine relevant du ministère de la France d outre-mer certaines dispositions réglementaires prorogées par la loi du 28 février 1947.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1244-maintenant-en-vigueur-au-de-la-du-1er-juillet-1947-dans-les-territoires-autre-que-lindochine-relevant-du-ministere-de-la-france-d-outre-mer-certaines-dispositions-reg/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1244-maintenant-en-vigueur-au-de-la-du-1er-juillet-1947-dans-les-territoires-autre-que-lindochine-relevant-du-ministere-de-la-france-d-outre-mer-certaines-dispositions-reg/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

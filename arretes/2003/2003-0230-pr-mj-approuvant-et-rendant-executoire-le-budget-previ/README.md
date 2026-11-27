@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0230/PR/MJ approuvant et rendant exécutoire le Budget Prévisionnel 2003 de l’Office National du Tourisme de Djibouti, ( ONTD ).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0230-pr-mj-approuvant-et-rendant-executoire-le-budget-previsionnel-2003-de-loffice-national-du-tourisme-de-djibouti-ontd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0230-pr-mj-approuvant-et-rendant-executoire-le-budget-previsionnel-2003-de-loffice-national-du-tourisme-de-djibouti-ontd/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

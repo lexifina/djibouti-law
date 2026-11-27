@@ -1,6 +1,6 @@
 # Décret n° le 8 février 1938 plaçant en mission M. Meunier. ingénieur principal des travaux publics des colonies, chef du service des travaux publics de la Côte française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 496 du 31/03/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-8-fevrier-1938-placant-en-mission-m-meunier-ingenieur-principal-des-travaux-publics-des-colonies-chef-du-service-des-travaux-publics-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 496 du 31/03/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-8-fevrier-1938-placant-en-mission-m-meunier-ingenieur-principal-des-travaux-publics-des-colonies-chef-du-service-des-travaux-publics-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2015-283/PR/MDC relatif aux prix de ventes des médicaments dans les pharmacies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-283-pr-mdc-relatif-aux-prix-de-ventes-des-medicaments-dans-les-pharmacies/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-283-pr-mdc-relatif-aux-prix-de-ventes-des-medicaments-dans-les-pharmacies/>
 
 En vigueur : 2015-10-31 (date du Journal officiel qui le publie).
 

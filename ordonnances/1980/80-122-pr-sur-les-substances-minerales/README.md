@@ -1,6 +1,6 @@
 # Ordonnance n° 80-122/PR sur les substances minérales
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-122-pr-sur-les-substances-minerales/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-122-pr-sur-les-substances-minerales/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

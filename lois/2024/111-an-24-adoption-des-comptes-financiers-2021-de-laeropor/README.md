@@ -1,6 +1,6 @@
 # Loi n° 111/AN/24/9ème L Portant adoption des comptes financiers 2021 de l’Aéroport International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-24-9eme-l-portant-adoption-des-comptes-financiers-2021-de-laeroport-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 15/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-24-9eme-l-portant-adoption-des-comptes-financiers-2021-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2025-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

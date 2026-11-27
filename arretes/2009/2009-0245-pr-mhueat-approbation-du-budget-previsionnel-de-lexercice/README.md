@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0245/PR/MHUEAT portant approbation du Budget Prévisionnel de l’Exercice 2009 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0245-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2009-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0245-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2009-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

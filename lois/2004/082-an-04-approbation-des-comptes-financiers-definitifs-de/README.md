@@ -1,6 +1,6 @@
 # Loi n° 82/AN/04/5ème L portant approbation des comptes financiers définitifs de l’ONED pour l’Exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-04-5eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-04-5eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2001/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

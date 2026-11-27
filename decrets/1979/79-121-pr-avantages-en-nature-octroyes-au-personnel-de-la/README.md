@@ -1,6 +1,6 @@
 # Décret n° 79-121/PR fixant les avantages en nature octroyés, au personnel de la Force Nationale de Sécurité
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-121-pr-fixant-les-avantages-en-nature-octroyes-au-personnel-de-la-force-nationale-de-securite/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-121-pr-fixant-les-avantages-en-nature-octroyes-au-personnel-de-la-force-nationale-de-securite/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ BARKAT GOURAD HAMADOU.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

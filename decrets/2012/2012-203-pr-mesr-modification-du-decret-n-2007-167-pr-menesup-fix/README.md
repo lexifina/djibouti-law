@@ -1,6 +1,6 @@
 # Décret n° 2012-203/PR/MESR portant modification du décret n° 2007-167/PR/MENESUP fixant le statut particulier de l’Université de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-203-pr-mesr-portant-modification-du-decret-n2007-167-pr-menesup-fixant-le-statut-particulier-de-luniversite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-203-pr-mesr-portant-modification-du-decret-n2007-167-pr-menesup-fixant-le-statut-particulier-de-luniversite-de-djibouti/>
 
 En vigueur : 2012-09-15 (date du Journal officiel qui le publie).
 

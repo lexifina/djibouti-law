@@ -1,6 +1,6 @@
 # Loi n° 145/AN/01/4ème L portant Budget de l’Etat, exercice 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-01-4eme-l-portant-budget-de-letat-exercice-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-01-4eme-l-portant-budget-de-letat-exercice-2002/>
 
 En vigueur : 2001-12-31 (date du Journal officiel qui le publie).
 

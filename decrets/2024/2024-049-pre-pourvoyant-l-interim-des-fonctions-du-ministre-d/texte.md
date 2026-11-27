@@ -1,2 +1,0 @@
-Par décret n°2024-049/PRE, du Président de la République, chef du Gouvernement, en date du 05 mars 2024, pendant la durée de l’absence de S.E.Mme. MARIAM HAMADOU ALI, l’intérim des fonctions de la Ministre Déléguée chargé de l’Economie Numérique et de l’Innovation sera assuré par S.E.Mme. SAFIA MOHAMED ALI GADILEH, Secrétaire d’Etat chargé des Investissements et du Développement du secteur cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

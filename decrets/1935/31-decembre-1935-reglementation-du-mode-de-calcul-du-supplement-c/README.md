@@ -1,6 +1,6 @@
 # Décret n° 31 décembre 1935 Réglementation du mode de calcul du supplément colonial alloué aux fonctionnaires, employés et agents en service outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 470 du 31/01/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-decembre-1935-reglementation-du-mode-de-calcul-du-supplement-colonial-alloue-aux-fonctionnaires-employes-et-agents-en-service-outre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 470 du 31/01/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-decembre-1935-reglementation-du-mode-de-calcul-du-supplement-colonial-alloue-aux-fonctionnaires-employes-et-agents-en-service-outre-mer/>
 
 En vigueur : 1936-01-31 (date du Journal officiel qui le publie).
 

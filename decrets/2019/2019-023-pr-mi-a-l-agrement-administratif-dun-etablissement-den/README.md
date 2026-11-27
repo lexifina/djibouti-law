@@ -1,6 +1,6 @@
 # Décret n° 2019-023/PR/MI relatif à l’agrément administratif d’un établissement d’enseignement de la conduite des véhicules à moteur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-023-pr-mi-relatif-a-lagrement-administratif-dun-etablissement-denseignement-de-la-conduite-des-vehicules-a-moteur/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-023-pr-mi-relatif-a-lagrement-administratif-dun-etablissement-denseignement-de-la-conduite-des-vehicules-a-moteur/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

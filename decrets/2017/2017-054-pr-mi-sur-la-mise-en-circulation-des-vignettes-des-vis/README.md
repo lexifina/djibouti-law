@@ -1,6 +1,6 @@
 # Décret n° 2017-054/PR/MI portant sur la mise en circulation des vignettes des visas biométriques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-054-pr-mi-portant-sur-la-mise-en-circulation-des-vignettes-des-visas-biometriques/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-054-pr-mi-portant-sur-la-mise-en-circulation-des-vignettes-des-visas-biometriques/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

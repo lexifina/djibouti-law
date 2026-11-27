@@ -1,6 +1,6 @@
 # Décret n° 2002-0006/PR/MDN portant création d’une Division des Ressources Humaines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0006-pr-mdn-portant-creation-dune-division-des-ressources-humaines/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0006-pr-mdn-portant-creation-dune-division-des-ressources-humaines/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

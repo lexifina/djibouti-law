@@ -1,8 +1,8 @@
 # Décret n° 99-0068/PR/MFEPCP portant liquidation de la Société d’État Société des Aliments du Bétail (S.A.B.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0068-pr-mfepcp-portant-liquidation-de-la-societe-detat-societe-des-aliments-du-betail-s-a-b/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0068-pr-mfepcp-portant-liquidation-de-la-societe-detat-societe-des-aliments-du-betail-s-a-b/>
 
-En vigueur : 1999-05-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-05-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

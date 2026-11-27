@@ -1,6 +1,6 @@
 # Décret n° 90-132/PR/MCTT approuvant et rendant exécutoire le budget primitif 1991 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-132-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1991-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-132-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1991-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1990-12-15 (date du Journal officiel qui le publie).
 

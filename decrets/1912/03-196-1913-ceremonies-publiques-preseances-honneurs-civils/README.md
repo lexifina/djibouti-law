@@ -1,6 +1,6 @@
 # Décret n° 03-196-1913 relatif aux cérémonies publiques, préséances, honneurs civils et militaires dans les colonies el pays de protectorat dépendant du Ministère des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 196 du 28/02/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-196-1913-relatif-aux-ceremonies-publiques-preseances-honneurs-civils-et-militaires-dans-les-colonies-el-pays-de-protectorat-dependant-du-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 196 du 28/02/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-196-1913-relatif-aux-ceremonies-publiques-preseances-honneurs-civils-et-militaires-dans-les-colonies-el-pays-de-protectorat-dependant-du-ministere-des-colonies/>
 
 En vigueur : 1913-02-28 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ A. LEBRUN.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

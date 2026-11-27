@@ -1,6 +1,6 @@
 # Ordonnance n° 77-014 sur le fonctionnement de la Justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/08/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-014-sur-le-fonctionnement-de-la-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 15/08/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-014-sur-le-fonctionnement-de-la-justice/>
 
 En vigueur : 1977-08-15 (date du Journal officiel qui le publie).
 

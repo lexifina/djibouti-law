@@ -1,6 +1,6 @@
 # Décret n° 66-1010 Arrêté portant application aux territoires d’outre-mer def dispositions des arrêtés du 25 mai 1966 relatifs à la fixation du capital minimum des banques et établissements financiers
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-1010-arrete-portant-application-aux-territoires-doutre-mer-def-dispositions-des-arretes-du-25-mai-1966-relatifs-a-la-fixation-du-capital-minimum-des-banques-et-etablissemen/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-1010-arrete-portant-application-aux-territoires-doutre-mer-def-dispositions-des-arretes-du-25-mai-1966-relatifs-a-la-fixation-du-capital-minimum-des-banques-et-etablissemen/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

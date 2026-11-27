@@ -1,6 +1,6 @@
 # Décret n° 30 Janvier 1953 approuvant la délibération du 29 novembre 1952 du Conseil Représentatif de la Cote Française des Somalis abrogeant le titre X du Code général des Impôts directs (impôt foncier sur les paillotes et maisons en planches).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-janvier-1953-approuvant-la-deliberation-du-29-novembre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-abrogeant-le-titre-x-du-code-general-des-impots-directs-impot/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-janvier-1953-approuvant-la-deliberation-du-29-novembre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-abrogeant-le-titre-x-du-code-general-des-impots-directs-impot/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 

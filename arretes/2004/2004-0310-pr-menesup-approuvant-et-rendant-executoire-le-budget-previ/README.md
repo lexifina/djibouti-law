@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0310/PR/MENESUP approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2004 du Pôle Universitaire de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0310-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2004-du-pole-universitaire-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0310-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2004-du-pole-universitaire-de-djibouti/>
 
 En vigueur : 2004-04-30 (date du Journal officiel qui le publie).
 

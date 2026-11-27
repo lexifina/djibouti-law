@@ -1,6 +1,6 @@
 # Décret n° 70-224 du 4 mars 1970 étendant aux territoires d’outre-mer les dispositions du code électoral relatives au vote par procuration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-224-du-4-mars-1970-etendant-aux-territoires-doutre-mer-les-dispositions-du-code-electoral-relatives-au-vote-par-procuration/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/06/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-224-du-4-mars-1970-etendant-aux-territoires-doutre-mer-les-dispositions-du-code-electoral-relatives-au-vote-par-procuration/>
 
 En vigueur : 1970-06-01 (date du Journal officiel qui le publie).
 

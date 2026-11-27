@@ -1,6 +1,6 @@
 # Loi n° 97/AN/05/5ème L Portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Arabe de Développement Économique et Social.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social/>
 
 En vigueur : 2005-02-15 (date du Journal officiel qui le publie).
 

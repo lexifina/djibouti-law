@@ -1,6 +1,6 @@
 # Décret n° 2015-238/PR/MAMCBW portant dévolution des patrimoines des associations AL-BIR et AMAL.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-238-pr-mamcbw-portant-devolution-des-patrimoines-des-associations-al-bir-et-amal/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-238-pr-mamcbw-portant-devolution-des-patrimoines-des-associations-al-bir-et-amal/>
 
 En vigueur : 2015-08-15 (date du Journal officiel qui le publie).
 

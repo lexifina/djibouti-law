@@ -1,8 +1,8 @@
 # Loi n° 52/AN/94/3e L portant création d’une Cour d’Appel et d’un Tribunal de Première Instance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 15/10/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-94-3e-l-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 15/10/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-94-3e-l-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
 
-En vigueur : 1994-10-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1994-10-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -26,7 +26,7 @@ HASSAN GOULED APTIDON.
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [art-006.md](art-006.md) | Art. 6 – |
+| [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |

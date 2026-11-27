@@ -1,6 +1,6 @@
 # Décret n° 13 juillet 1943 modifiant le taux de l’indemnité de mission allouée aux Colonies aux membres des corps de contrôle de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-juillet-1943-modifiant-le-taux-de-lindemnite-de-mission-allouee-aux-colonies-aux-membres-des-corps-de-controle-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-juillet-1943-modifiant-le-taux-de-lindemnite-de-mission-allouee-aux-colonies-aux-membres-des-corps-de-controle-de-letat/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 

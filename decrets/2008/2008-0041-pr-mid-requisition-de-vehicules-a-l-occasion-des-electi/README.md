@@ -1,6 +1,6 @@
 # Décret n° 2008-0041/PR/MID portant requisition de véhicules à l’occasion des Elections Législatives du 08 février 2008.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0041-pr-mid-portant-requisition-de-vehicules-a-loccasion-des-elections-legislatives-du-08-fevrier-2008/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0041-pr-mid-portant-requisition-de-vehicules-a-loccasion-des-elections-legislatives-du-08-fevrier-2008/>
 
 En vigueur : 2008-02-14 (date du Journal officiel qui le publie).
 

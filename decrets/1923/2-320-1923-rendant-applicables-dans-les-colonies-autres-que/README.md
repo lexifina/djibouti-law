@@ -1,6 +1,6 @@
 # Décret n° 2-320-1923 rendant applicables dans les colonies autres que la Martinique, la Guadeloupe et la Réunion et dans les pays de protectorat dépendant du ministère des colonies, les deux lois du 9 décembre 1922 (insérées), la 1ee complétant l’article 249 du code civil sur le divorce, la 2e abrogeant en certains cas le délai de viduite imposé à la femme par les articles 228 et 206 du code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-320-1923-rendant-applicables-dans-les-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-et-dans-les-pays-de-protectorat-dependant-du-ministere-des-colonies-les-deux-loi/>
+Décret · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-320-1923-rendant-applicables-dans-les-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-et-dans-les-pays-de-protectorat-dependant-du-ministere-des-colonies-les-deux-loi/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

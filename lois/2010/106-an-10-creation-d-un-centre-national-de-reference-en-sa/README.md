@@ -1,6 +1,6 @@
 # Loi n° 106/AN/10/6ème L portant création d’un Centre National de Référence en Santé de la Reproduction “Housseina”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-10-6eme-l-portant-creation-dun-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-10-6eme-l-portant-creation-dun-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

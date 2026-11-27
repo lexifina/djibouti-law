@@ -1,6 +1,6 @@
 # Loi n° 241/AN/87/1ère L portant approbation du schéma directeur d’aménagement et d’urbanisme d’Ali-Sabieh.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n241-an-87-1ere-l-portant-approbation-du-schema-directeur-damenagement-et-durbanisme-dali-sabieh/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n241-an-87-1ere-l-portant-approbation-du-schema-directeur-damenagement-et-durbanisme-dali-sabieh/>
 
 En vigueur : 1987-04-30 (date du Journal officiel qui le publie).
 

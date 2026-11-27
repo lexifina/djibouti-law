@@ -1,6 +1,6 @@
 # Décret n° 61-1325 portant application des peines prévues à l’article 2 de la loi du 10 janvier 1936 à toute personne qui aura participé au maintien ou à la reconstitution directe ou indirecte du groupement de fait dit Organisation de l’armée secrète (O.A.S.) [J.O,R.F. du 8 décembre 1961, p. 11293].
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-1325-portant-application-des-peines-prevues-a-larticle-2-de-la-loi-du-10-janvier-1936-a-toute-personne-qui-aura-participe-au-maintien-ou-a-la-reconstitution-directe-ou-in/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-1325-portant-application-des-peines-prevues-a-larticle-2-de-la-loi-du-10-janvier-1936-a-toute-personne-qui-aura-participe-au-maintien-ou-a-la-reconstitution-directe-ou-in/>
 
 En vigueur : 1961-12-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ R. FREY.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |

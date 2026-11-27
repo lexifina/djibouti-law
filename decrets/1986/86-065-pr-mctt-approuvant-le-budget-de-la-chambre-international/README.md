@@ -1,6 +1,6 @@
 # Décret n° 86-065/PR/MCTT approuvant le budget de la Chambre Internationale de Commerce et d’Industrie et des Magasins Généraux, exercice 1986.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-065-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-exercice-1986/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/08/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-065-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-exercice-1986/>
 
 En vigueur : 1986-08-14 (date du Journal officiel qui le publie).
 

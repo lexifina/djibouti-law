@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0252/PR/MID portant prolongation de délai d’inscription sur les listes électorales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0252-pr-mid-portant-prolongation-de-delai-dinscription-sur-les-listes-electorales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0252-pr-mid-portant-prolongation-de-delai-dinscription-sur-les-listes-electorales/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

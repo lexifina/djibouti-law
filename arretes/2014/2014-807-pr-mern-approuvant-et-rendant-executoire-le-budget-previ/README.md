@@ -1,6 +1,6 @@
 # Arrêté n° 2014-807/PR/MERN approuvant et rendant exécutoire le budget Prévisionnel de l’an 2015 de l’Agence Djiboutienne de Maitrise de l’Energie.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-807-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2015-de-lagence-djiboutienne-de-maitrise-de-lenergie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-807-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2015-de-lagence-djiboutienne-de-maitrise-de-lenergie/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

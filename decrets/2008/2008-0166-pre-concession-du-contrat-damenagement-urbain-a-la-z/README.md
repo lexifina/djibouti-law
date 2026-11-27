@@ -1,6 +1,6 @@
 # Décret n° 2008-0166/PRE portant concession du Contrat d’Aménagement Urbain à la Zone de Doraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0166-pre-portant-concession-du-contrat-damenagement-urbain-a-la-zone-de-doraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0166-pre-portant-concession-du-contrat-damenagement-urbain-a-la-zone-de-doraleh/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

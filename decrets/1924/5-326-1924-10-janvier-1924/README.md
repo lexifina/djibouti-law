@@ -1,6 +1,6 @@
 # Décret n° 5-326-1924 10 janvier 1924.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 326 du 31/01/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-326-1924-10-janvier-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 326 du 31/01/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-326-1924-10-janvier-1924/>
 
 En vigueur : 1924-01-31 (date du Journal officiel qui le publie).
 

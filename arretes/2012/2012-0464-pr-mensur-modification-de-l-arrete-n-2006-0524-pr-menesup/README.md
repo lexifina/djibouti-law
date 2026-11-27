@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0464/PR/MENSUR portant modification de l’Arrêté n° 2006-0524/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence mention “Méthodes Informatiques Appliquées à la Gestion des Entreprises”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0464-pr-mensur-portant-modification-de-larrete-n2006-0524-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-mention/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0464-pr-mensur-portant-modification-de-larrete-n2006-0524-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-mention/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

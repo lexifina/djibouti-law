@@ -1,8 +1,8 @@
 # Arrêté n° 2014-392/PR/MERN portant augmentation du Capital de l’Electricité de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-392-pr-mern-portant-augmentation-du-capital-de-lelectricite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-392-pr-mern-portant-augmentation-du-capital-de-lelectricite-de-djibouti/>
 
-En vigueur : 2014-05-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-05-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

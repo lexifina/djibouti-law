@@ -1,6 +1,6 @@
 # Décret n° 2000-0152/PR/MET portant extension de la zone franche portuaire de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0152-pr-met-portant-extension-de-la-zone-franche-portuaire-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0152-pr-met-portant-extension-de-la-zone-franche-portuaire-de-djibouti/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 

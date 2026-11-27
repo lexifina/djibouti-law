@@ -1,6 +1,6 @@
 # Loi n° 100/AN/84/1ère L portant transfert des Attributions Administratives du » Chef du Service Judiciaire » au Ministère de la Justice et Définition des Attributions du Procureur Général et du Ministère Public.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-84-1ere-l-portant-transfert-des-attributions-administratives-du-chef-du-service-judiciaire-au-ministere-de-la-justice-et-definition-des-attributions-du-procureur-general-et-du/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-84-1ere-l-portant-transfert-des-attributions-administratives-du-chef-du-service-judiciaire-au-ministere-de-la-justice-et-definition-des-attributions-du-procureur-general-et-du/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ VU l’Ordonnance n°78-085/PR du 16 Novembre 1978 portant réorganisation de la
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 66/AN/24/9ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2021/>
 
 En vigueur : 2024-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

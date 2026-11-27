@@ -1,6 +1,6 @@
 # Décret n° 2009-0143/PR/MS portant organisation et fonctionnement de l’Hôpital de Balbala
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0143-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0143-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-de-balbala/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 

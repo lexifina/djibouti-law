@@ -1,6 +1,6 @@
 # Loi n° 189/AN/85/1ère L portant modification du Code général des Impôts « fiscalité directe ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-85-1ere-l-portant-modification-du-code-general-des-impots-fiscalite-directe/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-85-1ere-l-portant-modification-du-code-general-des-impots-fiscalite-directe/>
 
 En vigueur : 1986-01-16 (date du Journal officiel qui le publie).
 

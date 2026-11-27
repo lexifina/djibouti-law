@@ -1,6 +1,6 @@
 # Décret n° 03-432-1932 Ascendants des militaires morts pour la France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 432 du 30/11/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-432-1932-ascendants-des-militaires-morts-pour-la-france/>
+Décret · Journal officiel de la République de Djibouti, n° 432 du 30/11/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-432-1932-ascendants-des-militaires-morts-pour-la-france/>
 
 En vigueur : 1932-11-30 (date du Journal officiel qui le publie).
 

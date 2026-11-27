@@ -1,6 +1,6 @@
 # Décret n° 70-1340 relatif au recensement en vue de l’accomplissement du service national
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1340-relatif-au-recensement-en-vue-de-laccomplissement-du-service-national/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1340-relatif-au-recensement-en-vue-de-laccomplissement-du-service-national/>
 
 En vigueur : 1971-03-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 1075 modifiant les articles 90-bis et 108 du décret du 2 Mars 1910 portant règle ment sur la solde et les allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 15/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1075-modifiant-les-articles-90-bis-et-108-du-decret-du-2-mars-1910-portant-regle-ment-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-co/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 15/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1075-modifiant-les-articles-90-bis-et-108-du-decret-du-2-mars-1910-portant-regle-ment-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-co/>
 
 En vigueur : 1943-08-15 (date du Journal officiel qui le publie).
 

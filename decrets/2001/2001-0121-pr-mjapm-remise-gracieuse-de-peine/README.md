@@ -1,6 +1,6 @@
 # Décret n° 2001-0121/PR/MJAPM portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0121-pr-mjapm-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0121-pr-mjapm-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 2001-06-30 (date du Journal officiel qui le publie).
 

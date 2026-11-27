@@ -1,6 +1,6 @@
 # Arrêté n° 2018-072/PR/MB portant modification de l’arrêté n° 2015-399/PR/MB du 14 juin 2015.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-072-pr-mb-portant-modification-de-larrete-n-2015-399-pr-mb-du-14-juin-2015/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-072-pr-mb-portant-modification-de-larrete-n-2015-399-pr-mb-du-14-juin-2015/>
 
 En vigueur : 2018-04-15 (date du Journal officiel qui le publie).
 

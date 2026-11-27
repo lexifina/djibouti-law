@@ -1,6 +1,6 @@
 # Loi n° 82/AN/10/6ème L portant adoption de la Stratégie Nationale de Développement de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-10-6eme-l-portant-adoption-de-la-strategie-nationale-de-developpement-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-10-6eme-l-portant-adoption-de-la-strategie-nationale-de-developpement-de-lartisanat/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 

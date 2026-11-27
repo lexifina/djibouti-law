@@ -1,8 +1,8 @@
 # Décret n° 2023-178/PR/MTFPS portant création du Statut Particulier des Ingénieurs et Techniciens des Systèmes Spatiaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-178-pr-mtfps-portant-creation-du-statut-particulier-des-ingenieurs-et-techniciens-des-systemes-spatiaux/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-178-pr-mtfps-portant-creation-du-statut-particulier-des-ingenieurs-et-techniciens-des-systemes-spatiaux/>
 
-En vigueur : 2023-06-22 (date fixÃ©e par le texte).
+En vigueur : 2023-06-22 (date fixée par le texte).
 
 ## Visas
 

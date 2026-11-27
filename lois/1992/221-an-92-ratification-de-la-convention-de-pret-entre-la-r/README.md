@@ -1,6 +1,6 @@
 # Loi n° 221/AN/92/2e L portant ratification de la convention de prêt entre la République de Djibouti et le Fonds arabe de Développement économique et social (FADES).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-92-2e-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-92-2e-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social-fades/>
 
 En vigueur : 1992-09-15 (date du Journal officiel qui le publie).
 

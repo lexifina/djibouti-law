@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0515/PR/MHUEAT portant obligation pour les Départements Ministériels, les Établissements Publics et les Unités de projet de recourir à l’assistance des Services Techniques de l’État lors de la réalisation de travaux d’aménagement urbain et de construction et lors des demandes d’autorisation de construire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0515-pr-mhueat-portant-obligation-pour-les-departements-ministeriels-les-etablissements-publics-et-les-unites-de-projet-de-recourir-a-lassistance-des-services-techniques-de-let/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0515-pr-mhueat-portant-obligation-pour-les-departements-ministeriels-les-etablissements-publics-et-les-unites-de-projet-de-recourir-a-lassistance-des-services-techniques-de-let/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

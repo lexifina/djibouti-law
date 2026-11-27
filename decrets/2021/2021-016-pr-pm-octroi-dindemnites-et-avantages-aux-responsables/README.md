@@ -1,8 +1,8 @@
 # Décret n° 2021-016/PR/PM portant octroi d’indemnités et avantages aux responsables du comité technique chargé de la mise en place du registre national des personnes physiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-016-pr-pm-portant-octroi-dindemnites-et-avantages-aux-responsables-du-comite-technique-charge-de-la-mise-en-place-du-registre-national-des-personnes-physiques/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-016-pr-pm-portant-octroi-dindemnites-et-avantages-aux-responsables-du-comite-technique-charge-de-la-mise-en-place-du-registre-national-des-personnes-physiques/>
 
-En vigueur : 2021-01-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-01-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

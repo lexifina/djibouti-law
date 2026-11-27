@@ -1,6 +1,6 @@
 # Loi n° 78/AN/24/9ème L portant approbation des comptes financiers du Fonds de Développement Economique de Djibouti (FDED) pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-fonds-de-developpement-economique-de-djibouti-fded-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-fonds-de-developpement-economique-de-djibouti-fded-pour-lexercice-2019/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

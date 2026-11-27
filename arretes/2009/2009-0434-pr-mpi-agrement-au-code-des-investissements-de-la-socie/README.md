@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0434/PR/MPI portant Agrément au Code des Investissements de la Société “Goubet Trading Services”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0434-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-goubet-trading-services/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0434-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-goubet-trading-services/>
 
 En vigueur : 2009-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2006-0233/PR/MID portant création et composition du Comité de Coordination multisectoriel chargé de l’Enregistrement de Naissance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0233-pr-mid-portant-creation-et-composition-du-comite-de-coordination-multisectoriel-charge-de-lenregistrement-de-naissance/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0233-pr-mid-portant-creation-et-composition-du-comite-de-coordination-multisectoriel-charge-de-lenregistrement-de-naissance/>
 
 En vigueur : 2006-09-30 (date du Journal officiel qui le publie).
 

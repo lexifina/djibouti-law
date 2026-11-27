@@ -1,6 +1,6 @@
 # Décret n° 3 mai 1938 portant fixation de pouvoirs disciplinaires des commandants de l’air aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-mai-1938-portant-fixation-de-pouvoirs-disciplinaires-des-commandants-de-lair-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-mai-1938-portant-fixation-de-pouvoirs-disciplinaires-des-commandants-de-lair-aux-colonies/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 

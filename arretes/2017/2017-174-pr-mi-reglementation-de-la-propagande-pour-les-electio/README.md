@@ -1,6 +1,6 @@
 # Arrêté n° 2017-174/PR/MI portant réglementation de la propagande pour les Elections Législatives du 23 Février 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 29/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-174-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-legislatives-du-23-fevrier-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 29/11/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-174-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-legislatives-du-23-fevrier-2018/>
 
 En vigueur : 2017-11-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0452/PR/MID prescrivant à l’occasion du 26ème Anniversaire de l’Indépendance – le Ravalement des Façades de la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0452-pr-mid-prescrivant-a-loccasion-du-26eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0452-pr-mid-prescrivant-a-loccasion-du-26eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 80/AN/14/7ème L portant approbation du Schéma Stratégique Intégré (SSI) du secteur des Technologies de l’Information et de la Communication (TIC) en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-14-7eme-l-portant-approbation-du-schema-strategique-integre-ssi-du-secteur-des-technologies-de-linformation-et-de-la-communication-tic-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-14-7eme-l-portant-approbation-du-schema-strategique-integre-ssi-du-secteur-des-technologies-de-linformation-et-de-la-communication-tic-en-republique-de-djibouti/>
 
 En vigueur : 2015-02-28 (date du Journal officiel qui le publie).
 

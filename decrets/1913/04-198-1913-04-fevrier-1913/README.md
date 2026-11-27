@@ -1,6 +1,6 @@
 # Décret n° 04-198-1913 04 février 1913
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 198 du 30/04/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-198-1913-04-fevrier-1913/>
+Décret · Journal officiel de la République de Djibouti, n° 198 du 30/04/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-198-1913-04-fevrier-1913/>
 
 En vigueur : 1913-04-30 (date du Journal officiel qui le publie).
 

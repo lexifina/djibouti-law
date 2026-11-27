@@ -1,6 +1,6 @@
 # Décret n° 82-033/PRE portant approbation des statuts de la Caisse de Développement de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 31/12/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-033-pre-portant-approbation-des-statuts-de-la-caisse-de-developpement-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 31/12/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-033-pre-portant-approbation-des-statuts-de-la-caisse-de-developpement-de-djibouti/>
 
 En vigueur : 1985-12-31 (date du Journal officiel qui le publie).
 

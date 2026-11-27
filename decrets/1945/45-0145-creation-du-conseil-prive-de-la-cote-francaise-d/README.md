@@ -1,6 +1,6 @@
 # Décret n° 45-0145 portant création du Conseil privé de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0145-portant-creation-du-conseil-prive-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0145-portant-creation-du-conseil-prive-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2022-082/PRE portant renouvellement des membres du Conseil d’Administration de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-082-pre-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-082-pre-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2022-04-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

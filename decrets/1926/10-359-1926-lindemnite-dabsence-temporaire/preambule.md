@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Le numéro 1 (Indemnité d’absence temporaire) de l’article 15 du décret du 29 décembre 1903, déjà modifié par les décrets des 1er octobre 1919 et 10 mai 1922, est abrogé et remplacé par le texte ci-après:
 | NUMERO DES INDEMNITES
 D’ORDRE

@@ -1,6 +1,6 @@
 # Loi n° 148/AN/11/6ème L portant ratification de l’Accord de financement entre la République de Djibouti et l’IDA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-11-6eme-l-portant-ratification-de-laccord-de-financement-entre-la-republique-de-djibouti-et-lida/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-11-6eme-l-portant-ratification-de-laccord-de-financement-entre-la-republique-de-djibouti-et-lida/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

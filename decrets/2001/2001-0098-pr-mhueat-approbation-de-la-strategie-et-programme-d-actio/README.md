@@ -1,6 +1,6 @@
 # Décret n° 2001-0098/PR/MHUEAT portant approbation de la Stratégie et Programme d’Action National pour la Conservation de la Biodiversité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0098-pr-mhueat-portant-approbation-de-la-strategie-et-programme-daction-national-pour-la-conservation-de-la-biodiversite/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0098-pr-mhueat-portant-approbation-de-la-strategie-et-programme-daction-national-pour-la-conservation-de-la-biodiversite/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

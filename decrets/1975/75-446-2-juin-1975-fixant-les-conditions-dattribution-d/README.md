@@ -1,6 +1,6 @@
 # Décret n° 75-446 2 juin 1975 fixant les conditions d’attribution des subventions pour l’acquisition de matériel: aéronautique d’instruction.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 25/07/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-446-2-juin-1975-fixant-les-conditions-dattribution-des-subventions-pour-lacquisition-de-materiel-aeronautique-dinstruction/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 25/07/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-446-2-juin-1975-fixant-les-conditions-dattribution-des-subventions-pour-lacquisition-de-materiel-aeronautique-dinstruction/>
 
 En vigueur : 1975-07-25 (date du Journal officiel qui le publie).
 

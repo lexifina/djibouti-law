@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Au lieu de :
 « Art. 1er. -— Ext acceptée, pour compter du 3 juin 1947, la démission de M. Leuzy (Julien), inspecteur stagiaire du cadre local de la police de la Côte francaise des Somalis »,
 Lire :

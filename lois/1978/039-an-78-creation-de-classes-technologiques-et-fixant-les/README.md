@@ -1,6 +1,6 @@
 # Loi n° 39/AN/78 portant création de classes technologiques et fixant les modes de recrutement des élèves de l’enseignement professionnel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-78-portant-creation-de-classes-technologiques-et-fixant-les-modes-de-recrutement-des-eleves-de-lenseignement-professionnel/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-78-portant-creation-de-classes-technologiques-et-fixant-les-modes-de-recrutement-des-eleves-de-lenseignement-professionnel/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 

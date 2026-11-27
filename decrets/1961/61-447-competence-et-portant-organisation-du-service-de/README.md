@@ -1,6 +1,6 @@
 # Décret n° 61-447 fixant la compétence et portant organisation du service d’Etat de l’aviation civile d’intérêt général dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-447-fixant-la-competence-et-portant-organisation-du-service-detat-de-laviation-civile-dinteret-general-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-447-fixant-la-competence-et-portant-organisation-du-service-detat-de-laviation-civile-dinteret-general-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1961-05-31 (date du Journal officiel qui le publie).
 

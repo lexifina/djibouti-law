@@ -1,6 +1,6 @@
 # Décret n° 95-0104/PRE portant organisation du cabinet du président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0104-pre-portant-organisation-du-cabinet-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0104-pre-portant-organisation-du-cabinet-du-president-de-la-republique/>
 
 En vigueur : 1995-10-15 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

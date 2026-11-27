@@ -1,8 +1,8 @@
 # Décret n° du 2 mai 1939 portant règlement d’administration publique pour l’organisation de la défense contre le danger aérien dans les territoires d’outre-mer dépendant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-mai-1939-portant-reglement-dadministration-publique-pour-lorganisation-de-la-defense-contre-le-danger-aerien-dans-les-territoires-doutre-mer-dependant-du-ministere-de/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-mai-1939-portant-reglement-dadministration-publique-pour-lorganisation-de-la-defense-contre-le-danger-aerien-dans-les-territoires-doutre-mer-dependant-du-ministere-de/>
 
-En vigueur : 1939-05-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1939-05-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -38,4 +38,4 @@ CHAMPETIER DE RIBES,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

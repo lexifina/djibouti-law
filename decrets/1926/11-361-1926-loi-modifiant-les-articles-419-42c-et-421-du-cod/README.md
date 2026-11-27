@@ -1,6 +1,6 @@
 # Décret n° 11-361-1926 Loi modifiant les articles 419. 42C et 421 du Code pénal.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 361 du 31/12/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-361-1926-loi-modifiant-les-articles-419-42c-et-421-du-code-penal/>
+Décret · Journal officiel de la République de Djibouti, n° 361 du 31/12/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-361-1926-loi-modifiant-les-articles-419-42c-et-421-du-code-penal/>
 
 En vigueur : 1926-12-31 (date du Journal officiel qui le publie).
 
@@ -19,6 +19,6 @@ Louis BaARTHOC,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

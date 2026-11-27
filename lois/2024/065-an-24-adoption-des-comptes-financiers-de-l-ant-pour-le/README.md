@@ -1,6 +1,6 @@
 # Loi n° 65/AN/24/9ème L portant adoption des comptes financiers de l’ANT pour l’exercice 2022.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-lant-pour-lexercice-2022/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-lant-pour-lexercice-2022/>
 
 En vigueur : 2024-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

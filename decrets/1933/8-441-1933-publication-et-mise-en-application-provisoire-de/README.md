@@ -1,6 +1,6 @@
 # Décret n° 8-441-1933 Publication et mise en application provisoire de l’avenant à la convention commerciale franco-tchécoslovaque du 2 juillet 1928, signé à Paris le 12 mai 1933.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 441 du 31/08/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-441-1933-publication-et-mise-en-application-provisoire-de-lavenant-a-la-convention-commerciale-franco-tchecoslovaque-du-2-juillet-1928-signe-a-paris-le-12-mai-1933/>
+Décret · Journal officiel de la République de Djibouti, n° 441 du 31/08/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-441-1933-publication-et-mise-en-application-provisoire-de-lavenant-a-la-convention-commerciale-franco-tchecoslovaque-du-2-juillet-1928-signe-a-paris-le-12-mai-1933/>
 
 En vigueur : 1933-08-31 (date du Journal officiel qui le publie).
 

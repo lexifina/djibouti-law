@@ -1,6 +1,6 @@
 # Décret n° 2023-054/PR/MD portant création et mission du 10° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-054-pr-md-portant-creation-et-mission-du-10-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-054-pr-md-portant-creation-et-mission-du-10-bataillon-releve/>
 
 En vigueur : 2023-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -24,4 +24,4 @@ VU Le Décret n°2022-001/PRE du 02 janvier 2022 portant remaniement Ministérie
 | [art-003.md](art-003.md) | ARTICLE 3 |
 | [art-004.md](art-004.md) | ARTICLE 4 |
 | [art-005.md](art-005.md) | ARTICLE 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0829/PR/MPICRP portant Agrément au Code des Investissements du projet de mise en place d’une unité de remplissage et de distribution de kérosène de la “Société de Distribution et de Vente de Kérosène”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0829-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-mise-en-place-dune-unite-de-remplissage-et-de-distribution-de-kerosene-de-la-societe-de-di/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0829-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-mise-en-place-dune-unite-de-remplissage-et-de-distribution-de-kerosene-de-la-societe-de-di/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 

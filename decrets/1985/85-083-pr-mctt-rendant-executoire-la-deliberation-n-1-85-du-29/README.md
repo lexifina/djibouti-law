@@ -1,6 +1,6 @@
 # Décret n° 85-083/PR/MCTT rendant exécutoire la délibération n° 1/85 du 29 juillet 1985 du conseil d’administration de l’Office national d’Approvisionnement portant approbation du compte financier de l’office pour l’exercice 1984.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-083-pr-mctt-rendant-executoire-la-deliberation-n1-85-du-29-juillet-1985-du-conseil-dadministration-de-loffice-national-dapprovisionnement-portant-approbation-du-compte-fin/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-083-pr-mctt-rendant-executoire-la-deliberation-n1-85-du-29-juillet-1985-du-conseil-dadministration-de-loffice-national-dapprovisionnement-portant-approbation-du-compte-fin/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

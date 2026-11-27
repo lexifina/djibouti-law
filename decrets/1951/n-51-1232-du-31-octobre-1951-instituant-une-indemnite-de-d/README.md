@@ -1,6 +1,6 @@
 # Décret n° n° 51-1232 du 31 octobre 1951 instituant une indemnité de difficultés d’existence dans certains localités de la France d’Outre-Mer (J.O.R.F. du 1er novembre 1951, p. 10882)…
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1232-du-31-octobre-1951-instituant-une-indemnite-de-difficultes-dexistence-dans-certains-localites-de-la-france-doutre-mer-j-o-r-f-du-1er-novembre-1951-p-108/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1232-du-31-octobre-1951-instituant-une-indemnite-de-difficultes-dexistence-dans-certains-localites-de-la-france-doutre-mer-j-o-r-f-du-1er-novembre-1951-p-108/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 

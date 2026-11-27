@@ -1,6 +1,6 @@
 # Décret n° 03/12/1937 moditiant le décret du 2 mars 1910 portant règlement sur la solde et les allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 493 du 31/12/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-12-1937-moditiant-le-decret-du-2-mars-1910-portant-reglement-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 493 du 31/12/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-12-1937-moditiant-le-decret-du-2-mars-1910-portant-reglement-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
 
 En vigueur : 1937-12-31 (date du Journal officiel qui le publie).
 

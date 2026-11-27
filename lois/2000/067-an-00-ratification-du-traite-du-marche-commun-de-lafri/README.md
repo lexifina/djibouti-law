@@ -1,6 +1,6 @@
 # Loi n° 67/AN/00/4ème L portant ratification du Traité du Marché Commun de l’Afrique de l’Est et de l’Afrique Australe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-00-4eme-l-portant-ratification-du-traite-du-marche-commun-de-lafrique-de-lest-et-de-lafrique-australe/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-00-4eme-l-portant-ratification-du-traite-du-marche-commun-de-lafrique-de-lest-et-de-lafrique-australe/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

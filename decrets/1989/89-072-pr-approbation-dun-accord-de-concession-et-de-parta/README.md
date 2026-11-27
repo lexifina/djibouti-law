@@ -1,6 +1,6 @@
 # Décret n° 89-072/PR portant approbation d’un Accord de concession et de partage de production pour l’exploitation et l’exploration des hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-072-pr-portant-approbation-dun-accord-de-concession-et-de-partage-de-production-pour-lexploitation-et-lexploration-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-072-pr-portant-approbation-dun-accord-de-concession-et-de-partage-de-production-pour-lexploitation-et-lexploration-des-hydrocarbures/>
 
 En vigueur : 1989-06-15 (date du Journal officiel qui le publie).
 

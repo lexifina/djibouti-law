@@ -1,6 +1,6 @@
 # Décret n° 86-075/PR/INT rendant exécutoire la délibération n° 1/86 du 2 juillet 1986 du Conseil d’Administration de l’Office des Postes et Télécommunications, portant approbation du compte financier de l’Office pour l’exercice 1985.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-075-pr-int-rendant-executoire-la-deliberation-n1-86-du-2-juillet-1986-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/08/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-075-pr-int-rendant-executoire-la-deliberation-n1-86-du-2-juillet-1986-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte/>
 
 En vigueur : 1986-08-31 (date du Journal officiel qui le publie).
 

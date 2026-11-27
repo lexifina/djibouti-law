@@ -1,6 +1,6 @@
 # Décret n° 2009-0250/PR/MAMBW portant modification des membres de la mission de Pèlerinage du décret relatif à la création de la mission officielle du Pèlerinage pour l’Année 2009.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0250-pr-mambw-portant-modification-des-membres-de-la-mission-de-pelerinage-du-decret-relatif-a-la-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2009/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0250-pr-mambw-portant-modification-des-membres-de-la-mission-de-pelerinage-du-decret-relatif-a-la-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2009/>
 
 En vigueur : 2009-11-15 (date du Journal officiel qui le publie).
 

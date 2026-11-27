@@ -1,8 +1,8 @@
 # Arrêté n° 2007-0842/PR/MCIA portant modification de l’Arrêté n° 2004-0307/PR/MCI portant création d’un Forum National de Développement et de la Politique Commerciale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0842-pr-mcia-portant-modification-de-larrete-n2004-0307-pr-mci-portant-creation-dun-forum-national-de-developpement-et-de-la-politique-commerciale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0842-pr-mcia-portant-modification-de-larrete-n2004-0307-pr-mci-portant-creation-dun-forum-national-de-developpement-et-de-la-politique-commerciale/>
 
-En vigueur : 2007-10-25 (date fixÃ©e par le texte).
+En vigueur : 2007-10-25 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 47-335 complétant le décret du 26 janvier 1930 en vue d’étendre le droit à la campagne double pour les militaires en service dans les confins de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-335-completant-le-decret-du-26-janvier-1930-en-vue-detendre-le-droit-a-la-campagne-double-pour-les-militaires-en-service-dans-les-confins-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/03/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-335-completant-le-decret-du-26-janvier-1930-en-vue-detendre-le-droit-a-la-campagne-double-pour-les-militaires-en-service-dans-les-confins-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1947-03-30 (date du Journal officiel qui le publie).
 

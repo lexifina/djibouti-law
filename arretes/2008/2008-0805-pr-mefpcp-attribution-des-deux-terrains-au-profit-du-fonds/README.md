@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0805/PR/MEFPCP portant attribution des deux terrains au profit du Fonds de l’Habitat, sises à l’emplacement de la cité Gargar.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0805-pr-mefpcp-portant-attribution-des-deux-terrains-au-profit-du-fonds-de-lhabitat-sises-a-lemplacement-de-la-cite-gargar/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0805-pr-mefpcp-portant-attribution-des-deux-terrains-au-profit-du-fonds-de-lhabitat-sises-a-lemplacement-de-la-cite-gargar/>
 
 En vigueur : 2008-11-15 (date du Journal officiel qui le publie).
 

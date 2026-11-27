@@ -1,6 +1,6 @@
 # Décret n° 99-0114/PR/MEFPP portant autorisation de mise en concession du port de pêche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0114-pr-mefpp-portant-autorisation-de-mise-en-concession-du-port-de-peche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0114-pr-mefpp-portant-autorisation-de-mise-en-concession-du-port-de-peche-de-djibouti/>
 
 En vigueur : 1999-08-15 (date du Journal officiel qui le publie).
 

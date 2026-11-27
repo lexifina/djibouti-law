@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0738/PR/MID Portant création d’une commission de propagande chargée de donner son avis sur les prix des documents électoraux pour les élections régionales au 30 décembre 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0738-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electoraux-pour-les-elections-regionales-au-30-decembre-200/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0738-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electoraux-pour-les-elections-regionales-au-30-decembre-200/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

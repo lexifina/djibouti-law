@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0163/PR/MDCBWAM portant Organisation et règlement intérieur du Haut Conseil Islamique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0163-pr-mdcbwam-portant-organisation-et-reglement-interieur-du-haut-conseil-islamique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0163-pr-mdcbwam-portant-organisation-et-reglement-interieur-du-haut-conseil-islamique/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 

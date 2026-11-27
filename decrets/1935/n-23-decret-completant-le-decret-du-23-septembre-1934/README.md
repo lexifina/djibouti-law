@@ -1,6 +1,6 @@
 # Décret n° n°23 Décret complétant le décret du 23 septembre 1934 sur l’arrondissement du franc inférieur des dépenses publiques,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-decret-completant-le-decret-du-23-septembre-1934-sur-larrondissement-du-franc-inferieur-des-depenses-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-decret-completant-le-decret-du-23-septembre-1934-sur-larrondissement-du-franc-inferieur-des-depenses-publiques/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ marcel des finance
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 7-163-1910 modifiant L’article 206 du Code d’ instruction criminelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 163 du 01/06/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-163-1910-modifiant-larticle-206-du-code-d-instruction-criminelle/>
+Décret · Journal officiel de la République de Djibouti, n° 163 du 01/06/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-163-1910-modifiant-larticle-206-du-code-d-instruction-criminelle/>
 
 En vigueur : 1910-06-01 (date du Journal officiel qui le publie).
 

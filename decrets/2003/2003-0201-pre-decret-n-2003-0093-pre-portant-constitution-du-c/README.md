@@ -1,8 +1,8 @@
 # Décret n° 2003-0201/PRE modifiant le décret n° 2003-0093/PRE portant constitution du Conseil d’Administration de l’Autorité de la Zone Franche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0201-pre-modifiant-le-decret-n2003-0093-pre-portant-constitution-du-conseil-dadministration-de-lautorite-de-la-zone-franche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0201-pre-modifiant-le-decret-n2003-0093-pre-portant-constitution-du-conseil-dadministration-de-lautorite-de-la-zone-franche-de-djibouti/>
 
-En vigueur : 2003-10-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-10-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

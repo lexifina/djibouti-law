@@ -1,6 +1,6 @@
 # Loi n° 189/AN/12/6ème L portant Loi de Finances Rectificative de l’Etat pour l’exercice 2012.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-12-6eme-l-portant-loi-de-finances-rectificative-de-letat-pour-lexercice-2012/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-12-6eme-l-portant-loi-de-finances-rectificative-de-letat-pour-lexercice-2012/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2011-007/PR/MJAP portant application de la Loi n° 35/AN/09/6ème L relative au statut du personnel de la sécurité pénitentiaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-007-pr-mjap-portant-application-de-la-loi-n35-an-09-6eme-l-relative-au-statut-du-personnel-de-la-securite-penitentiaire/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-007-pr-mjap-portant-application-de-la-loi-n35-an-09-6eme-l-relative-au-statut-du-personnel-de-la-securite-penitentiaire/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

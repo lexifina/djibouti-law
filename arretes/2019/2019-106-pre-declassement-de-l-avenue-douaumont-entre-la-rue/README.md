@@ -1,6 +1,6 @@
 # Arrêté n° 2019-106/PRE portant déclassement de l’Avenue Douaumont entre la Rue de Moscou et la Place du 27 juin.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-106-pre-portant-declassement-de-lavenue-douaumont-entre-la-rue-de-moscou-et-la-place-du-27-juin/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-106-pre-portant-declassement-de-lavenue-douaumont-entre-la-rue-de-moscou-et-la-place-du-27-juin/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2003-0212/PR/MHUEAT portant réglementation du transport des produits dangereux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0212-pr-mhueat-portant-reglementation-du-transport-des-produits-dangereux/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 30/10/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0212-pr-mhueat-portant-reglementation-du-transport-des-produits-dangereux/>
 
-En vigueur : 2003-10-18 (date fixÃ©e par le texte).
+En vigueur : 2003-10-18 (date fixée par le texte).
 
 ## Visas
 

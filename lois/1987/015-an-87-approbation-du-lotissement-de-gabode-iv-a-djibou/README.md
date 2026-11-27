@@ -1,6 +1,6 @@
 # Loi n° 15/AN/87/2ème L portant approbation du Lotissement de Gabode IV à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-87-2eme-l-portant-approbation-du-lotissement-de-gabode-iv-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-87-2eme-l-portant-approbation-du-lotissement-de-gabode-iv-a-djibouti/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

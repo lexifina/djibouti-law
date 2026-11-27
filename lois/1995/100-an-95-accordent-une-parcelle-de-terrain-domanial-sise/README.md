@@ -1,6 +1,6 @@
 # Loi n° 100/AN/95/3e L accordent une parcelle de terrain domanial sise à Arta à incorporer au titre foncier n° 2671.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-95-3e-l-accordent-une-parcelle-de-terrain-domanial-sise-a-arta-a-incorporer-au-titre-foncier-n-2671/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-95-3e-l-accordent-une-parcelle-de-terrain-domanial-sise-a-arta-a-incorporer-au-titre-foncier-n-2671/>
 
 En vigueur : 1996-04-15 (date du Journal officiel qui le publie).
 

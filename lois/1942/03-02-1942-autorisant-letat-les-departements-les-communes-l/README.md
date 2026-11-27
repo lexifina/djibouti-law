@@ -1,6 +1,6 @@
 # Loi n° 03/02/1942 autorisant l’Etat, les départements, les communes, les offices, établissements publics et colonies à faire appel au concours d’anciens fonctionnaires civils ou militaires titulaires de pensions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 547 du 30/06/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-03-02-1942-autorisant-letat-les-departements-les-communes-les-offices-etablissements-publics-et-colonies-a-faire-appel-au-concours-danciens-fonctionnaires-civils-ou-militaires-tit/>
+Loi · Journal officiel de la République de Djibouti, n° 547 du 30/06/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-03-02-1942-autorisant-letat-les-departements-les-communes-les-offices-etablissements-publics-et-colonies-a-faire-appel-au-concours-danciens-fonctionnaires-civils-ou-militaires-tit/>
 
 En vigueur : 1942-06-30 (date du Journal officiel qui le publie).
 

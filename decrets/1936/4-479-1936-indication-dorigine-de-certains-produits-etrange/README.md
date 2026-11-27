@@ -1,6 +1,6 @@
 # Décret n° 4-479-1936 Indication d’origine de certains produits étrangers (tissus et toiles métalliques).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-479-1936-indication-dorigine-de-certains-produits-etrangers-tissus-et-toiles-metalliques/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-479-1936-indication-dorigine-de-certains-produits-etrangers-tissus-et-toiles-metalliques/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

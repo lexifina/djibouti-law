@@ -1,6 +1,6 @@
 # Décret n° 09-228-1915 03/09/1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 228 du 31/10/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-228-1915-03-09-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 228 du 31/10/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-228-1915-03-09-1915/>
 
 En vigueur : 1915-10-31 (date du Journal officiel qui le publie).
 

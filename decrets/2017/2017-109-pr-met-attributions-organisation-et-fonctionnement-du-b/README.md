@@ -1,8 +1,8 @@
 # Décret n° 2017-109/PR/MET portant attributions, organisation et fonctionnement du Bureau d’Enquêtes et d’Analyses (BEA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-109-pr-met-portant-attributions-organisation-et-fonctionnement-du-bureau-denquetes-et-danalyses-bea/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-109-pr-met-portant-attributions-organisation-et-fonctionnement-du-bureau-denquetes-et-danalyses-bea/>
 
-En vigueur : 2017-03-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-03-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -36,4 +36,4 @@ ISMAÏL OMAR GUELLEH
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

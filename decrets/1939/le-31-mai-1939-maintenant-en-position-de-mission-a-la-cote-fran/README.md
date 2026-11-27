@@ -1,6 +1,6 @@
 # Décret n° le 31 mai 1939 maintenant en position de mission à la Côte française des Somalis M. Besairie, géologue principal de 1er classe des colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-31-mai-1939-maintenant-en-position-de-mission-a-la-cote-francaise-des-somalis-m-besairie-geologue-principal-de-1er-classe-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-31-mai-1939-maintenant-en-position-de-mission-a-la-cote-francaise-des-somalis-m-besairie-geologue-principal-de-1er-classe-des-colonies/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 
@@ -20,6 +20,6 @@ Georges MANDEL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

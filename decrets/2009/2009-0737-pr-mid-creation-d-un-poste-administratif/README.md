@@ -1,6 +1,6 @@
 # Décret n° 2009-0737/PR/MID portant création d’un poste Administratif.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0737-pr-mid-portant-creation-dun-poste-administratif/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0737-pr-mid-portant-creation-dun-poste-administratif/>
 
 En vigueur : 2009-10-15 (date du Journal officiel qui le publie).
 

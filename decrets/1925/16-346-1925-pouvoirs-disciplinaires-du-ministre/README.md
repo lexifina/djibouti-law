@@ -1,6 +1,6 @@
 # Décret n° 16-346-1925 Pouvoirs disciplinaires du ministre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-346-1925-pouvoirs-disciplinaires-du-ministre/>
+Décret · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-346-1925-pouvoirs-disciplinaires-du-ministre/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 

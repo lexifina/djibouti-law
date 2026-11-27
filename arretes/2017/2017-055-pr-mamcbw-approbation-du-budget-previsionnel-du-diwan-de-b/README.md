@@ -1,6 +1,6 @@
 # Arrêté n° 2017-055/PR/MAMCBW portant approbation du Budget prévisionnel du Diwan de Biens Waqfs pour l’exercice 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-055-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-de-biens-waqfs-pour-lexercice-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-055-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-de-biens-waqfs-pour-lexercice-2017/>
 
 En vigueur : 2017-03-15 (date du Journal officiel qui le publie).
 

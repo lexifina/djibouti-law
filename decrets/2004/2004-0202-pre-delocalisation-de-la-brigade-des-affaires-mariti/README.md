@@ -1,6 +1,6 @@
 # Décret n° 2004-0202/PRE portant délocalisation de la Brigade des Affaires Maritimes de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0202-pre-portant-delocalisation-de-la-brigade-des-affaires-maritimes-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0202-pre-portant-delocalisation-de-la-brigade-des-affaires-maritimes-de-la-gendarmerie-nationale/>
 
 En vigueur : 2004-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 98-0528/PRE/MCI portant création d’un Comité de Réflexion sur l’adhésion de Djibouti au COMESA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1998 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0528-pre-mci-portant-creation-dun-comite-de-reflexion-sur-ladhesion-de-djibouti-au-comesa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/1998 · <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0528-pre-mci-portant-creation-dun-comite-de-reflexion-sur-ladhesion-de-djibouti-au-comesa/>
 
 En vigueur : 1998-09-30 (date du Journal officiel qui le publie).
 

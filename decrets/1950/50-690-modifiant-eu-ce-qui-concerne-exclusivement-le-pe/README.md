@@ -1,6 +1,6 @@
 # Décret n° 50-690 modifiant, eu ce qui concerne exclusivement le personnel civil, les dispositions du décret du 3 juillet 1897 portant règlement sur les 5 indemnités de route et de séjour, les concessions de passages et frais de voyage a l’étranger des officiers, fonctionnaires, employés et urgents civils et’ militaires des services coloniaux ou locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-690-modifiant-eu-ce-qui-concerne-exclusivement-le-personnel-civil-les-dispositions-du-decret-du-3-juillet-1897-portant-reglement-sur-les-5-indemnites-de-route-et-de-sejour-les/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-690-modifiant-eu-ce-qui-concerne-exclusivement-le-personnel-civil-les-dispositions-du-decret-du-3-juillet-1897-portant-reglement-sur-les-5-indemnites-de-route-et-de-sejour-les/>
 
 En vigueur : 1950-07-31 (date du Journal officiel qui le publie).
 

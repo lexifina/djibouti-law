@@ -1,6 +1,6 @@
 # Loi n° 28 février 1942. Le décret étendant aux territoires relevant du secrétariat d’Etat aux colonies les dispositions de la loi du 21 janvier 1942
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-28-fevrier-1942-le-decret-etendant-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-de-la-loi-du-21-janvier-1942/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-28-fevrier-1942-le-decret-etendant-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-de-la-loi-du-21-janvier-1942/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

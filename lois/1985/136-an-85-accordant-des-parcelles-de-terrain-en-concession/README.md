@@ -1,6 +1,6 @@
 # Loi n° 136/AN/85/1ère L Accordant des parcelles de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-85-1ere-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-85-1ere-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

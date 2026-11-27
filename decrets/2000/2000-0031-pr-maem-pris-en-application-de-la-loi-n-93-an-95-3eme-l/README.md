@@ -1,6 +1,6 @@
 # Décret n° 2000-0031/PR/MAEM pris en application de la loi n° 93/AN/95/3ème L du 04 avril 1996 portant Code de l’Eau, relatif à la lutte contre la pollution des eaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0031-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-a-la-lutte-contre-la-pollution-des-eaux/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0031-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-a-la-lutte-contre-la-pollution-des-eaux/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

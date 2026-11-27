@@ -1,6 +1,6 @@
 # Décret n° 11-363-1927 Approbation du projet de budget de la Cote française des Somalis pour l’exercice 1927.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 363 du 01/02/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-363-1927-approbation-du-projet-de-budget-de-la-cote-francaise-des-somalis-pour-lexercice-1927/>
+Décret · Journal officiel de la République de Djibouti, n° 363 du 01/02/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-363-1927-approbation-du-projet-de-budget-de-la-cote-francaise-des-somalis-pour-lexercice-1927/>
 
 En vigueur : 1927-02-01 (date du Journal officiel qui le publie).
 

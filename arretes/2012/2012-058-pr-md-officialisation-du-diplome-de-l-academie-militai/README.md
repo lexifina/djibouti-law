@@ -1,6 +1,6 @@
 # Arrêté n° 2012-058/PR/MD portant officialisation du diplôme de l’Académie Militaire Inter-Armées (AMIA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-058-pr-md-portant-officialisation-du-diplome-de-lacademie-militaire-inter-armees-amia/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-058-pr-md-portant-officialisation-du-diplome-de-lacademie-militaire-inter-armees-amia/>
 
 En vigueur : 2012-01-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

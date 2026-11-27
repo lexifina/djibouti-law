@@ -1,6 +1,6 @@
 # Décret n° 23/06/1941 portant création d’un service de télégrammes familiaux à prix réduit en faveur des militaires et marins des forces françaises d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-06-1941-portant-creation-dun-service-de-telegrammes-familiaux-a-prix-reduit-en-faveur-des-militaires-et-marins-des-forces-francaises-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-06-1941-portant-creation-dun-service-de-telegrammes-familiaux-a-prix-reduit-en-faveur-des-militaires-et-marins-des-forces-francaises-doutre-mer/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2021-011/PR/MENFOP portant sur les modalités d’accès à la fonction des Professeurs-Formateurs du CFEEF.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-011-pr-menfop-portant-sur-les-modalites-dacces-a-la-fonction-des-professeurs-formateurs-du-cfeef/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-011-pr-menfop-portant-sur-les-modalites-dacces-a-la-fonction-des-professeurs-formateurs-du-cfeef/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -36,4 +36,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

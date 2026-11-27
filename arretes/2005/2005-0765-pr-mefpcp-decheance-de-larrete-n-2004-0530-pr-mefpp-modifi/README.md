@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0765/PR/MEFPCP portant la déchéance de l’arrêté n° 2004-0530/PR/MEFPP modifiant l’arrêté n° 2004-0015/PR et attribuant la dite parcelle à Mr. Mohamed Kayed Said Mohamed.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0765-pr-mefpcp-portant-la-decheance-de-larrete-n2004-0530-pr-mefpp-modifiant-larrete-n2004-0015-pr-et-attribuant-la-dite-parcelle-a-mr-mohamed-kayed-said-mohamed/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0765-pr-mefpcp-portant-la-decheance-de-larrete-n2004-0530-pr-mefpp-modifiant-larrete-n2004-0015-pr-et-attribuant-la-dite-parcelle-a-mr-mohamed-kayed-said-mohamed/>
 
 En vigueur : 2005-11-30 (date du Journal officiel qui le publie).
 

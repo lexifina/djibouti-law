@@ -1,6 +1,6 @@
 # Arrêté n° 2015-094/PR/MEFCI portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2015 du Fonds de Développement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-094-pr-mefci-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-094-pr-mefci-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2015-02-15 (date du Journal officiel qui le publie).
 

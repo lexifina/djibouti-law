@@ -1,6 +1,6 @@
 # Décret n° 9 aout 1937 9 aout 1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-aout-1937-9-aout-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-aout-1937-9-aout-1937/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Marc RUCART.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Décret n° 87-036/PR/MCTT portant modification du décret 87-021/PR/MCTT du 8 mars 1987 approuvant et rendant exécutoire le budget primitif 1987 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/06/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-036-pr-mctt-portant-modification-du-decret-87-021-pr-mctt-du-8-mars-1987-approuvant-et-rendant-executoire-le-budget-primitif-1987-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/06/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-036-pr-mctt-portant-modification-du-decret-87-021-pr-mctt-du-8-mars-1987-approuvant-et-rendant-executoire-le-budget-primitif-1987-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1987-06-30 (date du Journal officiel qui le publie).
 

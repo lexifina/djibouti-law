@@ -1,6 +1,6 @@
 # Arrêté n° 2019-060/PR/MB portant la déchéance partielle et l’attribution une parcelle de terrain à Salines Ouest Route de Venise.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 14/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-060-pr-mb-portant-la-decheance-partielle-et-lattribution-une-parcelle-de-terrain-a-salines-ouest-route-de-venise/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 14/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-060-pr-mb-portant-la-decheance-partielle-et-lattribution-une-parcelle-de-terrain-a-salines-ouest-route-de-venise/>
 
 En vigueur : 2019-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

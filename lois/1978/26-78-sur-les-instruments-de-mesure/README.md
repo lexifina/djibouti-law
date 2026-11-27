@@ -1,6 +1,6 @@
 # Loi n° 26/78 Portant sur les instruments de mesure.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 12/06/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n26-78-portant-sur-les-instruments-de-mesure/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 12/06/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n26-78-portant-sur-les-instruments-de-mesure/>
 
 En vigueur : 1978-06-12 (date du Journal officiel qui le publie).
 

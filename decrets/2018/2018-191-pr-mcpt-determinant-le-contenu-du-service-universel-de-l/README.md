@@ -1,8 +1,8 @@
 # Décret n° 2018-191/PR/MCPT déterminant le contenu du Service Universel de la Poste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-191-pr-mcpt-determinant-le-contenu-du-service-universel-de-la-poste/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-191-pr-mcpt-determinant-le-contenu-du-service-universel-de-la-poste/>
 
-En vigueur : 2018-05-29 (date fixÃ©e par le texte).
+En vigueur : 2018-05-29 (date fixée par le texte).
 
 ## Visas
 

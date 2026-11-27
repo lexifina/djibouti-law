@@ -1,6 +1,6 @@
 # Loi n° 63-757 portant modification des articles 12, 14, 87 et 94 du Code électoral relatifs à l’inscription sur la Liste électorale et au vote par procuration.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1963 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-63-757-portant-modification-des-articles-12-14-87-et-94-du-code-electoral-relatifs-a-linscription-sur-la-liste-electorale-et-au-vote-par-procuration/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1963 · <https://www.journalofficiel.dj/texte-juridique/loi-n-63-757-portant-modification-des-articles-12-14-87-et-94-du-code-electoral-relatifs-a-linscription-sur-la-liste-electorale-et-au-vote-par-procuration/>
 
 En vigueur : 1963-11-30 (date du Journal officiel qui le publie).
 

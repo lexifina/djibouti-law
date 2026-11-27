@@ -1,6 +1,6 @@
 # Décret n° 2026-020/PR/MJC portant organisation et fonctionnement de la Commission Nationale du Patrimoine Culturel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 29/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-020-pr-mjc-portant-organisation-et-fonctionnement-de-la-commission-nationale-du-patrimoine-culturel/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 29/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-020-pr-mjc-portant-organisation-et-fonctionnement-de-la-commission-nationale-du-patrimoine-culturel/>
 
 En vigueur : 2026-01-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

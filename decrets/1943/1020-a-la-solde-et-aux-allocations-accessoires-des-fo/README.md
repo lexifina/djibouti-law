@@ -1,6 +1,6 @@
 # Décret n° 1020 relatif à la solde et aux allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1020-relatif-a-la-solde-et-aux-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1020-relatif-a-la-solde-et-aux-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

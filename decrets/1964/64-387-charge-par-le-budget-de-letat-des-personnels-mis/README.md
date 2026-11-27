@@ -1,6 +1,6 @@
 # Décret n° 64-387 portant charge par le budget de l’Etat des personnels mis à la disposition des Services territoriaux des Territoires d’outre-mer et des Services français du Condominium des Nouvelles-Hébrides (JORF. des 4 et 5 mai 1964, p. 3875) [arrêté de promulgation n° 627 du 14 mai 1964).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-387-portant-charge-par-le-budget-de-letat-des-personnels-mis-a-la-disposition-des-services-territoriaux-des-territoires-doutre-mer-et-des-services-francais-du-condominium-des-no/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-387-portant-charge-par-le-budget-de-letat-des-personnels-mis-a-la-disposition-des-services-territoriaux-des-territoires-doutre-mer-et-des-services-francais-du-condominium-des-no/>
 
 En vigueur : 1964-06-01 (date du Journal officiel qui le publie).
 

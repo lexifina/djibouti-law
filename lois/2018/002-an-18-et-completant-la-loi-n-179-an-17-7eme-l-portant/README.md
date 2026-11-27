@@ -1,6 +1,6 @@
 # Loi n° 002/AN/18/8ème L modifiant et complétant la loi n° 179/AN/17/7ème L portant redevances de l’ODPIC.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n002-an-18-8eme-l-modifiant-et-completant-la-loi-n179-an-17-7eme-l-portant-redevances-de-lodpic/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n002-an-18-8eme-l-modifiant-et-completant-la-loi-n179-an-17-7eme-l-portant-redevances-de-lodpic/>
 
 En vigueur : 2018-04-15 (date du Journal officiel qui le publie).
 

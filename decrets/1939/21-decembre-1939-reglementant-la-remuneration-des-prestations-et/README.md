@@ -1,6 +1,6 @@
 # Décret n° 21 décembre 1939 réglementant la rémunération des prestations et réquisitions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-decembre-1939-reglementant-la-remuneration-des-prestations-et-requisitions/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-decembre-1939-reglementant-la-remuneration-des-prestations-et-requisitions/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -26,6 +26,6 @@ Le Ministre des colonies,
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

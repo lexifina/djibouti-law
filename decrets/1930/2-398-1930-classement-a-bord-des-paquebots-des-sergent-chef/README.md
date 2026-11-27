@@ -1,6 +1,6 @@
 # Décret n° 2-398-1930 Classement à bord des paquebots des sergent-chef et assimilés, voyageant au compte du budget colonial ou des budgets locaux des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-398-1930-classement-a-bord-des-paquebots-des-sergent-chef-et-assimiles-voyageant-au-compte-du-budget-colonial-ou-des-budgets-locaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-398-1930-classement-a-bord-des-paquebots-des-sergent-chef-et-assimiles-voyageant-au-compte-du-budget-colonial-ou-des-budgets-locaux-des-colonies/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 

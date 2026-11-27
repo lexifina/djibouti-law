@@ -1,6 +1,6 @@
 # Rectificatif n° 2000-0893/PR/MEN à l’arrêté n° 99-0114/PR/EN créant le Brevet de Technicien Supérieur «Tourisme» et définissant les conditions de délivrance de ce Diplôme.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2000-0893-pr-men-a-larrete-n99-0114-pr-en-creant-le-brevet-de-technicien-superieur-tourisme-et-definissant-les-conditions-de-delivrance-de-ce-diplome/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 22 du 30/11/2000 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2000-0893-pr-men-a-larrete-n99-0114-pr-en-creant-le-brevet-de-technicien-superieur-tourisme-et-definissant-les-conditions-de-delivrance-de-ce-diplome/>
 
 En vigueur : 2000-11-30 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2026-119/PR/MENFOP portant prorogation des dispositions du décret n° 2020-234/PR/MENFOP du 14 septembre 2020 créant et définissant les conditions d’accès et de délivrance du certificat de fin d’études secondaires intitulé “Certificate of High-School Graduation”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-119-pr-menfop-portant-prorogation-des-dispositions-du-decret-n2020-234-pr-menfop-du-14-septembre-2020-creant-et-definissant-les-conditions-dacces-et-de-delivrance-du-certifi/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-119-pr-menfop-portant-prorogation-des-dispositions-du-decret-n2020-234-pr-menfop-du-14-septembre-2020-creant-et-definissant-les-conditions-dacces-et-de-delivrance-du-certifi/>
 
-En vigueur : 2026-06-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-06-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

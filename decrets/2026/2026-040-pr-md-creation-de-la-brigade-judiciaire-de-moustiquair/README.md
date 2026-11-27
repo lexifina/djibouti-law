@@ -1,6 +1,6 @@
 # Décret n° 2026-040/PR/MD portant création de la brigade judiciaire de moustiquaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 26/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-040-pr-md-portant-creation-de-la-brigade-judiciaire-de-moustiquaire/>
+Décret · Journal officiel de la République de Djibouti, n° 04 du 26/02/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-040-pr-md-portant-creation-de-la-brigade-judiciaire-de-moustiquaire/>
 
 En vigueur : 2026-02-27 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

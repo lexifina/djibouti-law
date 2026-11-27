@@ -1,6 +1,6 @@
 # Décret n° 2017-393/PR/MD portant création d’indice et établissement d’indemnités et d’avantages au profit des colonels majors issus des institutions de défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-393-pr-md-portant-creation-dindice-et-etablissement-dindemnites-et-davantages-au-profit-des-colonels-majors-issus-des-institutions-de-defense/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-393-pr-md-portant-creation-dindice-et-etablissement-dindemnites-et-davantages-au-profit-des-colonels-majors-issus-des-institutions-de-defense/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

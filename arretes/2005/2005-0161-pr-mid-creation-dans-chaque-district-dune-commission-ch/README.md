@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0161/PR/MID Portant création dans chaque District d’une commission chargée de distribuer les cartes électorales en vue des Élections Présidentielles.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0161-pr-mid-portant-creation-dans-chaque-district-dune-commission-chargee-de-distribuer-les-cartes-electorales-en-vue-des-elections-presidentielles/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0161-pr-mid-portant-creation-dans-chaque-district-dune-commission-chargee-de-distribuer-les-cartes-electorales-en-vue-des-elections-presidentielles/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

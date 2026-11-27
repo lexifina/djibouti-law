@@ -1,2 +1,0 @@
-Par décret n°2024-027/PRE, du Président de la République, chef du Gouvernement, en date du 12 février 2024, pendant la durée de l’absence de S.E.M. OMAR ABDI SAID, l’intérim des fonctions du Ministre du Travail chargé de la Formalisation et de la Protection Sociale sera assuré par S.E.M. YONIS ALI GUEDI, Ministre de l’Energie, chargé des Ressources Naturelles cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

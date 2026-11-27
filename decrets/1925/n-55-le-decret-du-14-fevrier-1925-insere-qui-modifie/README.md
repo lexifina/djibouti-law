@@ -1,6 +1,6 @@
 # Décret n° n°55 le décret du 14 février 1925 (inséré) qui modifie le décret du 6 août 1921 (Journal officiel, page 710 sur l’organisation générale du personnel dans les trésor coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 340 du 31/03/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-le-decret-du-14-fevrier-1925-insere-qui-modifie-le-decret-du-6-aout-1921-journal-officiel-page-710-sur-lorganisation-generale-du-personnel-dans-les-tresor-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 340 du 31/03/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-le-decret-du-14-fevrier-1925-insere-qui-modifie-le-decret-du-6-aout-1921-journal-officiel-page-710-sur-lorganisation-generale-du-personnel-dans-les-tresor-coloniales/>
 
 En vigueur : 1925-03-31 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ clementel
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

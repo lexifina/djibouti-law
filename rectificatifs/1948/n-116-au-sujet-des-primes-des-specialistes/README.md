@@ -1,6 +1,6 @@
 # Rectificatif n° n° 116 au sujet des primes des spécialistes.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1948 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-n-116-au-sujet-des-primes-des-specialistes/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 2 du 29/02/1948 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-n-116-au-sujet-des-primes-des-specialistes/>
 
 En vigueur : 1948-02-29 (date du Journal officiel qui le publie).
 

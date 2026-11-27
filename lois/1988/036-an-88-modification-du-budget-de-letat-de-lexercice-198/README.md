@@ -1,6 +1,6 @@
 # Loi de finances n° 36/AN/88/2ème L portant modification du budget de l’État de l’exercice 1988.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n36-an-88-2eme-l-portant-modification-du-budget-de-letat-de-lexercice-1988/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n36-an-88-2eme-l-portant-modification-du-budget-de-letat-de-lexercice-1988/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

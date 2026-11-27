@@ -1,6 +1,6 @@
 # Loi n° 120/AN/24/9ème L portant ratification de l’Accord de financement additionnel pour le projet de la gestion économique et développement des statistiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-24-9eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-de-la-gestion-economique-et-developpement-des-statistiques/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-24-9eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-de-la-gestion-economique-et-developpement-des-statistiques/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

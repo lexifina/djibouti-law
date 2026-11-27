@@ -1,6 +1,6 @@
 # Décret n° 20 juin 1939 relatif au statut du personnel métropolitain des douanes aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-juin-1939-relatif-au-statut-du-personnel-metropolitain-des-douanes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-juin-1939-relatif-au-statut-du-personnel-metropolitain-des-douanes-aux-colonies/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

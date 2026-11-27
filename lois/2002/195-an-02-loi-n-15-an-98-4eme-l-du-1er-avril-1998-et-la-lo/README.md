@@ -1,6 +1,6 @@
 # Loi n° 195/AN/02/4ème L Modifiant la Loi n° 15/AN/98/4ème L du 1er avril 1998 et la Loi n° 113/AN/01 portant respectivement organisation du Ministère de l’Economie, chargé de la Privatisation et la création de la Direction du Financement Extérieur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-02-4eme-l-modifiant-la-loi-n15-an-98-4eme-l-du-1er-avril-1998-et-la-loi-n113-an-01-portant-respectivement-organisation-du-ministere-de-leconomie-charge-de-la-privatisa/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-02-4eme-l-modifiant-la-loi-n15-an-98-4eme-l-du-1er-avril-1998-et-la-loi-n113-an-01-portant-respectivement-organisation-du-ministere-de-leconomie-charge-de-la-privatisa/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

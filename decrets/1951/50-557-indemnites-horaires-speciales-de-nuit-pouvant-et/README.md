@@ -1,6 +1,6 @@
 # Décret n° 50-557 relatif aux indemnités horaires spéciales de nuit pouvant être attribuées au personnel du cadre des ingénieurs des Travaux météorologiques de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-557-relatif-aux-indemnites-horaires-speciales-de-nuit-pouvant-etre-attribuees-au-personnel-du-cadre-des-ingenieurs-des-travaux-meteorologiques-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-557-relatif-aux-indemnites-horaires-speciales-de-nuit-pouvant-etre-attribuees-au-personnel-du-cadre-des-ingenieurs-des-travaux-meteorologiques-de-la-france-doutre-mer/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 

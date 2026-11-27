@@ -1,6 +1,6 @@
 # Additif n° 67/55/SPCG à l’arrêté n° 64/30/SPCG du 17 mars 1964 fixant les modalités d’attribution . d’un véhicule de fonction aux membres du Conseil de Gouvernement.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1967 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-67-55-spcg-a-larrete-n-64-30-spcg-du-17-mars-1964-fixant-les-modalites-dattribution-dun-vehicule-de-fonction-aux-membres-du-conseil-de-gouvernement/>
+Additif · Journal officiel de la République de Djibouti, n° 6 du 01/06/1967 · <https://www.journalofficiel.dj/texte-juridique/additif-n-67-55-spcg-a-larrete-n-64-30-spcg-du-17-mars-1964-fixant-les-modalites-dattribution-dun-vehicule-de-fonction-aux-membres-du-conseil-de-gouvernement/>
 
 En vigueur : 1967-06-01 (date du Journal officiel qui le publie).
 

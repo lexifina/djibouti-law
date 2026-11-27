@@ -1,6 +1,6 @@
 # Décret n° 2013-346/PR/SEMHUEL portant obtention de l’agrément de promoteur immobilier et conditions de réalisation des projets immobiliers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-346-pr-semhuel-portant-obtention-de-lagrement-de-promoteur-immobilier-et-conditions-de-realisation-des-projets-immobiliers/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-346-pr-semhuel-portant-obtention-de-lagrement-de-promoteur-immobilier-et-conditions-de-realisation-des-projets-immobiliers/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

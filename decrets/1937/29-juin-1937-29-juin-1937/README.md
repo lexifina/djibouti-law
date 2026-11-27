@@ -1,6 +1,6 @@
 # Décret n° 29 juin 1937 29 juin 1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-juin-1937-29-juin-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-juin-1937-29-juin-1937/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

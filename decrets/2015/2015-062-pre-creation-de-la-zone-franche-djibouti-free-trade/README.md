@@ -1,8 +1,8 @@
 # Décret n° 2015-062/PRE Portant création de la Zone Franche “Djibouti Free Trade Zone”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-062-pre-portant-creation-de-la-zone-franche-djibouti-free-trade-zone/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-062-pre-portant-creation-de-la-zone-franche-djibouti-free-trade-zone/>
 
-En vigueur : 2015-03-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-03-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

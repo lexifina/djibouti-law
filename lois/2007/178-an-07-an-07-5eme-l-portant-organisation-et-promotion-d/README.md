@@ -1,6 +1,6 @@
 # Loi n° 178/AN/07/5ème L AN/07/5ème L portant organisation et promotion des activités physiques et sportives en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-07-5eme-l-an-07-5eme-l-portant-organisation-et-promotion-des-activites-physiques-et-sportives-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-07-5eme-l-an-07-5eme-l-portant-organisation-et-promotion-des-activites-physiques-et-sportives-en-republique-de-djibouti/>
 
 En vigueur : 2007-05-15 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

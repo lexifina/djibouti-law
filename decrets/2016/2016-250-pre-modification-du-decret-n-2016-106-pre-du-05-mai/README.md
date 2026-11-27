@@ -1,6 +1,6 @@
 # Décret n° 2016-250/PRE portant modification du Décret n° 2016-106/PRE du 05 mai 2016 portant composition des membres du Conseil d’Administration de l’Agence Nationale des Systèmes d’Information de l’Etat (ANSIE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 29/09/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-250-pre-portant-modification-du-decret-n2016-106-pre-du-05-mai-2016-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinforma/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 29/09/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-250-pre-portant-modification-du-decret-n2016-106-pre-du-05-mai-2016-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-des-systemes-dinforma/>
 
 En vigueur : 2016-09-29 (date du Journal officiel qui le publie).
 

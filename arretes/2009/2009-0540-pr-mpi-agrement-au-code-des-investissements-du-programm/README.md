@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0540/PR/MPI portant Agrément au Code des Investissements du programme d’investissement de la société “ETS Marill”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0540-pr-mpi-portant-agrement-au-code-des-investissements-du-programme-dinvestissement-de-la-societe-ets-marill/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0540-pr-mpi-portant-agrement-au-code-des-investissements-du-programme-dinvestissement-de-la-societe-ets-marill/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

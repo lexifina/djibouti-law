@@ -1,8 +1,8 @@
 # Arrêté n° 2019-123/PR/MTRA fixant les règles de la récupération des heures de travail.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-123-pr-mtra-fixant-les-regles-de-la-recuperation-des-heures-de-travail/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-123-pr-mtra-fixant-les-regles-de-la-recuperation-des-heures-de-travail/>
 
-En vigueur : 2019-07-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -26,4 +26,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

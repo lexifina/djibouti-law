@@ -1,6 +1,6 @@
 # Décret n° 1-185-1912 le 23 janvier 1912.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 185 du 01/04/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-185-1912-le-23-janvier-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 185 du 01/04/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-185-1912-le-23-janvier-1912/>
 
 En vigueur : 1912-04-01 (date du Journal officiel qui le publie).
 

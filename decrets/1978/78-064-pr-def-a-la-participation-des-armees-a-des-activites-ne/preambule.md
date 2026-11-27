@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. – Les formations de l’Armée nationale peuvent dans certaines circonstances et sur décision du président de la République ou du ministre de la Défense, être appelées à prêter leur concours à des activités qui ne relèvent pas de leurs missions propres :
 – interventions dans l’intérêt public,
 – interventions au profit d’organismes privés.

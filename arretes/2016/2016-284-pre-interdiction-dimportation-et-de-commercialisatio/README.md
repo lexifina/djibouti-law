@@ -1,6 +1,6 @@
 # Arrêté n° 2016-284/PRE portant interdiction d’importation et de commercialisation des sacs plastiques non biodégradables, non produits en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-284-pre-portant-interdiction-dimportation-et-de-commercialisation-des-sacs-plastiques-non-biodegradables-non-produits-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-284-pre-portant-interdiction-dimportation-et-de-commercialisation-des-sacs-plastiques-non-biodegradables-non-produits-en-republique-de-djibouti/>
 
 En vigueur : 2016-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2011-0206/PR/MI portant statut particulier des médecins et pharmaciens de la Police nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0206-pr-mi-portant-statut-particulier-des-medecins-et-pharmaciens-de-la-police-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0206-pr-mi-portant-statut-particulier-des-medecins-et-pharmaciens-de-la-police-nationale/>
 
 En vigueur : 2011-10-31 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

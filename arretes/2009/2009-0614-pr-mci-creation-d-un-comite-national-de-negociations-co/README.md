@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0614/PR/MCI portant création d’un Comité National de Négociations Commerciales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0614-pr-mci-portant-creation-dun-comite-national-de-negociations-commerciales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0614-pr-mci-portant-creation-dun-comite-national-de-negociations-commerciales/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ SUR Proposition du Ministre du Commerce et de l’Industrie.
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

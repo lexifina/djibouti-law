@@ -1,6 +1,6 @@
 # Arrêté n° 2014-099/PR/MB portant modification de l’arrête n° 2011-172/PR/MEFP portant attribution à la société Djibricks S.A une parcelle de terrain d’une superficie de 248576 m2.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-099-pr-mb-portant-modification-de-larrete-n2011-172-pr-mefp-portant-attribution-a-la-societe-djibricks-s-a-une-parcelle-de-terrain-dune-superficie-de-248576-m2/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-099-pr-mb-portant-modification-de-larrete-n2011-172-pr-mefp-portant-attribution-a-la-societe-djibricks-s-a-une-parcelle-de-terrain-dune-superficie-de-248576-m2/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 

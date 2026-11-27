@@ -1,6 +1,6 @@
 # Arrêté n° 2018-046/PR/MDCPATF portant rectification de l’arrêté n° 2014-0208 du 22/02/2014.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-046-pr-mdcpatf-portant-rectification-de-larrete-n2014-0208-du-22-02-2014/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-046-pr-mdcpatf-portant-rectification-de-larrete-n2014-0208-du-22-02-2014/>
 
 En vigueur : 2018-03-15 (date du Journal officiel qui le publie).
 

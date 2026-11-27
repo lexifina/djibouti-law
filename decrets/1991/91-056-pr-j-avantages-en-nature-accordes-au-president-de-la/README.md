@@ -1,8 +1,8 @@
 # Décret n° 91-056/PR/J relatif aux avantages en nature accordés au président de la Cour Suprême
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-056-pr-j-relatif-aux-avantages-en-nature-accordes-au-president-de-la-cour-supreme/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-056-pr-j-relatif-aux-avantages-en-nature-accordes-au-president-de-la-cour-supreme/>
 
-En vigueur : 1991-05-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1991-05-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -28,4 +28,4 @@ BARKAD GOURAD HAMADOU
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

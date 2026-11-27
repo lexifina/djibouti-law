@@ -1,6 +1,6 @@
 # Loi n° 131/AN/90/2ème L portant approbation d’un accord de prêt entre la république de Djibouti et l’Association Internationale de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-90-2eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 30/10/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-90-2eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
 
 En vigueur : 1990-10-30 (date du Journal officiel qui le publie).
 

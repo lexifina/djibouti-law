@@ -1,6 +1,6 @@
 # Loi n° 176/AN/81 portant organisation de l’administration centrale du ministère de l’intérieur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-81-portant-organisation-de-ladministration-centrale-du-ministere-de-linterieur/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-81-portant-organisation-de-ladministration-centrale-du-ministere-de-linterieur/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

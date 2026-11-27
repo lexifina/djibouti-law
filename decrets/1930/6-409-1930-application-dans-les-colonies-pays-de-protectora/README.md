@@ -1,6 +1,6 @@
 # Décret n° 6-409-1930 Application dans les colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies, de la loi du 28 juin 1930 instituant la Croix du combattant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-409-1930-application-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-de-la-loi-du-28-juin-1930-instituant-la-croix-du-combattant/>
+Décret · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-409-1930-application-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-de-la-loi-du-28-juin-1930-instituant-la-croix-du-combattant/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 

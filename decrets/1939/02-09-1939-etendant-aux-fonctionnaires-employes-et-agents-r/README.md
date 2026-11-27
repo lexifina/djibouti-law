@@ -1,6 +1,6 @@
 # Décret n° 02/09/1939 étendant aux fonctionnaires, employés et agents rétribués sur les budgets généraux, locaux et spéciaux des colonies, pays de protectorat français et territoires sous mandat relevant du ministère des colonies les dispositions des décrets du 29 juillet 1939 relatifs à la solde du personnel rappelé sous les drapeaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-09-1939-etendant-aux-fonctionnaires-employes-et-agents-retribues-sur-les-budgets-generaux-locaux-et-speciaux-des-colonies-pays-de-protectorat-francais-et-territoires-sous-mandat/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-09-1939-etendant-aux-fonctionnaires-employes-et-agents-retribues-sur-les-budgets-generaux-locaux-et-speciaux-des-colonies-pays-de-protectorat-francais-et-territoires-sous-mandat/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

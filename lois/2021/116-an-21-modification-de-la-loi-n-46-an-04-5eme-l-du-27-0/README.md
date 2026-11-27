@@ -1,6 +1,6 @@
 # Loi n° 116/AN/21/8ème L portant modification de la Loi n° 46/AN/04/5ème L du 27/03/04 relative aux statuts et organisation de la D.G.P.N.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-21-8eme-l-portant-modification-de-la-loi-n46-an-04-5eme-l-du-27-03-04-relative-aux-statuts-et-organisation-de-la-d-g-p-n/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-21-8eme-l-portant-modification-de-la-loi-n46-an-04-5eme-l-du-27-03-04-relative-aux-statuts-et-organisation-de-la-d-g-p-n/>
 
 En vigueur : 2022-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

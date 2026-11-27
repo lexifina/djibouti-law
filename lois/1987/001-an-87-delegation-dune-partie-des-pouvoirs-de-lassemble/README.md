@@ -1,6 +1,6 @@
 # Loi n° 1/AN/87/2e L portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente jusqu’à l’ouverture de la 2e session ordinaire de 1987 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/07/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-87-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2e-session-ordinaire-de-1987-dite-session-budg/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 31/07/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-87-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2e-session-ordinaire-de-1987-dite-session-budg/>
 
 En vigueur : 1987-07-31 (date du Journal officiel qui le publie).
 

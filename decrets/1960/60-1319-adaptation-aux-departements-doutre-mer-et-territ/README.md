@@ -1,6 +1,6 @@
 # Décret n° 60-1319 portant adaptation aux départements d’outre-mer et territoires d’outre-mer des dispositions du décret n° 60-1318 du 8 décembre 1960 fixant les conditions dans lesquelles les partis politiques pourront participer à la campagne en vue du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1319-portant-adaptation-aux-departements-doutre-mer-et-territoires-doutre-mer-des-dispositions-du-decret-n-60-1318-du-8-decembre-1960-fixant-les-conditions-dans-lesquelles/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1319-portant-adaptation-aux-departements-doutre-mer-et-territoires-doutre-mer-des-dispositions-du-decret-n-60-1318-du-8-decembre-1960-fixant-les-conditions-dans-lesquelles/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 

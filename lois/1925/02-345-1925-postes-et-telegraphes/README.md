@@ -1,6 +1,6 @@
 # Loi n° 02-345-1925 Postes et télégraphes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 342 du 31/05/1925 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-345-1925-postes-et-telegraphes/>
+Loi · Journal officiel de la République de Djibouti, n° 342 du 31/05/1925 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-345-1925-postes-et-telegraphes/>
 
 En vigueur : 1925-05-31 (date du Journal officiel qui le publie).
 

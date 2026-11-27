@@ -1,8 +1,8 @@
 # Décret n° 2015-273/PR/MENFOP portant additif le décret n° 2011-PR/MEFCIP du 23 novembre 2011 relatif aux indemnités, aux logements administratifs et aux avantages en natures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-273-pr-menfop-portant-additif-le-decret-n2011-pr-mefcip-du-23-novembre-2011-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natures/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-273-pr-menfop-portant-additif-le-decret-n2011-pr-mefcip-du-23-novembre-2011-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natures/>
 
-En vigueur : 2015-10-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-10-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

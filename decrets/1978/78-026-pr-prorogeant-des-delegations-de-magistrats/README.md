@@ -1,6 +1,6 @@
 # Décret n° 78-026/PR prorogeant des délégations de magistrats.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-026-pr-prorogeant-des-delegations-de-magistrats/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 27/03/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-026-pr-prorogeant-des-delegations-de-magistrats/>
 
 En vigueur : 1978-03-27 (date du Journal officiel qui le publie).
 

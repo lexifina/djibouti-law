@@ -1,6 +1,6 @@
 # Loi n° 04-244-1917 relative à l’état de siège, 3 Avril 1878.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 244 du 28/02/1917 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-04-244-1917-relative-a-letat-de-siege-3-avril-1878/>
+Loi · Journal officiel de la République de Djibouti, n° 244 du 28/02/1917 · <https://www.journalofficiel.dj/texte-juridique/loi-n-04-244-1917-relative-a-letat-de-siege-3-avril-1878/>
 
 En vigueur : 1917-02-28 (date du Journal officiel qui le publie).
 

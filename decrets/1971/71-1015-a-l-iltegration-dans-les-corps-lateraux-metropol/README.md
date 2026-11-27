@@ -1,6 +1,6 @@
 # Décret n° 71-1015 relatif à l’iltégration dans les corps latéraux métropolitains des fonctiomaires visés à Larticle 6 de l’ordonnance n° 58-1036 du 29 lctobre 1958 relative à la situation de certains personnels relevant du Ministre de la France d’outre-mer. (J.O.R.F du 22 décembre 1971, p. 12508.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 10/01/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-1015-relatif-a-liltegration-dans-les-corps-lateraux-metropolitains-des-fonctiomaires-vises-a-larticle-6-de-lordonnance-n-58-1036-du-29-lctobre-1958-relative-a-la-si/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 10/01/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-1015-relatif-a-liltegration-dans-les-corps-lateraux-metropolitains-des-fonctiomaires-vises-a-larticle-6-de-lordonnance-n-58-1036-du-29-lctobre-1958-relative-a-la-si/>
 
 En vigueur : 1972-01-10 (date du Journal officiel qui le publie).
 

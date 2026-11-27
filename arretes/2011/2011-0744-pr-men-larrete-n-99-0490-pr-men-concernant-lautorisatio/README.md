@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0744/PR/MEN Modifiant l’arrêté n° 99-0490/PR/MEN concernant l’autorisation d’ouvrir et de diriger une école privée d’Enseignement Fondamental et Secondaire Général dite “AL- ZAD”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0744-pr-men-modifiant-larrete-n99-0490-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-denseignement-fondamental-et-secondaire-general-dite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0744-pr-men-modifiant-larrete-n99-0490-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-denseignement-fondamental-et-secondaire-general-dite/>
 
 En vigueur : 2011-10-15 (date du Journal officiel qui le publie).
 

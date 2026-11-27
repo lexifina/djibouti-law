@@ -1,6 +1,6 @@
 # Décret n° 91-0101/PRE/DEF portant statut particulier du personnel navigant des forces armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-0101-pre-def-portant-statut-particulier-du-personnel-navigant-des-forces-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 30/07/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-0101-pre-def-portant-statut-particulier-du-personnel-navigant-des-forces-armees/>
 
 En vigueur : 1991-07-30 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ HASSAN GOULED APTIDON
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

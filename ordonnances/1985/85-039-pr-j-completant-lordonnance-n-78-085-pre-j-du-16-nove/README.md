@@ -1,6 +1,6 @@
 # Ordonnance n° 85-039/PR/J complétant l’ordonnance n° 78-085/PRE/J du 16 novembre 1978 et le code d’instruction criminelle en ce qui concerne le président de la chambre d’accusation.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-039-pr-j-completant-lordonnance-n78-085-pre-j-du-16-novembre-1978-et-le-code-dinstruction-criminelle-en-ce-qui-concerne-le-president-de-la-chambre-daccusation/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-039-pr-j-completant-lordonnance-n78-085-pre-j-du-16-novembre-1978-et-le-code-dinstruction-criminelle-en-ce-qui-concerne-le-president-de-la-chambre-daccusation/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

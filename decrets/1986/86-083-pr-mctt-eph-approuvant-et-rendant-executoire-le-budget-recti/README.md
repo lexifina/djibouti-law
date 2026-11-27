@@ -1,6 +1,6 @@
 # Décret n° 86-083/PR/MCTT/EPH approuvant et rendant exécutoire le budget rectifié, exercice 1986 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/09/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-083-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-rectifie-exercice-1986-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/09/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-083-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-rectifie-exercice-1986-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1986-09-30 (date du Journal officiel qui le publie).
 

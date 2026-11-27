@@ -1,6 +1,6 @@
 # Décret n° 7 février 1941 modifiant le taux de l’indemnité temporaire de cherté de vie en faveur du personnel militaire à solde mensuelle en service à la côte française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-fevrier-1941-modifiant-le-taux-de-lindemnite-temporaire-de-cherte-de-vie-en-faveur-du-personnel-militaire-a-solde-mensuelle-en-service-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-fevrier-1941-modifiant-le-taux-de-lindemnite-temporaire-de-cherte-de-vie-en-faveur-du-personnel-militaire-a-solde-mensuelle-en-service-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

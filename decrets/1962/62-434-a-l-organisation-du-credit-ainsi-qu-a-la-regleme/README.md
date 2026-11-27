@@ -1,6 +1,6 @@
 # Décret n° 62-434 relatif à l’organisation du crédit ainsi qu’à la réglementation de la profession bancaire et des professions se rattachant à la profession de banquier dans les départements d’outre-mer et dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-434-relatif-a-lorganisation-du-credit-ainsi-qua-la-reglementation-de-la-profession-bancaire-et-des-professions-se-rattachant-a-la-profession-de-banquier-dans-les-d/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-434-relatif-a-lorganisation-du-credit-ainsi-qua-la-reglementation-de-la-profession-bancaire-et-des-professions-se-rattachant-a-la-profession-de-banquier-dans-les-d/>
 
 En vigueur : 1965-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 94‑0048/PR/MCE approuvant et rendant exécutoire le budget prévisionnel 1994 de l’Établissement public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910048-pr-mce-approuvant-et-rendant-executoire-le-budget-previsionnel-1994-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910048-pr-mce-approuvant-et-rendant-executoire-le-budget-previsionnel-1994-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1994-04-30 (date du Journal officiel qui le publie).
 
@@ -21,6 +21,6 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

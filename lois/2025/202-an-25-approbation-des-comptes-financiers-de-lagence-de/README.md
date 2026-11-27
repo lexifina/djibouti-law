@@ -1,6 +1,6 @@
 # Loi n° 202/AN/25/9ème L portant approbation des comptes financiers de l’Agence de Réhabilitation Urbaine et du Logement Social pour l’exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 26/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-pour-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 26/02/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-pour-lexercice-2024/>
 
 En vigueur : 2026-02-27 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

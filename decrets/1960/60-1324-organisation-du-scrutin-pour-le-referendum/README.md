@@ -1,6 +1,6 @@
 # Décret n° 60-1324 portant organisation du scrutin pour le référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1324-portant-organisation-du-scrutin-pour-le-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1324-portant-organisation-du-scrutin-pour-le-referendum/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ JEAN FOYER.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

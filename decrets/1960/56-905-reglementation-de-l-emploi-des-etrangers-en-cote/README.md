@@ -1,6 +1,6 @@
 # Décret n° 56-905 portant réglementation de l’emploi des étrangers en Côte Française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-56-905-portant-reglementation-de-lemploi-des-etrangers-en-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-56-905-portant-reglementation-de-lemploi-des-etrangers-en-cote-francaise-des-somalis/>
 
 En vigueur : 1960-03-31 (date du Journal officiel qui le publie).
 

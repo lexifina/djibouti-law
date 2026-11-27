@@ -1,6 +1,6 @@
 # Loi n° 002/AN/23/9ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2020.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n002-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2020/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n002-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2020/>
 
 En vigueur : 2023-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

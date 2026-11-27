@@ -1,6 +1,6 @@
 # Décret n° 10-423-1932 Remonte des officiers et assimilés de tous grades en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 423 du 01/02/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-423-1932-remonte-des-officiers-et-assimiles-de-tous-grades-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 423 du 01/02/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-423-1932-remonte-des-officiers-et-assimiles-de-tous-grades-en-service-aux-colonies/>
 
 En vigueur : 1932-02-01 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ Paul REYNAUD.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

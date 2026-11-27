@@ -1,6 +1,6 @@
 # Décret n° 48-1943 portant adaptation aux territoires relevant du ministère de la France d’outre-mer au tres que l’Indochine de la loi du 18 mars 1946 tendant à permettre la conversion de certaines demandes de séparation de corps en demandes de divorce, telle qu’elle a été modifiée par la loi du 11 août 1947.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1943-portant-adaptation-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-au-tres-que-lindochine-de-la-loi-du-18-mars-1946-tendant-a-permettre-la-conve/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1943-portant-adaptation-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-au-tres-que-lindochine-de-la-loi-du-18-mars-1946-tendant-a-permettre-la-conve/>
 
 En vigueur : 1949-02-28 (date du Journal officiel qui le publie).
 

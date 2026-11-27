@@ -1,6 +1,6 @@
 # Loi n° 11/AN/87/2e L portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1986.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-87-2e-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1986/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-87-2e-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1986/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

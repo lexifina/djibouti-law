@@ -1,6 +1,6 @@
 # Loi n° 109/AN/84/1re L portant approbation d’une convention de prêt entre la République de Djibouti et la Banque islamique de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-84-1re-l-portant-approbation-dune-convention-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-84-1re-l-portant-approbation-dune-convention-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
 
 En vigueur : 1984-11-01 (date du Journal officiel qui le publie).
 

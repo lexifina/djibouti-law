@@ -1,6 +1,6 @@
 # Loi n° 46-261-1918 portant démonétisation de certaines pièces d’argent.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-261-1918-portant-demonetisation-de-certaines-pieces-dargent/>
+Loi · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-261-1918-portant-demonetisation-de-certaines-pieces-dargent/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 

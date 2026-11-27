@@ -1,6 +1,6 @@
 # Décret n° 92‑1125/PR/MI modifiant l’arrêté n° 92‑112/PR/MINT modifié par l’arrêté n° 92‑1126/PR/INT fixant le nombre et l’emplacement des bureaux de vote pour les élections législatives du 18 décembre 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/12/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%911125-pr-mi-modifiant-larrete-n92%e2%80%91112-pr-mint-modifie-par-larrete-n92%e2%80%911126-pr-int-fixant-le-nombre-et-lemplacement-des-bureaux-d/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/12/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%911125-pr-mi-modifiant-larrete-n92%e2%80%91112-pr-mint-modifie-par-larrete-n92%e2%80%911126-pr-int-fixant-le-nombre-et-lemplacement-des-bureaux-d/>
 
 En vigueur : 1992-12-15 (date du Journal officiel qui le publie).
 

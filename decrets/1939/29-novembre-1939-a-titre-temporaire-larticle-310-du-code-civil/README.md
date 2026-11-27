@@ -1,6 +1,6 @@
 # Décret n° 29 novembre 1939 modifiant à titre temporaire l’article 310 du code civil,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-modifiant-a-titre-temporaire-larticle-310-du-code-civil/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-modifiant-a-titre-temporaire-larticle-310-du-code-civil/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

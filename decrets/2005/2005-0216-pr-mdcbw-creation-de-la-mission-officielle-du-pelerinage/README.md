@@ -1,6 +1,6 @@
 # Décret n° 2005-0216/PR/MDCBW Portant création de la mission officielle du Pèlerinage pour l’année 2005.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0216-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2005/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0216-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2005/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

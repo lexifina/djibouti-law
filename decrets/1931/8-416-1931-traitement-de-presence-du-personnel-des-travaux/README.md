@@ -1,6 +1,6 @@
 # Décret n° 8-416-1931 Traitement de présence du personnel des travaux publics et des mines des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-416-1931-traitement-de-presence-du-personnel-des-travaux-publics-et-des-mines-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-416-1931-traitement-de-presence-du-personnel-des-travaux-publics-et-des-mines-des-colonies/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

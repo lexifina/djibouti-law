@@ -1,6 +1,6 @@
 # Décret n° 2003-0010/PRE portant convocation de la 5ème Législature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0010-pre-portant-convocation-de-la-5eme-legislature/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 30/01/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0010-pre-portant-convocation-de-la-5eme-legislature/>
 
 En vigueur : 2003-01-30 (date du Journal officiel qui le publie).
 

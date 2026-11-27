@@ -1,6 +1,6 @@
 # Loi n° 19 décembre 1941 modifiant les articles 2 et 3 de la loi du 21 juin 1911 réglant les conditions d’admission des étudiants juifs dans les établissements d’enseignement supérieur
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-19-decembre-1941-modifiant-les-articles-2-et-3-de-la-loi-du-21-juin-1911-reglant-les-conditions-dadmission-des-etudiants-juifs-dans-les-etablissements-denseignement-supe/>
+Loi · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-19-decembre-1941-modifiant-les-articles-2-et-3-de-la-loi-du-21-juin-1911-reglant-les-conditions-dadmission-des-etudiants-juifs-dans-les-etablissements-denseignement-supe/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-020/PR/MET portant création du Comité National chargée de l’Organisation de la Conférence sur la Sécurité Maritime sous l’égide de l’OMI.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-020-pr-met-portant-creation-du-comite-national-chargee-de-lorganisation-de-la-conference-sur-la-securite-maritime-sous-legide-de-lomi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-020-pr-met-portant-creation-du-comite-national-chargee-de-lorganisation-de-la-conference-sur-la-securite-maritime-sous-legide-de-lomi/>
 
 En vigueur : 2009-01-15 (date du Journal officiel qui le publie).
 

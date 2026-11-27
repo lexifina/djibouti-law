@@ -1,6 +1,6 @@
 # Loi n° 193/AN/07/5ème L portant approbation des comptes financiers de l’Imprimerie Nationale de Djibouti arrêtés au 31/12/2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arretes-au-31-12-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arretes-au-31-12-2004/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

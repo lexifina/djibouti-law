@@ -1,6 +1,6 @@
 # Loi n° 63/AN/19/8ème L portant ratification de la Convention pour le règlement des différends relatifs aux investissements entre Etats et ressortissants d’autres Etats (CIRDI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-19-8eme-l-portant-ratification-de-la-convention-pour-le-reglement-des-differends-relatifs-aux-investissements-entre-etats-et-ressortissants-dautres-etats-cirdi/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 28/11/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-19-8eme-l-portant-ratification-de-la-convention-pour-le-reglement-des-differends-relatifs-aux-investissements-entre-etats-et-ressortissants-dautres-etats-cirdi/>
 
 En vigueur : 2019-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

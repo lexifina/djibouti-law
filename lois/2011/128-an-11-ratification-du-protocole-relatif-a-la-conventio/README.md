@@ -1,6 +1,6 @@
 # Loi n° 128/AN/11/6ème L portant ratification du Protocole relatif à la Convention pour la répression d’actes illicites dirigés contre la sécurité de la navigation maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-convention-pour-la-repression-dactes-illicites-diriges-contre-la-securite-de-la-navigation-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-convention-pour-la-repression-dactes-illicites-diriges-contre-la-securite-de-la-navigation-maritime/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

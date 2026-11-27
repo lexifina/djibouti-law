@@ -1,6 +1,6 @@
 # Décret n° 95-0106/PR/FP portant modification du décret n° 88-062/PRE relatif à la création du Centre de Formation administrative (CFA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0106-pr-fp-portant-modification-du-decret-n-88-062-pre-relatif-a-la-creation-du-centre-de-formation-administrative-cfa/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0106-pr-fp-portant-modification-du-decret-n-88-062-pre-relatif-a-la-creation-du-centre-de-formation-administrative-cfa/>
 
 En vigueur : 1995-10-15 (date du Journal officiel qui le publie).
 
@@ -13,6 +13,6 @@ Vu le décret n° 89-0062/PRE du 29 mai 1989 relatif aux Statuts particuliers de
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 02-132-1907 sur le service des valeurs déclarées et de boites de valeur déclarée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 132 du 01/11/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-132-1907-sur-le-service-des-valeurs-declarees-et-de-boites-de-valeur-declaree/>
+Décret · Journal officiel de la République de Djibouti, n° 132 du 01/11/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-132-1907-sur-le-service-des-valeurs-declarees-et-de-boites-de-valeur-declaree/>
 
 En vigueur : 1907-11-01 (date du Journal officiel qui le publie).
 

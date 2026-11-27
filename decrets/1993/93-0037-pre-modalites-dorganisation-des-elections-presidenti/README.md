@@ -1,6 +1,6 @@
 # Décret n° 93‑0037/PRE Fixant les modalités d’organisation des élections présidentielles de MAI 1993.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910037-pre-fixant-les-modalites-dorganisation-des-elections-presidentielles-de-mai-1993/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910037-pre-fixant-les-modalites-dorganisation-des-elections-presidentielles-de-mai-1993/>
 
 En vigueur : 1993-04-15 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ BARKAD GOURAD HAMADOU
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2023-292/PR/MI portant modification du décret n° 2010- 023/0230/PR/MI relatif aux nouvelles dispositions règlementaires du code de la route.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-292-pr-mi-portant-modification-du-decret-n2010-023-0230-pr-mi-relatif-aux-nouvelles-dispositions-reglementaires-du-code-de-la-route/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-292-pr-mi-portant-modification-du-decret-n2010-023-0230-pr-mi-relatif-aux-nouvelles-dispositions-reglementaires-du-code-de-la-route/>
 
 En vigueur : 2023-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

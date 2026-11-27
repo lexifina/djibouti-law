@@ -1,6 +1,6 @@
 # Décret n° 22-216-1914 le 12 Octobre 1914,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 216 du 31/10/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-216-1914-le-12-octobre-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 216 du 31/10/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-216-1914-le-12-octobre-1914/>
 
 En vigueur : 1914-10-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ A. RIBOT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

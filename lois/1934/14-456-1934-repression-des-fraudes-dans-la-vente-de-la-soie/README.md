@@ -1,6 +1,6 @@
 # Loi n° 14-456-1934 la répression des fraudes dans la vente de la soie et des tissus de soie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 456 du 30/11/1934 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-14-456-1934-la-repression-des-fraudes-dans-la-vente-de-la-soie-et-des-tissus-de-soie/>
+Loi · Journal officiel de la République de Djibouti, n° 456 du 30/11/1934 · <https://www.journalofficiel.dj/texte-juridique/loi-n-14-456-1934-la-repression-des-fraudes-dans-la-vente-de-la-soie-et-des-tissus-de-soie/>
 
 En vigueur : 1934-11-30 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Henri QUEUILLE,
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

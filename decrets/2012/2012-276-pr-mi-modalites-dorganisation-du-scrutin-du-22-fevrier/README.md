@@ -1,6 +1,6 @@
 # Décret n° 2012-276/PR/MI fixant les modalités d’organisation du scrutin du 22 février 2013 pour les élections des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-276-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-22-fevrier-2013-pour-les-elections-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-276-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-22-fevrier-2013-pour-les-elections-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

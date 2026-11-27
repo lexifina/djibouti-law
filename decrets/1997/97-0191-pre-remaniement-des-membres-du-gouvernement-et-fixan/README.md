@@ -1,6 +1,6 @@
 # Décret n° 97-0191/PRE portant remaniement des membres du Gouvernement et fixant leurs attributions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0191-pre-portant-remaniement-des-membres-du-gouvernement-et-fixant-leurs-attributions/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0191-pre-portant-remaniement-des-membres-du-gouvernement-et-fixant-leurs-attributions/>
 
 En vigueur : 1997-12-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 55/AN/09/6ème L relative à la violence contre les femmes notamment les Mutilations Génitales Féminines.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-09-6eme-l-relative-a-la-violence-contre-les-femmes-notamment-les-mutilations-genitales-feminines/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-09-6eme-l-relative-a-la-violence-contre-les-femmes-notamment-les-mutilations-genitales-feminines/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

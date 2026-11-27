@@ -1,6 +1,6 @@
 # Loi n° 35/AN/18/8ème L portant ratification de l’Accord de financement pour le projet “en marche vers zéro retard de croissance”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-18-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-en-marche-vers-zero-retard-de-croissance/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-18-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-en-marche-vers-zero-retard-de-croissance/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

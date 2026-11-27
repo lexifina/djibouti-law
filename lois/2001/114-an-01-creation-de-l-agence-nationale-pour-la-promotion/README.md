@@ -1,6 +1,6 @@
 # Loi n° 114/AN/01/4ème L portant création de l’Agence Nationale pour la Promotion des Investissements (A.N.P.I).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-01-4eme-l-portant-creation-de-lagence-nationale-pour-la-promotion-des-investissements-a-n-p-i/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-01-4eme-l-portant-creation-de-lagence-nationale-pour-la-promotion-des-investissements-a-n-p-i/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

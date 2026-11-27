@@ -1,6 +1,6 @@
 # Loi n° 20 novembre 1940 réglementant le port des insignes, des emblèmes et des décorations.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 529 du 31/12/1940 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-20-novembre-1940-reglementant-le-port-des-insignes-des-emblemes-et-des-decorations/>
+Loi · Journal officiel de la République de Djibouti, n° 529 du 31/12/1940 · <https://www.journalofficiel.dj/texte-juridique/loi-n-20-novembre-1940-reglementant-le-port-des-insignes-des-emblemes-et-des-decorations/>
 
 En vigueur : 1940-12-31 (date du Journal officiel qui le publie).
 

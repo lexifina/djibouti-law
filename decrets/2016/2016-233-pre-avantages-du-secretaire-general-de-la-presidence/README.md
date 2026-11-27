@@ -1,8 +1,8 @@
 # Décret n° 2016-233/PRE fixant les avantages du Secrétaire Général de la Présidence de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-233-pre-fixant-les-avantages-du-secretaire-general-de-la-presidence-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-233-pre-fixant-les-avantages-du-secretaire-general-de-la-presidence-de-la-republique/>
 
-En vigueur : 2016-08-30 (date fixÃ©e par le texte).
+En vigueur : 2016-08-30 (date fixée par le texte).
 
 ## Visas
 

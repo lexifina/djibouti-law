@@ -1,6 +1,6 @@
 # Loi n° 20/AN/08/6ème L portant approbation des comptes financiers de la Caisse Nationale de Retraites (CNR) pour l’Exercice 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-08-6eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-cnr-pour-lexercice-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-08-6eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-cnr-pour-lexercice-2006/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

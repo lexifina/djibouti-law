@@ -1,8 +1,8 @@
 # Décret n° 89-146/PR/MTR portant suppression de l’article 13 du décret n° 81-103/PR/TR du 4 octobre 1981, portant réglementation du travail des étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-146-pr-mtr-portant-suppression-de-larticle-13-du-decret-n81-103-pr-tr-du-4-octobre-1981-portant-reglementation-du-travail-des-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-146-pr-mtr-portant-suppression-de-larticle-13-du-decret-n81-103-pr-tr-du-4-octobre-1981-portant-reglementation-du-travail-des-etrangers/>
 
-En vigueur : 1989-11-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1989-11-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

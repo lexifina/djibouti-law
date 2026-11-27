@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 DECRETE :
 Titre 1 : Dispositions générales

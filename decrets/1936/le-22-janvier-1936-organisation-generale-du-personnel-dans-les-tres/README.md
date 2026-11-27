@@ -1,6 +1,6 @@
 # Décret n° le 22 janvier 1936 Organisation générale du personnel dans les trésoreries coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-organisation-generale-du-personnel-dans-les-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-organisation-generale-du-personnel-dans-les-tresoreries-coloniales/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 

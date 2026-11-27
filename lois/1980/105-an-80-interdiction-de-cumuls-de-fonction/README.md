@@ -1,6 +1,6 @@
 # Loi n° 105/AN/80 portant interdiction de cumuls de fonction.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-80-portant-interdiction-de-cumuls-de-fonction/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-80-portant-interdiction-de-cumuls-de-fonction/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

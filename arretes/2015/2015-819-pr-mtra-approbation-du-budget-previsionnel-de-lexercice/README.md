@@ -1,8 +1,8 @@
 # Arrêté n° 2015-819/PR/MTRA portant approbation du Budget prévisionnel de l’exercice 2016 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-819-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2016-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-819-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2016-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
 
-En vigueur : 2015-12-26 (date fixÃ©e par le texte).
+En vigueur : 2015-12-26 (date fixée par le texte).
 
 ## Visas
 

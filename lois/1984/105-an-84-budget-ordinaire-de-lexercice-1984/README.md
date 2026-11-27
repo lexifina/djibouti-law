@@ -1,6 +1,6 @@
 # Loi n° 105/AN/84/1re L du budget ordinaire de l’exercice 1984.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-84-1re-l-du-budget-ordinaire-de-lexercice-1984/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-84-1re-l-du-budget-ordinaire-de-lexercice-1984/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 

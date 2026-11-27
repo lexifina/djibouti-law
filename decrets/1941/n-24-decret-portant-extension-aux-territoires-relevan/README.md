@@ -1,6 +1,6 @@
 # Décret n° n°24 Le décret portant extension aux territoires relevant du Secrétariat d’Etat aux colonies, excepté la Guadeloupe,et la Réunion, la loi du 25 octobre 1941 modifiant les articles 228 et 248 du Code pénal et portant obligation de dénoncer les crimes ou projets de crimes attentatoires aux personnes et de secourir les personnes en danger. .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n24-le-decret-portant-extension-aux-territoires-relevant-du-secretariat-detat-aux-colonies-excepte-la-guadeloupeet-la-reunion-la-loi-du-25-octobre-1941-modifiant-les-article/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n24-le-decret-portant-extension-aux-territoires-relevant-du-secretariat-detat-aux-colonies-excepte-la-guadeloupeet-la-reunion-la-loi-du-25-octobre-1941-modifiant-les-article/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 

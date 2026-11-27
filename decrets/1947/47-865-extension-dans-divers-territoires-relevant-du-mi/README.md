@@ -1,6 +1,6 @@
 # Décret n° 47-865 portant extension, dans divers territoires relevant du ministère de la France d’outre-mer, des décrets n° 46-2457 et 46-258 du 6 novembre 1936 portant règlement d’administration publique pour l’application des articles 9, 10 et 11 de la loi n° 46-7 29 4 du 16 avril 1946 portant amnistie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-865-portant-extension-dans-divers-territoires-relevant-du-ministere-de-la-france-doutre-mer-des-decrets-n-46-2457-et-46-258-du-6-novembre-1936-portant-reglement-dadminis/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-865-portant-extension-dans-divers-territoires-relevant-du-ministere-de-la-france-doutre-mer-des-decrets-n-46-2457-et-46-258-du-6-novembre-1936-portant-reglement-dadminis/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

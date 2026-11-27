@@ -1,6 +1,6 @@
 # Loi n° 2-346-1925 Loi portant approbation des conventions et arrangements de l’union postale universelle signée à Stockholm le 28 août 1925.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-346-1925-loi-portant-approbation-des-conventions-et-arrangements-de-lunion-postale-universelle-signee-a-stockholm-le-28-aout-1925/>
+Loi · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-346-1925-loi-portant-approbation-des-conventions-et-arrangements-de-lunion-postale-universelle-signee-a-stockholm-le-28-aout-1925/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ André Hesse.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 21/AN/98/4ème L portant approbation des comptes financiers de l’exercice de 1995 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-98-4eme-l-portant-approbation-des-comptes-financiers-de-lexercice-de-1995-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-98-4eme-l-portant-approbation-des-comptes-financiers-de-lexercice-de-1995-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 

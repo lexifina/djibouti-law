@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0043/PR/MEFPP déclarant l’utilité publique de l’expropriation des propriétés mentionnés dans l’article premier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0043-pr-mefpp-declarant-lutilite-publique-de-lexpropriation-des-proprietes-mentionnes-dans-larticle-premier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0043-pr-mefpp-declarant-lutilite-publique-de-lexpropriation-des-proprietes-mentionnes-dans-larticle-premier/>
 
 En vigueur : 2006-01-31 (date du Journal officiel qui le publie).
 

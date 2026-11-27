@@ -1,6 +1,6 @@
 # Loi n° le 5 octobre 1941 modifiant le premier alinéa de l’article 11 du Code de justice militaire pour l’armée de terre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 539 du 31/10/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-le-5-octobre-1941-modifiant-le-premier-alinea-de-larticle-11-du-code-de-justice-militaire-pour-larmee-de-terre/>
+Loi · Journal officiel de la République de Djibouti, n° 539 du 31/10/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-le-5-octobre-1941-modifiant-le-premier-alinea-de-larticle-11-du-code-de-justice-militaire-pour-larmee-de-terre/>
 
 En vigueur : 1941-10-31 (date du Journal officiel qui le publie).
 

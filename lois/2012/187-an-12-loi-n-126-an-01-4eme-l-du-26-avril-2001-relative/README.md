@@ -1,7 +1,7 @@
 # Loi n° 187/AN/12/6ème L modifiant la Loi n° 126/AN/01/4ème L du 26 avril 2001 relative aux modalités d’octroi d’une
 pension à certains anciens Premiers Ministres.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-12-6eme-l-modifiant-la-loi-n126-an-01-4eme-l-du-26-avril-2001-relative-aux-modalites-doctroi-dune-pension-a-certains-anciens-premiers-ministres/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-12-6eme-l-modifiant-la-loi-n126-an-01-4eme-l-du-26-avril-2001-relative-aux-modalites-doctroi-dune-pension-a-certains-anciens-premiers-ministres/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0840/PR/MEFCP affectant au Ministère de l’Équipement et des Transports une parcelle de terrain sise à la Route d’Arta PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0840-pr-mefcp-affectant-au-ministere-de-lequipement-et-des-transports-une-parcelle-de-terrain-sise-a-la-route-darta-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0840-pr-mefcp-affectant-au-ministere-de-lequipement-et-des-transports-une-parcelle-de-terrain-sise-a-la-route-darta-pk-12/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 

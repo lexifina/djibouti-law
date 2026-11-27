@@ -1,6 +1,6 @@
 # Décret n° 85-102/PRE portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-102-pre-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-102-pre-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

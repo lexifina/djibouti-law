@@ -1,6 +1,6 @@
 # Loi n° 150/AN/02/4ème L portant adhésion de la République de Djibouti aux Conventions Internationales relatives à la Propriété Intellectuelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-02-4eme-l-portant-adhesion-de-la-republique-de-djibouti-aux-conventions-internationales-relatives-a-la-propriete-intellectuelle/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-02-4eme-l-portant-adhesion-de-la-republique-de-djibouti-aux-conventions-internationales-relatives-a-la-propriete-intellectuelle/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

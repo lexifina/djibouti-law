@@ -1,6 +1,6 @@
 # Loi n° 59/AN/99/4ème L portant approbation de la déclaration de Syrte de la Conférence des Chefs d’Etat et de Gouvernement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-99-4eme-l-portant-approbation-de-la-declaration-de-syrte-de-la-conference-des-chefs-detat-et-de-gouvernement/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-99-4eme-l-portant-approbation-de-la-declaration-de-syrte-de-la-conference-des-chefs-detat-et-de-gouvernement/>
 
 En vigueur : 1999-10-31 (date du Journal officiel qui le publie).
 

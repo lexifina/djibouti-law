@@ -1,6 +1,6 @@
 # Loi n° 205/AN/25/9ème L portant approbation des comptes financiers 2024 de l’Autorité de Régulation Multisectorielle de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 26/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n205-an-25-9eme-l-portant-approbation-des-comptes-financiers-2024-de-lautorite-de-regulation-multisectorielle-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 26/02/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n205-an-25-9eme-l-portant-approbation-des-comptes-financiers-2024-de-lautorite-de-regulation-multisectorielle-de-djibouti/>
 
 En vigueur : 2026-02-27 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 72-444 modifiant les articles D424-2 à 424-5 du code de l’aviation civile (IIIe partie, livre IV, titre II, chapitre IV, section Il) [J.O.R.F. n° 127 du 1er juin 1972, page 5500] (promulgué par arrêté n° 481/SLAG du 28 juin 1972).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-444-modifiant-les-articles-d424-2-a-424-5-du-code-de-laviation-civile-iiie-partie-livre-iv-titre-ii-chapitre-iv-section-il-j-o-r-f-n-127-du-1er-juin-1972-page-5500/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-444-modifiant-les-articles-d424-2-a-424-5-du-code-de-laviation-civile-iiie-partie-livre-iv-titre-ii-chapitre-iv-section-il-j-o-r-f-n-127-du-1er-juin-1972-page-5500/>
 
 En vigueur : 1972-07-10 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ André FANTON.
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

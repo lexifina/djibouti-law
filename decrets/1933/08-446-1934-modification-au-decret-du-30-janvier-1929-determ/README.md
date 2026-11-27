@@ -1,6 +1,6 @@
 # Décret n° 08-446-1934 Modification au décret du 30 janvier 1929 déterminant la liste des matières alimentaires originaires des colonies françaises à régime préférentiel admissibles en franchise en France et en Algérie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 446 du 01/01/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-446-1934-modification-au-decret-du-30-janvier-1929-determinant-la-liste-des-matieres-alimentaires-originaires-des-colonies-francaises-a-regime-preferentiel-admissibles-en-franchise/>
+Décret · Journal officiel de la République de Djibouti, n° 446 du 01/01/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-446-1934-modification-au-decret-du-30-janvier-1929-determinant-la-liste-des-matieres-alimentaires-originaires-des-colonies-francaises-a-regime-preferentiel-admissibles-en-franchise/>
 
 En vigueur : 1934-01-01 (date du Journal officiel qui le publie).
 

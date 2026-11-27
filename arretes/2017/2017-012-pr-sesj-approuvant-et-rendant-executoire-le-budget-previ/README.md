@@ -1,6 +1,6 @@
 # Arrêté n° 2017-012/PR/SESJ approuvant et rendant exécutoire le Budget Prévisionnel 2017 du Stade “AL HADJ HASSAN GOULED APTIDON”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-012-pr-sesj-approuvant-et-rendant-executoire-le-budget-previsionnel-2017-du-stade-al-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-012-pr-sesj-approuvant-et-rendant-executoire-le-budget-previsionnel-2017-du-stade-al-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

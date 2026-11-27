@@ -1,6 +1,6 @@
 # Loi n° 54/AN/99/4ème L portant création et réglementation de la zone franche du Port de Pêche de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-99-4eme-l-portant-creation-et-reglementation-de-la-zone-franche-du-port-de-peche-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-99-4eme-l-portant-creation-et-reglementation-de-la-zone-franche-du-port-de-peche-de-djibouti/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

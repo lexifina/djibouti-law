@@ -1,6 +1,6 @@
 # Décret n° 19 novembre 1938 approuvant un arrêté du gouverneur de la Côte française des Somalis portant ouverture de crédits supplémentaires au 4 budget local pour l’exercice 1938.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-novembre-1938-approuvant-un-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-4-budget-local-pour-lexercice-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-novembre-1938-approuvant-un-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-4-budget-local-pour-lexercice-1938/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 

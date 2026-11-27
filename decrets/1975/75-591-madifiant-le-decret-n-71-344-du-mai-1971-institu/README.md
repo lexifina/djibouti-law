@@ -1,6 +1,6 @@
 # Décret n° 75-591 madifiant le décret n° 71-344 du mai 1971 instituant une prime spéciale d’équipement hôtelier dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-591-madifiant-le-decret-n-71-344-du-mai-1971-instituant-une-prime-speciale-dequipement-hotelier-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-591-madifiant-le-decret-n-71-344-du-mai-1971-instituant-une-prime-speciale-dequipement-hotelier-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1975-08-10 (date du Journal officiel qui le publie).
 

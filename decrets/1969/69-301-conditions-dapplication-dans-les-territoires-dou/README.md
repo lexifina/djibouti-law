@@ -1,6 +1,6 @@
 # Décret n° 69-301 fixant les conditions d’application dans les territoires d’outre-mer des dispositions du décret n » 69-299 du 3 avril 1969 portant organisation du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 21/04/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-301-fixant-les-conditions-dapplication-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-69-299-du-3-avril-1969-portant-organisation-du-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 21/04/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-301-fixant-les-conditions-dapplication-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-69-299-du-3-avril-1969-portant-organisation-du-referendum/>
 
 En vigueur : 1969-04-21 (date du Journal officiel qui le publie).
 

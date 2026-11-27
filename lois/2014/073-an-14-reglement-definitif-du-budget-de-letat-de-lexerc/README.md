@@ -1,6 +1,6 @@
 # Loi n° 73/AN/14/7ème L portant Règlement Définitif du Budget de l’Etat de l’Exercice 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-14-7eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-14-7eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2013/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

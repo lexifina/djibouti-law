@@ -1,6 +1,6 @@
 # Loi n° 85/AN/89/2ème L accordant une parcelle de terrain à l’Union Nationale des Femmes de Djibouti à Damerjog.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-89-2eme-l-accordant-une-parcelle-de-terrain-a-lunion-nationale-des-femmes-de-djibouti-a-damerjog/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-89-2eme-l-accordant-une-parcelle-de-terrain-a-lunion-nationale-des-femmes-de-djibouti-a-damerjog/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

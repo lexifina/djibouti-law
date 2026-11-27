@@ -1,6 +1,6 @@
 # Décret n° 2010-0236/PR/MID fixant la date de l’élection présidentielle et portant convocation du corps électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0236-pr-mid-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-corps-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0236-pr-mid-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-corps-electoral/>
 
 En vigueur : 2010-12-15 (date du Journal officiel qui le publie).
 

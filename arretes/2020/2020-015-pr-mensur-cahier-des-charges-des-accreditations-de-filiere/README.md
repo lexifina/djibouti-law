@@ -1,6 +1,6 @@
 # Arrêté n° 2020-015/PR/MENSUR fixant le Cahier des Charges des Accréditations de filières de l’enseignement supérieur privé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-015-pr-mensur-fixant-le-cahier-des-charges-des-accreditations-de-filieres-de-lenseignement-superieur-prive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 30/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-015-pr-mensur-fixant-le-cahier-des-charges-des-accreditations-de-filieres-de-lenseignement-superieur-prive/>
 
 En vigueur : 2020-01-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

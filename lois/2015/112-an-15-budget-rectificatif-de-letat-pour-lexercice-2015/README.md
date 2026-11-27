@@ -1,6 +1,6 @@
 # Loi n° 112/AN/15/7ème L portant budget rectificatif de l’Etat pour l’exercice 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-15-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2015/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-15-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2015/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

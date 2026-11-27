@@ -1,6 +1,6 @@
 # Décret n° 46-2190 portant convocation dans les territoires relevant du ministère de la France d’outre mer autres que les établissements français de l’Océanie des collèges électoraux pour l’élection d’une Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2190-portant-convocation-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-les-etablissements-francais-de-loceanie-des-colleges-electoraux-pou/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2190-portant-convocation-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-les-etablissements-francais-de-loceanie-des-colleges-electoraux-pou/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

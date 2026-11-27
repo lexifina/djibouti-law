@@ -1,6 +1,6 @@
 # Décret n° 48-397 portant attribution d’un acompte aux personnels des cadres régis par décret relevant du ministère de la France d’outre-mer en service dans les territoires appartenant à la zone du franc C. F. A. et en Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-397-portant-attribution-dun-acompte-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-en-service-dans-les-territoires-appart/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-397-portant-attribution-dun-acompte-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-en-service-dans-les-territoires-appart/>
 
 En vigueur : 1948-03-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 48/AN/99/4ème L portant Orientation de la Politique de Santé
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-99-4eme-l-portant-orientation-de-la-politique-de-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-99-4eme-l-portant-orientation-de-la-politique-de-sante/>
 
-En vigueur : 1999-07-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-07-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -74,4 +74,4 @@ ISMAÏL OMAR GUELLEH
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

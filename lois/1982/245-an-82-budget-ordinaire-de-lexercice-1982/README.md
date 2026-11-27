@@ -1,6 +1,6 @@
 # Loi de finances n° 245/AN/82 du budget ordinaire de l’exercice 1982.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n245-an-82-du-budget-ordinaire-de-lexercice-1982/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n245-an-82-du-budget-ordinaire-de-lexercice-1982/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

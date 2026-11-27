@@ -1,6 +1,6 @@
 # Décret n° 2023-102/PR/MJDH portant mesures de Grâce Présidentielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-102-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-102-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2023-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

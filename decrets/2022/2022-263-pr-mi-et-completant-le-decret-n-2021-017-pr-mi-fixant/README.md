@@ -1,8 +1,8 @@
 # Décret n° 2022-263/PR/MI modifiant et complétant le décret n° 2021-017/PR/MI fixant les modalités de financement du Registre National des Personnes Physiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-263-pr-mi-modifiant-et-completant-le-decret-n2021-017-pr-mi-fixant-les-modalites-de-financement-du-registre-national-des-personnes-physiques/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-263-pr-mi-modifiant-et-completant-le-decret-n2021-017-pr-mi-fixant-les-modalites-de-financement-du-registre-national-des-personnes-physiques/>
 
-En vigueur : 2022-10-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-10-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

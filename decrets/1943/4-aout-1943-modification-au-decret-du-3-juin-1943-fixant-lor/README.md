@@ -1,6 +1,6 @@
 # Décret n° 4 aout 1943 portant modification au décret du 3 juin 1943 fixant l’organisation et le fonctionnement du Comité Français de la Libération Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 15/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-aout-1943-portant-modification-au-decret-du-3-juin-1943-fixant-lorganisation-et-le-fonctionnement-du-comite-francais-de-la-liberation-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 15/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-aout-1943-portant-modification-au-decret-du-3-juin-1943-fixant-lorganisation-et-le-fonctionnement-du-comite-francais-de-la-liberation-nationale/>
 
 En vigueur : 1943-09-15 (date du Journal officiel qui le publie).
 

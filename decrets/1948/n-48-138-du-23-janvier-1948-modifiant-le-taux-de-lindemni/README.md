@@ -1,6 +1,6 @@
 # Décret n° n° 48-138 du 23 janvier 1948, modifiant le taux de l’indemnité d’équipement des administrateurs de la France d’outre-mer (J. O.R. F. du 27 janvier 1948, page 844)…
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-48-138-du-23-janvier-1948-modifiant-le-taux-de-lindemnite-dequipement-des-administrateurs-de-la-france-doutre-mer-j-o-r-f-du-27-janvier-1948-page-844/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 29/02/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-48-138-du-23-janvier-1948-modifiant-le-taux-de-lindemnite-dequipement-des-administrateurs-de-la-france-doutre-mer-j-o-r-f-du-27-janvier-1948-page-844/>
 
 En vigueur : 1948-02-29 (date du Journal officiel qui le publie).
 
@@ -27,5 +27,5 @@ Pierre FLIMLIX.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
-| [art-002.md](art-002.md) | Art. 2— |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |

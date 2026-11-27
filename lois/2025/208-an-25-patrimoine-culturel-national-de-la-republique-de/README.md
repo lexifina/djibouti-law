@@ -1,6 +1,6 @@
 # Loi n° 208/AN/25/9ème L relatif au patrimoine culturel national de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-25-9eme-l-relatif-au-patrimoine-culturel-national-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-25-9eme-l-relatif-au-patrimoine-culturel-national-de-la-republique-de-djibouti/>
 
 En vigueur : 2026-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -99,4 +99,4 @@ ISMAÏL OMAR GUELLEH
 | [art-055.md](art-055.md) | Article 55 |
 | [art-056.md](art-056.md) | Article 56 |
 | [art-057.md](art-057.md) | Article 57 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

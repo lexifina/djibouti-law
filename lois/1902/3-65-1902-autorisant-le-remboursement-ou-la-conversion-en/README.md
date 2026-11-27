@@ -1,6 +1,6 @@
 # Loi n° 3-65-1902 autorisant le remboursement ou la conversion en rentes 3% de rentes 3 1/2%
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 65 du 15/08/1902 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-3-65-1902-autorisant-le-remboursement-ou-la-conversion-en-rentes-3-de-rentes-3-1-2/>
+Loi · Journal officiel de la République de Djibouti, n° 65 du 15/08/1902 · <https://www.journalofficiel.dj/texte-juridique/loi-n-3-65-1902-autorisant-le-remboursement-ou-la-conversion-en-rentes-3-de-rentes-3-1-2/>
 
 En vigueur : 1902-08-15 (date du Journal officiel qui le publie).
 

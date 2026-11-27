@@ -1,6 +1,6 @@
 # Arrêté n° 2014-727/PR/MB portant expropriation pour cause d’utilité publique d’une partie de terrain à distraire du Titre Foncier (16&304) sis au lotissement de la plaine.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-727-pr-mb-portant-expropriation-pour-cause-dutilite-publique-dune-partie-de-terrain-a-distraire-du-titre-foncier-16304-sis-au-lotissement-de-la-plaine/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-727-pr-mb-portant-expropriation-pour-cause-dutilite-publique-dune-partie-de-terrain-a-distraire-du-titre-foncier-16304-sis-au-lotissement-de-la-plaine/>
 
 En vigueur : 2014-12-15 (date du Journal officiel qui le publie).
 

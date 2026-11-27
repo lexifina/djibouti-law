@@ -1,8 +1,8 @@
 # Arrêté n° 2013-686/PR/MET portant composition des membres de la Commission Nationale chargée d’établir le bilan d’ouverture de l’Agence Djiboutienne des Routes (ADR).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-686-pr-met-portant-composition-des-membres-de-la-commission-nationale-chargee-detablir-le-bilan-douverture-de-lagence-djiboutienne-des-routes-adr/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-686-pr-met-portant-composition-des-membres-de-la-commission-nationale-chargee-detablir-le-bilan-douverture-de-lagence-djiboutienne-des-routes-adr/>
 
-En vigueur : 2013-10-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-10-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 20-387-1929 Marins du commerce débarqués pour cause de maladie ou de blessure.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 387 du 28/02/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-387-1929-marins-du-commerce-debarques-pour-cause-de-maladie-ou-de-blessure/>
+Décret · Journal officiel de la République de Djibouti, n° 387 du 28/02/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-387-1929-marins-du-commerce-debarques-pour-cause-de-maladie-ou-de-blessure/>
 
 En vigueur : 1929-02-28 (date du Journal officiel qui le publie).
 

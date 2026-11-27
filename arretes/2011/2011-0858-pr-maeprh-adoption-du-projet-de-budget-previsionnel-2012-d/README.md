@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0858/PR/MAEPRH portant adoption du projet de budget prévisionnel 2012 du laboratoire National d’Analyses Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0858-pr-maeprh-portant-adoption-du-projet-de-budget-previsionnel-2012-du-laboratoire-national-danalyses-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0858-pr-maeprh-portant-adoption-du-projet-de-budget-previsionnel-2012-du-laboratoire-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

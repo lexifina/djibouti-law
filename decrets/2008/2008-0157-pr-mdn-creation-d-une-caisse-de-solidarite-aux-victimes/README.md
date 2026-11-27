@@ -1,6 +1,6 @@
 # Décret n° 2008-0157/PR/MDN portant création d’une caisse de solidarité aux victimes de la guerre Djibouto-Erythréenne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0157-pr-mdn-portant-creation-dune-caisse-de-solidarite-aux-victimes-de-la-guerre-djibouto-erythreenne/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0157-pr-mdn-portant-creation-dune-caisse-de-solidarite-aux-victimes-de-la-guerre-djibouto-erythreenne/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

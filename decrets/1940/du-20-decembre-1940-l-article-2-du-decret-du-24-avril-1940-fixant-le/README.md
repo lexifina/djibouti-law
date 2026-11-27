@@ -1,6 +1,6 @@
 # Décret n° du 20 décembre 1940. modifiant l’article 2 du décret du 24 avril 1940 fixant les conditions d’application du décret du 9 septembre 1939 prohibant ou réglementant en temps de guerre l’exportation des capitaux, les opérations de change et le commerce de l’or
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 533 du 30/04/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-20-decembre-1940-modifiant-larticle-2-du-decret-du-24-avril-1940-fixant-les-conditions-dapplication-du-decret-du-9-septembre-1939-prohibant-ou-reglementant-en-temps-de-g/>
+Décret · Journal officiel de la République de Djibouti, n° 533 du 30/04/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-20-decembre-1940-modifiant-larticle-2-du-decret-du-24-avril-1940-fixant-les-conditions-dapplication-du-decret-du-9-septembre-1939-prohibant-ou-reglementant-en-temps-de-g/>
 
 En vigueur : 1941-04-30 (date du Journal officiel qui le publie).
 

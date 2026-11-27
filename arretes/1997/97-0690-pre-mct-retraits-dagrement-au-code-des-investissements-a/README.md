@@ -1,6 +1,6 @@
 # Arrêté n° 97-0690/PRE/MCT portant retraits d’Agrément au Code des Investissements accordé à certaines sociétés.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0690-pre-mct-portant-retraits-dagrement-au-code-des-investissements-accorde-a-certaines-societes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0690-pre-mct-portant-retraits-dagrement-au-code-des-investissements-accorde-a-certaines-societes/>
 
 En vigueur : 1997-10-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 70-596 relative au Service national
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-70-596-relative-au-service-national/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-70-596-relative-au-service-national/>
 
-En vigueur : 1970-11-01 (date fixÃ©e par le texte).
+En vigueur : 1970-11-01 (date fixée par le texte).
 
 ## Visas
 
@@ -48,4 +48,4 @@ MICHEL DEBRÉ.
 | [art-028.md](art-028.md) | Art. 28 |
 | [art-029.md](art-029.md) | Art. 29 |
 | [art-030.md](art-030.md) | Art. 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

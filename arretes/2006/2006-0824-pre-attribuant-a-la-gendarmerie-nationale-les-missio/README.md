@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0824/PRE attribuant à la Gendarmerie nationale les missions de surveillance et de sécurisation du Palais de la Justice.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0824-pre-attribuant-a-la-gendarmerie-nationale-les-missions-de-surveillance-et-de-securisation-du-palais-de-la-justice/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0824-pre-attribuant-a-la-gendarmerie-nationale-les-missions-de-surveillance-et-de-securisation-du-palais-de-la-justice/>
 
 En vigueur : 2006-12-14 (date du Journal officiel qui le publie).
 

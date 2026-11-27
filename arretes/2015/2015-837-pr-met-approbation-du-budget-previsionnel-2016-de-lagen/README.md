@@ -1,6 +1,6 @@
 # Arrêté n° 2015-837/PR/MET portant approbation du Budget Prévisionnel 2016 de l’Agence Djiboutienne des Routes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-837-pr-met-portant-approbation-du-budget-previsionnel-2016-de-lagence-djiboutienne-des-routes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-837-pr-met-portant-approbation-du-budget-previsionnel-2016-de-lagence-djiboutienne-des-routes/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 23 décembre 1938 portant approbation : du traité d’amitié, de commerce et de navigation conclu à Bangkol le 7 décembre I1937, entre la France le Siam, ainsi 3ue du protocole signé même jour; 2″ de l’arrangement commercial et douanier entre la France et le Siam concernant l’Indochine signé . Bangkok le 9 décembre 1037.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 506 du 31/01/1939 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-23-decembre-1938-portant-approbation-du-traite-damitie-de-commerce-et-de-navigation-conclu-a-bangkol-le-7-decembre-i1937-entre-la-france-le-siam-ainsi-3ue-du-protocole-signe-mem/>
+Loi · Journal officiel de la République de Djibouti, n° 506 du 31/01/1939 · <https://www.journalofficiel.dj/texte-juridique/loi-n-23-decembre-1938-portant-approbation-du-traite-damitie-de-commerce-et-de-navigation-conclu-a-bangkol-le-7-decembre-i1937-entre-la-france-le-siam-ainsi-3ue-du-protocole-signe-mem/>
 
 En vigueur : 1939-01-31 (date du Journal officiel qui le publie).
 

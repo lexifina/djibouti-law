@@ -1,6 +1,6 @@
 # Décret n° 867 relatif aux conditions d’admission des fonctionnaires des cadres métropolitains des cadres généraux ou locaux des colonies à des cadres supérieurs ou latéraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-867-relatif-aux-conditions-dadmission-des-fonctionnaires-des-cadres-metropolitains-des-cadres-generaux-ou-locaux-des-colonies-a-des-cadres-superieurs-ou-lateraux/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-867-relatif-aux-conditions-dadmission-des-fonctionnaires-des-cadres-metropolitains-des-cadres-generaux-ou-locaux-des-colonies-a-des-cadres-superieurs-ou-lateraux/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

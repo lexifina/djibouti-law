@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0526/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence et au titre de Diplôme d’études universitaires générales mention “Administration, économique et sociale”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0526-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales-mention-adm/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0526-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales-mention-adm/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

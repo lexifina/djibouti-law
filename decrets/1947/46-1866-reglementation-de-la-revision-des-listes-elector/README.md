@@ -1,6 +1,6 @@
 # Décret n° 46-1866 portant réglementation de la révision des listes électoratss en Afrique-Oceidentale francaise, en Afrique Equatoriale française, au Cameroun, au Togo, à la Côte française des Somalis. à Madagascar et dépendances et aux Comores,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1866-portant-reglementation-de-la-revision-des-listes-electoratss-en-afrique-oceidentale-francaise-en-afrique-equatoriale-francaise-au-cameroun-au-togo-a-la-cote-francaise-des/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1866-portant-reglementation-de-la-revision-des-listes-electoratss-en-afrique-oceidentale-francaise-en-afrique-equatoriale-francaise-au-cameroun-au-togo-a-la-cote-francaise-des/>
 
 En vigueur : 1947-01-31 (date du Journal officiel qui le publie).
 
@@ -28,8 +28,8 @@ Marius MoOUTET, OAISSE CENTRALE DE LA FRANCE D'OUTRE-MEIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art.4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

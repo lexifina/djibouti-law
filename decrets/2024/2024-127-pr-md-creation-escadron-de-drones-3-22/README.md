@@ -1,6 +1,6 @@
 # Décret n° 2024-127/PR/MD portant création Escadron de Drones 3/22.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-127-pr-md-portant-creation-escadron-de-drones-3-22/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-127-pr-md-portant-creation-escadron-de-drones-3-22/>
 
 En vigueur : 2024-05-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | ARTICLE 12 |
 | [art-013.md](art-013.md) | ARTICLE 13 |
 | [art-014.md](art-014.md) | ARTICLE 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

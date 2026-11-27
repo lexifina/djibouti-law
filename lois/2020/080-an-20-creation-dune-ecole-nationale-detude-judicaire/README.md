@@ -1,6 +1,6 @@
 # Loi n° 80/AN/20/8ème L portant création d’une Ecole Nationale d’Etude Judicaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-20-8eme-l-portant-creation-dune-ecole-nationale-detude-judicaire/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-20-8eme-l-portant-creation-dune-ecole-nationale-detude-judicaire/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

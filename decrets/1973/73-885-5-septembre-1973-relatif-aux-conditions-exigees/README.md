@@ -1,6 +1,6 @@
 # Décret n° 73-885 du 5 septembre 1973 relatif aux conditions exigées des sous-officiers de l’armée de terre, de la marine et de l’armée de Pair pour être autorisés à servir au-delà de la limite d’âge inférieure de leur grade.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-885-du-5-septembre-1973-relatif-aux-conditions-exigees-des-sous-officiers-de-larmee-de-terre-de-la-marine-et-de-larmee-de-pair-pour-etre-autorises-a-servir-au-dela-de-la/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-885-du-5-septembre-1973-relatif-aux-conditions-exigees-des-sous-officiers-de-larmee-de-terre-de-la-marine-et-de-larmee-de-pair-pour-etre-autorises-a-servir-au-dela-de-la/>
 
 En vigueur : 1973-10-10 (date du Journal officiel qui le publie).
 

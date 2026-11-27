@@ -1,6 +1,6 @@
 # Décret n° 11-433-1932 Application aux colonies de la convention et des arrangements de Union postale universelle à Londres, le 28 juin 1929.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 433 du 31/12/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-433-1932-application-aux-colonies-de-la-convention-et-des-arrangements-de-union-postale-universelle-a-londres-le-28-juin-1929/>
+Décret · Journal officiel de la République de Djibouti, n° 433 du 31/12/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-433-1932-application-aux-colonies-de-la-convention-et-des-arrangements-de-union-postale-universelle-a-londres-le-28-juin-1929/>
 
 En vigueur : 1932-12-31 (date du Journal officiel qui le publie).
 

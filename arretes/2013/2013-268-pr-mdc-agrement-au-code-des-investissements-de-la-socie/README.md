@@ -1,7 +1,7 @@
 # Arrêté n° 2013-268/PR/MDC portant Agrément au Code des Investissements de la société “OKAR INVESTMENT” pour un projet de mise en place une usine de production et de confection de tout type de vêtement dans la région
 de Dikhil.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-268-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-okar-investment-pour-un-projet-de-mise-en-place-une-usine-de-production-et-de-confection-de/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-268-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-okar-investment-pour-un-projet-de-mise-en-place-une-usine-de-production-et-de-confection-de/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2006-0105/PRE portant extension du délai de conversion aux SAZF Financières.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0105-pre-portant-extension-du-delai-de-conversion-aux-sazf-financieres/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0105-pre-portant-extension-du-delai-de-conversion-aux-sazf-financieres/>
 
 En vigueur : 2006-04-15 (date du Journal officiel qui le publie).
 

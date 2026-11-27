@@ -1,6 +1,6 @@
 # Décret n° 2022-327/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les élections législatives du Vendredi 24 Février 2023.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-327-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-vendredi-24-fevrier-2023/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-327-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-vendredi-24-fevrier-2023/>
 
 En vigueur : 2022-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

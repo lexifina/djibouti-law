@@ -1,6 +1,6 @@
 # Décret n° 30-427-1932 rendu sur la proposition du Ministre des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 427 du 30/06/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-427-1932-rendu-sur-la-proposition-du-ministre-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 427 du 30/06/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-427-1932-rendu-sur-la-proposition-du-ministre-des-colonies/>
 
 En vigueur : 1932-06-30 (date du Journal officiel qui le publie).
 

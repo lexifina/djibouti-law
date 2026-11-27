@@ -1,8 +1,8 @@
 # Décret n° 97-0028/PR/FP portant création d’une Commission Nationale des Réformes de l’Environnement Institutionnel et de la Gouvernance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0028-pr-fp-portant-creation-dune-commission-nationale-des-reformes-de-lenvironnement-institutionnel-et-de-la-gouvernance/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0028-pr-fp-portant-creation-dune-commission-nationale-des-reformes-de-lenvironnement-institutionnel-et-de-la-gouvernance/>
 
-En vigueur : 1997-03-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-03-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

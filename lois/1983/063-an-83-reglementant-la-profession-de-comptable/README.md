@@ -1,6 +1,6 @@
 # Loi n° 63/AN/83/ 1ère L réglementant la profession de Comptable.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-83-1ere-l-reglementant-la-profession-de-comptable/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-83-1ere-l-reglementant-la-profession-de-comptable/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 
@@ -51,4 +51,4 @@ HASSAN GOULED APTIDON
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

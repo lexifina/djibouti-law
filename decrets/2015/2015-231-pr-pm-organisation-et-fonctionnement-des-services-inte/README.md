@@ -1,8 +1,8 @@
 # Décret n° 2015-231/PR/PM portant organisation et fonctionnement des services internes du Secrétariat Général de la Primature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-231-pr-pm-portant-organisation-et-fonctionnement-des-services-internes-du-secretariat-general-de-la-primature/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-231-pr-pm-portant-organisation-et-fonctionnement-des-services-internes-du-secretariat-general-de-la-primature/>
 
-En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -53,4 +53,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

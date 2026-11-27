@@ -1,6 +1,6 @@
 # Décret n° 2018-247/PR/MET portant abrogation de l’Ordonnance n° 80-097 portant réglementation de la Zone Franche.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-247-pr-met-portant-abrogation-de-lordonnance-n80-097-portant-reglementation-de-la-zone-franche/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-247-pr-met-portant-abrogation-de-lordonnance-n80-097-portant-reglementation-de-la-zone-franche/>
 
 En vigueur : 2018-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

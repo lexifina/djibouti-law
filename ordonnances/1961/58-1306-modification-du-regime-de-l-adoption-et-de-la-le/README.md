@@ -1,6 +1,6 @@
 # Ordonnance n° 58-1306 portant modification du régime de l’adoption et de la légitimation adoptive
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1961 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-1306-portant-modification-du-regime-de-ladoption-et-de-la-legitimation-adoptive/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 31/08/1961 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-1306-portant-modification-du-regime-de-ladoption-et-de-la-legitimation-adoptive/>
 
 En vigueur : 1961-08-31 (date du Journal officiel qui le publie).
 
@@ -33,8 +33,8 @@ Bernard CHENOT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |

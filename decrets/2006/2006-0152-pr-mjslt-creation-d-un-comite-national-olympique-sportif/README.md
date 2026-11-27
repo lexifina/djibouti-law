@@ -1,8 +1,8 @@
 # Décret n° 2006-0152/PR/MJSLT portant création d’un Comité National Olympique Sportif Djiboutien (CNOSD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0152-pr-mjslt-portant-creation-dun-comite-national-olympique-sportif-djiboutien-cnosd/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0152-pr-mjslt-portant-creation-dun-comite-national-olympique-sportif-djiboutien-cnosd/>
 
-En vigueur : 2006-07-05 (date fixÃ©e par le texte).
+En vigueur : 2006-07-05 (date fixée par le texte).
 
 ## Visas
 

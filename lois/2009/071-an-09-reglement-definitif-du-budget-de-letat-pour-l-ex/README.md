@@ -1,6 +1,6 @@
 # Loi n° 71/AN/09/6ème L portant Règlement Définitif du Budget de l’Etat pour l’Exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-09-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-09-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2008/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 16 mai 1942 Le décret complétant le dé cret du 26 juillet 1911 réglementant la profession de journaliste et. la délivrance d‘une carte d identité professionnelle aux journalistes dans les territoires relevant du secrétariat d‘Etat aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 546 du 31/05/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1942-le-decret-completant-le-de-cret-du-26-juillet-1911-reglementant-la-profession-de-journaliste-et-la-delivrance-dune-carte-d-identite-professionnelle-aux-journalist/>
+Décret · Journal officiel de la République de Djibouti, n° 546 du 31/05/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1942-le-decret-completant-le-de-cret-du-26-juillet-1911-reglementant-la-profession-de-journaliste-et-la-delivrance-dune-carte-d-identite-professionnelle-aux-journalist/>
 
 En vigueur : 1942-05-31 (date du Journal officiel qui le publie).
 

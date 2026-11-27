@@ -1,6 +1,6 @@
 # Loi n° 29/AN/18/8ème L ratifiant l’ordonnance n° 2018-001/PRE du 9 septembre 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-18-8eme-l-ratifiant-lordonnance-n2018-001-pre-du-9-septembre-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-18-8eme-l-ratifiant-lordonnance-n2018-001-pre-du-9-septembre-2018/>
 
 En vigueur : 2018-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

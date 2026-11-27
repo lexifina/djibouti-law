@@ -1,6 +1,6 @@
 # Ordonnance n° 90-028/PR/J portant modification de la composition de la Cour su- préme.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1990 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n90-028-pr-j-portant-modification-de-la-composition-de-la-cour-su-preme/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 6 du 31/03/1990 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n90-028-pr-j-portant-modification-de-la-composition-de-la-cour-su-preme/>
 
 En vigueur : 1990-03-31 (date du Journal officiel qui le publie).
 
@@ -21,6 +21,6 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

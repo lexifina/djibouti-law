@@ -1,6 +1,6 @@
 # Décret n° 25 décembre 1937 portant majoration de l’indemnité spéciale de séjour en France prévue par l’article 92 du décret du 2 mars 1910. portant règlement sur la solde et les accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 495 du 28/02/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-decembre-1937-portant-majoration-de-lindemnite-speciale-de-sejour-en-france-prevue-par-larticle-92-du-decret-du-2-mars-1910-portant-reglement-sur-la-solde-et-les/>
+Décret · Journal officiel de la République de Djibouti, n° 495 du 28/02/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-decembre-1937-portant-majoration-de-lindemnite-speciale-de-sejour-en-france-prevue-par-larticle-92-du-decret-du-2-mars-1910-portant-reglement-sur-la-solde-et-les/>
 
 En vigueur : 1938-02-28 (date du Journal officiel qui le publie).
 

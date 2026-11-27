@@ -1,6 +1,6 @@
 # Loi n° 15/78 Réglementant l’usage du terme » national » par les entreprises à caractère commercial ou industriel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-78-reglementant-lusage-du-terme-national-par-les-entreprises-a-caractere-commercial-ou-industriel/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 27/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-78-reglementant-lusage-du-terme-national-par-les-entreprises-a-caractere-commercial-ou-industriel/>
 
 En vigueur : 1978-03-27 (date du Journal officiel qui le publie).
 

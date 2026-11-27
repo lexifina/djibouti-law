@@ -1,6 +1,6 @@
 # Décret n° 19-369-1927 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 369 du 31/08/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-369-1927-au-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 369 du 31/08/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-369-1927-au-president-de-la-republique-francaise/>
 
 En vigueur : 1927-08-31 (date du Journal officiel qui le publie).
 

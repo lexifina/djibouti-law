@@ -1,6 +1,6 @@
 # Arrêté n° 2017-031/PRE portant Approbation du Budget prévisionnel du Palais du Peuple pour l’Exercice 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-031-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-031-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2017/>
 
 En vigueur : 2017-01-31 (date du Journal officiel qui le publie).
 

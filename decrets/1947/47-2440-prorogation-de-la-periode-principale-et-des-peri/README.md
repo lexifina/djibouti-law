@@ -1,6 +1,6 @@
 # Décret n° 47-2440 portant prorogation de la période principale et des périodes complémentaires d’exécu tion des budgets spéciaux des plane de développement économique et social des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2440-portant-prorogation-de-la-periode-principale-et-des-periodes-complementaires-dexecu-tion-des-budgets-speciaux-des-plane-de-developpement-economique-et-social-des-terri/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2440-portant-prorogation-de-la-periode-principale-et-des-periodes-complementaires-dexecu-tion-des-budgets-speciaux-des-plane-de-developpement-economique-et-social-des-terri/>
 
 En vigueur : 1948-01-31 (date du Journal officiel qui le publie).
 

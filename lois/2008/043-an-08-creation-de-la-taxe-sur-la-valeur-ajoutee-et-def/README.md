@@ -1,6 +1,6 @@
 # Loi n° 43/AN/08/6ème L portant création de la Taxe sur la Valeur Ajoutée et définissant les dispositifs d’application.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-08-6eme-l-portant-creation-de-la-taxe-sur-la-valeur-ajoutee-et-definissant-les-dispositifs-dapplication/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-08-6eme-l-portant-creation-de-la-taxe-sur-la-valeur-ajoutee-et-definissant-les-dispositifs-dapplication/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

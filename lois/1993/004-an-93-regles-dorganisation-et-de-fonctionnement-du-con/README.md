@@ -1,6 +1,6 @@
 # Loi Organique n° 4/AN/93/3eme L fixant les règles d’organisation et de fonctionnement du Conseil Constitutionnel.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 18/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n4-an-93-3eme-l-fixant-les-regles-dorganisation-et-de-fonctionnement-du-conseil-constitutionnel/>
+Loi organique · Journal officiel de la République de Djibouti, n° 3 du 18/04/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n4-an-93-3eme-l-fixant-les-regles-dorganisation-et-de-fonctionnement-du-conseil-constitutionnel/>
 
 En vigueur : 1993-04-18 (date du Journal officiel qui le publie).
 
@@ -22,7 +22,7 @@ HASSAN GOULED APTIDON.
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [art-007.md](art-007.md) | Art. 7 – |
+| [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
@@ -64,4 +64,4 @@ HASSAN GOULED APTIDON.
 | [art-046.md](art-046.md) | Art. 46 |
 | [art-047.md](art-047.md) | Art. 47 |
 | [art-048.md](art-048.md) | Art. 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

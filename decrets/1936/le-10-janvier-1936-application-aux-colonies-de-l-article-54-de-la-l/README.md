@@ -1,6 +1,6 @@
 # Décret n° le 10 janvier 1936. Application aux colonies de l’article 54 de la loi de finances du 31 décembre 1935.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-10-janvier-1936-application-aux-colonies-de-larticle-54-de-la-loi-de-finances-du-31-decembre-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-10-janvier-1936-application-aux-colonies-de-larticle-54-de-la-loi-de-finances-du-31-decembre-1935/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Louis Rollin.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

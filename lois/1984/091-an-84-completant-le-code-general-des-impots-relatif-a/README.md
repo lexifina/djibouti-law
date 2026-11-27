@@ -1,6 +1,6 @@
 # Loi n° 91/AN/84/1ère L complétant le code général des impôts relatif à un relèvement du taux de centimes additionnels au profit de la chambre de commerce internationale de l’industrie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-84-1ere-l-completant-le-code-general-des-impots-relatif-a-un-relevement-du-taux-de-centimes-additionnels-au-profit-de-la-chambre-de-commerce-internationale-de-lindustrie/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-84-1ere-l-completant-le-code-general-des-impots-relatif-a-un-relevement-du-taux-de-centimes-additionnels-au-profit-de-la-chambre-de-commerce-internationale-de-lindustrie/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 

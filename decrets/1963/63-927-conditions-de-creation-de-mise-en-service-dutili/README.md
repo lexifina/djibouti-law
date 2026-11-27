@@ -1,6 +1,6 @@
 # Décret n° 63-927 aux conditions de création, de mise en service, d’utilisation et de contrôle des aérodromes dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-927-aux-conditions-de-creation-de-mise-en-service-dutilisation-et-de-controle-des-aerodromes-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-927-aux-conditions-de-creation-de-mise-en-service-dutilisation-et-de-controle-des-aerodromes-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1963-09-30 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ MARC JACQUET.
 | [art-029.md](art-029.md) | Art. 29 |
 | [art-030.md](art-030.md) | Art. 30 |
 | [art-031.md](art-031.md) | Art. 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

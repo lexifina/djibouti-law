@@ -1,2 +1,0 @@
-# PrÃ©ambule
-Art, 1er, — Le bénéfice des dispositions du paragraphe 11, alinéa 1er, de l’article 77, du décret du 2 mars 1910, modifié par les décrets des 20 avril 1924 et 16 février 1952, relatives au maintien par ordre, est étendu aux fonctionnaires et agents des services coloniaux et locaux, y compris le personnel détaché des cadres métropolitains rémunérés sur les budgets locaux, se trouvant dans les colonies, en inst ance de retraite, Sous réserve que leur utilisation dans la colonie où ils résident ne puisse être admise par le gouverneur de cette colonie,

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0695/PR/SEJS portant prise en charge financière des experts cubains en service à Djibouti dans le domaine du Sport de haut niveau.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0695-pr-sejs-portant-prise-en-charge-financiere-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0695-pr-sejs-portant-prise-en-charge-financiere-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
 
 En vigueur : 2012-11-29 (date du Journal officiel qui le publie).
 

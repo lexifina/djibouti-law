@@ -1,6 +1,6 @@
 # Décret n° n° 431 Le décret prorogeant le délai prévu par l’article 5 du décret du 25 juin 1942 pour l’attribution de la prime à la première naissance et étendant à titre temporaire le hénétfice de l’indemnité pour salaire unique aux jeunes ménages sans enfants.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-431-le-decret-prorogeant-le-delai-prevu-par-larticle-5-du-decret-du-25-juin-1942-pour-lattribution-de-la-prime-a-la-premiere-naissance-et-etendant-a-titre-temporaire-le-h/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-431-le-decret-prorogeant-le-delai-prevu-par-larticle-5-du-decret-du-25-juin-1942-pour-lattribution-de-la-prime-a-la-premiere-naissance-et-etendant-a-titre-temporaire-le-h/>
 
 En vigueur : 1942-08-31 (date du Journal officiel qui le publie).
 

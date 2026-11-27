@@ -1,6 +1,6 @@
 # Décret n° 70-1343 relatif aux conditions d’application de l’article 2 de la loi n° 70-596 du 9 juillet 1970 en matière d’appel avancé
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1343-relatif-aux-conditions-dapplication-de-larticle-2-de-la-loi-n-70-596-du-9-juillet-1970-en-matiere-dappel-avance/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1343-relatif-aux-conditions-dapplication-de-larticle-2-de-la-loi-n-70-596-du-9-juillet-1970-en-matiere-dappel-avance/>
 
 En vigueur : 1971-03-10 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Le Conseil d'État (Section des Finances) entendu,
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

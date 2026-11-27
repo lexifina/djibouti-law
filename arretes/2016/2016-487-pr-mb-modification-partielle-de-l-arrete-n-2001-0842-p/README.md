@@ -1,6 +1,6 @@
 # Arrêté n° 2016-487/PR/MB portant modification partielle de l’arrêté n° 2001-0842/PR/MF du 04 novembre 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-487-pr-mb-portant-modification-partielle-de-larrete-n2001-0842-pr-mf-du-04-novembre-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-487-pr-mb-portant-modification-partielle-de-larrete-n2001-0842-pr-mf-du-04-novembre-2011/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2023-362/PR/MCT portant sur la protection et l’attraction touristique des Requins-Baleines à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-362-pr-mct-portant-sur-la-protection-et-lattraction-touristique-des-requins-baleines-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 14/12/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-362-pr-mct-portant-sur-la-protection-et-lattraction-touristique-des-requins-baleines-a-djibouti/>
 
 En vigueur : 2023-12-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

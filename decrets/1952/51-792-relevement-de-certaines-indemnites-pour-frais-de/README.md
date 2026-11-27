@@ -1,8 +1,8 @@
 # Décret n° 51-792 portant relèvement de certaines indemnités pour frais de déplacement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-792-portant-relevement-de-certaines-indemnites-pour-frais-de-deplacement/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-792-portant-relevement-de-certaines-indemnites-pour-frais-de-deplacement/>
 
-En vigueur : 1951-06-01 (date fixÃ©e par le texte).
+En vigueur : 1951-06-01 (date fixée par le texte).
 
 ## Visas
 

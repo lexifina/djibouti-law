@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0191/PR/MEFPCP affectant au Ministère de la Défense Nationale une parcelle de terrain sise à Einguela.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0191-pr-mefpcp-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-a-einguela/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0191-pr-mefpcp-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-a-einguela/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

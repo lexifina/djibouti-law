@@ -1,6 +1,6 @@
 # Loi n° 168/AN/17/7ème L portant abrogation l’article 102 de la loi n° 154/AN/02/4ème L portant codification du fonctionnement de l’OPS et du régime général de retraite des travailleurs salariés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-17-7eme-l-portant-abrogation-larticle-102-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-sala/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-17-7eme-l-portant-abrogation-larticle-102-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-sala/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 83-097/PR/FP portant réparation pécuniaire accordée aux fonctionnaires et agents de l’État en cas de maladie contractée en service ou d’accident survenu dans l’exercice de leurs fonctions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-097-pr-fp-portant-reparation-pecuniaire-accordee-aux-fonctionnaires-et-agents-de-letat-en-cas-de-maladie-contractee-en-service-ou-daccident-survenu-dans-lexercice-de-leurs-fonct/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-097-pr-fp-portant-reparation-pecuniaire-accordee-aux-fonctionnaires-et-agents-de-letat-en-cas-de-maladie-contractee-en-service-ou-daccident-survenu-dans-lexercice-de-leurs-fonct/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 

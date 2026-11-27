@@ -1,6 +1,6 @@
 # Décret n° n° 45-2211 portant suppression du comité d’organisation des assurances et complétant le décret-loi du 14 juin 1938 relatif au contrôle de l’Etat sur les entreprises d’assurances de toute nature
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2211-portant-suppression-du-comite-dorganisation-des-assurances-et-completant-le-decret-loi-du-14-juin-1938-relatif-au-controle-de-letat-sur-les-entreprises-dassuran/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2211-portant-suppression-du-comite-dorganisation-des-assurances-et-completant-le-decret-loi-du-14-juin-1938-relatif-au-controle-de-letat-sur-les-entreprises-dassuran/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 
@@ -39,12 +39,12 @@ TANGUY-PRIGENT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [art-007.md](art-007.md) | Art. 7 — |
+| [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |

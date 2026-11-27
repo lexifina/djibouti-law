@@ -1,6 +1,6 @@
 # Décret n° 2-53-1902 5 Décembre 1901
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 53 du 15/02/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-53-1902-5-decembre-1901/>
+Décret · Journal officiel de la République de Djibouti, n° 53 du 15/02/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-53-1902-5-decembre-1901/>
 
 En vigueur : 1902-02-15 (date du Journal officiel qui le publie).
 

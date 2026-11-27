@@ -1,6 +1,6 @@
 # Loi n° 61/AN/23/9ème L portant approbation des Comptes Financiers de l’Agence Djiboutienne de Développement Social (ADDS) pour l’exercice 2022.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 29/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-de-developpement-social-adds-pour-lexercice-2022/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 29/02/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-de-developpement-social-adds-pour-lexercice-2022/>
 
 En vigueur : 2024-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

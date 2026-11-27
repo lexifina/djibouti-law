@@ -1,6 +1,6 @@
 # Décret n° 68-1110 portant modification de l’article 51 de la loi du 18 juin 1941 relative à la réglementation et à l’organisation de la profession bancaire
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1110-portant-modification-de-larticle-51-de-la-loi-du-18-juin-1941-relative-a-la-reglementation-et-a-lorganisation-de-la-profession-bancaire/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1110-portant-modification-de-larticle-51-de-la-loi-du-18-juin-1941-relative-a-la-reglementation-et-a-lorganisation-de-la-profession-bancaire/>
 
 En vigueur : 1969-03-10 (date du Journal officiel qui le publie).
 
@@ -25,6 +25,6 @@ Michel INCHAUSPE
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1— |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

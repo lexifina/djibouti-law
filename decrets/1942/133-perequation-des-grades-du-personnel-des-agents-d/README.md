@@ -1,6 +1,6 @@
 # Décret n° 133 modifiant la péréquation des grades du personnel des agents des services civils des colonies autres que l’Indochine
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-133-modifiant-la-perequation-des-grades-du-personnel-des-agents-des-services-civils-des-colonies-autres-que-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-133-modifiant-la-perequation-des-grades-du-personnel-des-agents-des-services-civils-des-colonies-autres-que-lindochine/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 185/AN/85/1ère L fixant la date d’ouverture et la durée de la 2ème session ordinaire de 1985 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-85-1ere-l-fixant-la-date-douverture-et-la-duree-de-la-2eme-session-ordinaire-de-1985-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-85-1ere-l-fixant-la-date-douverture-et-la-duree-de-la-2eme-session-ordinaire-de-1985-dite-session-budgetaire/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

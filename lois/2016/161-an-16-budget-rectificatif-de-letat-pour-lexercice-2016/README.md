@@ -1,6 +1,6 @@
 # Loi de finances n° 161/AN/16/7ème L portant budget rectificatif de l’Etat pour l’exercice 2016.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n161-an-16-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2016/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 23 du 15/12/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n161-an-16-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2016/>
 
 En vigueur : 2016-12-15 (date du Journal officiel qui le publie).
 

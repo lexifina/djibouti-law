@@ -1,6 +1,6 @@
 # Loi n° 88/AN/05/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Arabe pour le Développement Économique et Social.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 85-021/PR Portant réglementation des pouvoirs dans l’Intérêt de la loi et d’ordre du Ministre de la Justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1985 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-021-pr-portant-reglementation-des-pouvoirs-dans-linteret-de-la-loi-et-dordre-du-ministre-de-la-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 28/02/1985 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-021-pr-portant-reglementation-des-pouvoirs-dans-linteret-de-la-loi-et-dordre-du-ministre-de-la-justice/>
 
 En vigueur : 1985-02-28 (date du Journal officiel qui le publie).
 

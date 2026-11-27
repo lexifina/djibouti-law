@@ -1,6 +1,6 @@
 # Arrêté n° 2020-012/PR/MAPI portant approbation du Budget Prévisionnel du Palais du Peuple pour l’Exercice 2020.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-012-pr-mapi-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2020/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-012-pr-mapi-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2020/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 16/AN/12/6ème L portant modification de l’article 33 de la Loi Organique n° 1/AN/92 du 29 octobre 1992 relative aux élections.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-12-6eme-l-portant-modification-de-larticle-33-de-la-loi-organique-n1-an-92-du-29-octobre-1992-relative-aux-elections/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-12-6eme-l-portant-modification-de-larticle-33-de-la-loi-organique-n1-an-92-du-29-octobre-1992-relative-aux-elections/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

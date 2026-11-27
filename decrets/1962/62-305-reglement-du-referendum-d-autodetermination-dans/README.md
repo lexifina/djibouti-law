@@ -1,6 +1,6 @@
 # Décret n° 62-305 portant règlement du référendum d’autodétermination dans les Départements d’Alger, Batna, Bône, Constantine, Médéa. Mostaganem, Oasis, Oran, Orléansville, Saïda, Saoura, Sétif, Tiaret, Tizi-Ouzou et Tlemcen (J.OR.F. du 20 mars 1962, p. 3034). Arrêté de promulgation n° 701 du 21 mai 1962 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-305-portant-reglement-du-referendum-dautodetermination-dans-les-departements-dalger-batna-bone-constantine-medea-mostaganem-oasis-oran-orleansville-saida-saoura/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-305-portant-reglement-du-referendum-dautodetermination-dans-les-departements-dalger-batna-bone-constantine-medea-mostaganem-oasis-oran-orleansville-saida-saoura/>
 
 En vigueur : 1962-05-31 (date du Journal officiel qui le publie).
 
@@ -85,4 +85,4 @@ Jean de BROGLIE.
 | [art-044.md](art-044.md) | Art. 44 |
 | [art-045.md](art-045.md) | Art. 45 |
 | [art-046.md](art-046.md) | Art. 46 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

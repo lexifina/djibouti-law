@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0829/PR/MET portant renouvellement de la liste des membres du Comité du Gestion du Fonds d’Entretien Routier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0829-pr-met-portant-renouvellement-de-la-liste-des-membres-du-comite-du-gestion-du-fonds-dentretien-routier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0829-pr-met-portant-renouvellement-de-la-liste-des-membres-du-comite-du-gestion-du-fonds-dentretien-routier/>
 
-En vigueur : 2009-11-16 (date fixÃ©e par le texte).
+En vigueur : 2009-11-16 (date fixée par le texte).
 
 ## Visas
 

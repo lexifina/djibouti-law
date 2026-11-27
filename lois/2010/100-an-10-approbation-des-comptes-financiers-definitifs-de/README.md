@@ -1,6 +1,6 @@
 # Loi n° 100/AN/10/6ème L portant approbation des comptes financiers définitifs de l’ONEAD pour l’Exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-lonead-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-lonead-pour-lexercice-2008/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

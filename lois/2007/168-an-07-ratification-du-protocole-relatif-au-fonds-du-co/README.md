@@ -1,6 +1,6 @@
 # Loi n° 168/AN/07/5ème L portant ratification du protocole relatif au Fonds du COMESA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-07-5eme-l-portant-ratification-du-protocole-relatif-au-fonds-du-comesa/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-07-5eme-l-portant-ratification-du-protocole-relatif-au-fonds-du-comesa/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

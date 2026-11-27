@@ -1,6 +1,6 @@
 # Décret n° 4° Le décret modifiant le décret du 13 janvier 1938 portant application aux colonies françaises, pays de protectorat et territoires sous mandat dépendant du ministère des colonies, autres que l4 Martinique, la Guadeloupe et la Réunion du décret du 30 octobre 1935 sur la protection des obligataires..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-le-decret-modifiant-le-decret-du-13-janvier-1938-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-coloni/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-le-decret-modifiant-le-decret-du-13-janvier-1938-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-coloni/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

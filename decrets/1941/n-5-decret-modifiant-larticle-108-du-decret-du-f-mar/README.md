@@ -1,6 +1,6 @@
 # Décret n° n° 5 Le décret modifiant l’article 108 du décret du F mars 1910 portant règlement sur la solde et les allocations accessoires des fonctionnaires des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-5-le-decret-modifiant-larticle-108-du-decret-du-f-mars-1910-portant-reglement-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-5-le-decret-modifiant-larticle-108-du-decret-du-f-mars-1910-portant-reglement-sur-la-solde-et-les-allocations-accessoires-des-fonctionnaires-des-services-coloniaux/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 

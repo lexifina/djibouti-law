@@ -1,6 +1,6 @@
 # Loi n° 81/AN/89/2ème L accordant une parcelle de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-89-2eme-l-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-89-2eme-l-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

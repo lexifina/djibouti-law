@@ -1,8 +1,8 @@
 # Décret n° 2013-013/PRE portant approbation des Statuts de la Société Port de Djibouti SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-013-pre-portant-approbation-des-statuts-de-la-societe-port-de-djibouti-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-013-pre-portant-approbation-des-statuts-de-la-societe-port-de-djibouti-sa/>
 
-En vigueur : 2013-02-04 (date fixÃ©e par le texte).
+En vigueur : 2013-02-04 (date fixée par le texte).
 
 ## Visas
 

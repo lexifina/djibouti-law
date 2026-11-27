@@ -1,6 +1,6 @@
 # Décret n° n° 51-1233 du 31 octobre 1951 modifiant et complétant le décret n° 51-951 du 21 juillet 1951, relatif à la prise en compte du supplément familial de solde dans le calcul de l’indemnité différentielle prévue à l’article 13 du décret n° 51-11 du 5 mai 1951 (J.O.R.F. du Ier novembre 1951, p. 10883)…
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1233-du-31-octobre-1951-modifiant-et-completant-le-decret-n-51-951-du-21-juillet-1951-relatif-a-la-prise-en-compte-du-supplement-familial-de-solde-dans-le-calcul-de/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1233-du-31-octobre-1951-modifiant-et-completant-le-decret-n-51-951-du-21-juillet-1951-relatif-a-la-prise-en-compte-du-supplement-familial-de-solde-dans-le-calcul-de/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 

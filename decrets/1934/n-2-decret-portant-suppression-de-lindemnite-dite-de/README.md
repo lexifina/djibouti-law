@@ -1,6 +1,6 @@
 # Décret n° n°2 Décret portant suppression de l’indemnité dite de réinstallation et spécifiant les conditions dans lesquelles cette allocation est maintenue
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 457 du 31/12/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-suppression-de-lindemnite-dite-de-reinstallation-et-specifiant-les-conditions-dans-lesquelles-cette-allocation-est-maintenue/>
+Décret · Journal officiel de la République de Djibouti, n° 457 du 31/12/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-suppression-de-lindemnite-dite-de-reinstallation-et-specifiant-les-conditions-dans-lesquelles-cette-allocation-est-maintenue/>
 
 En vigueur : 1934-12-31 (date du Journal officiel qui le publie).
 
@@ -25,6 +25,6 @@ pierre laval
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

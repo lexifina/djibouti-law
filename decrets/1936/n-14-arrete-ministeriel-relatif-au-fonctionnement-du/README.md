@@ -1,6 +1,6 @@
 # Décret n° n°14 Arrêté ministériel relatif au fonctionnement du service intercolonial d’informations
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-arrete-ministeriel-relatif-au-fonctionnement-du-service-intercolonial-dinformations/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-arrete-ministeriel-relatif-au-fonctionnement-du-service-intercolonial-dinformations/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 

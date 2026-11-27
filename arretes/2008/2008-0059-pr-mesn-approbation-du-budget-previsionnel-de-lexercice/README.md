@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0059/PR/MESN portant approbation du Budget prévisionnel de l’Exercice 2008 de l’Organisme de Protection Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0059-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2008-de-lorganisme-de-protection-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0059-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2008-de-lorganisme-de-protection-sociale/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

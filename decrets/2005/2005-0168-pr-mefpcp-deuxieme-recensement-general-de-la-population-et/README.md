@@ -1,6 +1,6 @@
 # Décret n° 2005-0168/PR/MEFPCP Portant deuxième Recensement Général de la Population et de l’Habitat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 29/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0168-pr-mefpcp-portant-deuxieme-recensement-general-de-la-population-et-de-lhabitat/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 29/09/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0168-pr-mefpcp-portant-deuxieme-recensement-general-de-la-population-et-de-lhabitat/>
 
 En vigueur : 2005-09-29 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

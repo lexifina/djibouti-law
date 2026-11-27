@@ -1,6 +1,6 @@
 # Loi n° 53/AN/14/7ème L portant organisation du ministère du budget.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-14-7eme-l-portant-organisation-du-ministere-du-budget/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-14-7eme-l-portant-organisation-du-ministere-du-budget/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

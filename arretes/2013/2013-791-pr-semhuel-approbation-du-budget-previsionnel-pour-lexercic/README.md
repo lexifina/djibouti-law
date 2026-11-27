@@ -1,6 +1,6 @@
 # Arrêté n° 2013-791/PR/SEMHUEL portant approbation du Budget prévisionnel pour l’exercice 2014 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-791-pr-semhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2014-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-791-pr-semhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2014-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2003-0060/PR/MJ Portant organisation de l’Office National du Tourisme de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0060-pr-mj-portant-organisation-de-loffice-national-du-tourisme-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0060-pr-mj-portant-organisation-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2003-04-30 (date du Journal officiel qui le publie).
 
@@ -54,4 +54,4 @@ ISMAIL OMAR GUELLEH
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

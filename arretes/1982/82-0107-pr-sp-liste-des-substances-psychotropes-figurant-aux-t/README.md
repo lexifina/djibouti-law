@@ -1,6 +1,6 @@
 # Arrêté n° 82-0107/PR/SP modifiant la liste des substances psychotropes figurant aux tableaux I et IV de la Loi n° 171/AN/81 du 9 février 1981 sur les substances Psychotropes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0107-pr-sp-modifiant-la-liste-des-substances-psychotropes-figurant-aux-tableaux-i-et-iv-de-la-loi-n171-an-81-du-9-fevrier-1981-sur-les-substances-psychotropes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0107-pr-sp-modifiant-la-liste-des-substances-psychotropes-figurant-aux-tableaux-i-et-iv-de-la-loi-n171-an-81-du-9-fevrier-1981-sur-les-substances-psychotropes/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

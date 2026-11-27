@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 At 1 — Le classement à attribuer au point de vue des indemnités de déplacement et des passiges, an personnel colonial de la magistrature et du greffe, est déterminé de la facon suivante, en fometion des assimilations et de la hiérarchie des emplois, fixées par le décret susvisé du 22 août 1928 :
 1° magistrats autres que les juges de pair à compétence ordinaire.
 1’° catégorie A. Emplois du 1° degré (Indochine et autres colonies et territoires).

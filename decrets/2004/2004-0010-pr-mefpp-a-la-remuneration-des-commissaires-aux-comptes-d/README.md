@@ -1,6 +1,6 @@
 # Décret n° 2004-0010/PR/MEFPP relatif à la rémunération des Commissaires aux Comptes délégués des Établissements Publics à caractère administratif et des entreprises d’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0010-pr-mefpp-relatif-a-la-remuneration-des-commissaires-aux-comptes-delegues-des-etablissements-publics-a-caractere-administratif-et-des-entreprises-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0010-pr-mefpp-relatif-a-la-remuneration-des-commissaires-aux-comptes-delegues-des-etablissements-publics-a-caractere-administratif-et-des-entreprises-detat/>
 
 En vigueur : 2004-01-15 (date du Journal officiel qui le publie).
 

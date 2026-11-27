@@ -1,8 +1,8 @@
 # Décret n° 2024-117/PRE portant digitalisation du système de suivi et évaluation des plans nationaux de développement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-117-pre-portant-digitalisation-du-systeme-de-suivi-et-evaluation-des-plans-nationaux-de-developpement/>
+Décret · Journal officiel de la République de Djibouti, n° 09 du 15/05/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-117-pre-portant-digitalisation-du-systeme-de-suivi-et-evaluation-des-plans-nationaux-de-developpement/>
 
-En vigueur : 2024-05-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-05-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

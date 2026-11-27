@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0466/PR/MI portant fermeture des frontières terrestres à l’occasion de la Fête de l’Indépendance du 27 juin 2000.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0466-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2000/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 29/06/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0466-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2000/>
 
 En vigueur : 2000-06-29 (date du Journal officiel qui le publie).
 

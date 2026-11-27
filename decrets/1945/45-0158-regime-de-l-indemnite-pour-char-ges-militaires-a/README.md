@@ -1,6 +1,6 @@
 # Décret n° 45-0158 fixant le régime de l’indemnité pour char ges militaires applicable aux personnels militaires en service dans les territoires re levant du Département des colonies et en Chine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0158-fixant-le-regime-de-lindemnite-pour-char-ges-militaires-applicable-aux-personnels-militaires-en-service-dans-les-territoires-re-levant-du-departement-des-colonies-et-e/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0158-fixant-le-regime-de-lindemnite-pour-char-ges-militaires-applicable-aux-personnels-militaires-en-service-dans-les-territoires-re-levant-du-departement-des-colonies-et-e/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

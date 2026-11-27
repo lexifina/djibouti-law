@@ -1,6 +1,6 @@
 # Décret n° 97-0123/PR/MCT fixant la date des élections consulaires et la répartition des sièges à pourvoir entre résidents nationaux et étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0123-pr-mct-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0123-pr-mct-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
 
 En vigueur : 1997-08-15 (date du Journal officiel qui le publie).
 

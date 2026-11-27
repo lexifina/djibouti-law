@@ -1,6 +1,6 @@
 # Décret n° 81-062/PR du 17 mai 1981 approuvant et rendant exécutoire le budget primitif 1981 de l’Office national d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-062-pr-du-17-mai-1981-approuvant-et-rendant-executoire-le-budget-primitif-1981-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-062-pr-du-17-mai-1981-approuvant-et-rendant-executoire-le-budget-primitif-1981-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1981-05-15 (date du Journal officiel qui le publie).
 

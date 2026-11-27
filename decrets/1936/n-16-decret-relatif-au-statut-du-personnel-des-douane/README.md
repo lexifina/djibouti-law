@@ -1,6 +1,6 @@
 # Décret n° n°16 Décret relatif au statut du personnel des douanes dans les colonies autres que l’Inde et l’Indochine francaises
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-relatif-au-statut-du-personnel-des-douanes-dans-les-colonies-autres-que-linde-et-lindochine-francaises/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-relatif-au-statut-du-personnel-des-douanes-dans-les-colonies-autres-que-linde-et-lindochine-francaises/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

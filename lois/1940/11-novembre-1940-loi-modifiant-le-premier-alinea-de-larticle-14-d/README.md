@@ -1,6 +1,6 @@
 # Loi n° 11 novembre 1940 La loi modifiant le premier alinéa de l’article 14 de la loi du 27 septembre 1940
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 528 du 30/11/1940 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-novembre-1940-la-loi-modifiant-le-premier-alinea-de-larticle-14-de-la-loi-du-27-septembre-1940/>
+Loi · Journal officiel de la République de Djibouti, n° 528 du 30/11/1940 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-novembre-1940-la-loi-modifiant-le-premier-alinea-de-larticle-14-de-la-loi-du-27-septembre-1940/>
 
 En vigueur : 1940-11-30 (date du Journal officiel qui le publie).
 

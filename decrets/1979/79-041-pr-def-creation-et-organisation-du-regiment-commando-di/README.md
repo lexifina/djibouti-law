@@ -1,6 +1,6 @@
 # Décret n° 79-041/PR/DEF portant création et organisation du Régiment Commando d’intervention.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-041-pr-def-portant-creation-et-organisation-du-regiment-commando-dintervention/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-041-pr-def-portant-creation-et-organisation-du-regiment-commando-dintervention/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

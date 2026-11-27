@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0307/PR/MEFPP affectant au Ministère de l’Education Nationale, des parcelles de terrain sises à Djibouti et Balbala.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0307-pr-mefpp-affectant-au-ministere-de-leducation-nationale-des-parcelles-de-terrain-sises-a-djibouti-et-balbala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0307-pr-mefpp-affectant-au-ministere-de-leducation-nationale-des-parcelles-de-terrain-sises-a-djibouti-et-balbala/>
 
 En vigueur : 2002-04-30 (date du Journal officiel qui le publie).
 

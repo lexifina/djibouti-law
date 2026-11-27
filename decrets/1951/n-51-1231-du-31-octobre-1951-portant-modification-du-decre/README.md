@@ -1,6 +1,6 @@
 # Décret n° n° 51-1231 du 31 octobre 1951 portant modification du décret n° 51-950 du 21 Juillet 1951 fixant les taux et conditions d’attribution de l’indemnité résidentielle de cherté de vie prévue à l’article 6 du décret n° 91-911 du 5 mai 1951 (J.O.R.F. du 1 novembre 1951, p. 10882)..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1231-du-31-octobre-1951-portant-modification-du-decret-n-51-950-du-21-juillet-1951-fixant-les-taux-et-conditions-dattribution-de-lindemnite-residentielle-de-che/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1231-du-31-octobre-1951-portant-modification-du-decret-n-51-950-du-21-juillet-1951-fixant-les-taux-et-conditions-dattribution-de-lindemnite-residentielle-de-che/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 

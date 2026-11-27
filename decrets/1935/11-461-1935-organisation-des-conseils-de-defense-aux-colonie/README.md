@@ -1,6 +1,6 @@
 # Décret n° 11-461-1935 Organisation des conseils de défense aux colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 461 du 30/04/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-461-1935-organisation-des-conseils-de-defense-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 461 du 30/04/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-461-1935-organisation-des-conseils-de-defense-aux-colonies/>
 
 En vigueur : 1935-04-30 (date du Journal officiel qui le publie).
 

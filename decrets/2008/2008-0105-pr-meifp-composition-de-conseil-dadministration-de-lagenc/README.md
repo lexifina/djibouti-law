@@ -1,6 +1,6 @@
 # Décret n° 2008-0105/PR/MEIFP portant Composition de Conseil d’Administration de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0105-pr-meifp-portant-composition-de-conseil-dadministration-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0105-pr-meifp-portant-composition-de-conseil-dadministration-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
 
 En vigueur : 2008-04-30 (date du Journal officiel qui le publie).
 

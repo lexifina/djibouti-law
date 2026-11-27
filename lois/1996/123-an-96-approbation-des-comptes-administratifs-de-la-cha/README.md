@@ -1,6 +1,6 @@
 # Loi n° 123/AN/96/3ème L portant approbation des Comptes Administratifs de la Chambre Internationale de Commerce et d’Industrie de Dji­bouti et des Magasins Généraux pour l’exercice 1995.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-96-3eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1995/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-96-3eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1995/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

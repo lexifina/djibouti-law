@@ -1,8 +1,8 @@
 # Décret n° 2001-0003/PR/MS fixant les indemnités et bonifications indificiaires allouées au personnel enseignant du C.F.P.S.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0003-pr-ms-fixant-les-indemnites-et-bonifications-indificiaires-allouees-au-personnel-enseignant-du-c-f-p-s/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0003-pr-ms-fixant-les-indemnites-et-bonifications-indificiaires-allouees-au-personnel-enseignant-du-c-f-p-s/>
 
-En vigueur : 2001-01-08 (date fixÃ©e par le texte).
+En vigueur : 2001-01-08 (date fixée par le texte).
 
 ## Visas
 

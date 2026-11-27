@@ -1,6 +1,6 @@
 # Décret n° 2023-312/PR/MCPT portant adhésion de la société Telesom dans le consortium du câble sous-marin DARE-1.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-312-pr-mcpt-portant-adhesion-de-la-societe-telesom-dans-le-consortium-du-cable-sous-marin-dare-1/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-312-pr-mcpt-portant-adhesion-de-la-societe-telesom-dans-le-consortium-du-cable-sous-marin-dare-1/>
 
 En vigueur : 2023-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

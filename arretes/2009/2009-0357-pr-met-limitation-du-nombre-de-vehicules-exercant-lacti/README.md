@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0357/PR/MET portant limitation du nombre de véhicules exerçant l’activité de taxis interdiction en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0357-pr-met-portant-limitation-du-nombre-de-vehicules-exercant-lactivite-de-taxis-interdiction-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 14/05/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0357-pr-met-portant-limitation-du-nombre-de-vehicules-exercant-lactivite-de-taxis-interdiction-en-republique-de-djibouti/>
 
-En vigueur : 2009-05-06 (date fixÃ©e par le texte).
+En vigueur : 2009-05-06 (date fixée par le texte).
 
 ## Visas
 

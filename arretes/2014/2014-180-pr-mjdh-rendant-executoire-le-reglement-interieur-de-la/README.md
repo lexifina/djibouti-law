@@ -1,6 +1,6 @@
 # Arrêté n° 2014-180/PR/MJDH rendant exécutoire le règlement intérieur de la Compagnie Nationale des Commissaires aux Comptes de Djibouti (CNCC-D).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-180-pr-mjdh-rendant-executoire-le-reglement-interieur-de-la-compagnie-nationale-des-commissaires-aux-comptes-de-djibouti-cncc-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 27/02/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-180-pr-mjdh-rendant-executoire-le-reglement-interieur-de-la-compagnie-nationale-des-commissaires-aux-comptes-de-djibouti-cncc-d/>
 
 En vigueur : 2014-02-27 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 19 décembre 1939 étendant aux colonies et pays de protectorat les dispositions de l’article 1°’ du décret du 19 octobre 1939 relatives aux marchés publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-decembre-1939-etendant-aux-colonies-et-pays-de-protectorat-les-dispositions-de-larticle-1-du-decret-du-19-octobre-1939-relatives-aux-marches-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-decembre-1939-etendant-aux-colonies-et-pays-de-protectorat-les-dispositions-de-larticle-1-du-decret-du-19-octobre-1939-relatives-aux-marches-publics/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

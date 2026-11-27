@@ -1,6 +1,6 @@
 # Loi n° 185/AN/81 portant autorisation de ratification de neuf accords.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-81-portant-autorisation-de-ratification-de-neuf-accords/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-81-portant-autorisation-de-ratification-de-neuf-accords/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

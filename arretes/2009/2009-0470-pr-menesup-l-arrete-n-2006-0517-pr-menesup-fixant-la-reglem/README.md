@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0470/PR/MENESUP modifiant l’arrêté n° 2006-0517/PR/MENESUP fixant la réglementation propre au diplôme national menant au grade de Licence et au titre de diplôme d’études universitaires générales mention “Histoire-Géographie”
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0470-pr-menesup-modifiant-larrete-n2006-0517-pr-menesup-fixant-la-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-et-au-titre-de-diplome-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0470-pr-menesup-modifiant-larrete-n2006-0517-pr-menesup-fixant-la-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-et-au-titre-de-diplome-d/>
 
 En vigueur : 2009-06-30 (date du Journal officiel qui le publie).
 

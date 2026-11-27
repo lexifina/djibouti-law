@@ -1,6 +1,6 @@
 # Loi n° 24/09/1941 portant autorisation de remboursement ou de conversion de divers fonds publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-24-09-1941-portant-autorisation-de-remboursement-ou-de-conversion-de-divers-fonds-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-24-09-1941-portant-autorisation-de-remboursement-ou-de-conversion-de-divers-fonds-publics/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

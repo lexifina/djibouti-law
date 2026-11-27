@@ -1,8 +1,8 @@
 # Décret n° 2020-234/PR/MENFOP créant et définissant les conditions d’accès et de délivrance du certificat de fin d’études secondaires intitulé « Certificate of High-School Graduation ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-234-pr-menfop-creant-et-definissant-les-conditions-dacces-et-de-delivrance-du-certificat-de-fin-detudes-secondaires-intitule-certificate-of-high-school-graduation/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-234-pr-menfop-creant-et-definissant-les-conditions-dacces-et-de-delivrance-du-certificat-de-fin-detudes-secondaires-intitule-certificate-of-high-school-graduation/>
 
-En vigueur : 2020-09-14 (date fixÃ©e par le texte).
+En vigueur : 2020-09-14 (date fixée par le texte).
 
 ## Visas
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

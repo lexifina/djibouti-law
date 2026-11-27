@@ -1,6 +1,6 @@
 # Décret n° 68-206 le décret n° 68-206 du 17 février 1968 relatif à la sauvegarde de la vie humaine en mer et à l’habitabilité à bord des navires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-206-le-decret-n-68-206-du-17-fevrier-1968-relatif-a-la-sauvegarde-de-la-vie-humaine-en-mer-et-a-lhabitabilite-a-bord-des-navires/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-206-le-decret-n-68-206-du-17-fevrier-1968-relatif-a-la-sauvegarde-de-la-vie-humaine-en-mer-et-a-lhabitabilite-a-bord-des-navires/>
 
 En vigueur : 1968-06-25 (date du Journal officiel qui le publie).
 

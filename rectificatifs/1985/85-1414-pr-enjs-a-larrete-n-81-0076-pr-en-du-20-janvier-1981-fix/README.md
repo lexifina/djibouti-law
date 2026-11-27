@@ -1,6 +1,6 @@
 # Additif n° 85-1414/PR/ENJS à l’arrêté n° 81-0076/PR/EN du 20 janvier 1981 fixant les conditions d’inscription, la nature et l’organisation des épreuves du brevet d’études du premier cycle.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n85-1414-pr-enjs-a-larrete-n-81-0076-pr-en-du-20-janvier-1981-fixant-les-conditions-dinscription-la-nature-et-lorganisation-des-epreuves-du-brevet-detudes-du-premier-cycle/>
+Additif · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/additif-n85-1414-pr-enjs-a-larrete-n-81-0076-pr-en-du-20-janvier-1981-fixant-les-conditions-dinscription-la-nature-et-lorganisation-des-epreuves-du-brevet-detudes-du-premier-cycle/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ Le Conseil des Ministres entendu en sa séance du 22 octobre 1985.
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

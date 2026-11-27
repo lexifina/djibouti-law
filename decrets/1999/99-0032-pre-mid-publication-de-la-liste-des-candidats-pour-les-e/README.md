@@ -1,6 +1,6 @@
 # Décret n° 99-0032/PRE/MID portant publication de la liste des candidats pour les élections présidentielles du 09 avril 1999.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0032-pre-mid-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-09-avril-1999/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0032-pre-mid-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-09-avril-1999/>
 
 En vigueur : 1999-03-15 (date du Journal officiel qui le publie).
 

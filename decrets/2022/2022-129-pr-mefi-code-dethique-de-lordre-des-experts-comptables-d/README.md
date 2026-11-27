@@ -1,8 +1,8 @@
 # Décret n° 2022-129/PR/MEFI portant Code d’Ethique de L’Ordre des Experts-Comptables de Djibouti (OECD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-129-pr-mefi-portant-code-dethique-de-lordre-des-experts-comptables-de-djibouti-oecd/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-129-pr-mefi-portant-code-dethique-de-lordre-des-experts-comptables-de-djibouti-oecd/>
 
-En vigueur : 2022-06-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-06-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -97,4 +97,4 @@ ISMAÏL OMAR GUELLEH
 | [art-067.md](art-067.md) | Article 67 |
 | [art-068.md](art-068.md) | Article 68 |
 | [art-069.md](art-069.md) | Article 69 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

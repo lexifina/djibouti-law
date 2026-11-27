@@ -1,8 +1,8 @@
 # Décret n° 2015-298/PR/MAECI portant création du Grade d’Ambassadeur Extraordinaire et Plénipotentiaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-298-pr-maeci-portant-creation-du-grade-dambassadeur-extraordinaire-et-plenipotentiaire/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-298-pr-maeci-portant-creation-du-grade-dambassadeur-extraordinaire-et-plenipotentiaire/>
 
-En vigueur : 2015-11-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-11-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

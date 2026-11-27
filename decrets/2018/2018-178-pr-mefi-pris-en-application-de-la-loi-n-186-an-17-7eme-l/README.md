@@ -1,6 +1,6 @@
 # Décret n° 2018-178/PR/MEFI pris en application de la Loi n° 186/AN/17/7ème L relative aux Partenariats Public-Privé et portant organisation et fonctionnement de la Direction des Partenariats Public-Privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-178-pr-mefi-pris-en-application-de-la-loi-n186-an-17-7eme-l-relative-aux-partenariats-public-prive-et-portant-organisation-et-fonctionnement-de-la-direction-des-partenariats/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-178-pr-mefi-pris-en-application-de-la-loi-n186-an-17-7eme-l-relative-aux-partenariats-public-prive-et-portant-organisation-et-fonctionnement-de-la-direction-des-partenariats/>
 
 En vigueur : 2018-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

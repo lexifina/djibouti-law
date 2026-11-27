@@ -1,6 +1,6 @@
 # Décret n° 45-968 modifiant le décret du 23 août 1945 créant le cadre général des transmissions coloniales. (J.O.R.F. n° 113 des 14 et 15 mai 1945, page 2756).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-968-modifiant-le-decret-du-23-aout-1945-creant-le-cadre-general-des-transmissions-coloniales-j-o-r-f-n-113-des-14-et-15-mai-1945-page-2756/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-968-modifiant-le-decret-du-23-aout-1945-creant-le-cadre-general-des-transmissions-coloniales-j-o-r-f-n-113-des-14-et-15-mai-1945-page-2756/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n° 52-262 du 25 fevrier 1952 prorogeant les dispositions des décrets des 28 septembre 1948 et 11 avril 1949 relatifs au déclassement à bord des paquebots des fonctionnaires, employés et agents civils des services généraux ou locaux relevant au. Ministère de la France d’Outre-Mer, du Ministère des relations avec les Etats associés et du Ministère de l’Intérieur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-262-du-25-fevrier-1952-prorogeant-les-dispositions-des-decrets-des-28-septembre-1948-et-11-avril-1949-relatifs-au-declassement-a-bord-des-paquebots-des-fonctionnaires-emp/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-262-du-25-fevrier-1952-prorogeant-les-dispositions-des-decrets-des-28-septembre-1948-et-11-avril-1949-relatifs-au-declassement-a-bord-des-paquebots-des-fonctionnaires-emp/>
 
 En vigueur : 1952-04-01 (date du Journal officiel qui le publie).
 
@@ -46,6 +46,6 @@ André COLIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

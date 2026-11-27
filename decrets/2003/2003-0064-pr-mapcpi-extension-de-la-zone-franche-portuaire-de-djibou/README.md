@@ -1,6 +1,6 @@
 # Décret n° 2003-0064/PR/MAPCPI portant extension de la Zone Franche Portuaire de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0064-pr-mapcpi-portant-extension-de-la-zone-franche-portuaire-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0064-pr-mapcpi-portant-extension-de-la-zone-franche-portuaire-de-djibouti/>
 
 En vigueur : 2003-04-30 (date du Journal officiel qui le publie).
 

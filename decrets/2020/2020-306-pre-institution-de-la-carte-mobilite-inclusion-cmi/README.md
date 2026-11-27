@@ -1,8 +1,8 @@
 # Décret n° 2020-306/PRE portant institution de la Carte Mobilité Inclusion (CMI).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-306-pre-portant-institution-de-la-carte-mobilite-inclusion-cmi/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-306-pre-portant-institution-de-la-carte-mobilite-inclusion-cmi/>
 
-En vigueur : 2020-12-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-12-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 72-593 insérant un article 418-1 dans le code pénal (JORF. n° 159 du 8 juillet 1972, p. 7108),
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 25/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-593-inserant-un-article-418-1-dans-le-code-penal-jorf-n-159-du-8-juillet-1972-p-7108/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 25/08/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-593-inserant-un-article-418-1-dans-le-code-penal-jorf-n-159-du-8-juillet-1972-p-7108/>
 
 En vigueur : 1972-08-25 (date du Journal officiel qui le publie).
 

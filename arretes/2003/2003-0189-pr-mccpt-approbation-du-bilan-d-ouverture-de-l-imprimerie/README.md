@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0189/PR/MCCPT portant approbation du bilan d’ouverture de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0189-pr-mccpt-portant-approbation-du-bilan-douverture-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0189-pr-mccpt-portant-approbation-du-bilan-douverture-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

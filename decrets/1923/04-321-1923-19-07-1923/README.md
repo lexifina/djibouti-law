@@ -1,6 +1,6 @@
 # Décret n° 04-321-1923 19/07/1923
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 321 du 31/08/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-321-1923-19-07-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 321 du 31/08/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-321-1923-19-07-1923/>
 
 En vigueur : 1923-08-31 (date du Journal officiel qui le publie).
 

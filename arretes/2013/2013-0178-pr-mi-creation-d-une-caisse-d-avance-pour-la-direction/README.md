@@ -1,8 +1,8 @@
 # Arrêté n° 2013-0178/PR/MI portant création d’une caisse d’avance pour la Direction de la Police Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0178-pr-mi-portant-creation-dune-caisse-davance-pour-la-direction-de-la-police-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0178-pr-mi-portant-creation-dune-caisse-davance-pour-la-direction-de-la-police-nationale/>
 
-En vigueur : 2013-03-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-03-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

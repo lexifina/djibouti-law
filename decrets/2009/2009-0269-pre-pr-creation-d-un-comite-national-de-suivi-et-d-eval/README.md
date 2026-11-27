@@ -1,6 +1,6 @@
 # Décret n° 2009-0269/PRE/PR portant création d’un Comité national de suivi et d’évaluation de l’Action Gouvernementale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0269-pre-pr-portant-creation-dun-comite-national-de-suivi-et-devaluation-de-laction-gouvernementale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0269-pre-pr-portant-creation-dun-comite-national-de-suivi-et-devaluation-de-laction-gouvernementale/>
 
 En vigueur : 2009-11-30 (date du Journal officiel qui le publie).
 

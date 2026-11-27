@@ -1,6 +1,6 @@
 # Arrêté n° 2016-099/PR/MI fixant le nombre et l’implantation des bureaux de vote pour les Elections Présidentielles du 08 avril 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-099-pr-mi-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-presidentielles-du-08-avril-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-099-pr-mi-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-presidentielles-du-08-avril-2016/>
 
 En vigueur : 2016-02-15 (date du Journal officiel qui le publie).
 

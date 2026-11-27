@@ -1,6 +1,6 @@
 # Loi n° 60-1374 1e l’approbation de l’accord instituant l’Association internationale de développement; 2e la participation financière de la France à cette association (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1961 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-60-1374-1e-lapprobation-de-laccord-instituant-lassociation-internationale-de-developpement-2e-la-participation-financiere-de-la-france-a-cette-association-1/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1961 · <https://www.journalofficiel.dj/texte-juridique/loi-n-60-1374-1e-lapprobation-de-laccord-instituant-lassociation-internationale-de-developpement-2e-la-participation-financiere-de-la-france-a-cette-association-1/>
 
 En vigueur : 1961-11-30 (date du Journal officiel qui le publie).
 

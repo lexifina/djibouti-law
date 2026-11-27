@@ -1,6 +1,6 @@
 # Décret n° 10-347-1925 03 aout 1924
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 347 du 31/10/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-347-1925-03-aout-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 347 du 31/10/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-347-1925-03-aout-1924/>
 
 En vigueur : 1925-10-31 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ René RENOULT,
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

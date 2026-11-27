@@ -1,6 +1,6 @@
 # Loi n° 17-247-1917 ajournant les opérations de révision des listes électorales pour 1913 et tes élections législatives, départementales, communales et consulaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 247 du 31/05/1917 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-17-247-1917-ajournant-les-operations-de-revision-des-listes-electorales-pour-1913-et-tes-elections-legislatives-departementales-communales-et-consulaires/>
+Loi · Journal officiel de la République de Djibouti, n° 247 du 31/05/1917 · <https://www.journalofficiel.dj/texte-juridique/loi-n-17-247-1917-ajournant-les-operations-de-revision-des-listes-electorales-pour-1913-et-tes-elections-legislatives-departementales-communales-et-consulaires/>
 
 En vigueur : 1917-05-31 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ MALVY.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

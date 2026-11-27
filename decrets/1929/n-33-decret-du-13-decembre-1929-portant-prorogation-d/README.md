@@ -1,6 +1,6 @@
 # Décret n° n°33 Décret du 13 décembre 1929 portant prorogation du privilège de la Banque de l’Indochine
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 397 du 31/12/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n33-decret-du-13-decembre-1929-portant-prorogation-du-privilege-de-la-banque-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 397 du 31/12/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n33-decret-du-13-decembre-1929-portant-prorogation-du-privilege-de-la-banque-de-lindochine/>
 
 En vigueur : 1929-12-31 (date du Journal officiel qui le publie).
 

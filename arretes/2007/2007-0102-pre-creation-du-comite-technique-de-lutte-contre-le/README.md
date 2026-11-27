@@ -1,8 +1,8 @@
 # Arrêté n° 2007-0102/PRE portant création du Comité Technique de Lutte contre le Terrorisme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0102-pre-portant-creation-du-comite-technique-de-lutte-contre-le-terrorisme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0102-pre-portant-creation-du-comite-technique-de-lutte-contre-le-terrorisme/>
 
-En vigueur : 2007-02-04 (date fixÃ©e par le texte).
+En vigueur : 2007-02-04 (date fixée par le texte).
 
 ## Visas
 

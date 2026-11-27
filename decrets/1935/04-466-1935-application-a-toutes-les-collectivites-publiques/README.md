@@ -1,6 +1,6 @@
 # Décret n° 04-466-1935 Application à toutes les collectivités publiques secondaires ou colonies des mesures de défense du franc.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 466 du 30/09/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-466-1935-application-a-toutes-les-collectivites-publiques-secondaires-ou-colonies-des-mesures-de-defense-du-franc/>
+Décret · Journal officiel de la République de Djibouti, n° 466 du 30/09/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-466-1935-application-a-toutes-les-collectivites-publiques-secondaires-ou-colonies-des-mesures-de-defense-du-franc/>
 
 En vigueur : 1935-09-30 (date du Journal officiel qui le publie).
 

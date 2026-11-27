@@ -1,6 +1,6 @@
 # Décret n° 2009-092/PR/MET réorganisant les conditions en vue de l’obtention des permis de conduire en mer des bateaux de plaisance à moteur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-092-pr-met-reorganisant-les-conditions-en-vue-de-lobtention-des-permis-de-conduire-en-mer-des-bateaux-de-plaisance-a-moteur/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-092-pr-met-reorganisant-les-conditions-en-vue-de-lobtention-des-permis-de-conduire-en-mer-des-bateaux-de-plaisance-a-moteur/>
 
 En vigueur : 2009-05-14 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Ordonnance n° 81-033/PR donnant effet sur le Territoire de la République de Djibouti à certaines dispositions de l’Accord portant création du Fonds Africain de Développement.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-033-pr-donnant-effet-sur-le-territoire-de-la-republique-de-djibouti-a-certaines-dispositions-de-laccord-portant-creation-du-fonds-africain-de-developpement/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-033-pr-donnant-effet-sur-le-territoire-de-la-republique-de-djibouti-a-certaines-dispositions-de-laccord-portant-creation-du-fonds-africain-de-developpement/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ LE CONSEIL DES MINISTRES ENTENDU EN SA SÉANCE DU MARS 1981.
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

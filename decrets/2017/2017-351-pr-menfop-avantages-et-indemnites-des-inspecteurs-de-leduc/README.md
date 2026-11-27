@@ -1,6 +1,6 @@
 # Décret n° 2017-351/PR/MENFOP fixant les avantages et indemnités des Inspecteurs de l’Education Nationale et de la Formation Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-351-pr-menfop-fixant-les-avantages-et-indemnites-des-inspecteurs-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-351-pr-menfop-fixant-les-avantages-et-indemnites-des-inspecteurs-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
 En vigueur : 2017-10-31 (date du Journal officiel qui le publie).
 

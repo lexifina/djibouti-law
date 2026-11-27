@@ -1,6 +1,6 @@
 # Décret n° 81-072/PR/MI rendant exécutoire la délibération n° 4/81 du 6 Mai 1981 du Conseil d’Administration de l’Office des Postes et Télécommunications portant Approbation de la deuxième décision modificative du Budget du compte financier de l’office pour l’exercice 1981.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-072-pr-mi-rendant-executoire-la-deliberation-n4-81-du-6-mai-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-deuxieme-de/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-072-pr-mi-rendant-executoire-la-deliberation-n4-81-du-6-mai-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-deuxieme-de/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

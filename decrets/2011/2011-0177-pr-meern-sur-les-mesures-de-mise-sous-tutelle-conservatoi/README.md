@@ -1,6 +1,6 @@
 # Décret n° 2011-0177/PR/MEERN portant sur les mesures de mise sous tutelle conservatoires prises par le Gouvernement conformément au décret n° 2011-077/PRE/MEERN à l’encontre de la Socièté Lybia Oil Djibouti sont caduques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0177-pr-meern-portant-sur-les-mesures-de-mise-sous-tutelle-conservatoires-prises-par-le-gouvernement-conformement-au-decret-n2011-077-pre-meern-a-lencontre-de-la-soci/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0177-pr-meern-portant-sur-les-mesures-de-mise-sous-tutelle-conservatoires-prises-par-le-gouvernement-conformement-au-decret-n2011-077-pre-meern-a-lencontre-de-la-soci/>
 
 En vigueur : 2011-10-15 (date du Journal officiel qui le publie).
 

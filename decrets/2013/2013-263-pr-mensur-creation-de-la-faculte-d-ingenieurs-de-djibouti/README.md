@@ -1,8 +1,8 @@
 # Décret n° 2013-263/PR/MENSUR portant création de la Faculté d’Ingénieurs de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-263-pr-mensur-portant-creation-de-la-faculte-dingenieurs-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-263-pr-mensur-portant-creation-de-la-faculte-dingenieurs-de-djibouti/>
 
-En vigueur : 2013-10-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-10-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 24-468-1935 réduisant, dans diverses colonies, de 100 les loyers des locaux à usage commercial, industriel ou artisanal
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-468-1935-reduisant-dans-diverses-colonies-de-100-les-loyers-des-locaux-a-usage-commercial-industriel-ou-artisanal/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-468-1935-reduisant-dans-diverses-colonies-de-100-les-loyers-des-locaux-a-usage-commercial-industriel-ou-artisanal/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

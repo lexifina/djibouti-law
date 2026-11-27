@@ -1,6 +1,6 @@
 # Décret n° 82-053/PR/DEF portant protection du secret dans les forces Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-053-pr-def-portant-protection-du-secret-dans-les-forces-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-053-pr-def-portant-protection-du-secret-dans-les-forces-armees/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ LE Conseil des Ministres entendu en sa séprce du 8 juin 1982.
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 215/AN/82 portant ratification de l’Accord de base entre la République de Djibouti et le Fonds d’Équipement des Nations Unies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-82-portant-ratification-de-laccord-de-base-entre-la-rpublique-de-djibouti-et-le-fonds-dquipement-des-nations-unies/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-82-portant-ratification-de-laccord-de-base-entre-la-rpublique-de-djibouti-et-le-fonds-dquipement-des-nations-unies/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

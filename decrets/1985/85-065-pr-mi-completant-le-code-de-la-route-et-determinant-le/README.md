@@ -1,6 +1,6 @@
 # Décret n° 85-065/PR/MI complétant le Code de la Route et déterminant les conditions dans lesquelles doivent être demandés, établis et délivrés les permis de conduire et fixant la liste des incapacités physiques incompatibles avec l’obtention du permis de conduire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-065-pr-mi-completant-le-code-de-la-route-et-determinant-les-conditions-dans-lesquelles-doivent-etre-demandes-etablis-et-delivres-les-permis-de-conduire-et-fixant-la-liste-des-incapac/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-065-pr-mi-completant-le-code-de-la-route-et-determinant-les-conditions-dans-lesquelles-doivent-etre-demandes-etablis-et-delivres-les-permis-de-conduire-et-fixant-la-liste-des-incapac/>
 
 En vigueur : 1985-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0030/PR/MEFPCP portant exonération des surtaxes des produits pétroliers destinés à la production de l’Énergie Électrique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0030-pr-mefpcp-portant-exoneration-des-surtaxes-des-produits-petroliers-destines-a-la-production-de-lenergie-electrique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0030-pr-mefpcp-portant-exoneration-des-surtaxes-des-produits-petroliers-destines-a-la-production-de-lenergie-electrique/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

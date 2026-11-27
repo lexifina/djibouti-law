@@ -1,6 +1,6 @@
 # Décret n° 12-409-1930 Comités coloniaux d’anciens combattants.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-409-1930-comites-coloniaux-danciens-combattants/>
+Décret · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-409-1930-comites-coloniaux-danciens-combattants/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 

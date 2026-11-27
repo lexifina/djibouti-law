@@ -1,6 +1,6 @@
 # Décret n° n°86 Décret du 2 janvier 1921 relatif aux frais de déplacement du personnel du contrôle du chemin franco-éthiopien
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 410 du 31/01/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n86-decret-du-2-janvier-1921-relatif-aux-frais-de-deplacement-du-personnel-du-controle-du-chemin-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 410 du 31/01/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n86-decret-du-2-janvier-1921-relatif-aux-frais-de-deplacement-du-personnel-du-controle-du-chemin-franco-ethiopien/>
 
 En vigueur : 1931-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 47-1269 portant abrogation dans le territoire de la Côte française des Somalis du décret du 18 août 1941 reatif aux opérations immobilières.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1269-portant-abrogation-dans-le-territoire-de-la-cote-francaise-des-somalis-du-decret-du-18-aout-1941-reatif-aux-operations-immobilieres/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1269-portant-abrogation-dans-le-territoire-de-la-cote-francaise-des-somalis-du-decret-du-18-aout-1941-reatif-aux-operations-immobilieres/>
 
 En vigueur : 1947-08-31 (date du Journal officiel qui le publie).
 

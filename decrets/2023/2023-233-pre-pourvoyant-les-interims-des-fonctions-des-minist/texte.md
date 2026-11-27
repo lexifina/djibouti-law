@@ -1,1 +1,0 @@
-Par décret n°2023-233/PRE, du Président de la République, Chef du Gouvernement, en date du 02 août 2023, pendant la durée de l’absence de S.E.M. MOHAMED WARSAMA DIRIEH, l’intérim des fonctions du Ministre du Commerce et du Tourisme sera assuré par S.E.M. KASSIM HAROUN ALI, Ministre Délégué chargé de la Décentralisation cumulativement avec ses fonctions.

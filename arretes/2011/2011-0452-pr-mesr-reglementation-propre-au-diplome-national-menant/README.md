@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0452/PR/MESR portant réglementation propre au diplôme national menant au grade de Master en “Management, Commerce et Développement” / “Management, Trade and Development”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0452-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-de-master-en-management-commerce-et-developpement-management-trade-and/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0452-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-de-master-en-management-commerce-et-developpement-management-trade-and/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 06-228-1915 approuvant le décret du 22 Août 1914, qui à autorisé les Gouverneurs généraux, Gouverneurs des colonies à suspendre les droits applicables aux denrées d’alimentation et de première nécessité à l’entrée et à la sortie de leurs colonies respectives.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 228 du 31/10/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-06-228-1915-approuvant-le-decret-du-22-aout-1914-qui-a-autorise-les-gouverneurs-generaux-gouverneurs-des-colonies-a-suspendre-les-droits-applicables-aux-denrees-dalimentation-et-de-pre/>
+Loi · Journal officiel de la République de Djibouti, n° 228 du 31/10/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-06-228-1915-approuvant-le-decret-du-22-aout-1914-qui-a-autorise-les-gouverneurs-generaux-gouverneurs-des-colonies-a-suspendre-les-droits-applicables-aux-denrees-dalimentation-et-de-pre/>
 
 En vigueur : 1915-10-31 (date du Journal officiel qui le publie).
 

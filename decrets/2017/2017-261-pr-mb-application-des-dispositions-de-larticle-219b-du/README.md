@@ -1,6 +1,6 @@
 # Décret n° 2017-261/PR/MB portant application des dispositions de l’Article 219B du Code Générales des Impôts relatives à l’installation obligatoire des caisses enregistreuses.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-261-pr-mb-portant-application-des-dispositions-de-larticle-219b-du-code-generales-des-impots-relatives-a-linstallation-obligatoire-des-caisses-enregistreuses/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-261-pr-mb-portant-application-des-dispositions-de-larticle-219b-du-code-generales-des-impots-relatives-a-linstallation-obligatoire-des-caisses-enregistreuses/>
 
 En vigueur : 2017-07-31 (date du Journal officiel qui le publie).
 

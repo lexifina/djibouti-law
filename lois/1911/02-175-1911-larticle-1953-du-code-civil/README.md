@@ -1,6 +1,6 @@
 # Loi n° 02-175-1911 modifiant l’article 1953 du Code Civil
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 175 du 01/06/1911 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-175-1911-modifiant-larticle-1953-du-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 175 du 01/06/1911 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-175-1911-modifiant-larticle-1953-du-code-civil/>
 
 En vigueur : 1911-06-01 (date du Journal officiel qui le publie).
 

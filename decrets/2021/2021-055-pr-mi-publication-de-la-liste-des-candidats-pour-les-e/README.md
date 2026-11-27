@@ -1,6 +1,6 @@
 # Décret n° 2021-055/PR/MI portant publication de la liste des candidats pour les Elections Présidentielles du 09 avril 2021.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 07/04/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-055-pr-mi-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-09-avril-2021/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 07/04/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-055-pr-mi-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-09-avril-2021/>
 
 En vigueur : 2021-04-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

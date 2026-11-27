@@ -1,6 +1,6 @@
 # Décret n° 2016-320/PR/MTRA portant Organisation de la Caisse Nationale de Sécurité Sociale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-320-pr-mtra-portant-organisation-de-la-caisse-nationale-de-securite-sociale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-320-pr-mtra-portant-organisation-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

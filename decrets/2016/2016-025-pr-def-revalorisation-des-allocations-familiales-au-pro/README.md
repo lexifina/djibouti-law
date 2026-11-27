@@ -1,6 +1,6 @@
 # Décret n° 2016-025/PR/DEF portant revalorisation des allocations familiales au profit des personnels militaires issus des institutions de la Défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-025-pr-def-portant-revalorisation-des-allocations-familiales-au-profit-des-personnels-militaires-issus-des-institutions-de-la-defense/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-025-pr-def-portant-revalorisation-des-allocations-familiales-au-profit-des-personnels-militaires-issus-des-institutions-de-la-defense/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

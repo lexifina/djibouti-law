@@ -1,6 +1,6 @@
 # Décret n° 2011-0213/PR/MI portant création de la Direction des Elections.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0213-pr-mi-portant-creation-de-la-direction-des-elections/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0213-pr-mi-portant-creation-de-la-direction-des-elections/>
 
 En vigueur : 2011-11-30 (date du Journal officiel qui le publie).
 

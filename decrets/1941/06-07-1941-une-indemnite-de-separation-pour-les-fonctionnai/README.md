@@ -1,6 +1,6 @@
 # Décret n° 06/07/1941 instituant une indemnité de séparation pour les fonctionnaires employés et agents en service à la Côte francaise des Somalis dont la famille a dû quitter la colonie et réside actuellement à Madagascar, en Syrie ou au Liban.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-07-1941-instituant-une-indemnite-de-separation-pour-les-fonctionnaires-employes-et-agents-en-service-a-la-cote-francaise-des-somalis-dont-la-famille-a-du-quitter-la-colonie-et-resid/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-07-1941-instituant-une-indemnite-de-separation-pour-les-fonctionnaires-employes-et-agents-en-service-a-la-cote-francaise-des-somalis-dont-la-famille-a-du-quitter-la-colonie-et-resid/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

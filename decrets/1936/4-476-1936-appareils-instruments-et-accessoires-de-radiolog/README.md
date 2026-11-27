@@ -1,6 +1,6 @@
 # Décret n° 4-476-1936 Appareils, instruments et accessoires de radiologie, d’électrothérapie, de chirurgie ou de dentisteries écrans, renforçateurs; produits à usage dentaire; modèles d’enseignement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-476-1936-appareils-instruments-et-accessoires-de-radiologie-delectrotherapie-de-chirurgie-ou-de-dentisteries-ecrans-renforcateurs-produits-a-usage-dentaire-modeles-d/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-476-1936-appareils-instruments-et-accessoires-de-radiologie-delectrotherapie-de-chirurgie-ou-de-dentisteries-ecrans-renforcateurs-produits-a-usage-dentaire-modeles-d/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

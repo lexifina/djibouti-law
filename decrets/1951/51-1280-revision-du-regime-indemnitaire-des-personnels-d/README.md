@@ -1,6 +1,6 @@
 # Décret n° 51-1280 portant révision du régime indemnitaire des personnels des cadres régis par le décret n » 50-1348 du 27 octobre 1950 autres que ceux, visés à l’article de la loi n » 48-488 du 21. mare 1948.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1280-portant-revision-du-regime-indemnitaire-des-personnels-des-cadres-regis-par-le-decret-n-50-1348-du-27-octobre-1950-autres-que-ceux-vises-a-larticle-de-la-loi-n-48-488-du/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1280-portant-revision-du-regime-indemnitaire-des-personnels-des-cadres-regis-par-le-decret-n-50-1348-du-27-octobre-1950-autres-que-ceux-vises-a-larticle-de-la-loi-n-48-488-du/>
 
 En vigueur : 1952-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0137/PR/MHUE portant exonération du projet de construction de 200 logements pour les familles militaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0137-pr-mhue-portant-exoneration-du-projet-de-construction-de-200-logements-pour-les-familles-militaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0137-pr-mhue-portant-exoneration-du-projet-de-construction-de-200-logements-pour-les-familles-militaires/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 

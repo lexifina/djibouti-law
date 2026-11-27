@@ -1,6 +1,6 @@
 # Décret n° 34-468-1935 Exécution de la proposition adoptée le 19 octobre 1935, par le Comité de coordination des mesures à prendre en application de l’article 16 du pacte de la Société des nations (proposition n° 3).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-34-468-1935-execution-de-la-proposition-adoptee-le-19-octobre-1935-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-pacte-de-la-societe-des-natio/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-34-468-1935-execution-de-la-proposition-adoptee-le-19-octobre-1935-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-pacte-de-la-societe-des-natio/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

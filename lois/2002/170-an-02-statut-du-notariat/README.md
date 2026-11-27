@@ -1,6 +1,6 @@
 # Loi n° 170/AN/02/4ème L portant Statut du Notariat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-02-4eme-l-portant-statut-du-notariat/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-02-4eme-l-portant-statut-du-notariat/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

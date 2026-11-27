@@ -1,6 +1,6 @@
 # Rectificatif n° 94-0192/PR/MEN Rectificatif à la décision n° 93-1075PRS/MEN.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1994 Â· <https://www.journalofficiel.dj/texte-juridique/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 4 du 28/02/1994 · <https://www.journalofficiel.dj/texte-juridique/>
 
 En vigueur : 1994-02-28 (date du Journal officiel qui le publie).
 

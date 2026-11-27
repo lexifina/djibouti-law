@@ -1,6 +1,6 @@
 # Décret n° 2001-0012/PR/MEFPCP portant règlement général sur la comptabilité publique
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0012-pr-mefpcp-portant-reglement-general-sur-la-comptabilite-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0012-pr-mefpcp-portant-reglement-general-sur-la-comptabilite-publique/>
 
 En vigueur : 2001-01-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 DECRETE
 TITRE I
 DÉTACHEMENT, DISPONIBILITÉ, HORS CADRES

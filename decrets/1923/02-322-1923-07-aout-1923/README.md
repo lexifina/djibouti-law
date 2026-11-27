@@ -1,6 +1,6 @@
 # Décret n° 02-322-1923 07 aout 1923
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 322 du 30/09/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-322-1923-07-aout-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 322 du 30/09/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-322-1923-07-aout-1923/>
 
 En vigueur : 1923-09-30 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ A. SARRAUT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 97/AN/10/6ème L portant ratification de la Convention de l’Union Africaine sur la protection et l’assistance aux personnes déplacées en Afrique (Convention de Kampala).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-10-6eme-l-portant-ratification-de-la-convention-de-lunion-africaine-sur-la-protection-et-lassistance-aux-personnes-deplacees-en-afrique-convention-de-kampala/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-10-6eme-l-portant-ratification-de-la-convention-de-lunion-africaine-sur-la-protection-et-lassistance-aux-personnes-deplacees-en-afrique-convention-de-kampala/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

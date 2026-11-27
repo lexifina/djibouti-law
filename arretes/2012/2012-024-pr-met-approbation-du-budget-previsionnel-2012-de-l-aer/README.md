@@ -1,6 +1,6 @@
 # Arrêté n° 2012-024/PR/MET portant approbation du budget prévisionnel 2012 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-024-pr-met-portant-approbation-du-budget-previsionnel-2012-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-024-pr-met-portant-approbation-du-budget-previsionnel-2012-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

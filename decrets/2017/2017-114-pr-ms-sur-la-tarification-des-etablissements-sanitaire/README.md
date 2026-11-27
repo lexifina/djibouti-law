@@ -1,6 +1,6 @@
 # Décret n° 2017-114/PR/MS portant sur la Tarification des Etablissements sanitaires du Ministère de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-114-pr-ms-portant-sur-la-tarification-des-etablissements-sanitaires-du-ministere-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-114-pr-ms-portant-sur-la-tarification-des-etablissements-sanitaires-du-ministere-de-la-sante/>
 
 En vigueur : 2017-03-30 (date du Journal officiel qui le publie).
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

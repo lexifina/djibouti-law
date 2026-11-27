@@ -1,6 +1,6 @@
 # Loi n° 76/AN/10/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Arabe pour le Développement Economique et Social (FADES).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-fades/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

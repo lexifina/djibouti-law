@@ -1,6 +1,6 @@
 # Loi n° 63/AN/10/6ème L portant Réforme de la Cour Suprême.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-10-6eme-l-portant-reforme-de-la-cour-supreme/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-10-6eme-l-portant-reforme-de-la-cour-supreme/>
 
 En vigueur : 2010-11-30 (date du Journal officiel qui le publie).
 

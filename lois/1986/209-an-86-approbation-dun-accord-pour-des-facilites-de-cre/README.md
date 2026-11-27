@@ -1,6 +1,6 @@
 # Loi n° 209/AN/86/1ère L portant approbation d’un accord pour des facilités de crédits entre la Banque centrale de Jordanie et la Banque centrale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-86-1ere-l-portant-approbation-dun-accord-pour-des-facilites-de-credits-entre-la-banque-centrale-de-jordanie-et-la-banque-centrale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-86-1ere-l-portant-approbation-dun-accord-pour-des-facilites-de-credits-entre-la-banque-centrale-de-jordanie-et-la-banque-centrale-de-djibouti/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

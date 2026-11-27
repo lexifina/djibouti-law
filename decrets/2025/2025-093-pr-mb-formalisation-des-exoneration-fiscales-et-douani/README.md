@@ -1,8 +1,8 @@
 # Décret n° 2025-093/PR/MB Portant formalisation des exonération fiscales et douanières accordées à la société Grand Bara Solar SAS dans le cadre du projet de construction et d’exploitation d’une centrale solaire à Grand Bara.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-093-pr-mb-portant-formalisation-des-exoneration-fiscales-et-douanieres-accordees-a-la-societe-grand-bara-solar-sas-dans-le-cadre-du-projet-de-construction-et-dexploitation-dun/>
+Décret · Journal officiel de la République de Djibouti, n° 08 du 30/04/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-093-pr-mb-portant-formalisation-des-exoneration-fiscales-et-douanieres-accordees-a-la-societe-grand-bara-solar-sas-dans-le-cadre-du-projet-de-construction-et-dexploitation-dun/>
 
-En vigueur : 2025-04-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-04-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 4-343-1925 Classement de stations thermales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 360 du 30/11/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-343-1925-classement-de-stations-thermales/>
+Décret · Journal officiel de la République de Djibouti, n° 360 du 30/11/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-343-1925-classement-de-stations-thermales/>
 
 En vigueur : 1926-11-30 (date du Journal officiel qui le publie).
 

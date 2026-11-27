@@ -1,8 +1,8 @@
 # Décret n° 2008-0189/PR/MENESUP modifiant le décret n° 2008-0028/PR/MENESUP fixant le statut particulier du Centre de Recherche, d’Information et de Production de l’Education Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0189-pr-menesup-modifiant-le-decret-n2008-0028-pr-menesup-fixant-le-statut-particulier-du-centre-de-recherche-dinformation-et-de-production-de-leducation-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0189-pr-menesup-modifiant-le-decret-n2008-0028-pr-menesup-fixant-le-statut-particulier-du-centre-de-recherche-dinformation-et-de-production-de-leducation-nationale/>
 
-En vigueur : 2008-07-29 (date fixÃ©e par le texte).
+En vigueur : 2008-07-29 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Décret n° 66-749 portant règlement de discipline générale dans les armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/11/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-749-portant-reglement-de-discipline-generale-dans-les-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/11/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-749-portant-reglement-de-discipline-generale-dans-les-armees/>
 
-En vigueur : 1967-01-01 (date fixÃ©e par le texte).
+En vigueur : 1967-01-01 (date fixée par le texte).
 
 ## Signature
 
@@ -22,4 +22,4 @@ PIERRE MESSMER.
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

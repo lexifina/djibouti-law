@@ -1,6 +1,6 @@
 # Décret n° 85-005/PR/PM fixant le montant de la taxe due pour l’établissement, la délivrance et le renouvellement du rôle d’équipage ou du permis de circulation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-005-pr-pm-fixant-le-montant-de-la-taxe-due-pour-letablissement-la-delivrance-et-le-renouvellement-du-role-dequipage-ou-du-permis-de-circulation/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-005-pr-pm-fixant-le-montant-de-la-taxe-due-pour-letablissement-la-delivrance-et-le-renouvellement-du-role-dequipage-ou-du-permis-de-circulation/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

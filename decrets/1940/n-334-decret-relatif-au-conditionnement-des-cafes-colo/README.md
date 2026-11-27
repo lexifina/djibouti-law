@@ -1,6 +1,6 @@
 # Décret n° n° 334 Le décret relatif au conditionnement des cafés coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-334-le-decret-relatif-au-conditionnement-des-cafes-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-334-le-decret-relatif-au-conditionnement-des-cafes-coloniaux/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

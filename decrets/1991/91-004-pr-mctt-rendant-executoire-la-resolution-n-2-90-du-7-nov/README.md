@@ -1,6 +1,6 @@
 # Décret n° 91-004/PR/MCTT rendant exécutoire la Résolution n° 2/90 du 7 novembre 1990 du Conseil d’Administration de Djibouti et portant approbation du Budget définitif de l’Exercice 1989 de l’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-004-pr-mctt-rendant-executoire-la-resolution-n2-90-du-7-novembre-1990-du-conseil-dadministration-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexe/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-004-pr-mctt-rendant-executoire-la-resolution-n2-90-du-7-novembre-1990-du-conseil-dadministration-de-djibouti-et-portant-approbation-du-budget-definitif-de-lexe/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

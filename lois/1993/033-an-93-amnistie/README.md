@@ -1,6 +1,6 @@
 # Loi n° 33/AN/93/3eme L portant amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 14/10/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-93-3eme-l-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 14/10/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-93-3eme-l-portant-amnistie/>
 
 En vigueur : 1993-10-14 (date du Journal officiel qui le publie).
 

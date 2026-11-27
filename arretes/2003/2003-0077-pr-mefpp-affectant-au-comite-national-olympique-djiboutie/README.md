@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0077/PR/MEFPP affectant au Comité National Olympique Djiboutien (CNOD), une parcelle de terrain sise aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0077-pr-mefpp-affectant-au-comite-national-olympique-djiboutien-cnod-une-parcelle-de-terrain-sise-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0077-pr-mefpp-affectant-au-comite-national-olympique-djiboutien-cnod-une-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 2003-02-15 (date du Journal officiel qui le publie).
 

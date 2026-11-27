@@ -1,6 +1,6 @@
 # Décret n° 2010-0041/PR/MEFPCP portant régime juridique applicable aux agents comptables des entreprises et établissements publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0041-pr-mefpcp-portant-regime-juridique-applicable-aux-agents-comptables-des-entreprises-et-etablissements-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0041-pr-mefpcp-portant-regime-juridique-applicable-aux-agents-comptables-des-entreprises-et-etablissements-publics/>
 
 En vigueur : 2010-03-31 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ Le Conseil des Ministres entendu en sa séance du 09 Mars 2010.
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

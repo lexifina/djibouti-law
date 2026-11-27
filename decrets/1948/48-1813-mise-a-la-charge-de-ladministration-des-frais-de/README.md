@@ -1,6 +1,6 @@
 # Décret n° 48-1813 portant mise à la charge de l’administration des frais de transit el de magasinage des bagages des fonctionnaires el agents affectés dans les départements d’outre-mer ou servant dans les territoires relevant du ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1813-portant-mise-a-la-charge-de-ladministration-des-frais-de-transit-el-de-magasinage-des-bagages-des-fonctionnaires-el-agents-affectes-dans-les-departements-doutre-mer-ou-serv/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1813-portant-mise-a-la-charge-de-ladministration-des-frais-de-transit-el-de-magasinage-des-bagages-des-fonctionnaires-el-agents-affectes-dans-les-departements-doutre-mer-ou-serv/>
 
 En vigueur : 1949-01-31 (date du Journal officiel qui le publie).
 

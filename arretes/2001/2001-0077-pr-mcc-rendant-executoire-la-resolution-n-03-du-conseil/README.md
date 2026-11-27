@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0077/PR/MCC rendant exécutoire la résolution n° 03 du Conseil d’Administration de l’Imprimerie Nationale de Djibouti, portant approbation du Projet du Budget Prévisionnel 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0077-pr-mcc-rendant-executoire-la-resolution-n03-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-pre/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0077-pr-mcc-rendant-executoire-la-resolution-n03-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-pre/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

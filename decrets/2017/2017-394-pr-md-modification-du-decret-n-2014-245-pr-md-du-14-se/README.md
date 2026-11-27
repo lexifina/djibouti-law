@@ -1,8 +1,8 @@
 # Décret n° 2017-394/PR/MD portant modification du décret n° 2014-245/PR/MD du 14 septembre 2014 portant création, organisation et fonctionnement de la Direction Centrale du Service de Santé des Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-394-pr-md-portant-modification-du-decret-n2014-245-pr-md-du-14-septembre-2014-portant-creation-organisation-et-fonctionnement-de-la-direction-centrale-du-service-de-sante-des/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-394-pr-md-portant-modification-du-decret-n2014-245-pr-md-du-14-septembre-2014-portant-creation-organisation-et-fonctionnement-de-la-direction-centrale-du-service-de-sante-des/>
 
-En vigueur : 2017-11-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-11-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -26,4 +26,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

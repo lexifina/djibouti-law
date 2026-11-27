@@ -1,6 +1,6 @@
 # Décret n° 85-010/PR/MCTT rendant exécutoire la Délibération n° 2/84 du 9 décembre 1984 du Conseil d’Administration de l’Office National d’Approvisionnement et de Commercialisation portant approbation du compte financier de l’O.N.A.C. pour l’exercice 1983.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-010-pr-mctt-rendant-executoire-la-deliberation-n-2-84-du-9-decembre-1984-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-portant/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-010-pr-mctt-rendant-executoire-la-deliberation-n-2-84-du-9-decembre-1984-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-portant/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

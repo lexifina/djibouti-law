@@ -1,6 +1,6 @@
 # Loi n° 15-442-1933 Loi portant approbation de la convention radiotélégraphique internationale et de ses Annexes, arrêtées par la Conférence internationale de Washington le 25 novembre 1927.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-15-442-1933-loi-portant-approbation-de-la-convention-radiotelegraphique-internationale-et-de-ses-annexes-arretees-par-la-conference-internationale-de-washington-le-25-novembre-1927/>
+Loi · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/loi-n-15-442-1933-loi-portant-approbation-de-la-convention-radiotelegraphique-internationale-et-de-ses-annexes-arretees-par-la-conference-internationale-de-washington-le-25-novembre-1927/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 
@@ -34,5 +34,5 @@ LAURENXT-EYKNAC.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

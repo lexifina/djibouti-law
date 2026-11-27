@@ -1,6 +1,6 @@
 # Loi n° 64/AN/94/3e L modifiant la loi no202/AN/92 portant réorganisation du Ministère de l’Industrie, de l’Énergie et des Mines.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 15/12/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-94-3e-l-modifiant-la-loi-no202-an-92-portant-reorganisation-du-ministere-de-lindustrie-de-lenergie-et-des-mines/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 15/12/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-94-3e-l-modifiant-la-loi-no202-an-92-portant-reorganisation-du-ministere-de-lindustrie-de-lenergie-et-des-mines/>
 
 En vigueur : 1994-12-15 (date du Journal officiel qui le publie).
 

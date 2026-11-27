@@ -1,6 +1,6 @@
 # Décret n° 2022-167/PR/MEFI portant Composition et Fonctionnement de la Commission des Participations de l’Etat pour la cession des parts du capital de Djibouti Télécom SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-167-pr-mefi-portant-composition-et-fonctionnement-de-la-commission-des-participations-de-letat-pour-la-cession-des-parts-du-capital-de-djibouti-telecom-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/07/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-167-pr-mefi-portant-composition-et-fonctionnement-de-la-commission-des-participations-de-letat-pour-la-cession-des-parts-du-capital-de-djibouti-telecom-sa/>
 
 En vigueur : 2022-07-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

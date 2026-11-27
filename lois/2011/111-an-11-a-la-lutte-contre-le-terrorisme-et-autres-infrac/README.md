@@ -1,8 +1,8 @@
 # Loi n° 111/AN/11/6ème L relative à la lutte contre le terrorisme et autres infractions graves.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-11-6eme-l-relative-a-la-lutte-contre-le-terrorisme-et-autres-infractions-graves/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-11-6eme-l-relative-a-la-lutte-contre-le-terrorisme-et-autres-infractions-graves/>
 
-En vigueur : 2011-05-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-05-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

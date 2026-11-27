@@ -1,6 +1,6 @@
 # Loi n° 151/AN/97 portant création et attributions de l’Inspection Générale des Finances du Ministère des Finances et de l’Économie Nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-97-portant-creation-et-attributions-de-linspection-generale-des-finances-du-ministere-des-finances-et-de-leconomie-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-97-portant-creation-et-attributions-de-linspection-generale-des-finances-du-ministere-des-finances-et-de-leconomie-nationale/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

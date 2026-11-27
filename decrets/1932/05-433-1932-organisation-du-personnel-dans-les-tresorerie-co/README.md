@@ -1,6 +1,6 @@
 # Décret n° 05-433-1932 organisation du personnel dans les trésorerie coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 433 du 31/12/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-433-1932-organisation-du-personnel-dans-les-tresorerie-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 433 du 31/12/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-433-1932-organisation-du-personnel-dans-les-tresorerie-coloniales/>
 
 En vigueur : 1932-12-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Albert SARRAUT.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 72-1063 fixant là date de clôture de la révision des listes électorales pour Pannée 1973 dans les territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 10/12/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1063-fixant-la-date-de-cloture-de-la-revision-des-listes-electorales-pour-pannee-1973-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 10/12/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1063-fixant-la-date-de-cloture-de-la-revision-des-listes-electorales-pour-pannee-1973-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1972-12-10 (date du Journal officiel qui le publie).
 

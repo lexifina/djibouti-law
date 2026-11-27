@@ -1,6 +1,6 @@
 # Arrêté n° 2020-011/PR/MEFI portant adoption du Budget Prévisionnelle de l’exercice 2020 du Fonds de garantie partielle des Crédits de Djibouti (FGPCD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-011-pr-mefi-portant-adoption-du-budget-previsionnelle-de-lexercice-2020-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-011-pr-mefi-portant-adoption-du-budget-previsionnelle-de-lexercice-2020-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

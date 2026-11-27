@@ -1,6 +1,6 @@
 # Décret n° 67-450-1934 Bénéfice du tarif minimum français à certaines marchandises d’origine brésilienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-450-1934-benefice-du-tarif-minimum-francais-a-certaines-marchandises-dorigine-bresilienne/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-450-1934-benefice-du-tarif-minimum-francais-a-certaines-marchandises-dorigine-bresilienne/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

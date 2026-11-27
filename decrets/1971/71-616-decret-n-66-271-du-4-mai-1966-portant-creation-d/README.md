@@ -1,6 +1,6 @@
 # Décret n° 71-616 modifiant le décret n° 66-271 du 4 mai 1966 portant création d’üne caisse d’aide à l’équipement des collectivités locales (JO.R.F. du 25 juillet 1971, D: 7365)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 25/08/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-616-modifiant-le-decret-n-66-271-du-4-mai-1966-portant-creation-dune-caisse-daide-a-lequipement-des-collectivites-locales-jo-r-f-du-25-juillet-1971-d/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 25/08/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-616-modifiant-le-decret-n-66-271-du-4-mai-1966-portant-creation-dune-caisse-daide-a-lequipement-des-collectivites-locales-jo-r-f-du-25-juillet-1971-d/>
 
 En vigueur : 1971-08-25 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ Jean TAITTINGER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Décret n° 78-090/PR/DEF portant modalité d’attribution du certificat de bonne conduite.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-090-pr-def-portant-modalite-dattribution-du-certificat-de-bonne-conduite/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-090-pr-def-portant-modalite-dattribution-du-certificat-de-bonne-conduite/>
 
 En vigueur : 1979-04-24 (date du Journal officiel qui le publie).
 

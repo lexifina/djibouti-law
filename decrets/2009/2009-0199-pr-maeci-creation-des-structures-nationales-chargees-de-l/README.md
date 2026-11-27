@@ -1,8 +1,8 @@
 # Décret n° 2009-0199/PR/MAECI portant création des Structures Nationales chargées de la mise en oeuvre du Mécanisme Africain d’Evaluation par les Pairs (MAEP).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0199-pr-maeci-portant-creation-des-structures-nationales-chargees-de-la-mise-en-oeuvre-du-mecanisme-africain-devaluation-par-les-pairs-maep/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0199-pr-maeci-portant-creation-des-structures-nationales-chargees-de-la-mise-en-oeuvre-du-mecanisme-africain-devaluation-par-les-pairs-maep/>
 
-En vigueur : 2009-08-30 (date fixÃ©e par le texte).
+En vigueur : 2009-08-30 (date fixée par le texte).
 
 ## Visas
 
@@ -38,4 +38,4 @@ SUR Proposition du Ministre des Affaires Etrangères et de la Coopération Inter
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

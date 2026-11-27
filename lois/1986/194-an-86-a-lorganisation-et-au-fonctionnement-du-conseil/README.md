@@ -1,6 +1,6 @@
 # Loi n° 194/AN/86/1ère L relative à l’organisation et au fonctionnement du conseil national des Professions Médicales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/02/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-86-1ere-l-relative-a-lorganisation-et-au-fonctionnement-du-conseil-national-des-professions-medicales/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/02/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-86-1ere-l-relative-a-lorganisation-et-au-fonctionnement-du-conseil-national-des-professions-medicales/>
 
 En vigueur : 1986-02-16 (date du Journal officiel qui le publie).
 

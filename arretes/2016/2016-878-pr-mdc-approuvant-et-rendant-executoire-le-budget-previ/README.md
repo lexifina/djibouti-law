@@ -1,6 +1,6 @@
 # Arrêté n° 2016-878/PR/MDC approuvant et rendant exécutoire le Budget Prévisionnel 2017 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-878-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2017-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-878-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2017-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

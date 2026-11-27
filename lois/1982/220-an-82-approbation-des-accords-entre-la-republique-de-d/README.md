@@ -1,6 +1,6 @@
 # Loi n° 220/AN/82 portant approbation des Accords entre la République de Djibouti et les Républiques d’Algérie, du Yémen, de Madagascar et de Corée du Sud.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-82-portant-approbation-des-accords-entre-la-republique-de-djibouti-et-les-republiques-dalgerie-du-yemen-de-madagascar-et-de-coree-du-sud/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-82-portant-approbation-des-accords-entre-la-republique-de-djibouti-et-les-republiques-dalgerie-du-yemen-de-madagascar-et-de-coree-du-sud/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

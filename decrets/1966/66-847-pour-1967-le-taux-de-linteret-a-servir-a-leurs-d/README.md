@@ -1,6 +1,6 @@
 # Décret n° 66-847 fixant pour 1967 le taux de l’intérêt à servir à leurs déposants par les caisses d’épargne des territoires d’outre-mer autres que les Comores
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-847-fixant-pour-1967-le-taux-de-linteret-a-servir-a-leurs-deposants-par-les-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comores/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-847-fixant-pour-1967-le-taux-de-linteret-a-servir-a-leurs-deposants-par-les-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comores/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

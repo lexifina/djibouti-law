@@ -2,7 +2,7 @@
 conventions internationales relatives à la sécurité
 de la navigation maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-13-7eme-l-portant-ratification-de-cinq-conventions-internationales-relatives-a-la-securite-de-la-navigation-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-13-7eme-l-portant-ratification-de-cinq-conventions-internationales-relatives-a-la-securite-de-la-navigation-maritime/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

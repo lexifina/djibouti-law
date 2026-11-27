@@ -1,6 +1,6 @@
 # Décret n° 6 mai 1937. Budget spécial sur fonds d’emprunt de la Côte française des Somalis (exercice 1937).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-mai-1937-budget-special-sur-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-mai-1937-budget-special-sur-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1937/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

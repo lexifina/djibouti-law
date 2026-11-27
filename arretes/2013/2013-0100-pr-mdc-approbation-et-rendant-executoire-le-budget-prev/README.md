@@ -1,6 +1,6 @@
 # Arrêté n° 2013-0100/PR/MDC portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2013 du Fonds de Développement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0100-pr-mdc-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0100-pr-mdc-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2013-02-14 (date du Journal officiel qui le publie).
 

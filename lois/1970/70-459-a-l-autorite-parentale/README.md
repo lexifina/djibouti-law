@@ -1,8 +1,8 @@
 # Loi n° 70-459 relative à l’autorité parentale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-70-459-relative-a-lautorite-parentale/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 25/06/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-70-459-relative-a-lautorite-parentale/>
 
-En vigueur : 1971-01-01 (date fixÃ©e par le texte).
+En vigueur : 1971-01-01 (date fixée par le texte).
 
 ## Visas
 

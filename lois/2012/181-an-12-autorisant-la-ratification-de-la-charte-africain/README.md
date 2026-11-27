@@ -1,6 +1,6 @@
 # Loi n° 181/AN/12/6ème L autorisant la ratification de la Charte Africaine de la Démocratie, des Elections et de la Gouvernance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-12-6eme-l-autorisant-la-ratification-de-la-charte-africaine-de-la-democratie-des-elections-et-de-la-gouvernance/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-12-6eme-l-autorisant-la-ratification-de-la-charte-africaine-de-la-democratie-des-elections-et-de-la-gouvernance/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

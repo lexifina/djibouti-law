@@ -1,6 +1,6 @@
 # Décret n° 2012-0136/PRE portant Additif au Décret n° 2011-0217/PR/MEFCIP portant modofication du Décret n° 96-0147/PR/MFEN relatif aux indemnités, aux logements administratifs et aux avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0136-pre-portant-additif-au-decret-n2011-0217-pr-mefcip-portant-modofication-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avan/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0136-pre-portant-additif-au-decret-n2011-0217-pr-mefcip-portant-modofication-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avan/>
 
 En vigueur : 2012-06-30 (date du Journal officiel qui le publie).
 

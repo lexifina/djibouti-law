@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0831/PR/MEN portant Transfert de Gestion au BGEDF.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0831-pr-men-portant-transfert-de-gestion-au-bgedf/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0831-pr-men-portant-transfert-de-gestion-au-bgedf/>
 
-En vigueur : 2001-10-28 (date fixÃ©e par le texte).
+En vigueur : 2001-10-28 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 79-110/PR portant prorogation d’une ordonnance sur la justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/05/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-110-pr-portant-prorogation-dune-ordonnance-sur-la-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 3 du 08/05/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-110-pr-portant-prorogation-dune-ordonnance-sur-la-justice/>
 
 En vigueur : 1980-05-08 (date du Journal officiel qui le publie).
 

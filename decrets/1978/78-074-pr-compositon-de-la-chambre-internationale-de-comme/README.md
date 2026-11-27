@@ -1,6 +1,6 @@
 # Décret n° 78-074/PR fixant la compositon de la chambre internationale de commerce et d’industrie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-074-pr-fixant-la-compositon-de-la-chambre-internationale-de-commerce-et-dindustrie/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-074-pr-fixant-la-compositon-de-la-chambre-internationale-de-commerce-et-dindustrie/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 

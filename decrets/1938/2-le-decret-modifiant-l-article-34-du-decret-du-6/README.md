@@ -1,6 +1,6 @@
 # Décret n° 2° Le décret modifiant l’article 34 du décret du 6 août 1921 porlant organisation générale du personnel des trésoreries coloniales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-le-decret-modifiant-larticle-34-du-decret-du-6-aout-1921-porlant-organisation-generale-du-personnel-des-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-le-decret-modifiant-larticle-34-du-decret-du-6-aout-1921-porlant-organisation-generale-du-personnel-des-tresoreries-coloniales/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

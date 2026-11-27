@@ -1,6 +1,6 @@
 # Loi n° 07/AN/87/2e L accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/10/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n07-an-87-2e-l-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/10/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n07-an-87-2e-l-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1987-10-15 (date du Journal officiel qui le publie).
 

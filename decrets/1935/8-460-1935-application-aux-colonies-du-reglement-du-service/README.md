@@ -1,6 +1,6 @@
 # Décret n° 8-460-1935 Application aux colonies du règlement du service dans l’armée (3° partie, service de garnison), en date du 26 juillet 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 460 du 31/03/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-460-1935-application-aux-colonies-du-reglement-du-service-dans-larmee-3-partie-service-de-garnison-en-date-du-26-juillet-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 460 du 31/03/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-460-1935-application-aux-colonies-du-reglement-du-service-dans-larmee-3-partie-service-de-garnison-en-date-du-26-juillet-1934/>
 
 En vigueur : 1935-03-31 (date du Journal officiel qui le publie).
 

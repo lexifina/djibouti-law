@@ -1,6 +1,6 @@
 # Arrêté n° 2017-183/PR/MENSUR approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2018 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-183-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-183-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-de-luniversite-de-djibouti/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 20/03/1939 relatif aux informations militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 509 du 30/04/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-03-1939-relatif-aux-informations-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 509 du 30/04/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-03-1939-relatif-aux-informations-militaires/>
 
 En vigueur : 1939-04-30 (date du Journal officiel qui le publie).
 

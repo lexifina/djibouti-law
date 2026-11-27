@@ -1,6 +1,6 @@
 # Décret n° 81-103/PR/TR portant réglementation du travail des étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-103-pr-tr-portant-reglementation-du-travail-des-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-103-pr-tr-portant-reglementation-du-travail-des-etrangers/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ HASSAN GOULED APTIDON
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 120/AN/01/4ème L portant approbation d’un Accord de Crédit entre le Gouvernement Djiboutien et l’Association Internationale de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-01-4eme-l-portant-approbation-dun-accord-de-credit-entre-le-gouvernement-djiboutien-et-lassociation-internationale-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-01-4eme-l-portant-approbation-dun-accord-de-credit-entre-le-gouvernement-djiboutien-et-lassociation-internationale-de-developpement/>
 
 En vigueur : 2001-03-31 (date du Journal officiel qui le publie).
 

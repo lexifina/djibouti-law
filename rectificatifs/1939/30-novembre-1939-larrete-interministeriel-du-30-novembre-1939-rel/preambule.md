@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 page 13559
 3 colonne. derniére Diene. Hu lieu de modifié par décret », lire : & modifié par décret du 29 novembre 1939 ».
 Page 15960,

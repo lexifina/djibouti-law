@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Article. 1er. — Sera puni d’un emprisonnement de trois mois à deux ans et d’une amende de 100 à 1.000 francs, sans préjudice, s’il à lieu, des peines plus sévères pré vues par la loi du 7 juin 1848, quiconque, au cours d’une manifestation, au cour a une réunion ou à l’occasion d’une ré “union, aura été trouvé porteur d’une arme apparente où cachée où d’un engin dangereux pour la sécurité publique.

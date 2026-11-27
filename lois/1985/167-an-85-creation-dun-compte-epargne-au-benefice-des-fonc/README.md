@@ -1,6 +1,6 @@
 # Loi n° 167/AN/85/1ère L portant création d’un compte épargne au bénéfice des fonctionnaires de la Force nationale de Sécurité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-85-1ere-l-portant-creation-dun-compte-epargne-au-benefice-des-fonctionnaires-de-la-force-nationale-de-securite/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-85-1ere-l-portant-creation-dun-compte-epargne-au-benefice-des-fonctionnaires-de-la-force-nationale-de-securite/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

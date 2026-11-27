@@ -1,6 +1,6 @@
 # Décret n° 2015-234/PR/MHUE portant adoption de la Contribution Prévue Déterminée au niveau National de la République de Djibouti sur les changements climatiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-234-pr-mhue-portant-adoption-de-la-contribution-prevue-determinee-au-niveau-national-de-la-republique-de-djibouti-sur-les-changements-climatiques/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-234-pr-mhue-portant-adoption-de-la-contribution-prevue-determinee-au-niveau-national-de-la-republique-de-djibouti-sur-les-changements-climatiques/>
 
 En vigueur : 2015-08-15 (date du Journal officiel qui le publie).
 

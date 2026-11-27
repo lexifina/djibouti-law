@@ -1,2 +1,0 @@
-Par décret n°2024-088/PRE, du Président de la République, chef du Gouvernement, en date du 23 avril 2024, pendant la durée de l’absence de S.E.M. MOUSTAPHA MOHAMED MAHAMOUD, l’intérim des fonctions du Ministre de l’Education Nationale et de la Formation Professionnelle sera assuré par S.E.Dr. HIBO MOUMIN ASSOWEH, Ministre de la Jeunesse et de la Culture cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

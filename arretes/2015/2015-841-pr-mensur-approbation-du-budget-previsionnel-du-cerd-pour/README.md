@@ -1,6 +1,6 @@
 # Arrêté n° 2015-841/PR/MENSUR portant approbation du Budget Prévisionnel du CERD pour l’exercice 2016
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-841-pr-mensur-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-841-pr-mensur-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2016/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

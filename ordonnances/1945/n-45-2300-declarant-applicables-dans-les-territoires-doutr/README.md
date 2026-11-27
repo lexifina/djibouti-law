@@ -1,6 +1,6 @@
 # Ordonnance n° n° 45-2300 déclarant applicables dans les territoires d’outre-mer relevant du Ministre des Colonies en ce qui concerne la consultation par référendum les titres II et III de l’ordonnance n° 45-1988 du 3 septembre 1945
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2300-declarant-applicables-dans-les-territoires-doutre-mer-relevant-du-ministre-des-colonies-en-ce-qui-concerne-la-consultation-par-referendum-les-titres-ii-et-iii-de/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2300-declarant-applicables-dans-les-territoires-doutre-mer-relevant-du-ministre-des-colonies-en-ce-qui-concerne-la-consultation-par-referendum-les-titres-ii-et-iii-de/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

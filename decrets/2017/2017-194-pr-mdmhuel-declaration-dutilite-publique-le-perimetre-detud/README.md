@@ -1,6 +1,6 @@
 # Décret n° 2017-194/PR/MDMHUEL portant déclaration d’utilité publique le périmètre d’étude du Projet de Développement Urbain Intégré 2 (PDUI-2) à Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-194-pr-mdmhuel-portant-declaration-dutilite-publique-le-perimetre-detude-du-projet-de-developpement-urbain-integre-2-pdui-2-a-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-194-pr-mdmhuel-portant-declaration-dutilite-publique-le-perimetre-detude-du-projet-de-developpement-urbain-integre-2-pdui-2-a-balbala/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 

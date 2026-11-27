@@ -1,6 +1,6 @@
 # Décret n° 2025-081/PR/MB portant expropriation et transfert d’une parcelle de terrain sise à PK13.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 31/03/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-081-pr-mb-portant-expropriation-et-transfert-dune-parcelle-de-terrain-sise-a-pk13/>
+Décret · Journal officiel de la République de Djibouti, n° 06 du 31/03/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-081-pr-mb-portant-expropriation-et-transfert-dune-parcelle-de-terrain-sise-a-pk13/>
 
 En vigueur : 2025-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

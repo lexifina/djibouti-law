@@ -1,6 +1,6 @@
 # Décret n° 02-462-1935 Communication des dossiers des magistrats et interdiction à ceux-ci de toute intervention en leur faveur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-462-1935-communication-des-dossiers-des-magistrats-et-interdiction-a-ceux-ci-de-toute-intervention-en-leur-faveur/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-462-1935-communication-des-dossiers-des-magistrats-et-interdiction-a-ceux-ci-de-toute-intervention-en-leur-faveur/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

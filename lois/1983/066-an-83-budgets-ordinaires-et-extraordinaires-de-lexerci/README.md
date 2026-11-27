@@ -1,6 +1,6 @@
 # Loi n° 66/AN/83/1re L des budgets ordinaires et extraordinaires de l’exercice 1983.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-83-1re-l-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1983/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-83-1re-l-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1983/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 

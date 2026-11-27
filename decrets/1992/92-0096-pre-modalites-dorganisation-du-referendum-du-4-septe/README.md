@@ -1,6 +1,6 @@
 # Décret n° 92-0096/PRE fixant les modalités d’organisation du référendum du 4 Septembre 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/09/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0096-pre-fixant-les-modalites-dorganisation-du-referendum-du-4-septembre-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/09/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0096-pre-fixant-les-modalites-dorganisation-du-referendum-du-4-septembre-1992/>
 
 En vigueur : 1992-09-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 65-701 portant règlement pour prévenir les abordages en mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-701-portant-reglement-pour-prevenir-les-abordages-en-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-701-portant-reglement-pour-prevenir-les-abordages-en-mer/>
 
 En vigueur : 1966-04-01 (date du Journal officiel qui le publie).
 

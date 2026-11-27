@@ -1,6 +1,6 @@
 # Loi n° 151/AN/85/1ère L créant une taxe fiscale forfaitaire pour les navires de plaisance étrangers navigant dans les eaux territoriales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-85-1ere-l-creant-une-taxe-fiscale-forfaitaire-pour-les-navires-de-plaisance-etrangers-navigant-dans-les-eaux-territoriales/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-85-1ere-l-creant-une-taxe-fiscale-forfaitaire-pour-les-navires-de-plaisance-etrangers-navigant-dans-les-eaux-territoriales/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

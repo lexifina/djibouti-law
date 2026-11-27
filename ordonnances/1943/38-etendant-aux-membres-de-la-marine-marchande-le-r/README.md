@@ -1,6 +1,6 @@
 # Ordonnance n° 38 étendant aux membres de la Marine Marchande le régime des pensions de guerre de la France Combattante.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-38-etendant-aux-membres-de-la-marine-marchande-le-regime-des-pensions-de-guerre-de-la-france-combattante/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 15/06/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-38-etendant-aux-membres-de-la-marine-marchande-le-regime-des-pensions-de-guerre-de-la-france-combattante/>
 
 En vigueur : 1943-06-15 (date du Journal officiel qui le publie).
 

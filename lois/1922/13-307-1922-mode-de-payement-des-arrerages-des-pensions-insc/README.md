@@ -1,6 +1,6 @@
 # Loi n° 13-307-1922 modifiant le mode de payement des arrérages des pensions inscrites au Grand-Livre de la dette viagère.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 307 du 30/06/1922 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-13-307-1922-modifiant-le-mode-de-payement-des-arrerages-des-pensions-inscrites-au-grand-livre-de-la-dette-viagere/>
+Loi · Journal officiel de la République de Djibouti, n° 307 du 30/06/1922 · <https://www.journalofficiel.dj/texte-juridique/loi-n-13-307-1922-modifiant-le-mode-de-payement-des-arrerages-des-pensions-inscrites-au-grand-livre-de-la-dette-viagere/>
 
 En vigueur : 1922-06-30 (date du Journal officiel qui le publie).
 

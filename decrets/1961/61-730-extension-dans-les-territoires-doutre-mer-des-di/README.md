@@ -1,6 +1,6 @@
 # Décret n° 61-730 portant extension dans les territoires d’Outre-Mer des dispositions du décret n° 60-974 du 12 septembre 1960 relatif au baccalauréat de l’enseignement du second degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-730-portant-extension-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-60-974-du-12-septembre-1960-relatif-au-baccalaureat-de-lenseignement-du-second-de/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-730-portant-extension-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-60-974-du-12-septembre-1960-relatif-au-baccalaureat-de-lenseignement-du-second-de/>
 
 En vigueur : 1961-07-31 (date du Journal officiel qui le publie).
 

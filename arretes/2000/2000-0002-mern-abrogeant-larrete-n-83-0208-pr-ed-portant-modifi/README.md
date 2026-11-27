@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0002 /MERN abrogeant l’arrêté n° 83-0208/PR/ED portant modification des tarifs de vente d’énergie électrique et des redevances accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0002-mern-abrogeant-larrete-n83-0208-pr-ed-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0002-mern-abrogeant-larrete-n83-0208-pr-ed-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

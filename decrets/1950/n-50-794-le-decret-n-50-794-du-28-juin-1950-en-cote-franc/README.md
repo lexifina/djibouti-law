@@ -1,6 +1,6 @@
 # Décret n° n° 50-794 le décret n° 50-794 du 28 juin 1950, en Côte française des Somalis..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-50-794-le-decret-n-50-794-du-28-juin-1950-en-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-50-794-le-decret-n-50-794-du-28-juin-1950-en-cote-francaise-des-somalis/>
 
 En vigueur : 1950-08-01 (date du Journal officiel qui le publie).
 

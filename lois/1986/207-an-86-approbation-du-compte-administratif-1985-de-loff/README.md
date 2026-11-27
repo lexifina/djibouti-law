@@ -1,6 +1,6 @@
 # Loi n° 207/AN/86/1ère L portant approbation du compte administratif 1985 de l’Office National du Tourisme et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-86-1ere-l-portant-approbation-du-compte-administratif-1985-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-86-1ere-l-portant-approbation-du-compte-administratif-1985-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

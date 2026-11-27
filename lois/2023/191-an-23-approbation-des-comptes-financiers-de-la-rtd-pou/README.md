@@ -1,6 +1,6 @@
 # Loi n° 191/AN/23/8ème L portant approbation des Comptes Financiers de la RTD pour l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-la-rtd-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-la-rtd-pour-lexercice-2021/>
 
 En vigueur : 2023-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

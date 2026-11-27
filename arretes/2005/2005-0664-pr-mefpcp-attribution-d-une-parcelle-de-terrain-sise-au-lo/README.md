@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0664/PR/MEFPCP portant attribution d’une parcelle de terrain sise au Lotissement Marabout.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0664-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-marabout/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0664-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-marabout/>
 
 En vigueur : 2005-10-15 (date du Journal officiel qui le publie).
 

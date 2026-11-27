@@ -1,6 +1,6 @@
 # Décret n° 2014-278/PRE portant création, en République de Djibouti, d’un Centre de Données ou Data Center dénommé “Djibouti Data Center”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-278-pre-portant-creation-en-republique-de-djibouti-dun-centre-de-donnees-ou-data-center-denomme-djibouti-data-center/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-278-pre-portant-creation-en-republique-de-djibouti-dun-centre-de-donnees-ou-data-center-denomme-djibouti-data-center/>
 
 En vigueur : 2014-10-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2672 du 2 novembre 1945 portant abrogation de certaines dispositions de l’ordonnance du 5 octobre 1943 relative à la déclaration et au blocage des avoirs en or, et des avoirs à l’étranger ou en dévises étrangères et de certaines dispositions de l’ordonnance n » 45-86 du 16 janvier 1945 relative au recensement des avoirs à l’étranger
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2672-du-2-novembre-1945-portant-abrogation-de-certaines-dispositions-de-lordonnance-du-5-octobre-1943-relative-a-la-declaration-et-au-blocage-des-avoirs-en-or-et-des-a/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2672-du-2-novembre-1945-portant-abrogation-de-certaines-dispositions-de-lordonnance-du-5-octobre-1943-relative-a-la-declaration-et-au-blocage-des-avoirs-en-or-et-des-a/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

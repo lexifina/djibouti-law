@@ -1,6 +1,6 @@
 # Décret n° 2005-0028/PR/MID fixant la date de l’Élection Présidentielle, portant convocation du corps électoral et fixant les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0028-pr-mid-fixant-la-date-de-lelection-presidentielle-portant-convocation-du-corps-electoral-et-fixant-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0028-pr-mid-fixant-la-date-de-lelection-presidentielle-portant-convocation-du-corps-electoral-et-fixant-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

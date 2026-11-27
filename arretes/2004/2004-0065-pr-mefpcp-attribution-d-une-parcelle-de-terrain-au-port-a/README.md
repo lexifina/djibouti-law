@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0065/PR/MEFPCP portant attribution d’une parcelle de terrain au Port à la Zone Franche de DORALEH.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0065-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-au-port-a-la-zone-franche-de-doraleh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0065-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-au-port-a-la-zone-franche-de-doraleh/>
 
 En vigueur : 2004-01-31 (date du Journal officiel qui le publie).
 

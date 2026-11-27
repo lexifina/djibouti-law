@@ -1,6 +1,6 @@
 # Décret n° 2000-0234/PR/MEN créant et portant statut du Pôle Universitaire de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0234-pr-men-creant-et-portant-statut-du-pole-universitaire-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0234-pr-men-creant-et-portant-statut-du-pole-universitaire-de-djibouti/>
 
 En vigueur : 2000-08-31 (date du Journal officiel qui le publie).
 
@@ -63,4 +63,4 @@ ISMAÏL OMAR GUELLEH
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

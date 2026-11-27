@@ -1,6 +1,6 @@
 # Décret n° 47-1154 réglementant la profession d’architecte dans les territoires relevant du ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1154-reglementant-la-profession-darchitecte-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1154-reglementant-la-profession-darchitecte-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1948-01-31 (date du Journal officiel qui le publie).
 

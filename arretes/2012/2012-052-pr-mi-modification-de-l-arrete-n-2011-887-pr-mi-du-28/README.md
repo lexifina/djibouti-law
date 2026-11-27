@@ -1,6 +1,6 @@
 # Arrêté n° 2012-052/PR/MI portant modification de l’arrêté n° 2011-887/PR/MI du 28 décembre 2011 relative à la désignation d’un responsable de la sécurité pendant la période électorale et le jour du scrutin.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-052-pr-mi-portant-modification-de-larrete-n2011-887-pr-mi-du-28-decembre-2011-relative-a-la-designation-dun-responsable-de-la-securite-pendant-la-periode-ele/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-052-pr-mi-portant-modification-de-larrete-n2011-887-pr-mi-du-28-decembre-2011-relative-a-la-designation-dun-responsable-de-la-securite-pendant-la-periode-ele/>
 
 En vigueur : 2012-01-31 (date du Journal officiel qui le publie).
 

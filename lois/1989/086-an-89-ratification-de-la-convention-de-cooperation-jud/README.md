@@ -1,6 +1,6 @@
 # Loi n° 86/AN/89/2ème L portant ratification de la Convention de Coopération Judiciaire entre la République de Djibouti et la République Française.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-89-2eme-l-portant-ratification-de-la-convention-de-cooperation-judiciaire-entre-la-republique-de-djibouti-et-la-republique-francaise/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-89-2eme-l-portant-ratification-de-la-convention-de-cooperation-judiciaire-entre-la-republique-de-djibouti-et-la-republique-francaise/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

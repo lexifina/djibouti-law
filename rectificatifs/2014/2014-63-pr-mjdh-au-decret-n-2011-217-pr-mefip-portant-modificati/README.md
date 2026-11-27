@@ -1,6 +1,6 @@
 # Additif n° 2014-63/PR/MJDH au Décret n° 2011-217/PR/MEFIP portant modification du décret n° 96-0147/PR/MFEN relatif aux indemnités, aux logements administratifs et aux avantages en nature.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2014-63-pr-mjdh-au-decret-n2011-217-pr-mefip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature/>
+Additif · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/additif-n2014-63-pr-mjdh-au-decret-n2011-217-pr-mefip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 

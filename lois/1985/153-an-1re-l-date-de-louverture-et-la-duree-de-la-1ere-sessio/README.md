@@ -1,6 +1,6 @@
 # Loi n° 153/AN/1re L Fixant la date de l’ouverture et la durée de la 1ère session ordinaire de 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-1re-l-fixant-la-date-de-louverture-et-la-duree-de-la-1ere-session-ordinaire-de-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-1re-l-fixant-la-date-de-louverture-et-la-duree-de-la-1ere-session-ordinaire-de-1985/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

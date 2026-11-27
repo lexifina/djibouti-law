@@ -1,6 +1,6 @@
 # Décret n° 190 le décret du 28 juillet 1952 approuvant la délibération du Conseil Représentatif de la Côte Française des Somalis, portant création d’une taxe sur la valeur en capital des propriétés non bâties.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-190-le-decret-du-28-juillet-1952-approuvant-la-deliberation-du-conseil-representatif-de-la-cote-francaise-des-somalis-portant-creation-dune-taxe-sur-la-valeur-en-capital-des/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-190-le-decret-du-28-juillet-1952-approuvant-la-deliberation-du-conseil-representatif-de-la-cote-francaise-des-somalis-portant-creation-dune-taxe-sur-la-valeur-en-capital-des/>
 
 En vigueur : 1952-10-01 (date du Journal officiel qui le publie).
 

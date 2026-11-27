@@ -1,6 +1,6 @@
 # Décret n° 21/10/1941 réorganisant le Conseil d’administration de la colonie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-10-1941-reorganisant-le-conseil-dadministration-de-la-colonie/>
+Décret · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-10-1941-reorganisant-le-conseil-dadministration-de-la-colonie/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

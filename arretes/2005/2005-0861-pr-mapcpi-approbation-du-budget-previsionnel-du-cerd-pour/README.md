@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0861/PR/MAPCPI Portant approbation du budget prévisionnel du CERD pour l’année 2006.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0861-pr-mapcpi-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2006/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0861-pr-mapcpi-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2006/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

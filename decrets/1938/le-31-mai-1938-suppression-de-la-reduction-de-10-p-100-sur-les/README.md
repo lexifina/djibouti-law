@@ -1,6 +1,6 @@
 # Décret n° le 31 mai 1938 portant suppression de la réduction de 10 p. 100 sur les taux des retenues pour logement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-31-mai-1938-portant-suppression-de-la-reduction-de-10-p-100-sur-les-taux-des-retenues-pour-logement/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-31-mai-1938-portant-suppression-de-la-reduction-de-10-p-100-sur-les-taux-des-retenues-pour-logement/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

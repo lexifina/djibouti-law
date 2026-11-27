@@ -1,6 +1,6 @@
 # Décret n° 12-347-1925 Organisation du Conseil supérieur des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 347 du 31/10/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-347-1925-organisation-du-conseil-superieur-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 347 du 31/10/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-347-1925-organisation-du-conseil-superieur-des-colonies/>
 
 En vigueur : 1925-10-31 (date du Journal officiel qui le publie).
 
@@ -27,8 +27,8 @@ André Hrsse,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art.2– |
+| [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art. 5 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-005.md](art-005.md) | Art. 5 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0963/PR/MPICRP portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2009 du Fonds de Développement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0963-pr-mpicrp-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0963-pr-mpicrp-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

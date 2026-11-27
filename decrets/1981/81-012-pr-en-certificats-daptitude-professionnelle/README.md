@@ -1,6 +1,6 @@
 # Décret n° 81-012/PR/EN instituant les Certificats d’Aptitude Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-012-pr-en-instituant-les-certificats-daptitude-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-012-pr-en-instituant-les-certificats-daptitude-professionnelle/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 73/AN/83/1 re L portant approbation des comptes administratifs de l’exercice 1982 de la Chambre internationale de Commerce et d’Industrie et-les exercices 1979 à 1982 des Magasins généraux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/12/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-83-1-re-l-portant-approbation-des-comptes-administratifs-de-lexercice-1982-de-la-chambre-internationale-de-commerce-et-dindustrie-et-les-exercices-1979-a-1982-des-magasins/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 31/12/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-83-1-re-l-portant-approbation-des-comptes-administratifs-de-lexercice-1982-de-la-chambre-internationale-de-commerce-et-dindustrie-et-les-exercices-1979-a-1982-des-magasins/>
 
 En vigueur : 1983-12-31 (date du Journal officiel qui le publie).
 

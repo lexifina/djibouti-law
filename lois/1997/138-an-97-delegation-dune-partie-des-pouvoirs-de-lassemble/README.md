@@ -1,6 +1,6 @@
 # Loi n° 138/AN/97/3ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale, à la Commission Permanente jusqu’à l’ouverture de la 2ème Session Ordinaire de 1997 dite « Session Budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-97-3eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1997-dite-sessio/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-97-3eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1997-dite-sessio/>
 
 En vigueur : 1997-07-15 (date du Journal officiel qui le publie).
 

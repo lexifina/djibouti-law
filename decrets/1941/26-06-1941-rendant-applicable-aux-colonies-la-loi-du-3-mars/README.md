@@ -1,6 +1,6 @@
 # Décret n° 26/06/1941 rendant applicable aux colonies la loi du 3 mars 194 relative à l’autorisation maritale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-06-1941-rendant-applicable-aux-colonies-la-loi-du-3-mars-194-relative-a-lautorisation-maritale/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-06-1941-rendant-applicable-aux-colonies-la-loi-du-3-mars-194-relative-a-lautorisation-maritale/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

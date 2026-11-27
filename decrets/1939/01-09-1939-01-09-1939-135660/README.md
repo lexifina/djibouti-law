@@ -1,6 +1,6 @@
 # Décret n° 01/09/1939 01/09/1939
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-09-1939-01-09-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-09-1939-01-09-1939/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

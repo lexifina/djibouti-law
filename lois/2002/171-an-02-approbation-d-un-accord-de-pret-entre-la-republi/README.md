@@ -1,6 +1,6 @@
 # Loi n° 171/AN/02/4ème L portant approbation d’un Accord de Prêt entre la République de Djibouti et le Fonds Africain de Développement (FAD) sur un appui au Programme d’Ajustement Structurel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-02-4eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad-sur-un-appui-au-programme-dajustement-s/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-02-4eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad-sur-un-appui-au-programme-dajustement-s/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

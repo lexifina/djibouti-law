@@ -1,6 +1,6 @@
 # Loi n° 75/AN/83/1re L portant règlement définitif du budget de l’Etat de l’exercice 1982.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/12/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-83-1re-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1982/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 31/12/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-83-1re-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1982/>
 
 En vigueur : 1983-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 8 juin 1939 Décret relatif à l’indemnité temporaire aux militaires de carrière indigènes, chefs de famille.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-relatif-a-lindemnite-temporaire-aux-militaires-de-carriere-indigenes-chefs-de-famille/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-relatif-a-lindemnite-temporaire-aux-militaires-de-carriere-indigenes-chefs-de-famille/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

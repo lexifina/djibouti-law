@@ -1,8 +1,8 @@
 # Décret n° 84-127/PR/DEF portant création d’un élément commando de mehariste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-127-pr-def-portant-creation-dun-element-commando-de-mehariste/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-127-pr-def-portant-creation-dun-element-commando-de-mehariste/>
 
-En vigueur : 1984-12-01 (date fixÃ©e par le texte).
+En vigueur : 1984-12-01 (date fixée par le texte).
 
 ## Visas
 
@@ -25,4 +25,4 @@ LE CONSEIL DES MINISTRES EN SA SÉANCE DU 20 NOVEMBRE 1984.
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

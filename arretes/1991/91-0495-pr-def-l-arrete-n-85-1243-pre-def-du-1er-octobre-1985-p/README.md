@@ -1,6 +1,6 @@
 # Arrêté n° 91-0495/PR/DEF modifiant l’arrêté n° 85-1243/PRE/DEF du 1er octobre 1985, portant organisation, fonctionnement et contrôle du compte épargne militaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0495-pr-def-modifiant-larrete-n85-1243-pre-def-du-1er-octobre-1985-portant-organisation-fonctionnement-et-controle-du-compte-epargne-militaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0495-pr-def-modifiant-larrete-n85-1243-pre-def-du-1er-octobre-1985-portant-organisation-fonctionnement-et-controle-du-compte-epargne-militaire/>
 
 En vigueur : 1991-05-15 (date du Journal officiel qui le publie).
 

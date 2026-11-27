@@ -1,6 +1,6 @@
 # Décret n° 91-147/AN/2e L Portant organisation financière des Etablissements publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-147-an-2e-l-portant-organisation-financiere-des-etablissements-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-147-an-2e-l-portant-organisation-financiere-des-etablissements-publics/>
 
 En vigueur : 1991-08-31 (date du Journal officiel qui le publie).
 
@@ -15,4 +15,4 @@ Vulaloin°76/AN/79 du 16 juin 1979 portant création du contrôle de l’Etat ;
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |

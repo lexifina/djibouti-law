@@ -1,6 +1,6 @@
 # Décret n° 51-557 portant convocation dans ïes territoires relevant dm Ministère de la France «Outre-Mer des collèges électoraux pour l’élection d’une Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-557-portant-convocation-dans-ies-territoires-relevant-dm-ministere-de-la-france-outre-mer-des-colleges-electoraux-pour-lelection-dune-assemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-557-portant-convocation-dans-ies-territoires-relevant-dm-ministere-de-la-france-outre-mer-des-colleges-electoraux-pour-lelection-dune-assemblee-nationale/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

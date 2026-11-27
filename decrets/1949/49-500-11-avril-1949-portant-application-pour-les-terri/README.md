@@ -1,6 +1,6 @@
 # Décret n° 49-500 11 avril 1949 portant application, pour les territoires relevant du Ministère de la France d’outre-mer, du décret du 6 avril .1942 relatif aux marchés liasses au nom de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/05/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-500-11-avril-1949-portant-application-pour-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-decret-du-6-avril-1942-relatif-aux-marches-liasses-au-nom-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/05/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-500-11-avril-1949-portant-application-pour-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-decret-du-6-avril-1942-relatif-aux-marches-liasses-au-nom-de-letat/>
 
 En vigueur : 1950-05-01 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Ministre des finances. et des affaires économiques, Maurice PeTSCIIE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2015-130/PR/MB portant création du Comité d’Organisation des Assises Nationales sur la Fiscalité (COSAF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-130-pr-mb-portant-creation-du-comite-dorganisation-des-assises-nationales-sur-la-fiscalite-cosaf/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-130-pr-mb-portant-creation-du-comite-dorganisation-des-assises-nationales-sur-la-fiscalite-cosaf/>
 
 En vigueur : 2015-05-14 (date du Journal officiel qui le publie).
 

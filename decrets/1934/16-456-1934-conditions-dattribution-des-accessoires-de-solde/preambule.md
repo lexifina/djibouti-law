@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Il ne peut être accordé dorénavant sur les budgets généraux, locaux, annexes ou spéciaux des colonies, aux fonctionnaires, employés et agents qui sont rétribués sur ces budgets et qui appartiennent à des cadres organisés par décret, des allocations sous forme de complément de solde, indemnités, ou autres avantages en argent ou en nature que par décret qui devra être publié au Journal officiel de la République francaise.
 Les allocations actuellement existantes pourront étre réduites où supprimées par arrêtes des chefs dé territoire en attendant leur revision définitive en cours.

@@ -1,8 +1,8 @@
 # Décret n° 2013-003/PRE portant création du comité technique chargé de la mise en place de l’Académie de la langue Somalie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-003-pre-portant-creation-du-comite-technique-charge-de-la-mise-en-place-de-lacademie-de-la-langue-somalie/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-003-pre-portant-creation-du-comite-technique-charge-de-la-mise-en-place-de-lacademie-de-la-langue-somalie/>
 
-En vigueur : 2013-01-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-01-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

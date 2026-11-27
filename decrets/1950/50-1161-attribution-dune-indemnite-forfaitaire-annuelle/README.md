@@ -1,6 +1,6 @@
 # Décret n° 50-1161 portant attribution d’une indemnité forfaitaire annuelle de permanence aux fonctionnaires du cadre des chiffreurs en service outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1161-portant-attribution-dune-indemnite-forfaitaire-annuelle-de-permanence-aux-fonctionnaires-du-cadre-des-chiffreurs-en-service-outre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1161-portant-attribution-dune-indemnite-forfaitaire-annuelle-de-permanence-aux-fonctionnaires-du-cadre-des-chiffreurs-en-service-outre-mer/>
 
 En vigueur : 1950-11-30 (date du Journal officiel qui le publie).
 

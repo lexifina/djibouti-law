@@ -1,6 +1,6 @@
 # Décret n° 83-045/PR/MCTT portant approbation des nomenclatures d’activités et de produits.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-045-pr-mctt-portant-approbation-des-nomenclatures-dactivites-et-de-produits/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-045-pr-mctt-portant-approbation-des-nomenclatures-dactivites-et-de-produits/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ HASSAN GOULED APTIDON
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

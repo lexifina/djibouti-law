@@ -1,6 +1,6 @@
 # Arrêté n° 2018-110/PR/MENSUR relatif au Diplôme d’Auxiliaire de Puériculture.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-110-pr-mensur-relatif-au-diplome-dauxiliaire-de-puericulture/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-110-pr-mensur-relatif-au-diplome-dauxiliaire-de-puericulture/>
 
 En vigueur : 2018-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

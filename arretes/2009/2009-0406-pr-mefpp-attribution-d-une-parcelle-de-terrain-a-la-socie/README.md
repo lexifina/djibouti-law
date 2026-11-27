@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0406/PR/MEFPP portant attribution d’une parcelle de terrain à la Société INMAA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0406-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-la-socit-inmaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0406-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-la-socit-inmaa/>
 
 En vigueur : 2009-05-31 (date du Journal officiel qui le publie).
 

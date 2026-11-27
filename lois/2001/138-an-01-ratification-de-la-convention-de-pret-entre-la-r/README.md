@@ -1,6 +1,6 @@
 # Loi n° 138/AN/01/4ème L portant ratification de la Convention de Prêt entre la République de Djibouti et le Fonds Arabe pour le Développement Économique et Social (FADES).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-01-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-01-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-fades/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

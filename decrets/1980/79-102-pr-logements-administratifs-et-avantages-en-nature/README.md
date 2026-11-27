@@ -1,6 +1,6 @@
 # Décret n° 79-102/PR relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-102-pr-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-102-pr-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ HASSAN GOULED APTIDON
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2-416-1931 Pourvoi en Cassation contre les décisions rendues en matière civile par les cours et tribunaux coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-416-1931-pourvoi-en-cassation-contre-les-decisions-rendues-en-matiere-civile-par-les-cours-et-tribunaux-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-416-1931-pourvoi-en-cassation-contre-les-decisions-rendues-en-matiere-civile-par-les-cours-et-tribunaux-coloniaux/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

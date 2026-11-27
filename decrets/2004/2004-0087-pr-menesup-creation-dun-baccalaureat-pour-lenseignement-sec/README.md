@@ -1,6 +1,6 @@
 # Décret n° 2004-0087/PR/MENESUP portant création d’un baccalauréat pour l’Enseignement Secondaire en langue Arabe.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0087-pr-menesup-portant-creation-dun-baccalaureat-pour-lenseignement-secondaire-en-langue-arabe/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0087-pr-menesup-portant-creation-dun-baccalaureat-pour-lenseignement-secondaire-en-langue-arabe/>
 
 En vigueur : 2004-05-15 (date du Journal officiel qui le publie).
 

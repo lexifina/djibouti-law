@@ -1,6 +1,6 @@
 # Décret n° le 24 mai 1938 ayant pour but de réprimer les atteintes à l’intégrité du territoire national ou à l’autorité de la France sur les territoires où celle autorité s’exerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-24-mai-1938-ayant-pour-but-de-reprimer-les-atteintes-a-lintegrite-du-territoire-national-ou-a-lautorite-de-la-france-sur-les-territoires-ou-celle-autorite-sexerce/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-24-mai-1938-ayant-pour-but-de-reprimer-les-atteintes-a-lintegrite-du-territoire-national-ou-a-lautorite-de-la-france-sur-les-territoires-ou-celle-autorite-sexerce/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

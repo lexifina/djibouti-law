@@ -1,6 +1,6 @@
 # Décret n° 80-054/PR/DEF portant homologation d’un champ de tir dénommé CT 3 MYRIAM.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-054-pr-def-portant-homologation-dun-champ-de-tir-denomme-ct-3-myriam/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-054-pr-def-portant-homologation-dun-champ-de-tir-denomme-ct-3-myriam/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

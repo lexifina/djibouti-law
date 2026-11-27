@@ -1,6 +1,6 @@
 # Décret n° 977 portant réorganisation du cadre général des travaux publics et des mines des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 30/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-977-portant-reorganisation-du-cadre-general-des-travaux-publics-et-des-mines-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 30/07/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-977-portant-reorganisation-du-cadre-general-des-travaux-publics-et-des-mines-des-colonies/>
 
 En vigueur : 1943-07-30 (date du Journal officiel qui le publie).
 

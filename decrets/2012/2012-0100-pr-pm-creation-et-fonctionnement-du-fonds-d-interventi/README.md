@@ -1,6 +1,6 @@
 # Décret n° 2012-0100/PR/PM portant création et fonctionnement du fonds d’intervention de l’Inspection Générale d’Eat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0100-pr-pm-portant-creation-et-fonctionnement-du-fonds-dintervention-de-linspection-generale-deat/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0100-pr-pm-portant-creation-et-fonctionnement-du-fonds-dintervention-de-linspection-generale-deat/>
 
 En vigueur : 2012-05-15 (date du Journal officiel qui le publie).
 

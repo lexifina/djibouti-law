@@ -1,6 +1,6 @@
 # Décret n° 20-400-1930 Cadre du personnel de la trésorerie de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 400 du 31/03/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-400-1930-cadre-du-personnel-de-la-tresorerie-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-400-1930-cadre-du-personnel-de-la-tresorerie-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
 

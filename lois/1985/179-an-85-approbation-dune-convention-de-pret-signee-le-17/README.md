@@ -1,6 +1,6 @@
 # Loi n° 179/AN/85/1re L portant approbation d’une convention de prêt signée le 17 septembre 1985 pour le financement partiel du projet de développement urbain de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-85-1re-l-portant-approbation-dune-convention-de-pret-signee-le-17-septembre-1985-pour-le-financement-partiel-du-projet-de-developpement-urbain-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-85-1re-l-portant-approbation-dune-convention-de-pret-signee-le-17-septembre-1985-pour-le-financement-partiel-du-projet-de-developpement-urbain-de-djibouti/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

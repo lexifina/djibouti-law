@@ -1,6 +1,6 @@
 # Rectificatif n° 38-413-1931 Solde du personnel colonial.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 413 du 30/04/1931 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-38-413-1931-solde-du-personnel-colonial/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 413 du 30/04/1931 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-38-413-1931-solde-du-personnel-colonial/>
 
 En vigueur : 1931-04-30 (date du Journal officiel qui le publie).
 

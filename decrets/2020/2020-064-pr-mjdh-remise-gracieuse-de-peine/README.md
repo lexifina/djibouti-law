@@ -1,8 +1,8 @@
 # Décret n° 2020-064/PR/MJDH portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-064-pr-mjdh-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-064-pr-mjdh-portant-remise-gracieuse-de-peine/>
 
-En vigueur : 2020-03-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-03-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

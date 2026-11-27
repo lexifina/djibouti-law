@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1464 ayant pour objet de subordonner à un visa le représentant et l’exportation des films cinématographiques.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1464-ayant-pour-objet-de-subordonner-a-un-visa-le-representant-et-lexportation-des-films-cinematographiques/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1464-ayant-pour-objet-de-subordonner-a-un-visa-le-representant-et-lexportation-des-films-cinematographiques/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

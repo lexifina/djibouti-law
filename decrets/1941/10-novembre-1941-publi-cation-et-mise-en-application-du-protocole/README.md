@@ -1,6 +1,6 @@
 # Décret n° 10 novembre 1941 portant publi cation et mise en application du protocole du 9 octobre 1941 relatif à l’application aux payements franco-norvégiens de l’ac cord de compensation pour les payements franco-allemands du 14 novembre 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 541 du 31/12/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-novembre-1941-portant-publi-cation-et-mise-en-application-du-protocole-du-9-octobre-1941-relatif-a-lapplication-aux-payements-franco-norvegiens-de-lac-cord-de-compensation-pour/>
+Décret · Journal officiel de la République de Djibouti, n° 541 du 31/12/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-novembre-1941-portant-publi-cation-et-mise-en-application-du-protocole-du-9-octobre-1941-relatif-a-lapplication-aux-payements-franco-norvegiens-de-lac-cord-de-compensation-pour/>
 
 En vigueur : 1941-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 10 mars 1937 10 mars 1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-mars-1937-10-mars-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-mars-1937-10-mars-1937/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ Marins MOUTET
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

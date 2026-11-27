@@ -1,6 +1,6 @@
 # Loi n° 225/AN/86/1re L portant modification du code général des impôts directs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n225-an-86-1re-l-portant-modification-du-code-general-des-impots-directs/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n225-an-86-1re-l-portant-modification-du-code-general-des-impots-directs/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

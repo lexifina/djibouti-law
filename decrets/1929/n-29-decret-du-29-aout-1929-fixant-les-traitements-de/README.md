@@ -1,6 +1,6 @@
 # Décret n° n°29 Décret du 29 août 1929 fixant les traitements des magistrats coloniaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 395 du 31/10/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n29-decret-du-29-aout-1929-fixant-les-traitements-des-magistrats-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 395 du 31/10/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n29-decret-du-29-aout-1929-fixant-les-traitements-des-magistrats-coloniaux/>
 
 En vigueur : 1929-10-31 (date du Journal officiel qui le publie).
 

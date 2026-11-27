@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0748/PR/MPICRP portant Agrément au Code des Investissements de la Société »Maritime & Transport International ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0748-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societemaritime-transport-international/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0748-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societemaritime-transport-international/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 

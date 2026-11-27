@@ -1,6 +1,6 @@
 # Arrêté n° 2013-824/PR/MCPT portant adoption du projet du budget prévisionnel 2014 de Djibouti Télécom.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-824-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2014-de-djibouti-telecom/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-824-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2014-de-djibouti-telecom/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

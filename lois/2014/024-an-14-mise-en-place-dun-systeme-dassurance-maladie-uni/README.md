@@ -1,6 +1,6 @@
 # Loi n° 24/AN/14/7ème L portant mise en place d’un système d’Assurance Maladie Universelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-14-7eme-l-portant-mise-en-place-dun-systeme-dassurance-maladie-universelle/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-14-7eme-l-portant-mise-en-place-dun-systeme-dassurance-maladie-universelle/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 
@@ -74,4 +74,4 @@ ISMAÏL OMAR GUELLEH
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

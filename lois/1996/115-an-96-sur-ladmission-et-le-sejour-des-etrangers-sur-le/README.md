@@ -1,6 +1,6 @@
 # Loi n° 115/AN/96 3e L portant sur l’admission et le séjour des étrangers sur le territoire de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-96-3e-l-portant-sur-ladmission-et-le-sejour-des-etrangers-sur-le-territoire-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-96-3e-l-portant-sur-ladmission-et-le-sejour-des-etrangers-sur-le-territoire-de-la-republique-de-djibouti/>
 
 En vigueur : 1996-09-15 (date du Journal officiel qui le publie).
 
@@ -18,7 +18,7 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

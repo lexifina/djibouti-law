@@ -1,6 +1,6 @@
 # Loi n° 177/AN/12/6ème L portant ratification de la Convention de la Commission Africaine de l’Energie (AFREC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-12-6eme-l-portant-ratification-de-la-convention-de-la-commission-africaine-de-lenergie-afrec/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-12-6eme-l-portant-ratification-de-la-convention-de-la-commission-africaine-de-lenergie-afrec/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

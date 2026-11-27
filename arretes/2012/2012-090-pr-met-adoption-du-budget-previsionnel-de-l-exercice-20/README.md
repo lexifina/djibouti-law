@@ -1,6 +1,6 @@
 # Arrêté n° 2012-090/PR/MET portant adoption du budget prévisionnel de l’exercice 2012 du Fond d’Entretien routier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-090-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2012-du-fond-dentretien-routier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-090-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2012-du-fond-dentretien-routier/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

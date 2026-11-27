@@ -1,6 +1,6 @@
 # Décret n° 18 relatif à l’exécution de la Convention postale universelle du 23 mai 1939 et du règlement y annexé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-relatif-a-lexecution-de-la-convention-postale-universelle-du-23-mai-1939-et-du-reglement-y-annexe/>
+Décret · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-relatif-a-lexecution-de-la-convention-postale-universelle-du-23-mai-1939-et-du-reglement-y-annexe/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

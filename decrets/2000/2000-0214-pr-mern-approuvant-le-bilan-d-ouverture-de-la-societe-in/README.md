@@ -1,6 +1,6 @@
 # Décret n° 2000-0214/PR/MERN approuvant le Bilan d’Ouverture de la Société Internationale des Hydrocarbures de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0214-pr-mern-approuvant-le-bilan-douverture-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0214-pr-mern-approuvant-le-bilan-douverture-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

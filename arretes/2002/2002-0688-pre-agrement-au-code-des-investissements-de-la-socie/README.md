@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0688/PRE portant Agrément au Code des Investissements de la Société «FUN CITY – S.A.R.L.»
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0688-pre-portant-agrement-au-code-des-investissements-de-la-societe-fun-city-s-a-r-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0688-pre-portant-agrement-au-code-des-investissements-de-la-societe-fun-city-s-a-r-l/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

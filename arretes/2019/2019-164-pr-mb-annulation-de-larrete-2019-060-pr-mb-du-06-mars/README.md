@@ -1,6 +1,6 @@
 # Arrêté n° 2019-164/PR/MB portant annulation de l’arrêté 2019-060/PR/MB du 06 mars 2019 portant déchéance partielle de la parcelle de terrain objet du TF12201.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-164-pr-mb-portant-annulation-de-larrete-2019-060-pr-mb-du-06-mars-2019-portant-decheance-partielle-de-la-parcelle-de-terrain-objet-du-tf12201/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-164-pr-mb-portant-annulation-de-larrete-2019-060-pr-mb-du-06-mars-2019-portant-decheance-partielle-de-la-parcelle-de-terrain-objet-du-tf12201/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

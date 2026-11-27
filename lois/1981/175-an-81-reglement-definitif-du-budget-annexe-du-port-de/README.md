@@ -1,6 +1,6 @@
 # Loi de finances n° 175/AN/81 portant règlement définitif du budget annexe du Port de Commerce de DJIBOUTI.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n175-an-81-portant-reglement-definitif-du-budget-annexe-du-port-de-commerce-de-djibouti/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n175-an-81-portant-reglement-definitif-du-budget-annexe-du-port-de-commerce-de-djibouti/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ VU Les écritures du Trésorier Payeur National et l’Ordonnateur délégué.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

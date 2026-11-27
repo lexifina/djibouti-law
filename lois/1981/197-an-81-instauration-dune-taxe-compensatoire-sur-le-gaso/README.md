@@ -1,6 +1,6 @@
 # Loi n° 197/AN/81 portant instauration d’une taxe compensatoire sur le gasoil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 01/10/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-81-portant-instauration-dune-taxe-compensatoire-sur-le-gasoil/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 01/10/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-81-portant-instauration-dune-taxe-compensatoire-sur-le-gasoil/>
 
 En vigueur : 1981-10-01 (date du Journal officiel qui le publie).
 

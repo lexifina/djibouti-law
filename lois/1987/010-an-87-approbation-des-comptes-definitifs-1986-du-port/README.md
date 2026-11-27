@@ -1,6 +1,6 @@
 # Loi n° 10/AN/87/2e L portant approbation des comptes définitifs 1986 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-87-2e-l-portant-approbation-des-comptes-definitifs-1986-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-87-2e-l-portant-approbation-des-comptes-definitifs-1986-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

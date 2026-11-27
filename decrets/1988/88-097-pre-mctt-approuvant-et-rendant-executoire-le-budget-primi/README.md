@@ -1,6 +1,6 @@
 # Décret n° 88-097/PRE/MCTT approuvant et rendant exécutoire le budget primitif 1989 de l’Office national du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-097-pre-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1989-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-097-pre-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1989-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1988-12-15 (date du Journal officiel qui le publie).
 

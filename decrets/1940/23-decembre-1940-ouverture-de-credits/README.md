@@ -1,6 +1,6 @@
 # Décret n° 23 décembre 1940 Ouverture de crédits
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-decembre-1940-ouverture-de-credits/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-decembre-1940-ouverture-de-credits/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

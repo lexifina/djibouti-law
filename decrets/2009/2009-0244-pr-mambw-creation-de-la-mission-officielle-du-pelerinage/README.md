@@ -1,6 +1,6 @@
 # Décret n° 2009-0244/PR/MAMBW portant création de la mission officielle du Pèlerinage pour l’année 2009.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0244-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2009/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0244-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2009/>
 
 En vigueur : 2009-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 180/AN/02/4ème L portant ratification du Statut de Rome de la Cour Pénale Internationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-02-4eme-l-portant-ratification-du-statut-de-rome-de-la-cour-penale-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-02-4eme-l-portant-ratification-du-statut-de-rome-de-la-cour-penale-internationale/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

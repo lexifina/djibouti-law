@@ -1,6 +1,6 @@
 # Décret n° 295-08-1913 deux décrets des 18 juillet 1913, relatifs à l’application de la loi du 17 avril 1907. (Sécurité de la navigation). Texte des décrets,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 202 du 31/08/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-295-08-1913-deux-decrets-des-18-juillet-1913-relatifs-a-lapplication-de-la-loi-du-17-avril-1907-securite-de-la-navigation-texte-des-decrets/>
+Décret · Journal officiel de la République de Djibouti, n° 202 du 31/08/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-295-08-1913-deux-decrets-des-18-juillet-1913-relatifs-a-lapplication-de-la-loi-du-17-avril-1907-securite-de-la-navigation-texte-des-decrets/>
 
 En vigueur : 1913-08-31 (date du Journal officiel qui le publie).
 

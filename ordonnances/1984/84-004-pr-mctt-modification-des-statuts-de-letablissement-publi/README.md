@@ -1,6 +1,6 @@
 # Ordonnance n° 84-004/PR/MCTT portant modification des statuts de l’Établissement Public « AÉROPORT DE DJIBOUTI »
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-004-pr-mctt-portant-modification-des-statuts-de-letablissement-public-aeroport-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 15/02/1984 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-004-pr-mctt-portant-modification-des-statuts-de-letablissement-public-aeroport-de-djibouti/>
 
 En vigueur : 1984-02-15 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ Le Conseil des Ministres entendu en sa séance du 7 Novembre 1983.
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

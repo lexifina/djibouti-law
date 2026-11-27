@@ -1,6 +1,6 @@
 # Décret n° n° 18 Le décret portant application aux territoires relevant du Secrétariat d’Etat aux colonies autres que les Antilles, la Réunion, l’Inde et l’’Indochine des dispositions de la loi du 26 juillet 1941 fixant le taux des amendes pénales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-18-le-decret-portant-application-aux-territoires-relevant-du-secretariat-detat-aux-colonies-autres-que-les-antilles-la-reunion-linde-et-lindochine-des-disposit/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-18-le-decret-portant-application-aux-territoires-relevant-du-secretariat-detat-aux-colonies-autres-que-les-antilles-la-reunion-linde-et-lindochine-des-disposit/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 
@@ -34,5 +34,5 @@ platon.
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

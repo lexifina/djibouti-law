@@ -1,6 +1,6 @@
 # Décret n° 2023-038/PRE instituant le portail électronique des Marchés Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-038-pre-instituant-le-portail-electronique-des-marches-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-038-pre-instituant-le-portail-electronique-des-marches-publics/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -31,4 +31,4 @@ Le Conseil des Ministres entendu en sa séance du 07 Février 2023.
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 10-223-1915 ayant pourobjet de donner des sanctions pénales à l’interdiction faite aux Français d’entretenir des relations d’ordre économique avec les sujets d’’une puissance enemie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 223 du 31/05/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-10-223-1915-ayant-pourobjet-de-donner-des-sanctions-penales-a-linterdiction-faite-aux-francais-dentretenir-des-relations-dordre-economique-avec-les-sujets-dune-puis/>
+Loi · Journal officiel de la République de Djibouti, n° 223 du 31/05/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-10-223-1915-ayant-pourobjet-de-donner-des-sanctions-penales-a-linterdiction-faite-aux-francais-dentretenir-des-relations-dordre-economique-avec-les-sujets-dune-puis/>
 
 En vigueur : 1915-05-31 (date du Journal officiel qui le publie).
 

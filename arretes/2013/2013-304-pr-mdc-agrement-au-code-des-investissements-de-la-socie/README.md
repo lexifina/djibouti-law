@@ -1,6 +1,6 @@
 # Arrêté n° 2013-304/PR/MDC Portant Agrément au Code des Investissements de la société « SOM BADROS » pour un projet de construction et d’exploitation commerciale d’un immeuble de 7 étages au centre ville.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-304-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-som-badros-pour-un-projet-de-construction-et-dexploitation-commerciale-dun-immeuble-de-7-etages-au-cent/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-304-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-som-badros-pour-un-projet-de-construction-et-dexploitation-commerciale-dun-immeuble-de-7-etages-au-cent/>
 
 En vigueur : 2013-05-30 (date du Journal officiel qui le publie).
 

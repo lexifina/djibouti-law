@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0329/PRE portant approbation du budget d’Électricité de Djibouti pour l’exercice 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0329-pre-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0329-pre-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2001/>
 
 En vigueur : 2001-04-30 (date du Journal officiel qui le publie).
 

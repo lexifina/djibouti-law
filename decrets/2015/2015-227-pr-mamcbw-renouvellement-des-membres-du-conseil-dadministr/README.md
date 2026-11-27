@@ -1,6 +1,6 @@
 # Décret n° 2015-227/PR/MAMCBW portant renouvellement des membres du Conseil d’Administration du Diwan de la Zakat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-227-pr-mamcbw-portant-renouvellement-des-membres-du-conseil-dadministration-du-diwan-de-la-zakat/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-227-pr-mamcbw-portant-renouvellement-des-membres-du-conseil-dadministration-du-diwan-de-la-zakat/>
 
 En vigueur : 2015-08-15 (date du Journal officiel qui le publie).
 

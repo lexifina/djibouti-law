@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0056/PR/MCCPT portant approbation du budget prévisionnel de la Radio-Télévision de Djibouti (RTD) pour l’exercice 2006.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0056-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-rtd-pour-lexercice-2006/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0056-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-rtd-pour-lexercice-2006/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

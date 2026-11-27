@@ -1,6 +1,6 @@
 # Décret n° 45-2786 portant création d’un Conseil représenta tif de la Côte Française des Somalis et Dépendances.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2786-portant-creation-dun-conseil-representa-tif-de-la-cote-francaise-des-somalis-et-dependances/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2786-portant-creation-dun-conseil-representa-tif-de-la-cote-francaise-des-somalis-et-dependances/>
 
 En vigueur : 1945-01-01 (date du Journal officiel qui le publie).
 
@@ -25,7 +25,7 @@ P. GIACOBBI.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article 1 er — |
+| [art-001.md](art-001.md) | Article 1 er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -64,7 +64,7 @@ P. GIACOBBI.
 | [art-037.md](art-037.md) | Art. 37 |
 | [art-038.md](art-038.md) | Art. 38 |
 | [art-039.md](art-039.md) | Art. 39 |
-| [art-040.md](art-040.md) | Art. 40 — |
+| [art-040.md](art-040.md) | Art. 40 |
 | [art-041.md](art-041.md) | Art. 41 |
 | [art-042.md](art-042.md) | Art. 42 |
 | [art-043.md](art-043.md) | Art. 43 |
@@ -79,4 +79,4 @@ P. GIACOBBI.
 | [art-052.md](art-052.md) | Art. 52 |
 | [art-053.md](art-053.md) | Art. 53 |
 | [art-054.md](art-054.md) | Art. 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° n°12 Le décret appliquant aux uvaires avant leur port d’attache dans les colonies et territoires sous mandat
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-le-decret-appliquant-aux-uvaires-avant-leur-port-dattache-dans-les-colonies-et-territoires-sous-mandat/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-le-decret-appliquant-aux-uvaires-avant-leur-port-dattache-dans-les-colonies-et-territoires-sous-mandat/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 
@@ -29,5 +29,5 @@ georges mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art.2 |

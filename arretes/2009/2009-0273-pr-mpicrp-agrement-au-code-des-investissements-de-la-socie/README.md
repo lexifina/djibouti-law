@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0273/PR/MPICRP portant Agrément au Code des Investissements de la Société “Heego”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0273-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-heego/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0273-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-heego/>
 
 En vigueur : 2009-04-15 (date du Journal officiel qui le publie).
 

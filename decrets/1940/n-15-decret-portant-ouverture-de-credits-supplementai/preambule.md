@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — En temps de guerre, les commandants supérieurs, les comimandants de la inarine et les commandants de Pair penvent créer, dans les territoires relevsont du ministére des colonies, autour des ouvrages fortitiés, des ouvrages d’urt hmportants et des établissements militaires on maritimes, des 70 nes de protection, dont il leur appartient de préciser le périmétre,buns les agglomérations, cette zone sert lixée aprés accord avec le Gouvesnenr général, Gouverneur, Commissaire de la République on Administrateur.

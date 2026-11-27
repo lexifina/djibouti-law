@@ -1,6 +1,6 @@
 # Arrêté n° 2013-798/PR/MET portant Approbation du Budget Prévisionnel 2014 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-798-pr-met-portant-approbation-du-budget-previsionnel-2014-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-798-pr-met-portant-approbation-du-budget-previsionnel-2014-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 17-462-1935 Application aux colonies autres que les établissements français dans l’Inde et l’Afrique équatoriale française, à l’Indochine, au Togo et au Cameroun, de la législation concernant la caisse nationale d’assurance en cas de décès.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-462-1935-application-aux-colonies-autres-que-les-etablissements-francais-dans-linde-et-lafrique-equatoriale-francaise-a-lindochine-au-togo-et-au-cameroun-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-462-1935-application-aux-colonies-autres-que-les-etablissements-francais-dans-linde-et-lafrique-equatoriale-francaise-a-lindochine-au-togo-et-au-cameroun-de-l/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

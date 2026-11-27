@@ -1,6 +1,6 @@
 # Décret n° 2008-0040/PR/MID portant prorogation de l’heure de fermeture des bureaux de vote sur l’ensemble du Territoire de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0040-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0040-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
 
 En vigueur : 2008-02-14 (date du Journal officiel qui le publie).
 

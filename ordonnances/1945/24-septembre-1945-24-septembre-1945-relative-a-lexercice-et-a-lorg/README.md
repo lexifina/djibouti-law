@@ -1,6 +1,6 @@
 # Ordonnance n° 24 septembre 1945 24 septembre 1945 relative à l’exercice et à l’organisation des professions de médecin, de chirurgien-dentiste et de sage-femme.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1951 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-septembre-1945-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-de-chirurgien-dentiste-et-de-sage-femme/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 01/07/1951 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-septembre-1945-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-de-chirurgien-dentiste-et-de-sage-femme/>
 
 En vigueur : 1951-07-01 (date du Journal officiel qui le publie).
 
@@ -53,4 +53,4 @@ François BILLOUX. Le Ministre de la Santé publique
 | [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

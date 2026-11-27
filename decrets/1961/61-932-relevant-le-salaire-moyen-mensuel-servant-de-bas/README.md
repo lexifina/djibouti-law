@@ -1,6 +1,6 @@
 # Décret n° 61-932 relevant le salaire moyen mensuel servant de base au calcul de l’indemnité différentielle pour charges de famille accordée à certains fonctionnaires civils ainsi qu’à certains militaires à solde mensuelle et à solde spéciale progressive en service dans les territoires d’outre-mer de la République Française, dans les Etats de la Communauté, au Togo et au Cameroun .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-932-relevant-le-salaire-moyen-mensuel-servant-de-base-au-calcul-de-lindemnite-differentielle-pour-charges-de-famille-accordee-a-certains-fonctionnaires-civils-ainsi-qua-c/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-932-relevant-le-salaire-moyen-mensuel-servant-de-base-au-calcul-de-lindemnite-differentielle-pour-charges-de-famille-accordee-a-certains-fonctionnaires-civils-ainsi-qua-c/>
 
 En vigueur : 1961-09-30 (date du Journal officiel qui le publie).
 

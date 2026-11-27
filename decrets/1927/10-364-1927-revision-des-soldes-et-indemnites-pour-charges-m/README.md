@@ -1,6 +1,6 @@
 # Décret n° 10-364-1927 Révision des soldes et indemnités pour charges militaires du corps de l’inspection des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 364 du 31/03/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-364-1927-revision-des-soldes-et-indemnites-pour-charges-militaires-du-corps-de-linspection-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 364 du 31/03/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-364-1927-revision-des-soldes-et-indemnites-pour-charges-militaires-du-corps-de-linspection-des-colonies/>
 
 En vigueur : 1927-03-31 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Gaston DOUMERGUE
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1– |
+| [art-001.md](art-001.md) | Art.1 |

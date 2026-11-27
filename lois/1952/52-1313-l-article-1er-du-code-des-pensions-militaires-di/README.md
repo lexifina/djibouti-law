@@ -1,6 +1,6 @@
 # Loi n° 52-1313 modifiant l’article 1er du Code des Pensions militaires d’invalidité et des victimes de la guerre
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-52-1313-modifiant-larticle-1er-du-code-des-pensions-militaires-dinvalidite-et-des-victimes-de-la-guerre/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-52-1313-modifiant-larticle-1er-du-code-des-pensions-militaires-dinvalidite-et-des-victimes-de-la-guerre/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

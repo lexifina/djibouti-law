@@ -3,7 +3,7 @@ l’arrêté portant organisation du Comité Consultatif
 de l’Urbanisme, de l’Habitat, de l’Assainissement
 et de l’Hygiène.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0468-pr-mhue-modifiant-et-completant-larrete-portant-organisation-du-comite-consultatif-de-lurbanisme-de-lhabitat-de-lassainissement-et-de-lhygiene/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0468-pr-mhue-modifiant-et-completant-larrete-portant-organisation-du-comite-consultatif-de-lurbanisme-de-lhabitat-de-lassainissement-et-de-lhygiene/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 12-402-1930 Décret du 22 octobre 1928.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 402 du 31/05/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-402-1930-decret-du-22-octobre-1928/>
+Décret · Journal officiel de la République de Djibouti, n° 402 du 31/05/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-402-1930-decret-du-22-octobre-1928/>
 
 En vigueur : 1930-05-31 (date du Journal officiel qui le publie).
 

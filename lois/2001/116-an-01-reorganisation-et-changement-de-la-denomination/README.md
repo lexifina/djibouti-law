@@ -1,6 +1,6 @@
 # Loi n° 116/AN/01/4ème L portant réorganisation et changement de la dénomination de l’ISERST en Centre de Recherche Scientifique de Djibouti .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-01-4eme-l-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-de-recherche-scientifique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-01-4eme-l-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-de-recherche-scientifique-de-djibouti/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

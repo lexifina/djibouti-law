@@ -1,6 +1,6 @@
 # Décret n° 10-141-1908 le 10 juin 1907.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 141 du 01/08/1908 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-141-1908-le-10-juin-1907/>
+Décret · Journal officiel de la République de Djibouti, n° 141 du 01/08/1908 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-141-1908-le-10-juin-1907/>
 
 En vigueur : 1908-08-01 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Signé : J. CAILLAUX,
 | --- | --- |
 | [art-032.md](art-032.md) | Art. 32 |
 | [art-033.md](art-033.md) | Art. 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-171/PR/MB portant transfert de droit de propriété d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-171-pr-mb-portant-transfert-de-droit-de-propriete-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-171-pr-mb-portant-transfert-de-droit-de-propriete-dune-parcelle-de-terrain/>
 
 En vigueur : 2019-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 190/AN/17/7ème L portant modification du Code Général des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-17-7eme-l-portant-modification-du-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-17-7eme-l-portant-modification-du-code-general-des-impots/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 

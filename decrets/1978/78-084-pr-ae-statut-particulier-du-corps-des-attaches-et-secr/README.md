@@ -1,6 +1,6 @@
 # Décret n° 78-084/PR/AE portant statut particulier du corps des attachés et secrétaires de chancellerie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-084-pr-ae-portant-statut-particulier-du-corps-des-attaches-et-secretaires-de-chancellerie/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-084-pr-ae-portant-statut-particulier-du-corps-des-attaches-et-secretaires-de-chancellerie/>
 
 En vigueur : 1979-04-24 (date du Journal officiel qui le publie).
 

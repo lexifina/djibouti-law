@@ -1,6 +1,6 @@
 # Décret n° 46-2722 modifiant les articles 31 et 39 du décret du 3 juillet 1897 portant règlement sur les indemnités de route et de séjour, les con cessions de passages et les frais de voyage à l’étranger de (personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2722-modifiant-les-articles-31-et-39-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour-les-con-cessions-de-passages-et-les-frais-de-voyage-a-l/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2722-modifiant-les-articles-31-et-39-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour-les-con-cessions-de-passages-et-les-frais-de-voyage-a-l/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

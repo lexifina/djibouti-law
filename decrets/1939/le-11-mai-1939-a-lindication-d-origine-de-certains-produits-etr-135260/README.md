@@ -1,6 +1,6 @@
 # Décret n° le 11 mai 1939 relatif à l’indication d origine de certains produits etrangers dcouverts et tous articles d’orfèvrerie en argent et en tous autres métaux communs, purs ou alliés).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-11-mai-1939-relatif-a-lindication-d-origine-de-certains-produits-etrangers-dcouverts-et-tous-articles-dorfevrerie-en-argent-et-en-tous-autres-metaux-communs-purs-ou-alli/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-11-mai-1939-relatif-a-lindication-d-origine-de-certains-produits-etrangers-dcouverts-et-tous-articles-dorfevrerie-en-argent-et-en-tous-autres-metaux-communs-purs-ou-alli/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 

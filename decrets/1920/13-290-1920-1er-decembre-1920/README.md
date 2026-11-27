@@ -1,6 +1,6 @@
 # Décret n° 13-290-1920 le 1er décembre 1920.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 290 du 31/12/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-290-1920-le-1er-decembre-1920/>
+Décret · Journal officiel de la République de Djibouti, n° 290 du 31/12/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-290-1920-le-1er-decembre-1920/>
 
 En vigueur : 1920-12-31 (date du Journal officiel qui le publie).
 
@@ -27,5 +27,5 @@ A. SARRAUT.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

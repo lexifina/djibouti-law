@@ -1,6 +1,6 @@
 # Décret n° 21 juin 1938 relatif à l’attribution d’une indemnité à M. Calmette.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-juin-1938-relatif-a-lattribution-dune-indemnite-a-m-calmette/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-juin-1938-relatif-a-lattribution-dune-indemnite-a-m-calmette/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

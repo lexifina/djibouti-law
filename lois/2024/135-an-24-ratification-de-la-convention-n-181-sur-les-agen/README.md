@@ -1,8 +1,8 @@
 # Loi n° 135/AN/24/9ème L portant ratification de la Convention n° 181 sur les agences d’emploi privés, 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 15/01/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-24-9eme-l-portant-ratification-de-la-convention-n181-sur-les-agences-demploi-prives-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 01 du 15/01/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-24-9eme-l-portant-ratification-de-la-convention-n181-sur-les-agences-demploi-prives-1997/>
 
-En vigueur : 2025-01-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-01-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

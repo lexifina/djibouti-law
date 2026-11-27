@@ -1,8 +1,8 @@
 # Décret n° 2007-0224/PR/MJSLT de la Loi n° 178/AN/07/MJSLT du 03 mai 2007 relatif à l’Organisation du Sport de Haut Niveau.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0224-pr-mjslt-de-la-loi-n178-an-07-mjslt-du-03-mai-2007-relatif-a-lorganisation-du-sport-de-haut-niveau/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0224-pr-mjslt-de-la-loi-n178-an-07-mjslt-du-03-mai-2007-relatif-a-lorganisation-du-sport-de-haut-niveau/>
 
-En vigueur : 2007-11-21 (date fixÃ©e par le texte).
+En vigueur : 2007-11-21 (date fixée par le texte).
 
 ## Visas
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

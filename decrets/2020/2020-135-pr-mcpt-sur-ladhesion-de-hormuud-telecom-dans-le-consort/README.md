@@ -1,6 +1,6 @@
 # Décret n° 2020-135/PR/MCPT portant sur l’adhésion de Hormuud télécom dans le consortium du câble sous-marin DARE-1.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-135-pr-mcpt-portant-sur-ladhesion-de-hormuud-telecom-dans-le-consortium-du-cable-sous-marin-dare-1/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-135-pr-mcpt-portant-sur-ladhesion-de-hormuud-telecom-dans-le-consortium-du-cable-sous-marin-dare-1/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

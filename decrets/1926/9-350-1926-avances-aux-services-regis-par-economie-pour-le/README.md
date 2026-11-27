@@ -1,6 +1,6 @@
 # Décret n° 9-350-1926 Avances aux services régis par économie pour le compte de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 350 du 31/01/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-350-1926-avances-aux-services-regis-par-economie-pour-le-compte-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 350 du 31/01/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-350-1926-avances-aux-services-regis-par-economie-pour-le-compte-de-letat/>
 
 En vigueur : 1926-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 14/AN/98/4ème L portant Loi de Finances rectificative pour l’exercice 1998.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-98-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-1998/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-98-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-1998/>
 
 En vigueur : 1998-04-15 (date du Journal officiel qui le publie).
 

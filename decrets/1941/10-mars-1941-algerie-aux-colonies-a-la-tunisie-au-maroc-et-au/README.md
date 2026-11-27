@@ -1,6 +1,6 @@
 # Décret n° 10 mars 1941 Algérie, aux colonies, à la Tunisie, au Maroc et au Libaan, la loi du 29 août 1940 portant création de Légion française des combattant
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-mars-1941-algerie-aux-colonies-a-la-tunisie-au-maroc-et-au-libaan-la-loi-du-29-aout-1940-portant-creation-de-legion-francaise-des-combattant/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-mars-1941-algerie-aux-colonies-a-la-tunisie-au-maroc-et-au-libaan-la-loi-du-29-aout-1940-portant-creation-de-legion-francaise-des-combattant/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

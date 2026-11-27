@@ -1,8 +1,8 @@
 # Loi n° 92/AN/05/5ème L relative à l’Ouverture, à l’Activité et au Contrôle des Établissements de Crédit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-05-5eme-l-relative-a-louverture-a-lactivite-et-au-controle-des-etablissements-de-credit/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-05-5eme-l-relative-a-louverture-a-lactivite-et-au-controle-des-etablissements-de-credit/>
 
-En vigueur : 2005-01-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2005-01-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -102,4 +102,4 @@ ISMAÏL OMAR GUELLEH
 | [art-080.md](art-080.md) | Article 80 |
 | [art-081.md](art-081.md) | Article 81 |
 | [art-082.md](art-082.md) | Article 82 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

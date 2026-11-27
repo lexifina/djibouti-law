@@ -1,6 +1,6 @@
 # Décret n° le 27 janvier 1940. le 27 janvier 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-27-janvier-1940-le-27-janvier-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-27-janvier-1940-le-27-janvier-1940/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Paul REYNAUD.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

@@ -1,6 +1,6 @@
 # Décret n° 2004-0203/PR/MEFPP portant annulation d’autorisation préalable en matière de transaction immobilière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0203-pr-mefpp-portant-annulation-dautorisation-prealable-en-matiere-de-transaction-immobiliere/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0203-pr-mefpp-portant-annulation-dautorisation-prealable-en-matiere-de-transaction-immobiliere/>
 
 En vigueur : 2004-10-31 (date du Journal officiel qui le publie).
 

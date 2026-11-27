@@ -1,6 +1,6 @@
 # Loi n° du 21 août 1941. du 21 août 1941.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 539 du 31/10/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-21-aout-1941-du-21-aout-1941/>
+Loi · Journal officiel de la République de Djibouti, n° 539 du 31/10/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-21-aout-1941-du-21-aout-1941/>
 
 En vigueur : 1941-10-31 (date du Journal officiel qui le publie).
 

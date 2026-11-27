@@ -1,6 +1,6 @@
 # Loi n° 01-138-1908 modifiant la loi du 30 décembre 1903, relative à la réhabilitation des faillis.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 138 du 01/05/1908 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-01-138-1908-modifiant-la-loi-du-30-decembre-1903-relative-a-la-rehabilitation-des-faillis/>
+Loi · Journal officiel de la République de Djibouti, n° 138 du 01/05/1908 · <https://www.journalofficiel.dj/texte-juridique/loi-n-01-138-1908-modifiant-la-loi-du-30-decembre-1903-relative-a-la-rehabilitation-des-faillis/>
 
 En vigueur : 1908-05-01 (date du Journal officiel qui le publie).
 

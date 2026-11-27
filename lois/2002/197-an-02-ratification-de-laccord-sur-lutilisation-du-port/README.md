@@ -1,6 +1,6 @@
 # Loi n° 197/AN/02/4ème L Portant ratification de l’Accord sur l’utilisation du Port de Djibouti et du transit des marchandises entre la République de Djibouti et la République Fédérale et Démocratique d’Ethiopie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-02-4eme-l-portant-ratification-de-laccord-sur-lutilisation-du-port-de-djibouti-et-du-transit-des-marchandises-entre-la-republique-de-djibouti-et-la-republique-federale-et-democra/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-02-4eme-l-portant-ratification-de-laccord-sur-lutilisation-du-port-de-djibouti-et-du-transit-des-marchandises-entre-la-republique-de-djibouti-et-la-republique-federale-et-democra/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2016-256/PR/SEJS portant prise en charge des Experts Cubains en Sports de Haut Niveau.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-256-pr-sejs-portant-prise-en-charge-des-experts-cubains-en-sports-de-haut-niveau/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-256-pr-sejs-portant-prise-en-charge-des-experts-cubains-en-sports-de-haut-niveau/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 

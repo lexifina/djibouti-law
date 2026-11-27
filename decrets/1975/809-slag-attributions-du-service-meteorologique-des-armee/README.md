@@ -1,6 +1,6 @@
 # Décret n° 809/SLAG fixant les attributions du service météorologique des armées et du directeur technique de la météorologie des armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-809-slag-fixant-les-attributions-du-service-meteorologique-des-armees-et-du-directeur-technique-de-la-meteorologie-des-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-809-slag-fixant-les-attributions-du-service-meteorologique-des-armees-et-du-directeur-technique-de-la-meteorologie-des-armees/>
 
 En vigueur : 1975-08-10 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ JEAN FROMENT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |

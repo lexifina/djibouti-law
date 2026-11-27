@@ -1,6 +1,6 @@
 # Ordonnance n° 77-052/PR portant création du Service de Documentation et de Sécurité Intérieure et Extérieure.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-052-pr-portant-creation-du-service-de-documentation-et-de-securite-interieure-et-exterieure/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 11 du 14/11/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-052-pr-portant-creation-du-service-de-documentation-et-de-securite-interieure-et-exterieure/>
 
 En vigueur : 1977-11-14 (date du Journal officiel qui le publie).
 

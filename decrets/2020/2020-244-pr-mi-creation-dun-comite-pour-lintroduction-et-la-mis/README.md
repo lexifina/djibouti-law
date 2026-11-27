@@ -1,6 +1,6 @@
 # Décret n° 2020-244/PR/MI portant la création d’un Comité pour l’introduction et la mise en oeuvre du traitement de données à caractère personnel dénommé » Système API-PNR Djibouti « .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-244-pr-mi-portant-la-creation-dun-comite-pour-lintroduction-et-la-mise-en-oeuvre-du-traitement-de-donnees-a-caractere-personnel-denomme-systeme-api-pnr-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-244-pr-mi-portant-la-creation-dun-comite-pour-lintroduction-et-la-mise-en-oeuvre-du-traitement-de-donnees-a-caractere-personnel-denomme-systeme-api-pnr-djibouti/>
 
 En vigueur : 2020-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

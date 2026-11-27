@@ -1,6 +1,6 @@
 # Décret n° 2011-0241/PR/MI portant publication des listes des candidats aux Elections Régionales et Communales du 20 janvier 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0241-pr-mi-portant-publication-des-listes-des-candidats-aux-elections-regionales-et-communales-du-20-janvier-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0241-pr-mi-portant-publication-des-listes-des-candidats-aux-elections-regionales-et-communales-du-20-janvier-2012/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

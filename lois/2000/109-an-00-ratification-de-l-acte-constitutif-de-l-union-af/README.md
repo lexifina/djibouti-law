@@ -1,6 +1,6 @@
 # Loi n° 109/AN/00/4èmeL portant ratification de l’Acte Constitutif de l’Union Africaine (U.A).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/12/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-00-4emel-portant-ratification-de-lacte-constitutif-de-lunion-africaine-u-a/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 31/12/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-00-4emel-portant-ratification-de-lacte-constitutif-de-lunion-africaine-u-a/>
 
 En vigueur : 2000-12-31 (date du Journal officiel qui le publie).
 

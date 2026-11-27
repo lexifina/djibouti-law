@@ -1,6 +1,6 @@
 # Rectificatif n° 331 27 mars 1950
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1950 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-331-27-mars-1950/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 3 du 31/03/1950 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-331-27-mars-1950/>
 
 En vigueur : 1950-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 11/AN/08/6ème L portant ratification de la Charte Africaine de la Jeunesse en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-08-6eme-l-portant-ratification-de-la-charte-africaine-de-la-jeunesse-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-08-6eme-l-portant-ratification-de-la-charte-africaine-de-la-jeunesse-en-republique-de-djibouti/>
 
 En vigueur : 2008-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2013-337/PR/SEMHUEL portant conditions de création et de fonctionnement des coopératives d’habitat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-337-pr-semhuel-portant-conditions-de-creation-et-de-fonctionnement-des-cooperatives-dhabitat/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-337-pr-semhuel-portant-conditions-de-creation-et-de-fonctionnement-des-cooperatives-dhabitat/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

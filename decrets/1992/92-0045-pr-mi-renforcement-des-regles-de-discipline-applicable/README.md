@@ -1,6 +1,6 @@
 # Décret n° 92-0045/PR/MI portant renforcement des règles de discipline applicables au personnel de la FNS en cas de crise.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0045-pr-mi-portant-renforcement-des-regles-de-discipline-applicables-au-personnel-de-la-fns-en-cas-de-crise/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0045-pr-mi-portant-renforcement-des-regles-de-discipline-applicables-au-personnel-de-la-fns-en-cas-de-crise/>
 
 En vigueur : 1992-04-30 (date du Journal officiel qui le publie).
 

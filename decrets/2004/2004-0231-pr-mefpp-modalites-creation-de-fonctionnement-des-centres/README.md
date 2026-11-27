@@ -1,6 +1,6 @@
 # Décret n° 2004-0231/PR/MEFPP fixant les modalités création de fonctionnement des Centres de Gestion Agréés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0231-pr-mefpp-fixant-les-modalites-creation-de-fonctionnement-des-centres-de-gestion-agrees/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0231-pr-mefpp-fixant-les-modalites-creation-de-fonctionnement-des-centres-de-gestion-agrees/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 

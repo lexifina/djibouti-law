@@ -1,6 +1,6 @@
 # Décret n° du 17 avril 1936. Indemnité de réinstallation des fonctionnaires coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 474 du 31/05/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-17-avril-1936-indemnite-de-reinstallation-des-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 474 du 31/05/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-17-avril-1936-indemnite-de-reinstallation-des-fonctionnaires-coloniaux/>
 
 En vigueur : 1936-05-31 (date du Journal officiel qui le publie).
 

@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. — Des décrets pris sous le contre-seing du Président du Conseil, du Ministre des finances et du Ministre des colonies rèégleront les mesures de défense de la monnaie dans les colonies, protectorats et territoires sons mandat francais relevant du ministère des colonies, ils pourront, en tant que de besoin, être pris dans les formes prévues par la loi du 8 juin 1935 et devront intervenir avant le 1er novembre 1935.

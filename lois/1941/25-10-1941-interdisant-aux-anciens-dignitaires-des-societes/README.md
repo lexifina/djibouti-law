@@ -1,6 +1,6 @@
 # Loi n° 25/10/1941 interdisant aux anciens dignitaires des sociétés secrètes l’accès et l’exercice de certaines fonctions publiques relevant du Secrétariat d’Etat aux colonies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-25-10-1941-interdisant-aux-anciens-dignitaires-des-societes-secretes-lacces-et-lexercice-de-certaines-fonctions-publiques-relevant-du-secretariat-detat-aux-colonies/>
+Loi · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-25-10-1941-interdisant-aux-anciens-dignitaires-des-societes-secretes-lacces-et-lexercice-de-certaines-fonctions-publiques-relevant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

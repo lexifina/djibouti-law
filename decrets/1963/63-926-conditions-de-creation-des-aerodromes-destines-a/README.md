@@ -1,6 +1,6 @@
 # Décret n° 63-926 aux conditions de création des aérodromes destinés à la circulation aérienne publique dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-926-aux-conditions-de-creation-des-aerodromes-destines-a-la-circulation-aerienne-publique-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-926-aux-conditions-de-creation-des-aerodromes-destines-a-la-circulation-aerienne-publique-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1963-09-30 (date du Journal officiel qui le publie).
 

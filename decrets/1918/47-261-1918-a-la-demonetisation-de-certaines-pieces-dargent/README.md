@@ -1,6 +1,6 @@
 # Décret n° 47-261-1918 relative à la démonétisation de certaines pièces d’argent
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-261-1918-relative-a-la-demonetisation-de-certaines-pieces-dargent/>
+Décret · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-261-1918-relative-a-la-demonetisation-de-certaines-pieces-dargent/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 

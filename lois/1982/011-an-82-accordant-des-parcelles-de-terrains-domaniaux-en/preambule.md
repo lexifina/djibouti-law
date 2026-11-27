@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er. — Il est fait concession provisoire. aux personnes dénommées ci-dessous, des lots de terrains domaniaux ci-apres désignés, tel au surplus qu’ils apparaissent aux plans joints et dont la mise en valeur exigée et le prix figurent dans le tables suivant :
 | Bénéficiaires
 |

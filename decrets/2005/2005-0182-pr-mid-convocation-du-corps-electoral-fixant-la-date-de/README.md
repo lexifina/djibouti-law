@@ -1,6 +1,6 @@
 # Décret n° 2005-0182/PR/MID Portant convocation du corps électoral fixant la date des élections régionales et fixant les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0182-pr-mid-portant-convocation-du-corps-electoral-fixant-la-date-des-elections-regionales-et-fixant-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0182-pr-mid-portant-convocation-du-corps-electoral-fixant-la-date-des-elections-regionales-et-fixant-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

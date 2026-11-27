@@ -1,6 +1,6 @@
 # Arrêté n° 2016-617/PR/SEJS portant création d’un Comité National d’Organisation de l’IHF Challenge Trophée féminin et masculin de Handball de la zone 5A.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-617-pr-sejs-portant-creation-dun-comite-national-dorganisation-de-lihf-challenge-trophee-feminin-et-masculin-de-handball-de-la-zone-5a/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-617-pr-sejs-portant-creation-dun-comite-national-dorganisation-de-lihf-challenge-trophee-feminin-et-masculin-de-handball-de-la-zone-5a/>
 
 En vigueur : 2016-08-31 (date du Journal officiel qui le publie).
 

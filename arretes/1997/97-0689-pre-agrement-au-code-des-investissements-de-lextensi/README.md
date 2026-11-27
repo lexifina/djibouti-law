@@ -1,6 +1,6 @@
 # Arrêté n° 97-0689/PRE portant Agrément au Code des Investissements de l’extension de la « Centrale EDD de Boulaos ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0689-pre-portant-agrement-au-code-des-investissements-de-lextension-de-la-centrale-edd-de-boulaos/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0689-pre-portant-agrement-au-code-des-investissements-de-lextension-de-la-centrale-edd-de-boulaos/>
 
 En vigueur : 1997-10-15 (date du Journal officiel qui le publie).
 

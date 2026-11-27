@@ -1,6 +1,6 @@
 # Loi de finances n° 129/AN/24/9ème L portant budget rectificatif de l’Etat pour l’exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n129-an-24-9eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n129-an-24-9eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2024/>
 
 En vigueur : 2025-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 23 relative à la mise en non-activité des militaires des Forces Françaises Libres
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-23-relative-a-la-mise-en-non-activite-des-militaires-des-forces-francaises-libres/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-23-relative-a-la-mise-en-non-activite-des-militaires-des-forces-francaises-libres/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0992/PR/MEFPCP portant cession définitive d’une parcelle de terrain sise à Doraleh.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0992-pr-mefpcp-portant-cession-definitive-dune-parcelle-de-terrain-sise-a-doraleh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0992-pr-mefpcp-portant-cession-definitive-dune-parcelle-de-terrain-sise-a-doraleh/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 83-017/PR/MI portant dévolution à l’Office National des Eaux des sommes en compte dans les caisses du Trésor des immobilisations nécessaires au service public, de la charge de la dette concernent le service de l’Eau, et la détermination de la dotation initiale en capital.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-017-pr-mi-portant-devolution-a-loffice-national-des-eaux-des-sommes-en-compte-dans-les-caisses-du-tresor-des-immobilisations-necessaires-au-service-public-de-la-charge-de-la-dette/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/03/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-017-pr-mi-portant-devolution-a-loffice-national-des-eaux-des-sommes-en-compte-dans-les-caisses-du-tresor-des-immobilisations-necessaires-au-service-public-de-la-charge-de-la-dette/>
 
 En vigueur : 1983-03-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ LE Conseil des Ministres entendu en sa séance du 1er février 1983.
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

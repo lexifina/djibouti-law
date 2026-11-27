@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0918/PR/MERN portant approbation du Budget d’Électricité de Djibouti pour l’Exercice 2004
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0918-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2004/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0918-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2004/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 

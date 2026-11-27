@@ -1,6 +1,6 @@
 # Décret n° 2002-0185/PR/MEFPCP modifiant le Budget 2002 et ouvrant un crédit Additionnel dans les secteurs prioritaires de l’Education, la Santé, la Justice et l’Eau.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0185-pr-mefpcp-modifiant-le-budget-2002-et-ouvrant-un-credit-additionnel-dans-les-secteurs-prioritaires-de-leducation-la-sante-la-justice-et-leau/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0185-pr-mefpcp-modifiant-le-budget-2002-et-ouvrant-un-credit-additionnel-dans-les-secteurs-prioritaires-de-leducation-la-sante-la-justice-et-leau/>
 
 En vigueur : 2002-09-30 (date du Journal officiel qui le publie).
 

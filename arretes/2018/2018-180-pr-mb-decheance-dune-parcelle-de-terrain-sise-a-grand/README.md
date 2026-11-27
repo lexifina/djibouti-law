@@ -1,6 +1,6 @@
 # Arrêté n° 2018-180/PR/MB portant la déchéance d’une parcelle de terrain sise à Grand BARA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 13/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-180-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-sise-a-grand-bara/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 13/12/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-180-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-sise-a-grand-bara/>
 
 En vigueur : 2018-12-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

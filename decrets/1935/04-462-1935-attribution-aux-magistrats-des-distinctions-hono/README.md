@@ -1,6 +1,6 @@
 # Décret n° 04-462-1935 Attribution aux magistrats des distinctions honorifiques dans la Légion d’honneur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-462-1935-attribution-aux-magistrats-des-distinctions-honorifiques-dans-la-legion-dhonneur/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-462-1935-attribution-aux-magistrats-des-distinctions-honorifiques-dans-la-legion-dhonneur/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

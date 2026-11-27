@@ -1,6 +1,6 @@
 # Décret n° 2017-138/PR/MI portant ouverture à titre exceptionnel des inscriptions sur les listes électorale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 13/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-138-pr-mi-portant-ouverture-a-titre-exceptionnel-des-inscriptions-sur-les-listes-electorale/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 13/04/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-138-pr-mi-portant-ouverture-a-titre-exceptionnel-des-inscriptions-sur-les-listes-electorale/>
 
 En vigueur : 2017-04-13 (date du Journal officiel qui le publie).
 

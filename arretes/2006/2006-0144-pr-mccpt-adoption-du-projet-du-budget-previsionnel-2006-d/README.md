@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0144/PR/MCCPT portant adoption du projet du budget prévisionnel 2006 de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0144-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2006-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0144-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2006-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2006-02-28 (date du Journal officiel qui le publie).
 

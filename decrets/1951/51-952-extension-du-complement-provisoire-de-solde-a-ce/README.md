@@ -1,6 +1,6 @@
 # Décret n° 51-952 portant extension du complément provisoire de solde à certaines catégories de personnel relevant de l’autorité du Ministre de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/09/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-952-portant-extension-du-complement-provisoire-de-solde-a-certaines-categories-de-personnel-relevant-de-lautorite-du-ministre-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/09/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-952-portant-extension-du-complement-provisoire-de-solde-a-certaines-categories-de-personnel-relevant-de-lautorite-du-ministre-de-la-france-doutre-mer/>
 
 En vigueur : 1951-09-01 (date du Journal officiel qui le publie).
 
@@ -52,5 +52,5 @@ Pierre METAYER.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

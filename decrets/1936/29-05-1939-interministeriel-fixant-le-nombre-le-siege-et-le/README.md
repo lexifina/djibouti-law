@@ -1,6 +1,6 @@
 # Décret n° 29/05/1939 interministériel fixant le nombre, le siège et le ressort des tribunaux militaires permanents établis aux colonies en temps de guerre et déterminant les autorités militaires auxquelles sont dévolus les pouvoirs attribués par la loi au général commandant la circonscription territoriale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-05-1939-interministeriel-fixant-le-nombre-le-siege-et-le-ressort-des-tribunaux-militaires-permanents-etablis-aux-colonies-en-temps-de-guerre-et-determinant-les-autorites-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-05-1939-interministeriel-fixant-le-nombre-le-siege-et-le-ressort-des-tribunaux-militaires-permanents-etablis-aux-colonies-en-temps-de-guerre-et-determinant-les-autorites-militaires/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

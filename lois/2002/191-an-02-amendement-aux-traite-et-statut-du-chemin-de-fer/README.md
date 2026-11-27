@@ -1,6 +1,6 @@
 # Loi n° 191/AN/02/4ème L portant amendement aux traité et Statut du Chemin de Fer Djibouto-Ethiopien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-02-4eme-l-portant-amendement-aux-traite-et-statut-du-chemin-de-fer-djibouto-ethiopien/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-02-4eme-l-portant-amendement-aux-traite-et-statut-du-chemin-de-fer-djibouto-ethiopien/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 

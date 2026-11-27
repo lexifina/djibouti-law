@@ -1,1 +1,0 @@
-Par décret n°2023-301/PRE, du Président de la République, chef du Gouvernement, en date du 10 octobre 2023, pendant la durée de l’absence de S.E.Mme. OULOUFA ABDO ISMAIL, l’intérim des fonctions de la Ministre des Affaires Sociales et des Solidarités sera assuré par S.E. Mme. MOUNA OSMAN ADEN, Ministre de la Femme et de la Famille cumulativement avec ses fonctions.

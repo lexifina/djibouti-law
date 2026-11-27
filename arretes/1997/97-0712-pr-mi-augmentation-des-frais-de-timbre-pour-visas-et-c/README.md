@@ -1,6 +1,6 @@
 # Arrêté n° 97-0712/PR/MI portant augmentation des frais de timbre pour visas et cartes de séjour des étrangers.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0712-pr-mi-portant-augmentation-des-frais-de-timbre-pour-visas-et-cartes-de-sejour-des-etrangers/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 30/10/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0712-pr-mi-portant-augmentation-des-frais-de-timbre-pour-visas-et-cartes-de-sejour-des-etrangers/>
 
 En vigueur : 1997-10-30 (date du Journal officiel qui le publie).
 

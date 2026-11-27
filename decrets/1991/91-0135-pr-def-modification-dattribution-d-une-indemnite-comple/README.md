@@ -1,6 +1,6 @@
 # Décret n° 91-0135 / PR / DEF Portant modification d’attribution d’une indemnité complémentaire de mission spéciale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 30/09/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-0135-pr-def-portant-modification-dattribution-dune-indemnite-complementaire-de-mission-speciale/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 30/09/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-0135-pr-def-portant-modification-dattribution-dune-indemnite-complementaire-de-mission-speciale/>
 
 En vigueur : 1991-09-30 (date du Journal officiel qui le publie).
 

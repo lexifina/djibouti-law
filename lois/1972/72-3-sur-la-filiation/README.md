@@ -1,6 +1,6 @@
 # Loi n° 72-3 Sur la Filiation
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-3-sur-la-filiation/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 25/01/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-3-sur-la-filiation/>
 
 En vigueur : 1972-01-25 (date du Journal officiel qui le publie).
 

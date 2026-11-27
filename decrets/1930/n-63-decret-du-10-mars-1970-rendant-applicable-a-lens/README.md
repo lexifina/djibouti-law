@@ -1,6 +1,6 @@
 # Décret n° n°63 Décret du 10 mars 1970 rendant applicable à l’ensemble des colonies françaises et pays africains sous mandat de la France l’article 85 de la loi de finances du 30 juin 1923 relatif à l’émission et à la réception des signaux radioélectriques de toute nature (arrêté de promulgation du 12 avril 1930)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 401 du 30/04/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n63-decret-du-10-mars-1970-rendant-applicable-a-lensemble-des-colonies-francaises-et-pays-africains-sous-mandat-de-la-france-larticle-85-de-la-loi-de-finances-du-30-juin-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 401 du 30/04/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n63-decret-du-10-mars-1970-rendant-applicable-a-lensemble-des-colonies-francaises-et-pays-africains-sous-mandat-de-la-france-larticle-85-de-la-loi-de-finances-du-30-juin-1923/>
 
 En vigueur : 1930-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 81/AN/20/8ème L portant ratification de la Charte constitutive de Conseil des Etats Arabes et Africains Côtiers de la Mer Rouge et du Golfe d’Aden.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-20-8eme-l-portant-ratification-de-la-charte-constitutive-de-conseil-des-etats-arabes-et-africains-cotiers-de-la-mer-rouge-et-du-golfe-daden/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-20-8eme-l-portant-ratification-de-la-charte-constitutive-de-conseil-des-etats-arabes-et-africains-cotiers-de-la-mer-rouge-et-du-golfe-daden/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

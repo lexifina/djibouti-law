@@ -1,6 +1,6 @@
 # Arrêté n° 2011-038/PR/MID portant autorisation d’importation et de transit des armes par l’Ambassade d’Ethiopie et destinées à la protection des navires commerciaux Ethiopiens.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-038-pr-mid-portant-autorisation-dimportation-et-de-transit-des-armes-par-lambassade-dethiopie-et-destinees-a-la-protection-des-navires-commerciaux-ethiopi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-038-pr-mid-portant-autorisation-dimportation-et-de-transit-des-armes-par-lambassade-dethiopie-et-destinees-a-la-protection-des-navires-commerciaux-ethiopi/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

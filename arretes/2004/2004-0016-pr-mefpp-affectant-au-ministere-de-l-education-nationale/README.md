@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0016/PR/MEFPP affectant au Ministère de l’Éducation Nationale, une parcelle de terrain sise aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0016-pr-mefpp-affectant-au-ministere-de-leducation-nationale-une-parcelle-de-terrain-sise-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0016-pr-mefpp-affectant-au-ministere-de-leducation-nationale-une-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 2004-01-15 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ chargé de la Privatisation ;
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

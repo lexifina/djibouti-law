@@ -1,6 +1,6 @@
 # Loi n° 188/AN/02/4ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Saoudien de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-02-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-saoudien-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-02-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-saoudien-de-developpement/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

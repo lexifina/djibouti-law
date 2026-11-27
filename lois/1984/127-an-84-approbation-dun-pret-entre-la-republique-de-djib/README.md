@@ -1,6 +1,6 @@
 # Loi n° 127/AN/84/1re L portant approbation d’un prêt entre la République de Djibouti et le fonds de l’Organisation des Pays exportateurs de Pétrole.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-84-1re-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exportateurs-de-petrole/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/12/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-84-1re-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exportateurs-de-petrole/>
 
 En vigueur : 1984-12-15 (date du Journal officiel qui le publie).
 

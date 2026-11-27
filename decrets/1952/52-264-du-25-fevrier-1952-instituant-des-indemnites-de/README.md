@@ -1,6 +1,6 @@
 # Décret n° 52-264 du 25 février 1952 instituant des indemnités de fonction en faveur du personnel du cadre général des ingénieurs des Travaux météorologiques de la France d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-264-du-25-fevrier-1952-instituant-des-indemnites-de-fonction-en-faveur-du-personnel-du-cadre-general-des-ingenieurs-des-travaux-meteorologiques-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-264-du-25-fevrier-1952-instituant-des-indemnites-de-fonction-en-faveur-du-personnel-du-cadre-general-des-ingenieurs-des-travaux-meteorologiques-de-la-france-doutre-mer/>
 
 En vigueur : 1952-04-01 (date du Journal officiel qui le publie).
 
@@ -41,5 +41,5 @@ Bernard Lerav.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

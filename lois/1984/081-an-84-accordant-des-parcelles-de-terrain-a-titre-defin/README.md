@@ -1,6 +1,6 @@
 # Loi n° 81/AN/84/1re L accordant des parcelles de terrain à titre définitif.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-84-1re-l-accordant-des-parcelles-de-terrain-a-titre-definitif/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-84-1re-l-accordant-des-parcelles-de-terrain-a-titre-definitif/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

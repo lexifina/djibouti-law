@@ -1,6 +1,6 @@
 # Loi n° 12 La loi lendant à étendre aux territoires d’outre-mer relevant du secrétariat d’Etat aux colonies autres que les Anblles et Ja Réunion les dispositions de la loi du 8 décembre 1941 relative au régime pénitentiaire des détenus ayant formé un pourvoi devant la Cour de cassation,
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-12-la-loi-lendant-a-etendre-aux-territoires-doutre-mer-relevant-du-secretariat-detat-aux-colonies-autres-que-les-anblles-et-ja-reunion-les-dispositions-de-la-loi-du-8-decembre-1941-re/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 31/08/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-12-la-loi-lendant-a-etendre-aux-territoires-doutre-mer-relevant-du-secretariat-detat-aux-colonies-autres-que-les-anblles-et-ja-reunion-les-dispositions-de-la-loi-du-8-decembre-1941-re/>
 
 En vigueur : 1942-08-31 (date du Journal officiel qui le publie).
 

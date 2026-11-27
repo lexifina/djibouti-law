@@ -1,6 +1,6 @@
 # Décret n° 2001-0054/PR/MDN portant création d’un nouveau barème pour les gendarmes militaires et policiers engagés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0054-pr-mdn-portant-creation-dun-nouveau-bareme-pour-les-gendarmes-militaires-et-policiers-engages/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0054-pr-mdn-portant-creation-dun-nouveau-bareme-pour-les-gendarmes-militaires-et-policiers-engages/>
 
 En vigueur : 2001-03-15 (date du Journal officiel qui le publie).
 

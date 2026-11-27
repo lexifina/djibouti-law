@@ -1,6 +1,6 @@
 # Décret n° 2018-381/PR/MDL portant organisation et fonctionnement de l’Agence de Réhabilitation Urbaine et du Logement Social (ARULOS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-381-pr-mdl-portant-organisation-et-fonctionnement-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-381-pr-mdl-portant-organisation-et-fonctionnement-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
 
 En vigueur : 2019-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

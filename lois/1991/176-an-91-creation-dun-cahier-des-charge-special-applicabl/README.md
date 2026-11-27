@@ -1,6 +1,6 @@
 # Loi n° 176/AN/91/2eL portant creation d’un cahier des charge special applicable aux anciens quartier et à balbala
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 31/10/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-91-2el-portant-creation-dun-cahier-des-charge-special-applicable-aux-anciens-quartier-et-a-balbala/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 31/10/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-91-2el-portant-creation-dun-cahier-des-charge-special-applicable-aux-anciens-quartier-et-a-balbala/>
 
 En vigueur : 1991-10-31 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ Vu la loi n°68/AN/83/1re L du 17 octobre 1983 modifiant et completant les delib
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

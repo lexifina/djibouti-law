@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. der, — Le paragraphe 1er de l’article 3 du décret du 25 mai 1917 est modifié comme suit :
 1. Les traitements des officiers et maitres de port sont réglées ainsi quil suit:
 Capitaine de 1er classe……,… 9.000 fr.

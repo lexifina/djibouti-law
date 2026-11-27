@@ -1,6 +1,6 @@
 # Décret n° 47-7 portant dérogation à l’article 2 du décret du 31 mai 1946 déterminant les conditions d’application aux départements et territoire r relevant du ministère de la France d’outre-mer. autre- que l’Indochine, de articles 2 et 3 de la loi n°46-991 du 10 mai 1916 portant fixation de la date légale de cessation des hostilités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-7-portant-derogation-a-larticle-2-du-decret-du-31-mai-1946-determinant-les-conditions-dapplication-aux-departements-et-territoire-r-relevant-du-ministere-de-la-france-d/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-7-portant-derogation-a-larticle-2-du-decret-du-31-mai-1946-determinant-les-conditions-dapplication-aux-departements-et-territoire-r-relevant-du-ministere-de-la-france-d/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 

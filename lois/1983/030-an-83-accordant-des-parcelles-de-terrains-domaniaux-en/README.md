@@ -1,6 +1,6 @@
 # Loi n° 30/AN/83 accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-83-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-83-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

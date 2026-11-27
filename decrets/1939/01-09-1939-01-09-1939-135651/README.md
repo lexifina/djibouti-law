@@ -1,6 +1,6 @@
 # Décret n° 01/09/1939 01/09/1939
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-09-1939-01-09-1939-2/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-09-1939-01-09-1939-2/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 
@@ -59,7 +59,7 @@ Charles POMARET.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [art-014.md](art-014.md) | Art. 14 — |
+| [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |

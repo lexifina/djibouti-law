@@ -1,6 +1,6 @@
 # Loi n° 184/AN/85/1ère L Accordant une parcelle de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-85-1ere-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-85-1ere-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

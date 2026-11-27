@@ -1,6 +1,6 @@
 # Décret n° 99-0024/PR/MJSAC portant création de l’École Sports/Études
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0024-pr-mjsac-portant-creation-de-lecole-sports-etudes/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0024-pr-mjsac-portant-creation-de-lecole-sports-etudes/>
 
 En vigueur : 1999-02-28 (date du Journal officiel qui le publie).
 

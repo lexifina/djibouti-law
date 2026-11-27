@@ -1,6 +1,6 @@
 # Décret n° 77-011/PR/FIN DU 21 JUILLET 1977 instituant une agence spéciale à Paris.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/07/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-011-pr-fin-du-21-juillet-1977-instituant-une-agence-speciale-a-paris/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/07/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-011-pr-fin-du-21-juillet-1977-instituant-une-agence-speciale-a-paris/>
 
 En vigueur : 1977-07-28 (date du Journal officiel qui le publie).
 
@@ -13,4 +13,4 @@ Vu la loi n° LR/77-001 du 27 juin 1977, dite loi constitutionnelle n° 1 de pro
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

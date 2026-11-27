@@ -1,6 +1,6 @@
 # Loi n° 124/AN/21/8ème L relative à l’amendement de l’Accord-cadre de l’Alliance Solaire Internationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-21-8eme-l-relative-a-lamendement-de-laccord-cadre-de-lalliance-solaire-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-21-8eme-l-relative-a-lamendement-de-laccord-cadre-de-lalliance-solaire-internationale/>
 
 En vigueur : 2021-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 83-012/PR/FP portant majoration du taux des prestations familiales servies aux fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-012-pr-fp-portant-majoration-du-taux-des-prestations-familiales-servies-aux-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-012-pr-fp-portant-majoration-du-taux-des-prestations-familiales-servies-aux-fonctionnaires/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Le Conseil des Ministre entendu en sa séance du 18 janvier 1983.
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

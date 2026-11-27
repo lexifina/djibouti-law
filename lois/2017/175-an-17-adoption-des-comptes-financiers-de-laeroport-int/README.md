@@ -1,6 +1,6 @@
 # Loi n° 175/AN/17/7ème L portant adoption des comptes financiers de l’Aéroport International de Djibouti arrêtés au 31-12-2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-17-7eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-arretes-au-31-12-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-17-7eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-arretes-au-31-12-2013/>
 
 En vigueur : 2017-04-30 (date du Journal officiel qui le publie).
 

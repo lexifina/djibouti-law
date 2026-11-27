@@ -1,6 +1,6 @@
 # Décret n° du 4 avril 1939 relatif à la gratuité de passage aux familles des sous-officiers mariés, de carrière et rengagés. accompagnant ou rejoignant leur chef aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-4-avril-1939-relatif-a-la-gratuite-de-passage-aux-familles-des-sous-officiers-maries-de-carriere-et-rengages-accompagnant-ou-rejoignant-leur-chef-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-4-avril-1939-relatif-a-la-gratuite-de-passage-aux-familles-des-sous-officiers-maries-de-carriere-et-rengages-accompagnant-ou-rejoignant-leur-chef-aux-colonies/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Georges MANDEL,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

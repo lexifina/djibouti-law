@@ -1,8 +1,8 @@
 # Décret n° 2017-035/PR/MB portant modification du décret n° 2001-0096/PRE relatif au Plan de Trésorerie de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-035-pr-mb-portant-modification-du-decret-n2001-0096-pre-relatif-au-plan-de-tresorerie-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-035-pr-mb-portant-modification-du-decret-n2001-0096-pre-relatif-au-plan-de-tresorerie-de-letat/>
 
-En vigueur : 2017-01-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-01-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

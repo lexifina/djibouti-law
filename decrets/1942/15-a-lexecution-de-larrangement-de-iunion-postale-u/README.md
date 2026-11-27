@@ -1,6 +1,6 @@
 # Décret n° 15 relatif à l’exécution de l’arrangement de I’Union postale universelle concernant les lettres et boites avec valeur déclarée et du règlement y annexé
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-relatif-a-lexecution-de-larrangement-de-iunion-postale-universelle-concernant-les-lettres-et-boites-avec-valeur-declaree-et-du-reglement-y-annexe/>
+Décret · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-relatif-a-lexecution-de-larrangement-de-iunion-postale-universelle-concernant-les-lettres-et-boites-avec-valeur-declaree-et-du-reglement-y-annexe/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

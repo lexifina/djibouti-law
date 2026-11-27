@@ -1,6 +1,6 @@
 # Décret n° 51-82S majorant, à titre provisoire, certaines des prestations-familiales allouées aux personnels civils visés-à l’article 4 du décret n 48-1817 du 30 novembre 1948
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-82s-majorant-a-titre-provisoire-certaines-des-prestations-familiales-allouees-aux-personnels-civils-vises-a-larticle-4-du-decret-n-48-1817-du-30-novembre-1948/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-82s-majorant-a-titre-provisoire-certaines-des-prestations-familiales-allouees-aux-personnels-civils-vises-a-larticle-4-du-decret-n-48-1817-du-30-novembre-1948/>
 
 En vigueur : 1952-07-01 (date du Journal officiel qui le publie).
 

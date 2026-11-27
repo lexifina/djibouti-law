@@ -1,6 +1,6 @@
 # Loi n° 169/AN/17/7ème L portant approbation de l’Accord de Don pour le financement de la construction d’un barrage en aval du village de Wéah signé entre la République de Djibouti et la République de Turquie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-17-7eme-l-portant-approbation-de-laccord-de-don-pour-le-financement-de-la-construction-dun-barrage-en-aval-du-village-de-weah-signe-entre-la-republique-de-djibouti-et-la-republi/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-17-7eme-l-portant-approbation-de-laccord-de-don-pour-le-financement-de-la-construction-dun-barrage-en-aval-du-village-de-weah-signe-entre-la-republique-de-djibouti-et-la-republi/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

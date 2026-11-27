@@ -1,6 +1,6 @@
 # Décret n° 88-088/MI rendant exécutoire la délibération n° 3/88 du 11 juillet 1988 du conseil d’administration de l’Office des Postes et Télécommunications portant approbation de la première décision modificative du Budget prévisionnel de l’Office pour 1988.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-088-mi-rendant-executoire-la-deliberation-n3-88-du-11-juillet-1988-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premiere/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-088-mi-rendant-executoire-la-deliberation-n3-88-du-11-juillet-1988-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premiere/>
 
 En vigueur : 1988-11-30 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 53/AN/99/4ème L Modifiant la loi 204/AN/86/1ère L portant modification du règlement général du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-99-4eme-l-modifiant-la-loi-204-an-86-1ere-l-portant-modification-du-reglement-general-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-99-4eme-l-modifiant-la-loi-204-an-86-1ere-l-portant-modification-du-reglement-general-du-port-autonome-international-de-djibouti/>
 
-En vigueur : 1999-08-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-08-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

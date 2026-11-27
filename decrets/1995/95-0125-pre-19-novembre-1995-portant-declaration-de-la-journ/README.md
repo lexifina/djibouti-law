@@ -1,6 +1,6 @@
 # Décret n° 95-0125/PRE DU 19 NOVEMBRE 1995 portant déclaration de la «Journée de l’Enfant djiboutien».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0125-pre-du-19-novembre-1995-portant-declaration-de-la-journee-de-lenfant-djiboutien/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0125-pre-du-19-novembre-1995-portant-declaration-de-la-journee-de-lenfant-djiboutien/>
 
 En vigueur : 1995-11-15 (date du Journal officiel qui le publie).
 

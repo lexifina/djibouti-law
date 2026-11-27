@@ -1,6 +1,6 @@
 # Loi n° 60/AN/19/8ème L portant ratification de l’accord de financement (don et prêt) pour le projet d’amélioration de la performance du secteur de la santé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-19-8eme-l-portant-ratification-de-laccord-de-financement-don-et-pret-pour-le-projet-damelioration-de-la-performance-du-secteur-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 28/11/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-19-8eme-l-portant-ratification-de-laccord-de-financement-don-et-pret-pour-le-projet-damelioration-de-la-performance-du-secteur-de-la-sante/>
 
 En vigueur : 2019-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

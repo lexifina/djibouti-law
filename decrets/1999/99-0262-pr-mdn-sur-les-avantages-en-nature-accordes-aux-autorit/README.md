@@ -1,6 +1,6 @@
 # Décret n° 99-0262/PR/MDN portant sur les avantages en nature accordés aux Autorités Militaires et Gendarmes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0262-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-autorites-militaires-et-gendarmes/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0262-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-autorites-militaires-et-gendarmes/>
 
 En vigueur : 1999-12-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

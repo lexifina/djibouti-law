@@ -1,6 +1,6 @@
 # Loi n° 103/AN/05/5ème L portant sur les Sociétés Commerciales de Zone Franche.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-05-5eme-l-portant-sur-les-societes-commerciales-de-zone-franche/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-05-5eme-l-portant-sur-les-societes-commerciales-de-zone-franche/>
 
 En vigueur : 2005-04-16 (date du Journal officiel qui le publie).
 
@@ -131,4 +131,4 @@ ISMAÏL OMAR GUELLEH
 | [art-101.md](art-101.md) | Article 101 |
 | [art-102.md](art-102.md) | Article 102 |
 | [art-103.md](art-103.md) | Article 103 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

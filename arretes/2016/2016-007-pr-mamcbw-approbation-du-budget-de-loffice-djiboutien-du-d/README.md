@@ -1,6 +1,6 @@
 # Arrêté n° 2016-007/PR/MAMCBW portant approbation du Budget de l’Office Djiboutien du Droit d’Auteur et de Droit Voisin.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-007-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-du-droit-dauteur-et-de-droit-voisin/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-007-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-du-droit-dauteur-et-de-droit-voisin/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

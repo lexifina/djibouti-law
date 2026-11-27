@@ -1,6 +1,6 @@
 # Additif n° 560 à l’arrêté n° 1173 du 3 septembre 1955 fixant les taux des indemnités pour frais de représentation et de sujétions particulières attribuées à certains fonctionnaires de la Côte Française des Somalis.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1963 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-560-a-larrete-n-1173-du-3-septembre-1955-fixant-les-taux-des-indemnites-pour-frais-de-representation-et-de-sujetions-particulieres-attribuees-a-certains-fonctionnaires/>
+Additif · Journal officiel de la République de Djibouti, n° 3 du 31/03/1963 · <https://www.journalofficiel.dj/texte-juridique/additif-n-560-a-larrete-n-1173-du-3-septembre-1955-fixant-les-taux-des-indemnites-pour-frais-de-representation-et-de-sujetions-particulieres-attribuees-a-certains-fonctionnaires/>
 
 En vigueur : 1963-03-31 (date du Journal officiel qui le publie).
 

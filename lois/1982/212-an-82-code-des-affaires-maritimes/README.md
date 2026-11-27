@@ -1,6 +1,6 @@
 # Loi n° 212/AN/82 portant code des Affaires Maritimes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-82-portant-code-des-affaires-maritimes/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-82-portant-code-des-affaires-maritimes/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 
@@ -16,7 +16,7 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article 1er– |
+| [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -44,9 +44,9 @@ HASSAN GOULED APTIDON.
 | [art-026.md](art-026.md) | Art. 26 |
 | [art-027.md](art-027.md) | Art. 27 |
 | [art-028.md](art-028.md) | Art. 28 |
-| [art-029.md](art-029.md) | Art. 29 – |
+| [art-029.md](art-029.md) | Art. 29 |
 | [art-030.md](art-030.md) | Art. 30 |
-| [art-031.md](art-031.md) | Art. 31 – |
+| [art-031.md](art-031.md) | Art. 31 |
 | [art-032.md](art-032.md) | Art.32 |
 | [art-033.md](art-033.md) | Art. 33 |
 | [art-034.md](art-034.md) | Art.34 |
@@ -103,7 +103,7 @@ HASSAN GOULED APTIDON.
 | [art-085.md](art-085.md) | Art. 85 |
 | [art-086.md](art-086.md) | Art. 86 |
 | [art-087.md](art-087.md) | Art. 87 |
-| [art-088.md](art-088.md) | Art. 88 – |
+| [art-088.md](art-088.md) | Art. 88 |
 | [art-089.md](art-089.md) | Art. 89 |
 | [art-090.md](art-090.md) | Art. 90 |
 | [art-091.md](art-091.md) | Art. 91 |
@@ -119,4 +119,4 @@ HASSAN GOULED APTIDON.
 | [art-101.md](art-101.md) | Art. 101 |
 | [art-102.md](art-102.md) | Art. 102 |
 | [art-103.md](art-103.md) | Art. 103 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

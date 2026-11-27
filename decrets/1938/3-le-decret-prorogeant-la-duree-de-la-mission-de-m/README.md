@@ -1,6 +1,6 @@
 # Décret n° 3° Le decret prorogeant la durée de la mission de M. Meunier, ingénieur principal de 1e classe du cadre général des travaux publics n° 85 du 23 août 1938
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-prorogeant-la-duree-de-la-mission-de-m-meunier-ingenieur-principal-de-1e-classe-du-cadre-general-des-travaux-publics-n-85-du-23-aout-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-prorogeant-la-duree-de-la-mission-de-m-meunier-ingenieur-principal-de-1e-classe-du-cadre-general-des-travaux-publics-n-85-du-23-aout-1938/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ georges MANDEL.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

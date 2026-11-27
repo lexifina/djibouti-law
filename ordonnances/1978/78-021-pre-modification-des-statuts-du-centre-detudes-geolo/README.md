@@ -1,6 +1,6 @@
 # Ordonnance n° 78-021/PRE portant modification des statuts du Centre d’Etudes géologiques et de Développement.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 13/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-021-pre-portant-modification-des-statuts-du-centre-detudes-geologiques-et-de-developpement/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 13/03/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-021-pre-portant-modification-des-statuts-du-centre-detudes-geologiques-et-de-developpement/>
 
 En vigueur : 1978-03-13 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Le Conseil des Ministres entendu,
 | [art-011.md](art-011.md) | Art. 11 nouveau |
 | [art-012.md](art-012.md) | Art. 12 nouveau |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

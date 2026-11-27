@@ -1,6 +1,6 @@
 # Loi n° LR/77-005 portant création d’une contribution patriotique établie, à titre exceptionnel, sur les résultats de l’année 1976.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 09/07/1977 Â· <https://www.journalofficiel.dj/texte-juridique/loi-nlr-77-005-portant-creation-dune-contribution-patriotique-etablie-a-titre-exceptionnel-sur-les-resultats-de-lannee-1976/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 09/07/1977 · <https://www.journalofficiel.dj/texte-juridique/loi-nlr-77-005-portant-creation-dune-contribution-patriotique-etablie-a-titre-exceptionnel-sur-les-resultats-de-lannee-1976/>
 
 En vigueur : 1977-07-09 (date du Journal officiel qui le publie).
 
@@ -14,4 +14,4 @@ En vigueur : 1977-07-09 (date du Journal officiel qui le publie).
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

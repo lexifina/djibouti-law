@@ -1,6 +1,6 @@
 # Loi n° 48-1463 modifiant l’article 412 du Code pénal.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1948 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1463-modifiant-larticle-412-du-code-penal-2/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1948 · <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1463-modifiant-larticle-412-du-code-penal-2/>
 
 En vigueur : 1948-11-30 (date du Journal officiel qui le publie).
 

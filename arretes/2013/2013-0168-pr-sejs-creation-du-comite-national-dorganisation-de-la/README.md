@@ -1,6 +1,6 @@
 # Arrêté n° 2013-0168/PR/SEJS portant création du Comité National d’Organisation de la Dix septième édition du Semi Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0168-pr-sejs-portant-creation-du-comite-national-dorganisation-de-la-dix-septieme-edition-du-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0168-pr-sejs-portant-creation-du-comite-national-dorganisation-de-la-dix-septieme-edition-du-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2013-03-15 (date du Journal officiel qui le publie).
 

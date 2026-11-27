@@ -1,6 +1,6 @@
 # Décret n° n°83 Décret du 28 mai 1930 modifiant le décret du 26 mars 1928 fixant les nouveaux traitements du personnel du cadre général des travaux publies et des mines des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n83-decret-du-28-mai-1930-modifiant-le-decret-du-26-mars-1928-fixant-les-nouveaux-traitements-du-personnel-du-cadre-general-des-travaux-publies-et-des-mines-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n83-decret-du-28-mai-1930-modifiant-le-decret-du-26-mars-1928-fixant-les-nouveaux-traitements-du-personnel-du-cadre-general-des-travaux-publies-et-des-mines-des-colonies/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 04/09/1938 allouant au personnel du département des colonies se déplaçant à l’étranger un supplément temporaire destiné à compenser la perte au change subie du fait de l’alignement du franc.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-09-1938-allouant-au-personnel-du-departement-des-colonies-se-deplacant-a-letranger-un-supplement-temporaire-destine-a-compenser-la-perte-au-change-subie-du-fait-de-lalignement/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-09-1938-allouant-au-personnel-du-departement-des-colonies-se-deplacant-a-letranger-un-supplement-temporaire-destine-a-compenser-la-perte-au-change-subie-du-fait-de-lalignement/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 73-44 rendant applicable dans les territoires d’outre-mer le dernier alinéa de l’article R* 39 du code électoral (JORF. n° 8 du 10 janvier 1973, p. 474).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-44-rendant-applicable-dans-les-territoires-doutre-mer-le-dernier-alinea-de-larticle-r-39-du-code-electoral-jorf-n-8-du-10-janvier-1973-p-474/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-44-rendant-applicable-dans-les-territoires-doutre-mer-le-dernier-alinea-de-larticle-r-39-du-code-electoral-jorf-n-8-du-10-janvier-1973-p-474/>
 
 En vigueur : 1973-01-25 (date du Journal officiel qui le publie).
 

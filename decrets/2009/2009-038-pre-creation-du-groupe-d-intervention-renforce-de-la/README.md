@@ -1,6 +1,6 @@
 # Décret n° 2009-038/PRE portant création du Groupe d’Intervention renforcé de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-038-pre-portant-creation-du-groupe-dintervention-renforce-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-038-pre-portant-creation-du-groupe-dintervention-renforce-de-la-gendarmerie-nationale/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 

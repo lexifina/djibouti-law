@@ -1,6 +1,6 @@
 # Loi n° 160/AN/12/6ème L portant réorganisation du Ministère de l’Economie et des Finances en charge de l’Industrie et de la Planification.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-12-6eme-l-portant-reorganisation-du-ministere-de-leconomie-et-des-finances-en-charge-de-lindustrie-et-de-la-planification/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-12-6eme-l-portant-reorganisation-du-ministere-de-leconomie-et-des-finances-en-charge-de-lindustrie-et-de-la-planification/>
 
 En vigueur : 2012-06-14 (date du Journal officiel qui le publie).
 
@@ -99,4 +99,4 @@ ISMAÏL OMAR GUELLEH
 | [art-054.md](art-054.md) | Article 54 |
 | [art-055.md](art-055.md) | Article 55 |
 | [art-056.md](art-056.md) | Article 56 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

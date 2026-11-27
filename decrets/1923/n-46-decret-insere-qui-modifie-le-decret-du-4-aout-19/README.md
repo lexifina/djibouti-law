@@ -1,6 +1,6 @@
 # Décret n° n°46 décret (inséré) qui modifie le décret du 4 août 1914, sur la solde et les accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 319 du 30/06/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n46-decret-insere-qui-modifie-le-decret-du-4-aout-1914-sur-la-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 319 du 30/06/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n46-decret-insere-qui-modifie-le-decret-du-4-aout-1914-sur-la-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1923-06-30 (date du Journal officiel qui le publie).
 

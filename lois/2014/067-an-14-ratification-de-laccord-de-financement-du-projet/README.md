@@ -1,6 +1,6 @@
 # Loi n° 67/AN/14/7ème L portant ratification de l’Accord de financement du projet » soutien au développement des services d’oncologie en République de Djibouti « .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-soutien-au-developpement-des-services-doncologie-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-soutien-au-developpement-des-services-doncologie-en-republique-de-djibouti/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 47-895 réglementant l’importation, la vente, le transport, la détention et l’exportation des armes, munitions et matériel de guerre a, la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-895-reglementant-limportation-la-vente-le-transport-la-detention-et-lexportation-des-armes-munitions-et-materiel-de-guerre-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-895-reglementant-limportation-la-vente-le-transport-la-detention-et-lexportation-des-armes-munitions-et-materiel-de-guerre-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

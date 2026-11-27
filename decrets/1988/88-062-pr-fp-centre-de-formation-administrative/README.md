@@ -1,8 +1,8 @@
 # Décret n° 88-062/PR/FP relatif au Centre de Formation Administrative.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-062-pr-fp-relatif-au-centre-de-formation-administrative/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-062-pr-fp-relatif-au-centre-de-formation-administrative/>
 
-En vigueur : 1988-07-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1988-07-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

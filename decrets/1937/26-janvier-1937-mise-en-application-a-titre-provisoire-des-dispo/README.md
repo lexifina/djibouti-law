@@ -1,6 +1,6 @@
 # Décret n° 26 janvier 1937 Mise en application, à titre provisoire, des dispositions contenues dans l’échange de lettres du 31 décembre 1936, portant re nouvellement et modification du « modus vivendi » commercial conclu entre la France et l’Italie le 11 août 1936
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-janvier-1937-mise-en-application-a-titre-provisoire-des-dispositions-contenues-dans-lechange-de-lettres-du-31-decembre-1936-portant-re-nouvellement-et-modification-du/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-janvier-1937-mise-en-application-a-titre-provisoire-des-dispositions-contenues-dans-lechange-de-lettres-du-31-decembre-1936-portant-re-nouvellement-et-modification-du/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

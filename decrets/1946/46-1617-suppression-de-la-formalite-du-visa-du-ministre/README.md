@@ -1,6 +1,6 @@
 # Décret n° 46-1617 portant suppression de la formalité du visa du Ministre de la France d’outre-mer pour les actes dressés en France, destinés à être produits dans les territoires d’outre-mer, et relie de la légalisation, pour les actes dressés dans les territoires d’outre-mer et destinés à être produits en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1617-portant-suppression-de-la-formalite-du-visa-du-ministre-de-la-france-doutre-mer-pour-les-actes-dresses-en-france-destines-a-etre-produits-dans-les-territoires-d/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1617-portant-suppression-de-la-formalite-du-visa-du-ministre-de-la-france-doutre-mer-pour-les-actes-dresses-en-france-destines-a-etre-produits-dans-les-territoires-d/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

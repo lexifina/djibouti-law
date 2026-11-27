@@ -1,6 +1,6 @@
 # Loi n° 133/AN/01/4ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’ouverture de la 2ème Session Ordinaire de 2001 dite “Session Budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-01-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-2001-dite/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-01-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-2001-dite/>
 
 En vigueur : 2001-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 5/AN/98/4ème L portant arrêt des Comptes définitifs de l’O.N.E.D. pour l’exercice 1996.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-98-4eme-l-portant-arret-des-comptes-definitifs-de-lo-n-e-d-pour-lexercice-1996/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-98-4eme-l-portant-arret-des-comptes-definitifs-de-lo-n-e-d-pour-lexercice-1996/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2000-0304/PR/MJAPM relatif aux avantages et indemnités accordés aux Magistrats de la Chambre des Comptes et de Discipline Budgétaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0304-pr-mjapm-relatif-aux-avantages-et-indemnites-accordes-aux-magistrats-de-la-chambre-des-comptes-et-de-discipline-budgetaire/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0304-pr-mjapm-relatif-aux-avantages-et-indemnites-accordes-aux-magistrats-de-la-chambre-des-comptes-et-de-discipline-budgetaire/>
 
 En vigueur : 2000-12-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

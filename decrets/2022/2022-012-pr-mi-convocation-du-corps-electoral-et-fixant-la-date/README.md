@@ -1,6 +1,6 @@
 # Décret n° 2022-012/PR/MI portant convocation du corps électoral et fixant la date des élections régionales et communales ainsi que les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 07/02/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-012-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-ainsi-que-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 07/02/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-012-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-ainsi-que-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 2022-02-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

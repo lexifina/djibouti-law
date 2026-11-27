@@ -1,6 +1,6 @@
 # Ordonnance n° 80-049/PR/J portant modification au statut du Tribunal de Sûreté de la République.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-049-pr-j-portant-modification-au-statut-du-tribunal-de-surete-de-la-republique/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-049-pr-j-portant-modification-au-statut-du-tribunal-de-surete-de-la-republique/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

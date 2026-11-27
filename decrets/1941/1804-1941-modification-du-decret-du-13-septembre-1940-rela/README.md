@@ -1,6 +1,6 @@
 # Décret n° 1804/1941 portant modification du décret du 13 septembre 1940 relatif aux prohibitions de sortie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1804-1941-portant-modification-du-decret-du-13-septembre-1940-relatif-aux-prohibitions-de-sortie/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1804-1941-portant-modification-du-decret-du-13-septembre-1940-relatif-aux-prohibitions-de-sortie/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

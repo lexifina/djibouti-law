@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0321/PR/MCCPT portant création du comité d’organisation du Forum Cuturel de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0321-pr-mccpt-portant-creation-du-comite-dorganisation-du-forum-cuturel-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0321-pr-mccpt-portant-creation-du-comite-dorganisation-du-forum-cuturel-de-djibouti/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

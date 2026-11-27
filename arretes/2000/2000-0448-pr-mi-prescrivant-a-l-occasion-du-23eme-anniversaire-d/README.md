@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0448/PR/MI prescrivant à l’occasion du 23ème Anniversaire de l’Indépendance – le ravalement des façades de la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0448-pr-mi-prescrivant-a-loccasion-du-23eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0448-pr-mi-prescrivant-a-loccasion-du-23eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 

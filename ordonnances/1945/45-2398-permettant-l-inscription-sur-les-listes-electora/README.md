@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2398 permettant l’inscription sur les listes électorales des fonctionnaires mutés après clôture de celles-ci.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2398-permettant-linscription-sur-les-listes-electorales-des-fonctionnaires-mutes-apres-cloture-de-celles-ci/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2398-permettant-linscription-sur-les-listes-electorales-des-fonctionnaires-mutes-apres-cloture-de-celles-ci/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

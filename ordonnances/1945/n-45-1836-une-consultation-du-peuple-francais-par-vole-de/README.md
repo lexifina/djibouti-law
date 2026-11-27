@@ -1,6 +1,6 @@
 # Ordonnance n° n° 45-1836 instituant une consultation du peuple français par vole de référendum et fixant le terme des pouvoirs de l’Assemblée Consultative
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-1836-instituant-une-consultation-du-peuple-francais-par-vole-de-referendum-et-fixant-le-terme-des-pouvoirs-de-lassemblee-consultative/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-1836-instituant-une-consultation-du-peuple-francais-par-vole-de-referendum-et-fixant-le-terme-des-pouvoirs-de-lassemblee-consultative/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

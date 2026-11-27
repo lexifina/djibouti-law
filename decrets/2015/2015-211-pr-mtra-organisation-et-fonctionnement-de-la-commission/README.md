@@ -1,9 +1,9 @@
 # Décret n° 2015-211/PR/MTRA portant organisation
 et fonctionnement de la Commission Nationale de Sécurité et de Santé au Travail.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-211-pr-mtra-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-securite-et-de-sante-au-travail/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-211-pr-mtra-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-securite-et-de-sante-au-travail/>
 
-En vigueur : 2015-07-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-07-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

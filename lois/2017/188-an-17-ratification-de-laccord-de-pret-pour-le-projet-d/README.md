@@ -1,6 +1,6 @@
 # Loi n° 188/AN/17/7ème L portant ratification de l’accord de prêt pour le projet d’appui au renforcement des compétences dans le secteur de la santé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-17-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-au-renforcement-des-competences-dans-le-secteur-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-17-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-au-renforcement-des-competences-dans-le-secteur-de-la-sante/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 

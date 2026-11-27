@@ -1,6 +1,6 @@
 # Décret n° 2023-311/PRE portant création du Journal Officiel Electronique dénommé “E-JO”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-311-pre-portant-creation-du-journal-officiel-electronique-denomme-e-jo/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-311-pre-portant-creation-du-journal-officiel-electronique-denomme-e-jo/>
 
 En vigueur : 2023-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

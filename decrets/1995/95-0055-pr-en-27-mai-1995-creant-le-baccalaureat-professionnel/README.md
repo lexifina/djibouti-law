@@ -1,8 +1,8 @@
 # Décret n° 95-0055/PR/EN du 27 mai 1995 créant le Baccalauréat professionnel, définissant les conditions d’accès à ce diplôme et les conditions de délivrance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0055-pr-en-du-27-mai-1995-creant-le-baccalaureat-professionnel-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-delivrance/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0055-pr-en-du-27-mai-1995-creant-le-baccalaureat-professionnel-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-delivrance/>
 
-En vigueur : 1995-05-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1995-05-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -23,4 +23,4 @@ HASSAN GOULED APTIDON.
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

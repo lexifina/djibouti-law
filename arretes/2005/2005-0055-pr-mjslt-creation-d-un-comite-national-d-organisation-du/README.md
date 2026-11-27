@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0055/PR/MJSLT portant création d’un Comité National d’Organisation du Tournoi International de Tennis à Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0055-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-tournoi-international-de-tennis-a-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0055-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-tournoi-international-de-tennis-a-djibouti/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

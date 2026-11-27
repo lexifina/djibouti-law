@@ -1,6 +1,6 @@
 # Décret n° du 21 avril 1939. avant pour objet de garantir aux hommes rappelés sous les drapeaux la reprise de leur contrat de travail.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-avril-1939-avant-pour-objet-de-garantir-aux-hommes-rappeles-sous-les-drapeaux-la-reprise-de-leur-contrat-de-travail/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-avril-1939-avant-pour-objet-de-garantir-aux-hommes-rappeles-sous-les-drapeaux-la-reprise-de-leur-contrat-de-travail/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -38,5 +38,5 @@ Georges MANDEL,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

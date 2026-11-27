@@ -1,6 +1,6 @@
 # Décret n° n°28 Décret portant réduction de 10 p. 100 des loyers et du montant des intérêts des dettes hypothécaires, dans les colonies, protectorats et territoires sous mandat relevant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n28-decret-portant-reduction-de-10-p-100-des-loyers-et-du-montant-des-interets-des-dettes-hypothecaires-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n28-decret-portant-reduction-de-10-p-100-des-loyers-et-du-montant-des-interets-des-dettes-hypothecaires-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 

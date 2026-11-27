@@ -1,6 +1,6 @@
 # Décret n° 2016-242/PRE portant mise en place d’un Conseil de Développement Economique de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-242-pre-portant-mise-en-place-dun-conseil-de-developpement-economique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-242-pre-portant-mise-en-place-dun-conseil-de-developpement-economique-de-djibouti/>
 
 En vigueur : 2016-09-15 (date du Journal officiel qui le publie).
 

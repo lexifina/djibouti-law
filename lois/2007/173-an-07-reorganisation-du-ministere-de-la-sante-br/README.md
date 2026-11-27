@@ -1,8 +1,8 @@
 # Loi n° 173/AN/07/5ème L portant réorganisation du Ministère de la Santé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-07-5eme-l-portant-reorganisation-du-ministere-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-07-5eme-l-portant-reorganisation-du-ministere-de-la-sante/>
 
-En vigueur : 2007-04-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2007-04-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

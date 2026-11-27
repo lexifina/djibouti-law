@@ -1,6 +1,6 @@
 # Décret n° 03-166-1910 Ministère des Travaux publics, des Postes et des Télégraphes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 166 du 01/09/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-166-1910-ministere-des-travaux-publics-des-postes-et-des-telegraphes/>
+Décret · Journal officiel de la République de Djibouti, n° 166 du 01/09/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-166-1910-ministere-des-travaux-publics-des-postes-et-des-telegraphes/>
 
 En vigueur : 1910-09-01 (date du Journal officiel qui le publie).
 

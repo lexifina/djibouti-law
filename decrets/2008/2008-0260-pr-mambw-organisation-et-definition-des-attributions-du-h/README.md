@@ -1,6 +1,6 @@
 # Décret n° 2008-0260/PR/MAMBW portant organisation et définition des attributions du Haut Conseil Islamique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0260-pr-mambw-portant-organisation-et-definition-des-attributions-du-haut-conseil-islamique/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0260-pr-mambw-portant-organisation-et-definition-des-attributions-du-haut-conseil-islamique/>
 
 En vigueur : 2008-11-15 (date du Journal officiel qui le publie).
 

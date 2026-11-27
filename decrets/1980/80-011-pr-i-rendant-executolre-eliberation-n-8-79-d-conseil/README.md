@@ -1,6 +1,6 @@
 # Décret n° 80/011/PR/I rendant exécutolre élibération n° 8-79 d conseil d’administration de l’Office des Postes et Télécommunication: portant. approbation du budcaet orimitif pour l’exercice 1980.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-011-pr-i-rendant-executolre-eliberation-n-8-79-d-conseil-dadministration-de-loffice-des-postes-et-telecommunication-portant-approbation-du-budcaet-orimitif-pour-l/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-011-pr-i-rendant-executolre-eliberation-n-8-79-d-conseil-dadministration-de-loffice-des-postes-et-telecommunication-portant-approbation-du-budcaet-orimitif-pour-l/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ tration de I'Office des Postes et Télécommunications
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

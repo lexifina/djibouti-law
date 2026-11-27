@@ -1,6 +1,6 @@
 # Décret n° 74-391 portant modification de l’article 6 du décret n° 49-377 du 17 mars 1949 relatif au régime de l’émission en Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 10/06/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-391-portant-modification-de-larticle-6-du-decret-n-49-377-du-17-mars-1949-relatif-au-regime-de-lemission-en-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 10/06/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-391-portant-modification-de-larticle-6-du-decret-n-49-377-du-17-mars-1949-relatif-au-regime-de-lemission-en-cote-francaise-des-somalis/>
 
 En vigueur : 1974-06-10 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ JOSEPH COMITI.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Loi n° 15-215-1914 modifiant l’article 162 du Code Civil, en ce qui concerne le mariage entre beaux-frères et belles-sœurs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 215 du 30/09/1914 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-15-215-1914-modifiant-larticle-162-du-code-civil-en-ce-qui-concerne-le-mariage-entre-beaux-freres-et-belles-soeurs/>
+Loi · Journal officiel de la République de Djibouti, n° 215 du 30/09/1914 · <https://www.journalofficiel.dj/texte-juridique/loi-n-15-215-1914-modifiant-larticle-162-du-code-civil-en-ce-qui-concerne-le-mariage-entre-beaux-freres-et-belles-soeurs/>
 
 En vigueur : 1914-09-30 (date du Journal officiel qui le publie).
 

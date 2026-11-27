@@ -1,6 +1,6 @@
 # Loi n° 61-818 modifiant, en ce qui concerne les territoires d’outre-mer, l’ordonnance n° 59-260 du 4 février 1959 relative à l’élection des sénateurs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1961 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-61-818-modifiant-en-ce-qui-concerne-les-territoires-doutre-mer-lordonnance-n-59-260-du-4-fevrier-1959-relative-a-lelection-des-senateurs/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 31/07/1961 · <https://www.journalofficiel.dj/texte-juridique/loi-n-61-818-modifiant-en-ce-qui-concerne-les-territoires-doutre-mer-lordonnance-n-59-260-du-4-fevrier-1959-relative-a-lelection-des-senateurs/>
 
 En vigueur : 1961-07-31 (date du Journal officiel qui le publie).
 

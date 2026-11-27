@@ -1,8 +1,8 @@
 # Décret n° 2009-074/PR/MID portant reconnaissance d’utilité publique de l’Association Dawat-Al-Islam.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-074-pr-mid-portant-reconnaissance-dutilite-publique-de-lassociation-dawat-al-islam/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-074-pr-mid-portant-reconnaissance-dutilite-publique-de-lassociation-dawat-al-islam/>
 
-En vigueur : 2009-04-19 (date fixÃ©e par le texte).
+En vigueur : 2009-04-19 (date fixée par le texte).
 
 ## Visas
 

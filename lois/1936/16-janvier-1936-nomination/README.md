@@ -1,6 +1,6 @@
 # Amendement n° 16 janvier 1936 nomination
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 470 du 31/01/1936 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-16-janvier-1936-nomination/>
+Amendement · Journal officiel de la République de Djibouti, n° 470 du 31/01/1936 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-16-janvier-1936-nomination/>
 
 En vigueur : 1936-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2 mai 1941 2 mai 1941
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 534 du 31/05/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-mai-1941-2-mai-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 534 du 31/05/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-mai-1941-2-mai-1941/>
 
 En vigueur : 1941-05-31 (date du Journal officiel qui le publie).
 

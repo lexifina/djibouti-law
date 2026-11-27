@@ -1,6 +1,6 @@
 # Décret n° 67-762 relatif aux taxes et redevances perçues en matière de propriété industrielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 10/11/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-762-relatif-aux-taxes-et-redevances-percues-en-matiere-de-propriete-industrielle/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 10/11/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-762-relatif-aux-taxes-et-redevances-percues-en-matiere-de-propriete-industrielle/>
 
 En vigueur : 1967-11-10 (date du Journal officiel qui le publie).
 

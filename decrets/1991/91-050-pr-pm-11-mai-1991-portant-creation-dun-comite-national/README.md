@@ -1,6 +1,6 @@
 # Décret n° 91-050/PR/PM du 11 mai 1991 portant création d’un comité national pour l’Environnement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-050-pr-pm-du-11-mai-1991-portant-creation-dun-comite-national-pour-lenvironnement/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-050-pr-pm-du-11-mai-1991-portant-creation-dun-comite-national-pour-lenvironnement/>
 
 En vigueur : 1991-05-15 (date du Journal officiel qui le publie).
 

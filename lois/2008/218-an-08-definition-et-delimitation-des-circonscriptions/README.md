@@ -1,6 +1,6 @@
 # Loi n° 218/AN/08/5ème L Portant définition et délimitation des circonscriptions électorales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 23/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-08-5eme-l-portant-definition-et-delimitation-des-circonscriptions-electorales/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 23/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-08-5eme-l-portant-definition-et-delimitation-des-circonscriptions-electorales/>
 
 En vigueur : 2008-01-23 (date du Journal officiel qui le publie).
 

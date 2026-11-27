@@ -1,6 +1,6 @@
 # Loi n° 176/AN/12/6ème L portant approbation de l’adhésion de la République de Djibouti au Traité créant l’Observatoire Economique et Statistique d’Afrique Subsaharienne (AFRISTAT).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-12-6eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-traite-creant-lobservatoire-economique-et-statistique-dafrique-subsaharienne-afristat/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-12-6eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-traite-creant-lobservatoire-economique-et-statistique-dafrique-subsaharienne-afristat/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

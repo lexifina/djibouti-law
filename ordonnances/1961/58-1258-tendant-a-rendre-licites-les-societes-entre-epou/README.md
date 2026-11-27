@@ -1,6 +1,6 @@
 # Ordonnance n° 58-1258 tendant à rendre licites les Sociétés entre époux
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1961 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-1258-tendant-a-rendre-licites-les-societes-entre-epoux/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 31/08/1961 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-1258-tendant-a-rendre-licites-les-societes-entre-epoux/>
 
 En vigueur : 1961-08-31 (date du Journal officiel qui le publie).
 

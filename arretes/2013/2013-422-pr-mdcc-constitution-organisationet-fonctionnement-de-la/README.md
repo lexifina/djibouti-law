@@ -1,6 +1,6 @@
 # Arrêté n° 2013-422/PR/MDCC portant constitution, organisationet fonctionnement de la Commission de Coordination et de suivi du programme d’intégration régional du COMESA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-422-pr-mdcc-portant-constitution-organisationet-fonctionnement-de-la-commission-de-coordination-et-de-suivi-du-programme-dintegration-regional-du-comesa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-422-pr-mdcc-portant-constitution-organisationet-fonctionnement-de-la-commission-de-coordination-et-de-suivi-du-programme-dintegration-regional-du-comesa/>
 
 En vigueur : 2013-07-31 (date du Journal officiel qui le publie).
 

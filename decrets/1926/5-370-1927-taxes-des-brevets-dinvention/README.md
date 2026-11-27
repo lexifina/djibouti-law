@@ -1,6 +1,6 @@
 # Décret n° 5-370-1927 Taxes des brevets d’invention.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-370-1927-taxes-des-brevets-dinvention/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-370-1927-taxes-des-brevets-dinvention/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 

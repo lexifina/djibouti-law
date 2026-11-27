@@ -1,6 +1,6 @@
 # Décret n° 46-1931 déterminant les dispositions spéciales prises en faveur des fonctionnaires du cadre des trésoreries coloniales ayant dû quitter leur emploi par suite d’événements de guerre ainsi qu’en faveur des candidats à ce cadre ayant été empêchés d’y accéder.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1931-determinant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-du-cadre-des-tresoreries-coloniales-ayant-du-quitter-leur-emploi-par-suite-devenements-de-g/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1931-determinant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-du-cadre-des-tresoreries-coloniales-ayant-du-quitter-leur-emploi-par-suite-devenements-de-g/>
 
 En vigueur : 1946-09-30 (date du Journal officiel qui le publie).
 

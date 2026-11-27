@@ -1,6 +1,6 @@
 # Arrêté n° 91-0616/PR/FIN augmentant le montant autorisé de l’encaisse de la Paierie du trésor auprès de l’Ambassade de Djibouti à Washington.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0616-pr-fin-augmentant-le-montant-autorise-de-lencaisse-de-la-paierie-du-tresor-aupres-de-lambassade-de-djibouti-a-washington/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0616-pr-fin-augmentant-le-montant-autorise-de-lencaisse-de-la-paierie-du-tresor-aupres-de-lambassade-de-djibouti-a-washington/>
 
 En vigueur : 1991-06-30 (date du Journal officiel qui le publie).
 

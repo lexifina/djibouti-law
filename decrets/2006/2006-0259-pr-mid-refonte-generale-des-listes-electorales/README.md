@@ -1,6 +1,6 @@
 # Décret n° 2006-0259/PR/MID portant refonte générale des listes Électorales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0259-pr-mid-portant-refonte-generale-des-listes-electorales/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0259-pr-mid-portant-refonte-generale-des-listes-electorales/>
 
 En vigueur : 2006-11-15 (date du Journal officiel qui le publie).
 

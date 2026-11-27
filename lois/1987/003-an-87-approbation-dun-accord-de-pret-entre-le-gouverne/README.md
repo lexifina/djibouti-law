@@ -1,6 +1,6 @@
 # Loi n° 3/AN/87/2e L portant approbation d’un accord de prêt entre le gouvernement de la République de Djibouti et le Fonds Africain de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/10/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-87-2e-l-portant-approbation-dun-accord-de-pret-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-fonds-africain-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/10/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-87-2e-l-portant-approbation-dun-accord-de-pret-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-fonds-africain-de-developpement/>
 
 En vigueur : 1987-10-15 (date du Journal officiel qui le publie).
 

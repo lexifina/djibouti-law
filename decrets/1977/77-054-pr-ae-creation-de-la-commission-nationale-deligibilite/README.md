@@ -1,6 +1,6 @@
 # Décret n° 77-054/PR/AE portant création de la Commission nationale d’éligibilité des réfugiés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-054-pr-ae-portant-creation-de-la-commission-nationale-deligibilite-des-refugies/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-054-pr-ae-portant-creation-de-la-commission-nationale-deligibilite-des-refugies/>
 
 En vigueur : 1977-11-28 (date du Journal officiel qui le publie).
 

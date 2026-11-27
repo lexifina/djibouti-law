@@ -1,1 +1,0 @@
-Par décret n°2023-150/PRE, du Président de la République, chef du Gouvernement, en date du 13 juin 2023, pendant la durée de l’absence de S.E.M. YONIS ALI GUEDI, l’intérim des fonctions du Ministre de l’Energie, chargé des Ressources Naturelles sera assuré par S.E.M. NABIL MOHAMED AHMED, Ministre de l’Enseignement Supérieur et de la Recherche, cumulativement avec ses fonctions.

@@ -1,6 +1,6 @@
 # Décret n° 65-141 relatif au fonctionnement des stations radioélectriques dans les circonstances prévues aux articles 2 et 6 de l’ordonnance n° 59-147 du 7 janvier 1959 portant organisation générale de la défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-141-relatif-au-fonctionnement-des-stations-radioelectriques-dans-les-circonstances-prevues-aux-articles-2-et-6-de-lordonnance-n-59-147-du-7-janvier-1959-portant-organisation/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-141-relatif-au-fonctionnement-des-stations-radioelectriques-dans-les-circonstances-prevues-aux-articles-2-et-6-de-lordonnance-n-59-147-du-7-janvier-1959-portant-organisation/>
 
 En vigueur : 1965-04-01 (date du Journal officiel qui le publie).
 

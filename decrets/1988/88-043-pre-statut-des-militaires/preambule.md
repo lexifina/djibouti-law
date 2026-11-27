@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I
 STATUT GENERAL DES MILITAIRES
 PLAN D’ÉTUDE

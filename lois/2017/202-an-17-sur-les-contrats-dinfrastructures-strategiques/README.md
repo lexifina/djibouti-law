@@ -1,6 +1,6 @@
 # Loi n° 202/AN/17/7ème L portant sur les contrats d’infrastructures stratégiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-17-7eme-l-portant-sur-les-contrats-dinfrastructures-strategiques/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-17-7eme-l-portant-sur-les-contrats-dinfrastructures-strategiques/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

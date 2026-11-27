@@ -1,6 +1,6 @@
 # Décret n° 84-081/PR/MCTT approuvant le budget extraordinaire rectifié 1983 de la Chambre internationale de Commerce et d’Industrie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/08/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-081-pr-mctt-approuvant-le-budget-extraordinaire-rectifie-1983-de-la-chambre-internationale-de-commerce-et-dindustrie/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/08/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-081-pr-mctt-approuvant-le-budget-extraordinaire-rectifie-1983-de-la-chambre-internationale-de-commerce-et-dindustrie/>
 
 En vigueur : 1984-08-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Le Conseil des Ministres entendu en sa séance du 10 juillet 1984.
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 129/AN/01/4ème L portant Organisation du Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-01-4eme-l-portant-organisation-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-01-4eme-l-portant-organisation-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

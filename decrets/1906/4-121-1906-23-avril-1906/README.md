@@ -1,6 +1,6 @@
 # Décret n° 4-121-1906 le 23 avril 1906.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 121 du 01/12/1906 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-121-1906-le-23-avril-1906/>
+Décret · Journal officiel de la République de Djibouti, n° 121 du 01/12/1906 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-121-1906-le-23-avril-1906/>
 
 En vigueur : 1906-12-01 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ LEYGUES,
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

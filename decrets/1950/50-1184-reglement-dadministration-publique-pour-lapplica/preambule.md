@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art 1er — sur tous les points qui ne sont pas réglés par la ‘loi n » ’30-31004 du 19 août, 1950 ou par le présent décret les«dispositions réglementaires, en vigueur .dans le territoire ponr l’élection du député à l’Assemblée nationale sont’ applicables aux élections à l’Assemblée représentative de la Côte française des S’oninlis, a l’exception; du décret n° 46-21-92 du 3.6 octobre 1.946.

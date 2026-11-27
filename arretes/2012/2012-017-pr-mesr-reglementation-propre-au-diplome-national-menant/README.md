@@ -1,6 +1,6 @@
 # Arrêté n° 2012-017/PR/MESR portant réglementation propre au diplôme national menant au grade de Licence “Biologie Géologie”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-017-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-biologie-geologie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-017-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-biologie-geologie/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

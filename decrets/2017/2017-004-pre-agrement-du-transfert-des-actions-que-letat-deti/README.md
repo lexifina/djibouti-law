@@ -1,6 +1,6 @@
 # Décret n° 2017-004/PRE portant agrément du transfert des actions que l’État détient dans la société Port de Djibouti S.A.à la société“GREAT HORN INVESTMENT HOLDINGS S.A.S”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-004-pre-portant-agrement-du-transfert-des-actions-que-letat-detient-dans-la-societe-port-de-djibouti-s-a-a-la-societegreat-horn-investment-holdings-s-a-s/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-004-pre-portant-agrement-du-transfert-des-actions-que-letat-detient-dans-la-societe-port-de-djibouti-s-a-a-la-societegreat-horn-investment-holdings-s-a-s/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

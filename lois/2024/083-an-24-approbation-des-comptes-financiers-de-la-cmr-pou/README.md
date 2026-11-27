@@ -1,6 +1,6 @@
 # Loi n° 83/AN/24/9ème L Portant approbation des comptes financiers de la CMR pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-la-cmr-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 15/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-la-cmr-pour-lexercice-2019/>
 
 En vigueur : 2025-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-002/PR/MET portant adoption du budget prévisionnel 2019 du Laboratoire Central du Bâtiment et de l’Equipement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-002-pr-met-portant-adoption-du-budget-previsionnel-2019-du-laboratoire-central-du-batiment-et-de-lequipement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-002-pr-met-portant-adoption-du-budget-previsionnel-2019-du-laboratoire-central-du-batiment-et-de-lequipement/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

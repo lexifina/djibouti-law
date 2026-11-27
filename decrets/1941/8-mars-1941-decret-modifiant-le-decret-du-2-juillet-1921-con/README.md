@@ -1,6 +1,6 @@
 # Décret n° 8 mars 1941 Le décret modifiant le décret du 2 juillet 1921 concernant la solde des troupes coloniales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mars-1941-le-decret-modifiant-le-decret-du-2-juillet-1921-concernant-la-solde-des-troupes-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mars-1941-le-decret-modifiant-le-decret-du-2-juillet-1921-concernant-la-solde-des-troupes-coloniales/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

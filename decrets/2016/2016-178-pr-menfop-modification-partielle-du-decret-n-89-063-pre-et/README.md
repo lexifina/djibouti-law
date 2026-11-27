@@ -1,8 +1,8 @@
 # Décret n° 2016-178/PR/MENFOP portant modification partielle du Décret n° 89-063/PRE et du Décret n° 2004-0192/PR/MENESUP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-178-pr-menfop-portant-modification-partielle-du-decret-n89-063-pre-et-du-decret-n2004-0192-pr-menesup/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-178-pr-menfop-portant-modification-partielle-du-decret-n89-063-pre-et-du-decret-n2004-0192-pr-menesup/>
 
-En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

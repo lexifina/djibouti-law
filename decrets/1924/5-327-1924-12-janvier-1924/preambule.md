@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er. — Composition du service, Le personnel permanent du service du contrôle du chemin de fer franco-éthiopien comprend:
 1° Un ingénieur en chef du contrôle ou contrôleur technique:
 2° Un contrôleur technique adjoint,

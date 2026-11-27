@@ -1,6 +1,6 @@
 # Loi n° 226/AN/86/1re L approuvant le compte administratif exercice 1985 de l’Établissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n226-an-86-1re-l-approuvant-le-compte-administratif-exercice-1985-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n226-an-86-1re-l-approuvant-le-compte-administratif-exercice-1985-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2-354-1926 portant fixation des nouveaux traitements du personnel permanent du contrôle du chemin de fer franco-éthiopien (arrêté de promulgation du 5 mai 1926.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 354 du 31/05/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-354-1926-portant-fixation-des-nouveaux-traitements-du-personnel-permanent-du-controle-du-chemin-de-fer-franco-ethiopien-arrete-de-promulgation-du-5-mai-1926/>
+Décret · Journal officiel de la République de Djibouti, n° 354 du 31/05/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-354-1926-portant-fixation-des-nouveaux-traitements-du-personnel-permanent-du-controle-du-chemin-de-fer-franco-ethiopien-arrete-de-promulgation-du-5-mai-1926/>
 
 En vigueur : 1926-05-31 (date du Journal officiel qui le publie).
 
@@ -27,5 +27,5 @@ RAOUL PÉRET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

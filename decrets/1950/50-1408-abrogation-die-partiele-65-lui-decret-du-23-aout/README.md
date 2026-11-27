@@ -1,6 +1,6 @@
 # Décret n° 50-1408 portant abrogation die Partiele 65 «lui décret du 23 août 19441 portant création du cadre généra! des transmissions coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1408-portant-abrogation-die-partiele-65-lui-decret-du-23-aout-19441-portant-creation-du-cadre-genera-des-transmissions-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1408-portant-abrogation-die-partiele-65-lui-decret-du-23-aout-19441-portant-creation-du-cadre-genera-des-transmissions-coloniales/>
 
 En vigueur : 1951-03-01 (date du Journal officiel qui le publie).
 

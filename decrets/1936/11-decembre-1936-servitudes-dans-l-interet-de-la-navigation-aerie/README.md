@@ -1,6 +1,6 @@
 # Décret n° 11 décembre 1936 Servitudes dans l’intérêt de la navigation aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-decembre-1936-servitudes-dans-linteret-de-la-navigation-aerienne/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-decembre-1936-servitudes-dans-linteret-de-la-navigation-aerienne/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ Marins MOUTET.
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

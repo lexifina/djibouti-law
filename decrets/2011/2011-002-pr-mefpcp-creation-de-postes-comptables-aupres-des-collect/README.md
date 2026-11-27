@@ -1,8 +1,8 @@
 # Décret n° 2011-002/PR/MEFPCP portant création de postes comptables auprès des Collectivités Régionales et fixant le régime juridique applicable à leurs comptables publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-002-pr-mefpcp-portant-creation-de-postes-comptables-aupres-des-collectivites-regionales-et-fixant-le-regime-juridique-applicable-a-leurs-comptables-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-002-pr-mefpcp-portant-creation-de-postes-comptables-aupres-des-collectivites-regionales-et-fixant-le-regime-juridique-applicable-a-leurs-comptables-publics/>
 
-En vigueur : 2011-01-06 (date fixÃ©e par le texte).
+En vigueur : 2011-01-06 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 81- 058/PR DU 6 mai 1981 fixant les modalités d’organisation de l’élection du président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 09/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-058-pr-du-6-mai-1981-fixant-les-modalites-dorganisation-de-lelection-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 09/05/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-058-pr-du-6-mai-1981-fixant-les-modalites-dorganisation-de-lelection-du-president-de-la-republique/>
 
 En vigueur : 1981-05-09 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ HASSAN GOULED APTIDON
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art.22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 6 novembre 1941 portant extension aux territoires relevant du Secrétariat d’Etat aux colonies de la loi du 17 mars 1941 tendant à la reprise du cours de certains délais suspendus au profit des mobilisés par le décret du 1 er septembre 1939. (N° 4686.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 541 du 31/12/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-novembre-1941-portant-extension-aux-territoires-relevant-du-secretariat-detat-aux-colonies-de-la-loi-du-17-mars-1941-tendant-a-la-reprise-du-cours-de-certains-delais-suspend/>
+Décret · Journal officiel de la République de Djibouti, n° 541 du 31/12/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-novembre-1941-portant-extension-aux-territoires-relevant-du-secretariat-detat-aux-colonies-de-la-loi-du-17-mars-1941-tendant-a-la-reprise-du-cours-de-certains-delais-suspend/>
 
 En vigueur : 1941-12-31 (date du Journal officiel qui le publie).
 

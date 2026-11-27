@@ -1,6 +1,6 @@
 # Arrêté n° 2019-165/PR/MB portant attribution de deux parcelles de terrain sis Balbala Route Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-165-pr-mb-portant-attribution-de-deux-parcelles-de-terrain-sis-balbala-route-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-165-pr-mb-portant-attribution-de-deux-parcelles-de-terrain-sis-balbala-route-nationale/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

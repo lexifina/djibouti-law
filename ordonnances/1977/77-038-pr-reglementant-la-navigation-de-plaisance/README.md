@@ -1,6 +1,6 @@
 # Ordonnance n° 77-038/PR réglementant la navigation de plaisance.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 24/10/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-038-pr-reglementant-la-navigation-de-plaisance/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 24/10/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-038-pr-reglementant-la-navigation-de-plaisance/>
 
 En vigueur : 1977-10-24 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 12/07/1972 Légsion d’Honneur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-07-1972-legsion-dhonneur/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-07-1972-legsion-dhonneur/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

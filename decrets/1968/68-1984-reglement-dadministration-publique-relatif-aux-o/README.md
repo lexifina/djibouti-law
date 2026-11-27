@@ -1,6 +1,6 @@
 # Décret n° 68-1984 portant règlement d’administration publique relatif aux opérations de réassurance et modifiant le décret du 30 décembre 1938.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1984-portant-reglement-dadministration-publique-relatif-aux-operations-de-reassurance-et-modifiant-le-decret-du-30-decembre-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1984-portant-reglement-dadministration-publique-relatif-aux-operations-de-reassurance-et-modifiant-le-decret-du-30-decembre-1938/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 46-10 organisant la mission de délimitation de la frontière entre la Côte française des Somalis et l’Empire d’Ethiopie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-10-organisant-la-mission-de-delimitation-de-la-frontiere-entre-la-cote-francaise-des-somalis-et-lempire-dethiopie/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-10-organisant-la-mission-de-delimitation-de-la-frontiere-entre-la-cote-francaise-des-somalis-et-lempire-dethiopie/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

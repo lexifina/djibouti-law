@@ -1,6 +1,6 @@
 # Décret n° n° 1223 du 30 novembre 1939 pris en Conseil d’administration et rendant provisoirement exécutoire le budget du service local pour l’exercice 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1223-du-30-novembre-1939-pris-en-conseil-dadministration-et-rendant-provisoirement-executoire-le-budget-du-service-local-pour-lexercice-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1223-du-30-novembre-1939-pris-en-conseil-dadministration-et-rendant-provisoirement-executoire-le-budget-du-service-local-pour-lexercice-1940/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 

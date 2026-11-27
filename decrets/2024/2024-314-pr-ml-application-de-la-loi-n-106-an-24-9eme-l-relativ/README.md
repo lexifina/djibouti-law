@@ -1,8 +1,8 @@
 # Décret n° 2024-314/PR/Ml portant application de la loi n° 106/AN/24/9ème L relative à la lutte contre le blanchiment des capitaux, le financement du terrorisme et la prolifération des armes de destruction massive.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-314-pr-ml-portant-application-de-la-loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 28/11/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-314-pr-ml-portant-application-de-la-loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes/>
 
-En vigueur : 2024-11-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-11-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

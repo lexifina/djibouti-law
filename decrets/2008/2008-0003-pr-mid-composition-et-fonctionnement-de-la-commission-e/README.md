@@ -1,6 +1,6 @@
 # Décret n° 2008-0003/PR/MID portant composition et fonctionnement de la Commission Electorale Nationale Indépendante pour les prochaines élections législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0003-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante-pour-les-prochaines-elections-legislatives/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0003-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante-pour-les-prochaines-elections-legislatives/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

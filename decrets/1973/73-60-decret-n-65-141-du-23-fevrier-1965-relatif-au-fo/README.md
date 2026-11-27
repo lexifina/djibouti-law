@@ -1,6 +1,6 @@
 # Décret n° 73-60 modifiant le décret n° 65-141 du 23 février 1965 relatif au fonctionnement des stations radio-électriques dans les circonstances prévues aux articles 2 et 6 de l’ordonnance n° 59-147 du 7 janvier 1959 portant organisation générale de la défense (J.O.R.F. n° 13 des 15 et 16 janvier 1973, p. 644).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 25/02/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-60-modifiant-le-decret-n-65-141-du-23-fevrier-1965-relatif-au-fonctionnement-des-stations-radio-electriques-dans-les-circonstances-prevues-aux-articles-2-et-6-de-lordonnance/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 25/02/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-60-modifiant-le-decret-n-65-141-du-23-fevrier-1965-relatif-au-fonctionnement-des-stations-radio-electriques-dans-les-circonstances-prevues-aux-articles-2-et-6-de-lordonnance/>
 
 En vigueur : 1973-02-25 (date du Journal officiel qui le publie).
 

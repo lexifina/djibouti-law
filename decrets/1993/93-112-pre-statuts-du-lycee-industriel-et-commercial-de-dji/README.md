@@ -1,6 +1,6 @@
 # Décret n° 93-112/PRE portant statuts du Lycée Industriel et Commercial de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-112-pre-portant-statuts-du-lycee-industriel-et-commercial-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-112-pre-portant-statuts-du-lycee-industriel-et-commercial-de-djibouti/>
 
 En vigueur : 1993-11-30 (date du Journal officiel qui le publie).
 

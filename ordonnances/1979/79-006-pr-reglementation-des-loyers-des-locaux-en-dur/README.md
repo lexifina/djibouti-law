@@ -1,6 +1,6 @@
 # Ordonnance n° 79-006/PR portant réglementation des loyers des locaux » en dur « .
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-006-pr-portant-reglementation-des-loyers-des-locaux-en-dur/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-006-pr-portant-reglementation-des-loyers-des-locaux-en-dur/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 

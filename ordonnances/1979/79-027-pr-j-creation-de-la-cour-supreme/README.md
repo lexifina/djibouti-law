@@ -1,6 +1,6 @@
 # Ordonnance n° 79-027/PR/J portant création de la cour suprême
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-027-pr-j-portant-creation-de-la-cour-supreme/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-027-pr-j-portant-creation-de-la-cour-supreme/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ Par le Président de la République
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

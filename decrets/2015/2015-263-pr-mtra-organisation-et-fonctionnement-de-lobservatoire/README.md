@@ -1,8 +1,8 @@
 # Décret n° 2015-263/PR/MTRA portant organisation et fonctionnement de l’Observatoire de l’Emploi et des Qualifications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-263-pr-mtra-portant-organisation-et-fonctionnement-de-lobservatoire-de-lemploi-et-des-qualifications/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-263-pr-mtra-portant-organisation-et-fonctionnement-de-lobservatoire-de-lemploi-et-des-qualifications/>
 
-En vigueur : 2015-09-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-09-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

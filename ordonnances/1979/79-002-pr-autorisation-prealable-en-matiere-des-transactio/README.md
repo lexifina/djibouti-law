@@ -1,6 +1,6 @@
 # Ordonnance n° 79-002/PR portant autorisation préalable en matière des transactions immobilières.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-002-pr-portant-autorisation-prealable-en-matiere-des-transactions-immobilieres/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-002-pr-portant-autorisation-prealable-en-matiere-des-transactions-immobilieres/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 46-2290 portant organisation et fixant le mode de fonctionnement des réseaux de télécommunication des territoires de l’Union française placés sous le contrôle du Ministère de la France d’outre-mer et portant création d’un conseil des télécommunications de l’Union française.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2290-portant-organisation-et-fixant-le-mode-de-fonctionnement-des-reseaux-de-telecommunication-des-territoires-de-lunion-francaise-places-sous-le-controle-du-ministere-de-la-franc/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2290-portant-organisation-et-fixant-le-mode-de-fonctionnement-des-reseaux-de-telecommunication-des-territoires-de-lunion-francaise-places-sous-le-controle-du-ministere-de-la-franc/>
 
 En vigueur : 1950-04-30 (date du Journal officiel qui le publie).
 

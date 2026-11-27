@@ -1,6 +1,6 @@
 # Décret n° 45-0173 fixant la solde, les échelles au regard de la loi validée du 3 août 1943, le classement au point de vue des déplacements et du séjour dans les hôpitaux du personnel du Service du chiffre colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0173-fixant-la-solde-les-echelles-au-regard-de-la-loi-validee-du-3-aout-1943-le-classement-au-point-de-vue-des-deplacements-et-du-sejour-dans-les-hopitaux-du-personnel-du-service/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0173-fixant-la-solde-les-echelles-au-regard-de-la-loi-validee-du-3-aout-1943-le-classement-au-point-de-vue-des-deplacements-et-du-sejour-dans-les-hopitaux-du-personnel-du-service/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

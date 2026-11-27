@@ -1,8 +1,8 @@
 # Décret n° 2023-011/PR/MEFI portant modification du décret n° 2016-95/PR/MEFI portant création du Fonds de Garantie Partielle des Crédits de Djibouti (FGPCD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-011-pr-mefi-portant-modification-du-decret-n2016-95-pr-mefi-portant-creation-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-011-pr-mefi-portant-modification-du-decret-n2016-95-pr-mefi-portant-creation-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
 
-En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -38,4 +38,4 @@ Le Conseil des Ministres entendu en sa séance du 27/12/2022.
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

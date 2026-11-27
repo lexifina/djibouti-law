@@ -1,6 +1,6 @@
 # Loi n° 68-697 du 31 juillet 1968 portant amnistie
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 25/09/1968 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-68-697-du-31-juillet-1968-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 25/09/1968 · <https://www.journalofficiel.dj/texte-juridique/loi-n-68-697-du-31-juillet-1968-portant-amnistie/>
 
 En vigueur : 1968-09-25 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Le garde des sceaux, ministre de la justice, RENÉ CAPITANT.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

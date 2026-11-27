@@ -1,6 +1,6 @@
 # Loi n° 210/AN/86/1ère L portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la deuxième session ordinaire de 1986 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-86-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1986-dite-s/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-86-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1986-dite-s/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

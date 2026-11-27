@@ -1,6 +1,6 @@
 # Décret n° 2007-0212/PR/MID portant modification du Décret n° 2006-0098/PR/MID fixant les indemnités allouées aux représentants locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0212-pr-mid-portant-modification-du-decret-n2006-0098-pr-mid-fixant-les-indemnites-allouees-aux-representants-locaux/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0212-pr-mid-portant-modification-du-decret-n2006-0098-pr-mid-fixant-les-indemnites-allouees-aux-representants-locaux/>
 
 En vigueur : 2007-11-15 (date du Journal officiel qui le publie).
 

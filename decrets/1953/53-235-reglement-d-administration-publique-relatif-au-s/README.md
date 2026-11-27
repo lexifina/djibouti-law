@@ -1,6 +1,6 @@
 # Décret n° 53-235 portant règlement d’administration publique relatif au statut particulier du personnel de« trésoreries des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-235-portant-reglement-dadministration-publique-relatif-au-statut-particulier-du-personnel-de-tresoreries-des-territoires-doutre-mer-2/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/07/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-235-portant-reglement-dadministration-publique-relatif-au-statut-particulier-du-personnel-de-tresoreries-des-territoires-doutre-mer-2/>
 
 En vigueur : 1953-07-01 (date du Journal officiel qui le publie).
 

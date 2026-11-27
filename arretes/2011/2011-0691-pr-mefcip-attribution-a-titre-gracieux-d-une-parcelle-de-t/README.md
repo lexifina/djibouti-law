@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0691/PR/MEFCIP portant attribution à titre gracieux d’une parcelle de terrain sise à PK 12 au profit de l’Association Dawat Al Islam.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0691-pr-mefcip-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-sise-a-pk-12-au-profit-de-lassociation-dawat-al-islam/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0691-pr-mefcip-portant-attribution-a-titre-gracieux-dune-parcelle-de-terrain-sise-a-pk-12-au-profit-de-lassociation-dawat-al-islam/>
 
 En vigueur : 2011-09-15 (date du Journal officiel qui le publie).
 

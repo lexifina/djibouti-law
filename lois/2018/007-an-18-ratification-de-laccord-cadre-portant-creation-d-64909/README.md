@@ -1,6 +1,6 @@
 # Loi n° 07/AN/18/8ème L portant ratification de l’Accord-cadre portant création de l’Alliance Solaire Internationale (ASI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n07-an-18-8eme-l-portant-ratification-de-laccord-cadre-portant-creation-de-lalliance-solaire-internationale-asi/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n07-an-18-8eme-l-portant-ratification-de-laccord-cadre-portant-creation-de-lalliance-solaire-internationale-asi/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

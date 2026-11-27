@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0102/PR/MERN portant approbation du Budget d’Electricité de Djibouti pour l’Exercice 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0102-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0102-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2008/>
 
 En vigueur : 2008-02-28 (date du Journal officiel qui le publie).
 

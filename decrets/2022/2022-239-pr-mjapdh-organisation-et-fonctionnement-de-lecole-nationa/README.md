@@ -1,6 +1,6 @@
 # Décret n° 2022-239/PR/MJAPDH portant organisation et fonctionnement de l’Ecole Nationale d’Etudes Judiciaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-239-pr-mjapdh-portant-organisation-et-fonctionnement-de-lecole-nationale-detudes-judiciaires/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-239-pr-mjapdh-portant-organisation-et-fonctionnement-de-lecole-nationale-detudes-judiciaires/>
 
 En vigueur : 2022-09-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -66,4 +66,4 @@ ISMAÏL OMAR GUELLEH
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

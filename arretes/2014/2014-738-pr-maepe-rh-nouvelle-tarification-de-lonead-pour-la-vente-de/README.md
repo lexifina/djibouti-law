@@ -1,6 +1,6 @@
 # Arrêté n° 2014-738/PR/MAEPE-RH fixant nouvelle tarification de l’ONEAD pour la vente de l’eau et la collecte de l’assainissement liquide.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-738-pr-maepe-rh-fixant-nouvelle-tarification-de-lonead-pour-la-vente-de-leau-et-la-collecte-de-lassainissement-liquide/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-738-pr-maepe-rh-fixant-nouvelle-tarification-de-lonead-pour-la-vente-de-leau-et-la-collecte-de-lassainissement-liquide/>
 
 En vigueur : 2014-12-15 (date du Journal officiel qui le publie).
 

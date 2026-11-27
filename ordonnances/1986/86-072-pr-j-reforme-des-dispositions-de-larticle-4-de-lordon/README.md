@@ -1,8 +1,8 @@
 # Ordonnance n° 86-072/PR/J portant réforme des dispositions de l’article 4 de l’ordonnance n° 78-085/PR/J du 16 novembre 1978 relative au remplacement et à l’intérim du premier président de la Cour judiciaire de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-072-pr-j-portant-reforme-des-dispositions-de-larticle-4-de-lordonnance-n78-085-pr-j-du-16-novembre-1978-relative-au-remplacement-et-a-linterim-du-premier-president-de/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 14 du 31/08/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-072-pr-j-portant-reforme-des-dispositions-de-larticle-4-de-lordonnance-n78-085-pr-j-du-16-novembre-1978-relative-au-remplacement-et-a-linterim-du-premier-president-de/>
 
-En vigueur : 1986-08-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1986-08-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

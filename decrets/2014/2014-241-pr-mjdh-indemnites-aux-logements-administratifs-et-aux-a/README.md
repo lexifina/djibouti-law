@@ -1,6 +1,6 @@
 # Décret n° 2014-241/PR/MJDH relatif aux indemnités, aux logements administratifs et aux avantages en nature alloués au Président de la Cour des Comptes et au Procureur Général près la Cour des Comptes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-241-pr-mjdh-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature-alloues-au-president-de-la-cour-des-comptes-et-au-procureur-general-pres-la-cour-des-com/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-241-pr-mjdh-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature-alloues-au-president-de-la-cour-des-comptes-et-au-procureur-general-pres-la-cour-des-com/>
 
 En vigueur : 2014-09-15 (date du Journal officiel qui le publie).
 

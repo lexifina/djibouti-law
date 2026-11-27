@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0723/PR/MJAPM portant création du Comité d’Organisation des Etats Généraux de la Justice.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0723-pr-mjapm-portant-creation-du-comite-dorganisation-des-etats-generaux-de-la-justice/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0723-pr-mjapm-portant-creation-du-comite-dorganisation-des-etats-generaux-de-la-justice/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 

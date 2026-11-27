@@ -1,6 +1,6 @@
 # Loi n° 160/AN/16/7ème L portant approbation de l’adhésion de la République de Djibouti à l’Accord relatif à la création de la Banque Africaine d’Import-Export (Afreximbank).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-16-7eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-laccord-relatif-a-la-creation-de-la-banque-africaine-dimport-export-afreximbank/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-16-7eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-laccord-relatif-a-la-creation-de-la-banque-africaine-dimport-export-afreximbank/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

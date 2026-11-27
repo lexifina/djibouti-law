@@ -1,6 +1,6 @@
 # Arrêté n° 2015-048/PR/MS approuvant et rendant exécutoire le budget Prévisionnel Consolidé 2015 de l’Hôpital de Balbala.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-048-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2015-de-lhopital-de-balbala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-048-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2015-de-lhopital-de-balbala/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

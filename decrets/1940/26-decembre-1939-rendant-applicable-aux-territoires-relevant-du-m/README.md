@@ -1,6 +1,6 @@
 # Décret n° 26 décembre 1939 rendant applicable aux territoires relevant du ministère des colonies. autres que la Guadeloupe, la Martinique et | a Réunion. les dispositions du décret du 1° juillet 1939 tendant à encorder aux mobilisés des délais pour le pavement de leur loyer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-decembre-1939-rendant-applicable-aux-territoires-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-a-reunion-les-dispositions-du-decret-du-1-ju/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-decembre-1939-rendant-applicable-aux-territoires-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-a-reunion-les-dispositions-du-decret-du-1-ju/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Georges MAXDEI.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

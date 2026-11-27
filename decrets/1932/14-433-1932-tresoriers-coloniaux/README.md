@@ -1,6 +1,6 @@
 # Décret n° 14-433-1932 Trésoriers coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 433 du 31/12/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-433-1932-tresoriers-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 433 du 31/12/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-433-1932-tresoriers-coloniaux/>
 
 En vigueur : 1932-12-31 (date du Journal officiel qui le publie).
 

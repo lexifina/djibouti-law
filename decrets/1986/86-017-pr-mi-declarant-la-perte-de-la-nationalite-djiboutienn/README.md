@@ -1,6 +1,6 @@
 # Décret n° 86-017/PR/MI déclarant la perte de la nationalité djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-017-pr-mi-declarant-la-perte-de-la-nationalite-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/04/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-017-pr-mi-declarant-la-perte-de-la-nationalite-djiboutienne/>
 
 En vigueur : 1986-04-30 (date du Journal officiel qui le publie).
 

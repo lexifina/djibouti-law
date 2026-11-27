@@ -1,6 +1,6 @@
 # Décret n° n°19 Décret rendant applicable aux colonies, pays de protectorat et territoires sous mandat relevant du Ministère des colonies les décrets des 6 août et 11 septembre 1926 concernant la définition des appellations d’origine contrôlées de certains vins
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-decret-rendant-applicable-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-les-decrets-des-6-aout-et-11-septembre-1926-concerna/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-decret-rendant-applicable-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-les-decrets-des-6-aout-et-11-septembre-1926-concerna/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

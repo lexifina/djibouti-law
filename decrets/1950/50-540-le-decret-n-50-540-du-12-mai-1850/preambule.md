@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art1. articles 21, 22 et 23 du décret du 29 décembre 1993, modifiés en dernier Lieu par le décret du 6 janvier 1999 susvisé, sont abrogés et remplacés par les dispositions suivantes 2
 & ART. 21. — évles relatives à là retenue pour le logement.
 &« Tout militaire ou assimilé, quel que soit son grade où son emploi, auquel un logement est fourni, soit dans les bâtiments appartenant à l’Etat où à toute autre collectivité administrative, soit dans les bâtiments loués par l’Etat ou une collectivité administrative, subit sur sa solde la retenne déterminée par le tarif, que ce logement soit où non ccecupé par lui &« Si le bâtiment appartient à l’Etat ou est loué par lui, le montant de la retenue es versé au Trésor au compte Produits divers du budget de l’etat.

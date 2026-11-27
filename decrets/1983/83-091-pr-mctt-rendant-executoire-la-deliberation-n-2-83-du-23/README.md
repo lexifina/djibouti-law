@@ -1,6 +1,6 @@
 # Décret n° 83-091/PR/MCTT rendant: exécutoire la délibération n° 2/83 du 23 juin 1983 du Conseil d’administration de l’Office national d’Approvisionnement et de Commercialisation portant approbation du compte financier de l’Office pour l’exercice 1980.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-091-pr-mctt-rendant-executoire-la-deliberation-n-2-83-du-23-juin-1983-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-por/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-091-pr-mctt-rendant-executoire-la-deliberation-n-2-83-du-23-juin-1983-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-por/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Le premier ministre, chef du gouvernement
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

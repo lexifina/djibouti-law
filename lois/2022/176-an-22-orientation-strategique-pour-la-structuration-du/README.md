@@ -1,8 +1,8 @@
 # Loi n° 176/AN/22/8ème L portant orientation stratégique pour la structuration du secteur informel en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-22-8eme-l-portant-orientation-strategique-pour-la-structuration-du-secteur-informel-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-22-8eme-l-portant-orientation-strategique-pour-la-structuration-du-secteur-informel-en-republique-de-djibouti/>
 
-En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -41,4 +41,4 @@ A ADOPTÉ, EN SA QUATRIEME SEANCE PUBLIQUE DU 28/12/2022, LA LOI DONT LA TENEUR 
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 141/AN/21/8ème L portant adoption des comptes financiers de l’Aéroport International de Djibouti pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-21-8eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-21-8eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2019/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

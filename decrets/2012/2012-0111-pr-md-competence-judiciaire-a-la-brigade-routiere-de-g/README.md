@@ -1,6 +1,6 @@
 # Décret n° 2012-0111/PR/MD portant compétence Judiciaire à la Brigade Routière de Gendarmerie de YOBOKI.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0111-pr-md-portant-competence-judiciaire-a-la-brigade-routiere-de-gendarmerie-de-yoboki/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0111-pr-md-portant-competence-judiciaire-a-la-brigade-routiere-de-gendarmerie-de-yoboki/>
 
 En vigueur : 2012-05-15 (date du Journal officiel qui le publie).
 

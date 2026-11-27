@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0538/PR/MPI portant Agrément au Code des Investissements de la société “MASSIDA LOGISTICS”
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0538-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-massida-logistics/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0538-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-massida-logistics/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 84/AN/00/4ème L portant approbation de l’adhésion de la République de Djibouti aux deux Protocoles de 1992 remplaçant la convention de 1969 sur la responsabilité civile et la Convention de 1971 portant création du Fonds International d’
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-00-4eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-aux-deux-protocoles-de-1992-remplacant-la-convention-de-1969-sur-la-responsabilite-civile-et-la-conven/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-00-4eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-aux-deux-protocoles-de-1992-remplacant-la-convention-de-1969-sur-la-responsabilite-civile-et-la-conven/>
 
 En vigueur : 2000-07-15 (date du Journal officiel qui le publie).
 

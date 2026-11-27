@@ -1,6 +1,6 @@
 # Arrêté n° 2010-463/PR/MENESUP modifiant l’Arrêté n° 2006-0517/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade Licence “Histoire” ou “Géographie” et au titre de Diplôme d’études universitaires générales mention » Histoire Géographie ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-463-pr-menesup-modifiant-larrete-n2006-0517-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-licence-histoire-ou-ge/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-463-pr-menesup-modifiant-larrete-n2006-0517-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-licence-histoire-ou-ge/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

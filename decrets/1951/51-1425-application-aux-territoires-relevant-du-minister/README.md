@@ -1,6 +1,6 @@
 # Décret n° 51-1425 portant application aux territoires relevant du ministère de la France d’outre-mer des articles 1er et 2 du décret-loi du 30 octobre 1935 relatif aux formalités de publicité des sociétés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1425-portant-application-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-des-articles-1er-et-2-du-decret-loi-du-30-octobre-1935-relatif-aux-formalites-de-publ/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1425-portant-application-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-des-articles-1er-et-2-du-decret-loi-du-30-octobre-1935-relatif-aux-formalites-de-publ/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

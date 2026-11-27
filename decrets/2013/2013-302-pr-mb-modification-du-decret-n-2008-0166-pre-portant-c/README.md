@@ -1,6 +1,6 @@
 # Décret n° 2013-302/PR/MB portant modification du décret n° 2008-0166/PRE portant concession du Contrat d’Aménagement Urbain à la Zone de Doraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-302-pr-mb-portant-modification-du-decret-n2008-0166-pre-portant-concession-du-contrat-damenagement-urbain-a-la-zone-de-doraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 14/11/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-302-pr-mb-portant-modification-du-decret-n2008-0166-pre-portant-concession-du-contrat-damenagement-urbain-a-la-zone-de-doraleh/>
 
 En vigueur : 2013-11-14 (date du Journal officiel qui le publie).
 

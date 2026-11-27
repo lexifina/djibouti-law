@@ -1,6 +1,6 @@
 # Décret n° 11 juin 1974 Cabinet du Secrétaire d’Etat
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-juin-1974-cabinet-du-secretaire-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-juin-1974-cabinet-du-secretaire-detat/>
 
 En vigueur : 1974-06-25 (date du Journal officiel qui le publie).
 

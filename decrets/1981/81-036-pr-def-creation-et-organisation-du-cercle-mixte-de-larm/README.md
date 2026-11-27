@@ -1,6 +1,6 @@
 # Décret n° 81-036/PR/DEF portant création et organisation du cercle mixte de l’Armée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-036-pr-def-portant-creation-et-organisation-du-cercle-mixte-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-036-pr-def-portant-creation-et-organisation-du-cercle-mixte-de-larmee-nationale/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

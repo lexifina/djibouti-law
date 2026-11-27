@@ -1,8 +1,8 @@
 # Décret n° 2020-076/PRE portant régime juridique des offres anormalement basses ou hautes dans les marchés publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-076-pre-portant-regime-juridique-des-offres-anormalement-basses-ou-hautes-dans-les-marches-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-076-pre-portant-regime-juridique-des-offres-anormalement-basses-ou-hautes-dans-les-marches-publics/>
 
-En vigueur : 2020-04-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-04-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

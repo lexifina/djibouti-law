@@ -1,8 +1,8 @@
 # Décret n° 2010-0102/PR portant sur la gestion et le contrôle des véhicules administratifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0102-pr-portant-sur-la-gestion-et-le-controle-des-vehicules-administratifs/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0102-pr-portant-sur-la-gestion-et-le-controle-des-vehicules-administratifs/>
 
-En vigueur : 2010-06-01 (date fixÃ©e par le texte).
+En vigueur : 2010-06-01 (date fixée par le texte).
 
 ## Visas
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

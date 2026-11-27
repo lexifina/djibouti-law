@@ -1,8 +1,8 @@
 # Loi n° 163/AN/22/8ème L portant réorganisation du Ministère de l’Energie chargé des Ressources Naturelles (MERN).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-22-8eme-l-portant-reorganisation-du-ministere-de-lenergie-charge-des-ressources-naturelles-mern/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-22-8eme-l-portant-reorganisation-du-ministere-de-lenergie-charge-des-ressources-naturelles-mern/>
 
-En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -86,4 +86,4 @@ Le Conseil des Ministres entendu en sa séance du 14 juin 2022.
 | [art-060.md](art-060.md) | Article 60 |
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

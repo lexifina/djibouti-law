@@ -1,6 +1,6 @@
 # Décret n° 02-367-1927 Droits d’expédition des actes de l’état civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 367 du 30/06/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-367-1927-droits-dexpedition-des-actes-de-letat-civil/>
+Décret · Journal officiel de la République de Djibouti, n° 367 du 30/06/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-367-1927-droits-dexpedition-des-actes-de-letat-civil/>
 
 En vigueur : 1927-06-30 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Louis BARTHOU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Additif n° 2006-0854/PR/MENESUP à la décision n° 2006-0599/PR/MENESUP fixant la rentrée scolaire et les périodes des vacances interruptives des cours pour l’année 2006-2007 et la rentrée 2007-2008.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2006-0854-pr-menesup-a-la-decision-n2006-0599-pr-menesup-fixant-la-rentree-scolaire-et-les-periodes-des-vacances-interruptives-des-cours-pour-lannee-2006-2007-et-la-rentr/>
+Additif · Journal officiel de la République de Djibouti, n° 23 du 14/12/2006 · <https://www.journalofficiel.dj/texte-juridique/additif-n2006-0854-pr-menesup-a-la-decision-n2006-0599-pr-menesup-fixant-la-rentree-scolaire-et-les-periodes-des-vacances-interruptives-des-cours-pour-lannee-2006-2007-et-la-rentr/>
 
 En vigueur : 2006-12-14 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ OSMAN AHMED MOUSSA
 | Fichier | Disposition |
 | --- | --- |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

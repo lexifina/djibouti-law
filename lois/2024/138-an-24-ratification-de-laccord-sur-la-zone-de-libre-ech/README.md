@@ -1,8 +1,8 @@
 # Loi n° 138/AN/24/9ème L portant ratification de l’Accord sur la Zone de Libre-Echange Tripartite (COMESA, EAC et SADC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 15/01/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-24-9eme-l-portant-ratification-de-laccord-sur-la-zone-de-libre-echange-tripartite-comesa-eac-et-sadc/>
+Loi · Journal officiel de la République de Djibouti, n° 01 du 15/01/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-24-9eme-l-portant-ratification-de-laccord-sur-la-zone-de-libre-echange-tripartite-comesa-eac-et-sadc/>
 
-En vigueur : 2025-01-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-01-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

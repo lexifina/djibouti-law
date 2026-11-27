@@ -1,6 +1,6 @@
 # Décret n° 04-396-1929 relèvement des tarifs de solde des militaires à la charge du budget colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 396 du 30/11/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-396-1929-relevement-des-tarifs-de-solde-des-militaires-a-la-charge-du-budget-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 396 du 30/11/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-396-1929-relevement-des-tarifs-de-solde-des-militaires-a-la-charge-du-budget-colonial/>
 
 En vigueur : 1929-11-30 (date du Journal officiel qui le publie).
 

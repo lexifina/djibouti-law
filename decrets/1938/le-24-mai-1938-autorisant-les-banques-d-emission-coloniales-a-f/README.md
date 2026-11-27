@@ -1,6 +1,6 @@
 # Décret n° le 24 mai 1938 autorisant les banques d’émission coloniales à faire des avances sur les marchés de fournitures et travaux publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-24-mai-1938-autorisant-les-banques-demission-coloniales-a-faire-des-avances-sur-les-marches-de-fournitures-et-travaux-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-24-mai-1938-autorisant-les-banques-demission-coloniales-a-faire-des-avances-sur-les-marches-de-fournitures-et-travaux-publics/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

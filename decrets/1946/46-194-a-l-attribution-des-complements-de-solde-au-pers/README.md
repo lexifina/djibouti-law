@@ -1,6 +1,6 @@
 # Décret n° 46-194 relatif à l’attribution des compléments de solde au personnel du cadre général des géologues des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-194-relatif-a-lattribution-des-complements-de-solde-au-personnel-du-cadre-general-des-geologues-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-194-relatif-a-lattribution-des-complements-de-solde-au-personnel-du-cadre-general-des-geologues-des-colonies/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

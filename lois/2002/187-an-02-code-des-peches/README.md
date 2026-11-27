@@ -1,6 +1,6 @@
 # Loi n° 187/AN/02/4ème L portant Code des Pêches.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-02-4eme-l-portant-code-des-peches/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-02-4eme-l-portant-code-des-peches/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ ISMAÏL OMAR GUELLEH
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

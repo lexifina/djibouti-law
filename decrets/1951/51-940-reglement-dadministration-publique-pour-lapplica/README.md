@@ -1,6 +1,6 @@
 # Décret n° 51:940 portant règlement d’administration Publique pour l’application de la loi n° 49- 158 du 9 juin 1949 établissant des servitudes dans l’intérêt des transmissions radioélectriques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51940-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-49-158-du-9-juin-1949-etablissant-des-servitudes-dans-linteret-des-transmissions-radioelect/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51940-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-49-158-du-9-juin-1949-etablissant-des-servitudes-dans-linteret-des-transmissions-radioelect/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 

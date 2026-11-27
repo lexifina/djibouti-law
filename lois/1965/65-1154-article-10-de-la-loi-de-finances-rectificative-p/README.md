@@ -1,6 +1,6 @@
 # Loi de finances n° 65-1154 article 10, de la loi de Finances rectificative pour 1965 rendant applicables aux territoires d’outre-mer les dispositions des articles 4, 13, 15 et 50 du Code des caisses d’épargne (J.O.R.F. du 31 dé- cembre 1965, p. 11973) [arrêté de promulgation n° 63 du 18 janvier 1966]
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1966 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-65-1154-article-10-de-la-loi-de-finances-rectificative-pour-1965-rendant-applicables-aux-territoires-doutre-mer-les-dispositions-des-articles-4-13-15-et-50-du-code-des/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 2 du 01/02/1966 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-65-1154-article-10-de-la-loi-de-finances-rectificative-pour-1965-rendant-applicables-aux-territoires-doutre-mer-les-dispositions-des-articles-4-13-15-et-50-du-code-des/>
 
 En vigueur : 1966-02-01 (date du Journal officiel qui le publie).
 

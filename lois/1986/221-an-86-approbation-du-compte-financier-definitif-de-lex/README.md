@@ -1,6 +1,6 @@
 # Loi n° 221/AN/86/1ère L portant approbation du compte financier définitif de l’exercice 1985 de l’Office National d’Approvisionnement et de Commercialisation
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-86-1ere-l-portant-approbation-du-compte-financier-definitif-de-lexercice-1985-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-86-1ere-l-portant-approbation-du-compte-financier-definitif-de-lexercice-1985-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

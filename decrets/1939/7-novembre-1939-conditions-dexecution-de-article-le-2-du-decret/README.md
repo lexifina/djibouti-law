@@ -1,6 +1,6 @@
 # Décret n° 7 novembre 1939 fixant les conditions d’exécution de article le 2 du décret du 21 avril 1939 tendant à réprimer les propagandes étrangères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-novembre-1939-fixant-les-conditions-dexecution-de-article-le-2-du-decret-du-21-avril-1939-tendant-a-reprimer-les-propagandes-etrangeres/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-novembre-1939-fixant-les-conditions-dexecution-de-article-le-2-du-decret-du-21-avril-1939-tendant-a-reprimer-les-propagandes-etrangeres/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 

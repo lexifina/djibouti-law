@@ -1,6 +1,6 @@
 # Décret n° 8-370-1927 Application aux colonies du décret du 2 avril 1927, modifiant le décret du 18 novembre 1882.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-370-1927-application-aux-colonies-du-decret-du-2-avril-1927-modifiant-le-decret-du-18-novembre-1882/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-370-1927-application-aux-colonies-du-decret-du-2-avril-1927-modifiant-le-decret-du-18-novembre-1882/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 

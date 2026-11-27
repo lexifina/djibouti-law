@@ -1,6 +1,6 @@
 # Décret n° 2005-0024/PR/MID portant composition et fonctionnement de la Commission Électorale Nationale Indépendante pour les Élections Présidentielles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0024-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante-pour-les-elections-presidentielles/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0024-pr-mid-portant-composition-et-fonctionnement-de-la-commission-electorale-nationale-independante-pour-les-elections-presidentielles/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,1 +1,0 @@
-Par décret n°2023-272/PRE, du Président de la République, chef du Gouvernement, en date du 04 septembre 2023, pendant la durée de l’absence de M. ALMIS MOHAMED ABDILLAHI, l’intérim des fonctions du Secrétaire Général du Gouvernement sera assuré par M. MOHAMED SADEK SALEH, Directeur de Cabinet cumulativement avec ses fonctions.

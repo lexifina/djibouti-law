@@ -1,6 +1,6 @@
 # Arrêté n° 2013-0156/PR/MI portant prolongation de fermeture des bureaux de vote pour les Elections Législatives du 22 février 2013.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 13/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0156-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote-pour-les-elections-legislatives-du-22-fevrier-2013/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 13/03/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0156-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote-pour-les-elections-legislatives-du-22-fevrier-2013/>
 
 En vigueur : 2013-03-13 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 79/AN/20/8ème L portant ratification du Protocole sur les amendements à l’Acte Constitutif de l’Union Africaine.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-20-8eme-l-portant-ratification-du-protocole-sur-les-amendements-a-lacte-constitutif-de-lunion-africaine/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-20-8eme-l-portant-ratification-du-protocole-sur-les-amendements-a-lacte-constitutif-de-lunion-africaine/>
 
 En vigueur : 2020-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

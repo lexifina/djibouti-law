@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0499/PR/MEFPCP portant attribution d’une parcelle à titre gracieux d’une parcelle de terrain d’une superficie de 4 ha au PK 15 au PAM.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0499-pr-mefpcp-portant-attribution-dune-parcelle-a-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-4-ha-au-pk-15-au-pam/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0499-pr-mefpcp-portant-attribution-dune-parcelle-a-titre-gracieux-dune-parcelle-de-terrain-dune-superficie-de-4-ha-au-pk-15-au-pam/>
 
 En vigueur : 2010-08-15 (date du Journal officiel qui le publie).
 

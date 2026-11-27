@@ -1,6 +1,6 @@
 # Décret n° 95‑0010/PRE/MI Portant sur la règlement des débits de boissons.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95%e2%80%910010-pre-mi-portant-sur-la-reglement-des-debits-de-boissons/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95%e2%80%910010-pre-mi-portant-sur-la-reglement-des-debits-de-boissons/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

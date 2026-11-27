@@ -1,6 +1,6 @@
 # Décret n° 04-362-1927 Application aux colonies de la loi du 7 juillet 1925 sur l’échéance des effets de commerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 362 du 31/01/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-362-1927-application-aux-colonies-de-la-loi-du-7-juillet-1925-sur-lecheance-des-effets-de-commerce/>
+Décret · Journal officiel de la République de Djibouti, n° 362 du 31/01/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-362-1927-application-aux-colonies-de-la-loi-du-7-juillet-1925-sur-lecheance-des-effets-de-commerce/>
 
 En vigueur : 1927-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0740/PR/MID Portant implantation et désignation des membres des bureaux de vote.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0740-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0740-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

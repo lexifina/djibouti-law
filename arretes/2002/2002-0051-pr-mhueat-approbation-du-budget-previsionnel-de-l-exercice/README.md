@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0051/PR/MHUEAT portant approbation du budget prévisionnel de l’exercice 2002 de la Société Immobilière de Djibouti (S.I.D).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0051-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2002-de-la-societe-immobiliere-de-djibouti-s-i-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0051-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2002-de-la-societe-immobiliere-de-djibouti-s-i-d/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

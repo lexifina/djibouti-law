@@ -1,6 +1,6 @@
 # Loi n° 16/AN/08/6ème L portant exonération de la Taxe Intérieure de Consommation (T.I.C) pour certains produits alimentaires de base.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-08-6eme-l-portant-exoneration-de-la-taxe-interieure-de-consommation-t-i-c-pour-certains-produits-alimentaires-de-base/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-08-6eme-l-portant-exoneration-de-la-taxe-interieure-de-consommation-t-i-c-pour-certains-produits-alimentaires-de-base/>
 
 En vigueur : 2008-06-15 (date du Journal officiel qui le publie).
 

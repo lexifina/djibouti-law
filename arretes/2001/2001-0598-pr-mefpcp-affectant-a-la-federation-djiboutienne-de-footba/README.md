@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0598/PR/MEFPCP affectant à la Fédération Djiboutienne de Football d’une parcelle de terrain sise Route de l’Aviation (Ancien Stade Municipal).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0598-pr-mefpcp-affectant-a-la-federation-djiboutienne-de-football-dune-parcelle-de-terrain-sise-route-de-laviation-ancien-stade-municipal/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0598-pr-mefpcp-affectant-a-la-federation-djiboutienne-de-football-dune-parcelle-de-terrain-sise-route-de-laviation-ancien-stade-municipal/>
 
 En vigueur : 2001-08-15 (date du Journal officiel qui le publie).
 

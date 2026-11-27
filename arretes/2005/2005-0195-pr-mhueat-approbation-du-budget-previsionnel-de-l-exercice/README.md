@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0195/PR/MHUEAT Portant approbation du budget prévisionnel de l’Exercice 2005 de la Société Immobilière de Djibouti (SID).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0195-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2005-de-la-societe-immobiliere-de-djibouti-sid/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0195-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2005-de-la-societe-immobiliere-de-djibouti-sid/>
 
 En vigueur : 2005-03-31 (date du Journal officiel qui le publie).
 

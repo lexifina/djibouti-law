@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0482/PR/MJAPM portant création d’un Comité AD HOC de réflexion sur les Droits de l’Homme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0482-pr-mjapm-portant-creation-dun-comite-ad-hoc-de-reflexion-sur-les-droits-de-lhomme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0482-pr-mjapm-portant-creation-dun-comite-ad-hoc-de-reflexion-sur-les-droits-de-lhomme/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

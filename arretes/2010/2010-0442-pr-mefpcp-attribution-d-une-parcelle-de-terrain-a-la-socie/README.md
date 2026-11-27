@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0442/PR/MEFPCP portant attribution d’une parcelle de terrain à la Société Nael & Bin Harmal Investment Co. LLC.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0442-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-la-societe-nael-bin-harmal-investment-co-llc/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0442-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-la-societe-nael-bin-harmal-investment-co-llc/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

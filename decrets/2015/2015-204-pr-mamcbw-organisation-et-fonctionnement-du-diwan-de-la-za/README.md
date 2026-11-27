@@ -1,7 +1,7 @@
 # Décret n° 2015-204/PR/MAMCBW portant organisation
 et fonctionnement du Diwan de la Zakat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-204-pr-mamcbw-portant-organisation-et-fonctionnement-du-diwan-de-la-zakat/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-204-pr-mamcbw-portant-organisation-et-fonctionnement-du-diwan-de-la-zakat/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 
@@ -77,4 +77,4 @@ ISMAÏL OMAR GUELLEH
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

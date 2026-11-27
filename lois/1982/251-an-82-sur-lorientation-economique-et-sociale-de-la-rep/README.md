@@ -1,6 +1,6 @@
 # Loi n° 251/AN/82 portant sur l’Orientation Économique et Sociale de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/06/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n251-an-82-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 08/06/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n251-an-82-portant-sur-lorientation-economique-et-sociale-de-la-republique-de-djibouti/>
 
 En vigueur : 1982-06-08 (date du Journal officiel qui le publie).
 

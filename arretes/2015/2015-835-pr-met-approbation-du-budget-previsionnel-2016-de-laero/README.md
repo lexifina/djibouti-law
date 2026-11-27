@@ -1,6 +1,6 @@
 # Arrêté n° 2015-835/PR/MET portant approbation du budget Prévisionnel 2016 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-835-pr-met-portant-approbation-du-budget-previsionnel-2016-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-835-pr-met-portant-approbation-du-budget-previsionnel-2016-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 89-088/PRE rendant exécutoire la délibération n° 1/89 du 14 juin 1989 du conseil d’administration de l’Office des Postes et Télécommunications, portant approbation du Compte Financier de l’Office pour l’exercice 1988.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-088-pre-rendant-executoire-la-deliberation-n1-89-du-14-juin-1989-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte-financ/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-088-pre-rendant-executoire-la-deliberation-n1-89-du-14-juin-1989-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte-financ/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

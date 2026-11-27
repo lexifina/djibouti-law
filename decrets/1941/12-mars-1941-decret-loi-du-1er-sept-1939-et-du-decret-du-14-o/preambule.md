@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art. Ier. Par dérogation aux dispositions de l’article 11 paragraphe c du dé cret-loi du lcr septembre 1939 et de l’article lcr du décret du 14 octobre 1939, les can didats a un emploi administratif, provenant de la Métropole ou de l étranger, qui auront rallié un territoire soumis a l’autorité du Chef des Français Libres et du Conseil de Défense de l Empire Français. pourront, ils présentent une pratique professionnelle re connue ou constatée par des titres, recevoir un traitement supérieur au taux fixé par les dispositions susvisées.

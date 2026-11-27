@@ -1,6 +1,6 @@
 # Décret n° 3-408-1930 Indemnités pour charges de famille.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 408 du 30/11/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-408-1930-indemnites-pour-charges-de-famille/>
+Décret · Journal officiel de la République de Djibouti, n° 408 du 30/11/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-408-1930-indemnites-pour-charges-de-famille/>
 
 En vigueur : 1930-11-30 (date du Journal officiel qui le publie).
 

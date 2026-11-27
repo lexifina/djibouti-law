@@ -1,6 +1,6 @@
 # Loi n° 74-1101 modifiant l’ordonnance n’ 58-1067 du 7 novembre 1958 portant loi organique sur le Conseil constitutionnel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 10/01/1975 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-74-1101-modifiant-lordonnance-n-58-1067-du-7-novembre-1958-portant-loi-organique-sur-le-conseil-constitutionnel/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 10/01/1975 · <https://www.journalofficiel.dj/texte-juridique/loi-n-74-1101-modifiant-lordonnance-n-58-1067-du-7-novembre-1958-portant-loi-organique-sur-le-conseil-constitutionnel/>
 
 En vigueur : 1975-01-10 (date du Journal officiel qui le publie).
 

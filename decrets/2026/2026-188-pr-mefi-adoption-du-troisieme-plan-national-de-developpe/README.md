@@ -1,6 +1,6 @@
 # Décret n° 2026-188/PR/MEFI portant adoption du troisième Plan National de Développement (PND ADEEG) 2025-2030.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 27/09/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-188-pr-mefi-portant-adoption-du-troisieme-plan-national-de-developpement-pnd-adeeg-2025-2030/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 27/09/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-188-pr-mefi-portant-adoption-du-troisieme-plan-national-de-developpement-pnd-adeeg-2025-2030/>
 
 En vigueur : 2026-09-28 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

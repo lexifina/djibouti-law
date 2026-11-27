@@ -1,6 +1,6 @@
 # Décret n° 10 décembre 1939 approuvant un arrêté du Gouverneur de la Côte française des Somalis portant ouverture de crédits supplémentaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-decembre-1939-approuvant-un-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-decembre-1939-approuvant-un-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires/>
 
 En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
 

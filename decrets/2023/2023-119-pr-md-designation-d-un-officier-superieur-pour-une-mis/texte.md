@@ -1,2 +1,0 @@
-Par décret n°2023-119/PR/MD, du Président de la République, chef du Gouvernement, en date du 11 mai 2023, le Colonel OSMAN DOUBAD SOUGOULEH MLE 87/0011/S, Attaché de Défense auprès de l’Ambassade de Djibouti en Égypte est désigné cumulativement avec sa fonction actuelle pour une mission auprès de la Présidence de la République Fédérale de la Somalie à compter du 1er Mai 2023 et jusqu’à nouvel ordre.
-Cet officier supérieur bénéficiera de ses indemnités et avantages en tant qu’attaché de Défense en Egypte.

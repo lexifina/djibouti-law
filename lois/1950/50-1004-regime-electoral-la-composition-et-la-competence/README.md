@@ -1,6 +1,6 @@
 # Loi n° 50-1004 fixant le régime électoral la composition et la compétence d’unie Assemblée représentative territoriale dé la Côte française ides Somali.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1950 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-1004-fixant-le-regime-electoral-la-composition-et-la-competence-dunie-assemblee-representative-territoriale-de-la-cote-francaise-ides-somali/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 31/12/1950 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-1004-fixant-le-regime-electoral-la-composition-et-la-competence-dunie-assemblee-representative-territoriale-de-la-cote-francaise-ides-somali/>
 
 En vigueur : 1950-12-31 (date du Journal officiel qui le publie).
 

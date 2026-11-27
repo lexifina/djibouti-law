@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE I
 PRINCIPES GENERAUX

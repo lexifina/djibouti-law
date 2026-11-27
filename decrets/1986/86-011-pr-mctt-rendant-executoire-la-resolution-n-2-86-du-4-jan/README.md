@@ -1,6 +1,6 @@
 # Décret n° 86-011/PR/MCTT Rendant exécutoire la résolution n° 2/86 du 4 janvier 1986 du conseil d’administration d’Aéroport de Djibouti et portant l’approbation du budget prévisionnel de l’exercice 1986 d’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/03/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-011-pr-mctt-rendant-executoire-la-resolution-n2-86-du-4-janvier-1986-du-conseil-dadministration-daeroport-de-djibouti-et-portant-lapprobation-du-budget-previsionnel-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/03/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-011-pr-mctt-rendant-executoire-la-resolution-n2-86-du-4-janvier-1986-du-conseil-dadministration-daeroport-de-djibouti-et-portant-lapprobation-du-budget-previsionnel-de-l/>
 
 En vigueur : 1986-03-16 (date du Journal officiel qui le publie).
 

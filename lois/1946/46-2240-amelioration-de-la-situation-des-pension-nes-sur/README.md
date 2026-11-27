@@ -1,6 +1,6 @@
 # Loi n° 46-2240 portant amélioration de la situation des pension nés sur la Caisse de retraites des marins et sur la Caisse générale de prévoyance des marins français.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2240-portant-amelioration-de-la-situation-des-pension-nes-sur-la-caisse-de-retraites-des-marins-et-sur-la-caisse-generale-de-prevoyance-des-marins-francais/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2240-portant-amelioration-de-la-situation-des-pension-nes-sur-la-caisse-de-retraites-des-marins-et-sur-la-caisse-generale-de-prevoyance-des-marins-francais/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 

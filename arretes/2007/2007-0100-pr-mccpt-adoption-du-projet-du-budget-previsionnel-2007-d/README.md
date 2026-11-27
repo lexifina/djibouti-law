@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0100/PR/MCCPT portant adoption du projet du Budget prévisionnel 2007 de l’Imprimerie Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0100-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2007-de-limprimerie-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0100-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2007-de-limprimerie-nationale/>
 
 En vigueur : 2007-01-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2011-0220/PR/MJAP portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0220-pr-mjap-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0220-pr-mjap-portant-remise-gracieuse-de-peine/>
 
-En vigueur : 2011-11-24 (date fixÃ©e par le texte).
+En vigueur : 2011-11-24 (date fixée par le texte).
 
 ## Visas
 

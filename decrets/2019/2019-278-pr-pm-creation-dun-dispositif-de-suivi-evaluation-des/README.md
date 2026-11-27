@@ -1,6 +1,6 @@
 # Décret n° 2019-278/PR/PM portant création d’un dispositif de suivi-évaluation des politiques publiques prioritaires à la Primature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-278-pr-pm-portant-creation-dun-dispositif-de-suivi-evaluation-des-politiques-publiques-prioritaires-a-la-primature/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 14/11/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-278-pr-pm-portant-creation-dun-dispositif-de-suivi-evaluation-des-politiques-publiques-prioritaires-a-la-primature/>
 
 En vigueur : 2019-11-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

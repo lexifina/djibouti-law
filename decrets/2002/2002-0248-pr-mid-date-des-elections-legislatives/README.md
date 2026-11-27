@@ -1,6 +1,6 @@
 # Décret n° 2002-0248/PR/MID fixant la date des élections législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0248-pr-mid-fixant-la-date-des-elections-legislatives/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0248-pr-mid-fixant-la-date-des-elections-legislatives/>
 
 En vigueur : 2002-12-15 (date du Journal officiel qui le publie).
 

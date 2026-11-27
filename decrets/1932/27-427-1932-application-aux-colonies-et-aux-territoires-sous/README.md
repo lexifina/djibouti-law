@@ -1,6 +1,6 @@
 # Décret n° 27-427-1932 Application aux colonies et aux territoires sous mandat français du Togo et du Cameroun de la loi du 2 juillet 1931, complétant l’article 70 du code d’instruction criminelle,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 427 du 30/06/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-427-1932-application-aux-colonies-et-aux-territoires-sous-mandat-francais-du-togo-et-du-cameroun-de-la-loi-du-2-juillet-1931-completant-larticle-70-du-code-dinstr/>
+Décret · Journal officiel de la République de Djibouti, n° 427 du 30/06/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-427-1932-application-aux-colonies-et-aux-territoires-sous-mandat-francais-du-togo-et-du-cameroun-de-la-loi-du-2-juillet-1931-completant-larticle-70-du-code-dinstr/>
 
 En vigueur : 1932-06-30 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Paul REvNAUR.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

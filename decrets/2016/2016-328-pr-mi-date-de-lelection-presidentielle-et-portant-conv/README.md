@@ -1,6 +1,6 @@
 # Décret n° 2016-328/PR/MI fixant la date de l’élection présidentielle et portant convocation du collège électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-328-pr-mi-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-college-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 16/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-328-pr-mi-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-college-electoral/>
 
 En vigueur : 2016-03-16 (date du Journal officiel qui le publie).
 

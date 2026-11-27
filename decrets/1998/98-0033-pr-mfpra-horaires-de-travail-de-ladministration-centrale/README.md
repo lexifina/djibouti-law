@@ -1,8 +1,8 @@
 # Décret n° 98-0033/PR/MFPRA fixant les horaires de travail de l’Administration Centrale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0033-pr-mfpra-fixant-les-horaires-de-travail-de-ladministration-centrale/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0033-pr-mfpra-fixant-les-horaires-de-travail-de-ladministration-centrale/>
 
-En vigueur : 1998-03-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1998-03-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

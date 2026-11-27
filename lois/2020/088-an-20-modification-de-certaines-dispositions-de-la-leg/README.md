@@ -1,6 +1,6 @@
 # Loi n° 88/AN/20/8ème L portant modification de certaines dispositions de la législation en matière de procédure civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-20-8eme-l-portant-modification-de-certaines-dispositions-de-la-legislation-en-matiere-de-procedure-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-20-8eme-l-portant-modification-de-certaines-dispositions-de-la-legislation-en-matiere-de-procedure-civile/>
 
 En vigueur : 2020-08-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

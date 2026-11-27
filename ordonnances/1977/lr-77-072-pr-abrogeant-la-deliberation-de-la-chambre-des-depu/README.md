@@ -1,6 +1,6 @@
 # Ordonnance n° LR/77-072/PR Abrogeant la délibération de la Chambre des Députés n° 170/7e du 8 avril 1971, portant réorganisation de la Chambre de commerce et d’Industrie de Djibouti, modifiée par la délibération de la Chambre des Députés n° 316/7e L du 4 janvier 1973.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-nlr-77-072-pr-abrogeant-la-deliberation-de-la-chambre-des-deputes-n-170-7e-du-8-avril-1971-portant-reorganisation-de-la-chambre-de-commerce-et-dindustrie-de-djibouti-modifie/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-nlr-77-072-pr-abrogeant-la-deliberation-de-la-chambre-des-deputes-n-170-7e-du-8-avril-1971-portant-reorganisation-de-la-chambre-de-commerce-et-dindustrie-de-djibouti-modifie/>
 
 En vigueur : 1978-01-09 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 92-0123/PR/MI fixant la représentation à l’Assemblée Nationale de chaque district pour les élections législatives du 18 décembre 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0123-pr-mi-fixant-la-representation-a-lassemblee-nationale-de-chaque-district-pour-les-elections-legislatives-du-18-decembre-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0123-pr-mi-fixant-la-representation-a-lassemblee-nationale-de-chaque-district-pour-les-elections-legislatives-du-18-decembre-1992/>
 
 En vigueur : 1992-11-30 (date du Journal officiel qui le publie).
 

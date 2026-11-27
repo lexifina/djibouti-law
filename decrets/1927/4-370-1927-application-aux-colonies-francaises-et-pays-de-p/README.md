@@ -1,6 +1,6 @@
 # Décret n° 4-370-1927 application aux colonies françaises et pays de protectorat dépendant du ministère des colonies des décrets du 6 décembre 1926 sur les brevets d’invention et les marques de fabrique et de commerce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-370-1927-application-aux-colonies-francaises-et-pays-de-protectorat-dependant-du-ministere-des-colonies-des-decrets-du-6-decembre-1926-sur-les-brevets-dinvention-et-les-marques-de/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-370-1927-application-aux-colonies-francaises-et-pays-de-protectorat-dependant-du-ministere-des-colonies-des-decrets-du-6-decembre-1926-sur-les-brevets-dinvention-et-les-marques-de/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Léon PERRIER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art.2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

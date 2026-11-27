@@ -1,1 +1,0 @@
-Par décret n°2023-208/PRE, du Président de la République, Chef du Gouvernement, en date du 24 juillet 2023, pendant la durée de l’absence de S.E.Mme. MOUNA OSMAN ADEN, l’intérim des fonctions du Ministre de la Femme et de la Famille, sera assuré par S.E.Mme. MARIAM HAMADOU ALI, Ministre Délégué chargé de l’Economie Numérique et de l’Innovation cumulativement avec ses fonctions.

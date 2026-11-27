@@ -1,6 +1,6 @@
 # Décret n° 69-1243 DU 231 DECEMBRE 1969 relatif aux taux des contributions prévues pour l’alimentation du Fonds de garantie des victimes d’accidents d’automobile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1243-du-231-decembre-1969-relatif-aux-taux-des-contributions-prevues-pour-lalimentation-du-fonds-de-garantie-des-victimes-daccidents-dautomobile/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1243-du-231-decembre-1969-relatif-aux-taux-des-contributions-prevues-pour-lalimentation-du-fonds-de-garantie-des-victimes-daccidents-dautomobile/>
 
 En vigueur : 1970-04-10 (date du Journal officiel qui le publie).
 

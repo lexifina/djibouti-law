@@ -1,6 +1,6 @@
 # Décret n° 2001-0128/PR/MET portant réglementation de la profession de manutentionnaire et approuvant le cahier des charges applicable aux entreprises de manutention opérant dans le Port de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0128-pr-met-portant-reglementation-de-la-profession-de-manutentionnaire-et-approuvant-le-cahier-des-charges-applicable-aux-entreprises-de-manutention-operant-dans-le-port-de-djibout/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0128-pr-met-portant-reglementation-de-la-profession-de-manutentionnaire-et-approuvant-le-cahier-des-charges-applicable-aux-entreprises-de-manutention-operant-dans-le-port-de-djibout/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

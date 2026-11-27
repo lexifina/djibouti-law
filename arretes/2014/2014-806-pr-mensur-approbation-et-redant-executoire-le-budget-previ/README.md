@@ -1,6 +1,6 @@
 # Arrêté n° 2014-806/PR/MENSUR portant approbation et redant exécutoire le budget prévisionnel de l’exercice 2015 du CERD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-806-pr-mensur-portant-approbation-et-redant-executoire-le-budget-previsionnel-de-lexercice-2015-du-cerd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-806-pr-mensur-portant-approbation-et-redant-executoire-le-budget-previsionnel-de-lexercice-2015-du-cerd/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

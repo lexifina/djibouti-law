@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Est rendue applicable aux colo-
 nies et protectorats relevant du miaistère des
 colonies, à l’exception de la Martinique, de

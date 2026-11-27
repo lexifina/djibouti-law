@@ -1,6 +1,6 @@
 # Arrêté n° 2017-181/PR/MB portant attribution à titre onéreux une parcelle d terrain au profit de la société HAMDANI.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-181-pr-mb-portant-attribution-a-titre-onereux-une-parcelle-d-terrain-au-profit-de-la-societe-hamdani/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-181-pr-mb-portant-attribution-a-titre-onereux-une-parcelle-d-terrain-au-profit-de-la-societe-hamdani/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1610 réglant l’organisation générale et le statut du personnel des ports et rades relevant du ministère des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1610-reglant-lorganisation-generale-et-le-statut-du-personnel-des-ports-et-rades-relevant-du-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1610-reglant-lorganisation-generale-et-le-statut-du-personnel-des-ports-et-rades-relevant-du-ministere-des-colonies/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 
@@ -48,11 +48,11 @@ P GIACOBBI.
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
-| [art-019.md](art-019.md) | Art. 19 — |
+| [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
 | [art-024.md](art-024.md) | Art. 24 |
 | [art-025.md](art-025.md) | Art. 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

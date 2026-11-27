@@ -1,6 +1,6 @@
 # Décret n° 2015-272/PR/MET portant Organisation et Fonctionnement de l’Autorité de l’Aviation Civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
 
 En vigueur : 2015-10-15 (date du Journal officiel qui le publie).
 
@@ -78,4 +78,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

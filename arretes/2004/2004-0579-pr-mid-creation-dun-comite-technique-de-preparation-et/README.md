@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0579/PR/MID portant création d’un Comité Technique de préparation et d’élaboration de la stratégie nationale de gestion des risques et des catastrophes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0579-pr-mid-portant-creation-dun-comite-technique-de-preparation-et-delaboration-de-la-strategie-nationale-de-gestion-des-risques-et-des-catastrophes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0579-pr-mid-portant-creation-dun-comite-technique-de-preparation-et-delaboration-de-la-strategie-nationale-de-gestion-des-risques-et-des-catastrophes/>
 
 En vigueur : 2004-08-31 (date du Journal officiel qui le publie).
 

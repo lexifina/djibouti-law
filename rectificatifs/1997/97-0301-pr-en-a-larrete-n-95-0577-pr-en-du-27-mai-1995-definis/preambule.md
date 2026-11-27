@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Le conseil des Ministres entendu en sa séance du 26 avril 1997,
 Au lieu de :

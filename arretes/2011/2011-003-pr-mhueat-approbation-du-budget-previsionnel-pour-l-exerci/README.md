@@ -1,6 +1,6 @@
 # Arrêté n° 2011-003/PR/MHUEAT portant approbation du Budget prévisionnel pour l’Exercice 2011 de la Société Immobilière de Djibouti (SID).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-003-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2011-de-la-societe-immobiliere-de-djibouti-sid/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-003-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2011-de-la-societe-immobiliere-de-djibouti-sid/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

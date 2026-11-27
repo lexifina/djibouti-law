@@ -1,6 +1,6 @@
 # Décret n° 66-862 relatif à la révision des listes électorales dans les territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-862-relatif-a-la-revision-des-listes-electorales-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-862-relatif-a-la-revision-des-listes-electorales-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

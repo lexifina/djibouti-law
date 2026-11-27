@@ -1,6 +1,6 @@
 # Loi n° 170/AN/12/6ème L Portant création d’un Fond de Solidarité nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-12-6eme-l-portant-creation-dun-fond-de-solidarite-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-12-6eme-l-portant-creation-dun-fond-de-solidarite-nationale/>
 
 En vigueur : 2012-08-15 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

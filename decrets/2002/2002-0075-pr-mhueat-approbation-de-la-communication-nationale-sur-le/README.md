@@ -1,6 +1,6 @@
 # Décret n° 2002-0075/PR/MHUEAT portant approbation de la Communication Nationale sur les changements Climatiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0075-pr-mhueat-portant-approbation-de-la-communication-nationale-sur-les-changements-climatiques/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0075-pr-mhueat-portant-approbation-de-la-communication-nationale-sur-les-changements-climatiques/>
 
 En vigueur : 2002-05-30 (date du Journal officiel qui le publie).
 

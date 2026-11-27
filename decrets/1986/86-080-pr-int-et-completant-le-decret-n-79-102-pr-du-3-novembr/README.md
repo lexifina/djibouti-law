@@ -1,6 +1,6 @@
 # Décret n° 86-080/PR/INT modifiant et complétant le décret n° 79-102/PR du 3 novembre 1979 relatif aux logements administratifs et avantages en nature
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/09/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-080-pr-int-modifiant-et-completant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/09/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-080-pr-int-modifiant-et-completant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1986-09-30 (date du Journal officiel qui le publie).
 

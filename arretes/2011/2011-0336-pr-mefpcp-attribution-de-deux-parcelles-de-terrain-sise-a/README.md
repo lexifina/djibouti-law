@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0336/PR/MEFPCP portant attribution de deux parcelles de terrain sise à PK 12 sur la voie 19 et PK 12 secteur concassage.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0336-pr-mefpcp-portant-attribution-de-deux-parcelles-de-terrain-sise-a-pk-12-sur-la-voie-19-et-pk-12-secteur-concassage/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0336-pr-mefpcp-portant-attribution-de-deux-parcelles-de-terrain-sise-a-pk-12-sur-la-voie-19-et-pk-12-secteur-concassage/>
 
 En vigueur : 2011-04-30 (date du Journal officiel qui le publie).
 

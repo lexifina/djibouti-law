@@ -1,6 +1,6 @@
 # Loi n° 4-400-1930 Loi portant code du travail maritime
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 400 du 31/03/1930 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-4-400-1930-loi-portant-code-du-travail-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/loi-n-4-400-1930-loi-portant-code-du-travail-maritime/>
 
 En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
 
@@ -24,9 +24,9 @@ André FALLIÈRES.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

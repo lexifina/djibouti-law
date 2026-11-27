@@ -1,6 +1,6 @@
 # Loi n° 75/AN/00/4ème L portant organisation du Ministère de l’Emploi et de la Solidarité Nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-00-4eme-l-portant-organisation-du-ministere-de-lemploi-et-de-la-solidarite-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-00-4eme-l-portant-organisation-du-ministere-de-lemploi-et-de-la-solidarite-nationale/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

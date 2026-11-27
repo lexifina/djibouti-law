@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0753/PR/MERN portant exonération des matériels importés pour le projet d’Interconnexion.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0753-pr-mern-portant-exoneration-des-materiels-importes-pour-le-projet-dinterconnexion/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0753-pr-mern-portant-exoneration-des-materiels-importes-pour-le-projet-dinterconnexion/>
 
 En vigueur : 2008-10-15 (date du Journal officiel qui le publie).
 

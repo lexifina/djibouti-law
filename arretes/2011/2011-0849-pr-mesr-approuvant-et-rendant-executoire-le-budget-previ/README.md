@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0849/PR/MESR approuvant et rendant exécutoire le budget Prévisionnel de l’exercice 2012 de l’Ecole de Médecine de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0849-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-de-lecole-de-medecine-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0849-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-de-lecole-de-medecine-de-djibouti/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

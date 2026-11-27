@@ -1,6 +1,6 @@
 # Arrêté n° 2019-080/PR/MAPCI modifiant et complétant l’arrêté n° 2019-036 du 29 janvier 2019 portant agrément au code des investissements de la Société “Nael & Bin Harmal Investment co”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-080-pr-mapci-modifiant-et-completant-larrete-n2019-036-du-29-janvier-2019-portant-agrement-au-code-des-investissements-de-la-societe-nael-bin-harmal-investmen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-080-pr-mapci-modifiant-et-completant-larrete-n2019-036-du-29-janvier-2019-portant-agrement-au-code-des-investissements-de-la-societe-nael-bin-harmal-investmen/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

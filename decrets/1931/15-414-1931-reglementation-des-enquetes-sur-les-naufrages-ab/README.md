@@ -1,6 +1,6 @@
 # Décret n° 15-414-1931 Réglementation des enquêtes sur les naufrages, abordages et autres accidents de navigation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 414 du 31/05/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-414-1931-reglementation-des-enquetes-sur-les-naufrages-abordages-et-autres-accidents-de-navigation/>
+Décret · Journal officiel de la République de Djibouti, n° 414 du 31/05/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-414-1931-reglementation-des-enquetes-sur-les-naufrages-abordages-et-autres-accidents-de-navigation/>
 
 En vigueur : 1931-05-31 (date du Journal officiel qui le publie).
 

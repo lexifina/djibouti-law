@@ -1,6 +1,6 @@
 # Décret n° 2024-243/PR/MEFI portant annulation de la délégation de la gestion du corridor urbain.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-243-pr-mefi-portant-annulation-de-la-delegation-de-la-gestion-du-corridor-urbain/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-243-pr-mefi-portant-annulation-de-la-delegation-de-la-gestion-du-corridor-urbain/>
 
 En vigueur : 2024-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

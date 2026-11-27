@@ -1,6 +1,6 @@
 # Loi n° 112/AN/00/2e L portant approbation d’un pret entre la Repubiique bouti et I’italle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-00-2e-l-portant-approbation-dun-pret-entre-la-repubiique-bouti-et-iitalle/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-00-2e-l-portant-approbation-dun-pret-entre-la-repubiique-bouti-et-iitalle/>
 
 En vigueur : 1990-03-15 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

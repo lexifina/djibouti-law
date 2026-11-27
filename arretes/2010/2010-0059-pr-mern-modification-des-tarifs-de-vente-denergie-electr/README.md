@@ -1,8 +1,8 @@
 # Arrêté n° 2010-0059/PR/MERN portant modification des Tarifs de Vente d’Energie Electrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0059-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0059-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2010-01-23 (date fixÃ©e par le texte).
+En vigueur : 2010-01-23 (date fixée par le texte).
 
 ## Visas
 

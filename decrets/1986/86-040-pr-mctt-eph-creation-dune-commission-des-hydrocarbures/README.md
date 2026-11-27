@@ -1,6 +1,6 @@
 # Décret n° 86-040/PR/MCTT/EPH Portant création d’une commission des hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-040-pr-mctt-eph-portant-creation-dune-commission-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-040-pr-mctt-eph-portant-creation-dune-commission-des-hydrocarbures/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

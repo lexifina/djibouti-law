@@ -1,6 +1,6 @@
 # Ordonnance n° n° 45-2145 fixant les modalités de la participation des territoires d’outre-mer relevant du Ministre des Colonies au référendum institué par l’ordonnance du 17 août 1945.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2145-fixant-les-modalites-de-la-participation-des-territoires-doutre-mer-relevant-du-ministre-des-colonies-au-referendum-institue-par-lordonnance-du-17-aout-1945/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2145-fixant-les-modalites-de-la-participation-des-territoires-doutre-mer-relevant-du-ministre-des-colonies-au-referendum-institue-par-lordonnance-du-17-aout-1945/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ P. GIACOBBI,
 | [art-001.md](art-001.md) | Article 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

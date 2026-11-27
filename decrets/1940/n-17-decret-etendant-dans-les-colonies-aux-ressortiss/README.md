@@ -1,6 +1,6 @@
 # Décret n° n°17 Le décret étendant., dans les colonies, aux ressortissants français des territoires d’outre-mer les dis- positions de l’article 5 du décret du 12 avril 1939.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n17-le-decret-etendant-dans-les-colonies-aux-ressortissants-francais-des-territoires-doutre-mer-les-dis-positions-de-larticle-5-du-decret-du-12-avril-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n17-le-decret-etendant-dans-les-colonies-aux-ressortissants-francais-des-territoires-doutre-mer-les-dis-positions-de-larticle-5-du-decret-du-12-avril-1939/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

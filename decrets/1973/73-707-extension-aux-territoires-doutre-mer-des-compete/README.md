@@ -1,6 +1,6 @@
 # Décret n° 73-707 portant extension aux territoires d’outre-mer des compétences du délégué à l’espace aérien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-707-portant-extension-aux-territoires-doutre-mer-des-competences-du-delegue-a-lespace-aerien/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-707-portant-extension-aux-territoires-doutre-mer-des-competences-du-delegue-a-lespace-aerien/>
 
 En vigueur : 1973-10-10 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° du 30 décembre 1939 relatif à l’accord de payement franco-yougoslave du 30 décembre 1939.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-30-decembre-1939-relatif-a-laccord-de-payement-franco-yougoslave-du-30-decembre-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-30-decembre-1939-relatif-a-laccord-de-payement-franco-yougoslave-du-30-decembre-1939/>
 
-En vigueur : 1940-01-01 (date fixÃ©e par le texte).
+En vigueur : 1940-01-01 (date fixée par le texte).
 
 ## Visas
 
@@ -28,8 +28,8 @@ Georges MANDEL,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

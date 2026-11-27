@@ -1,6 +1,6 @@
 # Décret n° 2002-0094/PRE portant la relève de la brigade territoriale de la Gendarmerie au Port.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0094-pre-portant-la-releve-de-la-brigade-territoriale-de-la-gendarmerie-au-port/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0094-pre-portant-la-releve-de-la-brigade-territoriale-de-la-gendarmerie-au-port/>
 
 En vigueur : 2002-05-30 (date du Journal officiel qui le publie).
 

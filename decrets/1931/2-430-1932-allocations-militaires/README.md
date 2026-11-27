@@ -1,6 +1,6 @@
 # Décret n° 2-430-1932 Allocations militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 430 du 30/09/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-430-1932-allocations-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 430 du 30/09/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-430-1932-allocations-militaires/>
 
 En vigueur : 1932-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 65-557 fixant le statut de la copropriété des immeubles bâtis.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1965 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-65-557-fixant-le-statut-de-la-copropriete-des-immeubles-batis/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/09/1965 · <https://www.journalofficiel.dj/texte-juridique/loi-n-65-557-fixant-le-statut-de-la-copropriete-des-immeubles-batis/>
 
 En vigueur : 1965-09-01 (date du Journal officiel qui le publie).
 
@@ -72,4 +72,4 @@ JACQUES MAZIOL.
 | [art-046.md](art-046.md) | Art. 46 |
 | [art-047.md](art-047.md) | Art. 47 |
 | [art-048.md](art-048.md) | Art. 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

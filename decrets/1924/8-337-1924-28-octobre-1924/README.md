@@ -1,8 +1,8 @@
 # Décret n° 8-337-1924 28 octobre 1924.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 337 du 30/12/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-337-1924-28-octobre-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 337 du 30/12/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-337-1924-28-octobre-1924/>
 
-En vigueur : 1925-01-01 (date fixÃ©e par le texte).
+En vigueur : 1925-01-01 (date fixée par le texte).
 
 ## Visas
 

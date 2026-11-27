@@ -1,6 +1,6 @@
 # Décret n° 68-507 la procédure d’urgence le décret n° 68-507 du 1er juin 1968 convoquant le Collège électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-507-la-procedure-durgence-le-decret-n-68-507-du-1er-juin-1968-convoquant-le-college-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-507-la-procedure-durgence-le-decret-n-68-507-du-1er-juin-1968-convoquant-le-college-electoral/>
 
 En vigueur : 1968-06-25 (date du Journal officiel qui le publie).
 

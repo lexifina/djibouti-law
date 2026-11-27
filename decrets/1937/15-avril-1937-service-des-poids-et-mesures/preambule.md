@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1 er . — Les appareils calculateurs-indi cateurs de prix accouplés à des instruments de mesure doivent, pour être admis à la vérification et au poinçonnage, exprimer en unités monétaires légales le prix de la quantité de marchandise mesurée.
 Les nombres exprimant, d’une part, cette quantité, d’autre part, le prix de vente uni taire de la marchandise et le prix à payer, se ront indiqués en chiffres alignés permettant la lecture directe.
 L’exactitude de l’appareil de mesure ne doit, en aucun cas, être altérée par l’adjonction du calculateur de prix.

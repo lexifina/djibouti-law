@@ -1,6 +1,6 @@
 # Loi n° 166/AN/06/5ème L portant approbation des comptes définitifs de l’ONED pour l’exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-06-5eme-l-portant-approbation-des-comptes-definitifs-de-loned-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-06-5eme-l-portant-approbation-des-comptes-definitifs-de-loned-pour-lexercice-2004/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

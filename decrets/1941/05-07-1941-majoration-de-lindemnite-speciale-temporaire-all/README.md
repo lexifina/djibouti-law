@@ -1,6 +1,6 @@
 # Décret n° 05/07/1941 portant majoration de l’indemnité spéciale temporaire allouée aux fonctionnaires, employés et agents des services coloniaux qui se trouvent. dans la métropole, dans une position donnant droit au bénéfice de la solde de présence.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-07-1941-portant-majoration-de-lindemnite-speciale-temporaire-allouee-aux-fonctionnaires-employes-et-agents-des-services-coloniaux-qui-se-trouvent-dans-la-metropole-dans-une-pos/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-07-1941-portant-majoration-de-lindemnite-speciale-temporaire-allouee-aux-fonctionnaires-employes-et-agents-des-services-coloniaux-qui-se-trouvent-dans-la-metropole-dans-une-pos/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

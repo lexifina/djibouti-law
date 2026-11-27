@@ -1,6 +1,6 @@
 # Décret n° 2 avril 1936 relative aux transports des marchandises par mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-avril-1936-relative-aux-transports-des-marchandises-par-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-avril-1936-relative-aux-transports-des-marchandises-par-mer/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ de CHAPPEDELAINE.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

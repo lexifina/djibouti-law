@@ -1,8 +1,8 @@
 # Loi n° 47-1366 modifiant l’organisation et la procédure de la Cour de cassaion
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-47-1366-modifiant-lorganisation-et-la-procedure-de-la-cour-de-cassaion/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/loi-n-47-1366-modifiant-lorganisation-et-la-procedure-de-la-cour-de-cassaion/>
 
-En vigueur : 1947-08-15 (date fixÃ©e par le texte).
+En vigueur : 1947-08-15 (date fixée par le texte).
 
 ## Visas
 
@@ -31,4 +31,4 @@ Schuman.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

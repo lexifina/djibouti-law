@@ -1,6 +1,6 @@
 # Décret n° n°4 Décret relatif à l’’application aux colonies de la loi du 16 mai 1930 modifiant l’article 9 de la loi du 31 Mai 1924 sur la navigation aérienne
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 434 du 31/01/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-decret-relatif-a-lapplication-aux-colonies-de-la-loi-du-16-mai-1930-modifiant-larticle-9-de-la-loi-du-31-mai-1924-sur-la-navigation-aerienne/>
+Décret · Journal officiel de la République de Djibouti, n° 434 du 31/01/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-decret-relatif-a-lapplication-aux-colonies-de-la-loi-du-16-mai-1930-modifiant-larticle-9-de-la-loi-du-31-mai-1924-sur-la-navigation-aerienne/>
 
 En vigueur : 1933-01-31 (date du Journal officiel qui le publie).
 

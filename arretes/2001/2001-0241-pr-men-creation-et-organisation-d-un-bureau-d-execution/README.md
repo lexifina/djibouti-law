@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0241/PR/MEN portant création et organisation d’un Bureau d’Exécution des projets d’Alphabétisation des Femmes (B.E.P.A.F).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0241-pr-men-portant-creation-et-organisation-dun-bureau-dexecution-des-projets-dalphabetisation-des-femmes-b-e-p-a-f/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0241-pr-men-portant-creation-et-organisation-dun-bureau-dexecution-des-projets-dalphabetisation-des-femmes-b-e-p-a-f/>
 
 En vigueur : 2001-04-15 (date du Journal officiel qui le publie).
 

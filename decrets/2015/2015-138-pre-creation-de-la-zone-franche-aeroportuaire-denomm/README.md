@@ -1,8 +1,8 @@
 # Décret n° 2015-138/PRE portant création de la Zone Franche Aéroportuaire dénommée “Cargo Freight Village”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-138-pre-portant-creation-de-la-zone-franche-aeroportuaire-denommee-cargo-freight-village/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-138-pre-portant-creation-de-la-zone-franche-aeroportuaire-denommee-cargo-freight-village/>
 
-En vigueur : 2015-05-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-05-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 98/AN/20/8ème L modifiant et complétant la loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-20-8eme-l-modifiant-et-completant-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-20-8eme-l-modifiant-et-completant-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

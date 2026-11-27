@@ -1,6 +1,6 @@
 # Décret n° 2007-0195/PR/MID prorogeant le délai initial de la refonte Générale des listes électorales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0195-pr-mid-prorogeant-le-delai-initial-de-la-refonte-generale-des-listes-electorales/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0195-pr-mid-prorogeant-le-delai-initial-de-la-refonte-generale-des-listes-electorales/>
 
 En vigueur : 2007-10-15 (date du Journal officiel qui le publie).
 

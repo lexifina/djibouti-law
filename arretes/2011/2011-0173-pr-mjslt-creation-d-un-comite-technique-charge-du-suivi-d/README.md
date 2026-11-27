@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0173/PR/MJSLT portant création d’un Comité Technique chargé du suivi de la mise en oeuvre de la Politique Nationale de la Jeunesse, des Sports et des Loisirs.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0173-pr-mjslt-portant-creation-dun-comite-technique-charge-du-suivi-de-la-mise-en-oeuvre-de-la-politique-nationale-de-la-jeunesse-des-sports-et-des-loisirs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0173-pr-mjslt-portant-creation-dun-comite-technique-charge-du-suivi-de-la-mise-en-oeuvre-de-la-politique-nationale-de-la-jeunesse-des-sports-et-des-loisirs/>
 
 En vigueur : 2011-02-28 (date du Journal officiel qui le publie).
 

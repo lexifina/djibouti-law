@@ -1,6 +1,6 @@
 # Loi n° 86/AN/24/9ème L portant adoption des comptes financiers du CRIPEN pour l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-24-9eme-l-portant-adoption-des-comptes-financiers-du-cripen-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 13/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-24-9eme-l-portant-adoption-des-comptes-financiers-du-cripen-pour-lexercice-2021/>
 
 En vigueur : 2024-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

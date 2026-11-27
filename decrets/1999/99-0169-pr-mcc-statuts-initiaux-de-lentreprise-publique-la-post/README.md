@@ -1,6 +1,6 @@
 # Décret n° 99-0169/PR/MCC portant statuts initiaux de l’entreprise publique « la Poste de Djibouti ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0169-pr-mcc-portant-statuts-initiaux-de-lentreprise-publique-la-poste-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0169-pr-mcc-portant-statuts-initiaux-de-lentreprise-publique-la-poste-de-djibouti/>
 
 En vigueur : 1999-09-30 (date du Journal officiel qui le publie).
 

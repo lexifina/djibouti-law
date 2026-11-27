@@ -1,6 +1,6 @@
 # Rectificatif n° 09/09/1939 portant application aux territoires relevant du Ministère des colonies autres que les Antilles et la Réunion, des dispositions du décret relatif à la suspension de l’exécution des condamnations à l’emprisonnement en cas de mobilisation générale .
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-09-09-1939-portant-application-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-et-la-reunion-des-dispositions-du-decret-relatif-a-la-suspension-de-l/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-09-09-1939-portant-application-aux-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-et-la-reunion-des-dispositions-du-decret-relatif-a-la-suspension-de-l/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

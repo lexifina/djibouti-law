@@ -1,6 +1,6 @@
 # Décret n° 12 mars 1941 relative a l’Officeles mutilés, combattants, victimes de la guerre et pupilles de la nation dans les colonies et territoires sous mandat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-relative-a-lofficeles-mutiles-combattants-victimes-de-la-guerre-et-pupilles-de-la-nation-dans-les-colonies-et-territoires-sous-mandat/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-relative-a-lofficeles-mutiles-combattants-victimes-de-la-guerre-et-pupilles-de-la-nation-dans-les-colonies-et-territoires-sous-mandat/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

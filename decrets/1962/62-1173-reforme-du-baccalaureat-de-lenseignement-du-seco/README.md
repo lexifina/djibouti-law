@@ -1,6 +1,6 @@
 # Décret n° 62-1173 portant réforme du baccalauréat de l’enseignement du second degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-1173-portant-reforme-du-baccalaureat-de-lenseignement-du-second-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-1173-portant-reforme-du-baccalaureat-de-lenseignement-du-second-degre/>
 
 En vigueur : 1962-11-30 (date du Journal officiel qui le publie).
 

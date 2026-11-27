@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0079/PRE portant approbation du Budget du CERD pour l’exercice 2003.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0079-pre-portant-approbation-du-budget-du-cerd-pour-lexercice-2003/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0079-pre-portant-approbation-du-budget-du-cerd-pour-lexercice-2003/>
 
 En vigueur : 2003-02-15 (date du Journal officiel qui le publie).
 

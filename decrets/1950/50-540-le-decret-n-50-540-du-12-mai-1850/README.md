@@ -1,6 +1,6 @@
 # Décret n° 50-540 le décret n° 50-540 du 12 mai 1850. …
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-540-le-decret-n-50-540-du-12-mai-1850/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-540-le-decret-n-50-540-du-12-mai-1850/>
 
 En vigueur : 1950-08-01 (date du Journal officiel qui le publie).
 
@@ -27,5 +27,5 @@ Edgar FAURE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

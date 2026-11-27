@@ -1,6 +1,6 @@
 # Loi n° 100/AN/05/5ème L portant modification de la loi n° 176/AN/91/2ème L portant création d’un cahier des charges spécial applicable aux anciens quartiers et à Balbala.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-05-5eme-l-portant-modification-de-la-loi-n176-an-91-2eme-l-portant-creation-dun-cahier-des-charges-special-applicable-aux-anciens-quartiers-et-a-balbala/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-05-5eme-l-portant-modification-de-la-loi-n176-an-91-2eme-l-portant-creation-dun-cahier-des-charges-special-applicable-aux-anciens-quartiers-et-a-balbala/>
 
 En vigueur : 2005-04-16 (date du Journal officiel qui le publie).
 

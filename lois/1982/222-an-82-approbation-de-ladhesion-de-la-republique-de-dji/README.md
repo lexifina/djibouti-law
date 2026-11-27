@@ -1,6 +1,6 @@
 # Loi n° 222/AN/82 portant approbation de l’Adhésion de la République de Djibouti à l’Organisation Internationale de Travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-internationale-de-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-internationale-de-travail/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

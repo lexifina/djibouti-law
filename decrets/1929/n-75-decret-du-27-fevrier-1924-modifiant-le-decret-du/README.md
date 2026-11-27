@@ -1,6 +1,6 @@
 # Décret n° n°75 Décret du 27 février 1924 modifiant le décret du 28 juillet I9I8 réglementant les autorisations personnelles en matière minière
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 392 du 31/07/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n75-decret-du-27-fevrier-1924-modifiant-le-decret-du-28-juillet-i9i8-reglementant-les-autorisations-personnelles-en-matiere-miniere/>
+Décret · Journal officiel de la République de Djibouti, n° 392 du 31/07/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n75-decret-du-27-fevrier-1924-modifiant-le-decret-du-28-juillet-i9i8-reglementant-les-autorisations-personnelles-en-matiere-miniere/>
 
 En vigueur : 1929-07-31 (date du Journal officiel qui le publie).
 

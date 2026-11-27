@@ -1,6 +1,6 @@
 # Décret n° 47-57 fixant les conditions des réassurances légales obligatoires auprès de la Caisse centrale de réassurances.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-57-fixant-les-conditions-des-reassurances-legales-obligatoires-aupres-de-la-caisse-centrale-de-reassurances/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-57-fixant-les-conditions-des-reassurances-legales-obligatoires-aupres-de-la-caisse-centrale-de-reassurances/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ Léon BLUM.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 – |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

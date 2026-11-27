@@ -1,6 +1,6 @@
 # Loi n° 30/AN/13/7ème L portant ratification de l’Accord de financement du projet d’acquisition des équipements de l’Université de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-dacquisition-des-equipements-de-luniversite-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-dacquisition-des-equipements-de-luniversite-de-djibouti/>
 
 En vigueur : 2014-01-30 (date du Journal officiel qui le publie).
 

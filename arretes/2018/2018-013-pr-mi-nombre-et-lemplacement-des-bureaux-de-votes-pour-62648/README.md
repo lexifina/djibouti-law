@@ -1,6 +1,6 @@
 # Arrêté n° 2018-013/PR/MI fixant le nombre et l’emplacement des Bureaux de votes pour les élections législatives du 23 février 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 30/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-013-pr-mi-fixant-le-nombre-et-lemplacement-des-bureaux-de-votes-pour-les-elections-legislatives-du-23-fevrier-2018-2/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 30/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-013-pr-mi-fixant-le-nombre-et-lemplacement-des-bureaux-de-votes-pour-les-elections-legislatives-du-23-fevrier-2018-2/>
 
 En vigueur : 2018-01-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°5 Décret portant application aux colonies du décret du 22 décembre 1527 relatif aux frais de justice
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n5-decret-portant-application-aux-colonies-du-decret-du-22-decembre-1527-relatif-aux-frais-de-justice/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n5-decret-portant-application-aux-colonies-du-decret-du-22-decembre-1527-relatif-aux-frais-de-justice/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

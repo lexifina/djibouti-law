@@ -1,6 +1,6 @@
 # Loi n° 112/AN/24/9ème L portant ratification de l’Accord de financement concessionnel du projet régional d’intégration numérique en Afrique de l’Est.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-24-9eme-l-portant-ratification-de-laccord-de-financement-concessionnel-du-projet-regional-dintegration-numerique-en-afrique-de-lest/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 13/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-24-9eme-l-portant-ratification-de-laccord-de-financement-concessionnel-du-projet-regional-dintegration-numerique-en-afrique-de-lest/>
 
 En vigueur : 2024-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

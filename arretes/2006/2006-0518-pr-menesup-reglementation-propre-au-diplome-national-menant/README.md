@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0518/PR/MENESUP portant réglementation propre au diplôme national menant au titre de Diplôme universitaire de technologie mention “Génie industriel et maintenance”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0518-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-genie-industriel-et-maintenance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0518-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-genie-industriel-et-maintenance/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

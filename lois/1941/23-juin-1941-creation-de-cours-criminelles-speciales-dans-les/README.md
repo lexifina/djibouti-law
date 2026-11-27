@@ -1,6 +1,6 @@
 # Loi n° 23 juin 1941 portant création de Cours criminelles spéciales dans les territoires relevant du Secrétariat d’État aux colonies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-23-juin-1941-portant-creation-de-cours-criminelles-speciales-dans-les-territoires-relevant-du-secretariat-detat-aux-colonies/>
+Loi · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-23-juin-1941-portant-creation-de-cours-criminelles-speciales-dans-les-territoires-relevant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 240/AN/87/1ère L portant approbation du Schéma Directeur d’Aménagement et d’Urbanisme de Dikhil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n240-an-87-1ere-l-portant-approbation-du-schema-directeur-damenagement-et-durbanisme-de-dikhil/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n240-an-87-1ere-l-portant-approbation-du-schema-directeur-damenagement-et-durbanisme-de-dikhil/>
 
 En vigueur : 1987-04-30 (date du Journal officiel qui le publie).
 

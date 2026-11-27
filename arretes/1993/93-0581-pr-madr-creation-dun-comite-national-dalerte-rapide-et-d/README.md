@@ -1,6 +1,6 @@
 # Arrêté n° 93-0581/PR/MADR portant création d’un comité national d’alerte rapide et d’information sur la sécurité alimentaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0581-pr-madr-portant-creation-dun-comite-national-dalerte-rapide-et-dinformation-sur-la-securite-alimentaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0581-pr-madr-portant-creation-dun-comite-national-dalerte-rapide-et-dinformation-sur-la-securite-alimentaire/>
 
 En vigueur : 1993-06-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAEL GUEDI HARRED
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

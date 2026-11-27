@@ -1,6 +1,6 @@
 # Décret n° 60-139 relatif à la réglementation de certaines banques de dépôts.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-139-relatif-a-la-reglementation-de-certaines-banques-de-depots/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-139-relatif-a-la-reglementation-de-certaines-banques-de-depots/>
 
 En vigueur : 1965-01-31 (date du Journal officiel qui le publie).
 

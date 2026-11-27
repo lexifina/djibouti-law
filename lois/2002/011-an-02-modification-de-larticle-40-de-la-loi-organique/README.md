@@ -1,6 +1,6 @@
 # Loi n° 11/AN/02/4ème L portant modification de l’article 40 de la Loi Organique N°2/AN/93 du 07 avril 1993 et de l’article 41 de la Loi Organique N°1/AN/92 du 29 octobre 1992 relative aux Elections.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-02-4eme-l-portant-modification-de-larticle-40-de-la-loi-organique-n2-an-93-du-07-avril-1993-et-de-larticle-41-de-la-loi-organique-n1-an-92-du-29-octobre-1992-relative/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-02-4eme-l-portant-modification-de-larticle-40-de-la-loi-organique-n2-an-93-du-07-avril-1993-et-de-larticle-41-de-la-loi-organique-n1-an-92-du-29-octobre-1992-relative/>
 
 En vigueur : 2002-08-15 (date du Journal officiel qui le publie).
 

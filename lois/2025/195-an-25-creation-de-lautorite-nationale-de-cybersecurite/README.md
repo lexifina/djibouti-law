@@ -1,6 +1,6 @@
 # Loi n° 195/AN/25/9ème L portant création de l’Autorité Nationale de Cybersécurité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-25-9eme-l-portant-creation-de-lautorite-nationale-de-cybersecurite/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-25-9eme-l-portant-creation-de-lautorite-nationale-de-cybersecurite/>
 
 En vigueur : 2025-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

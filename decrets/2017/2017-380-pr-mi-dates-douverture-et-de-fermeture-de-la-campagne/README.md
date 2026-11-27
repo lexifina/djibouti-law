@@ -1,6 +1,6 @@
 # Décret n° 2017-380/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les Elections Législatives du 23 Février 2018.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 29/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-380-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-23-fevrier-2018/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 29/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-380-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-23-fevrier-2018/>
 
 En vigueur : 2017-11-29 (date du Journal officiel qui le publie).
 

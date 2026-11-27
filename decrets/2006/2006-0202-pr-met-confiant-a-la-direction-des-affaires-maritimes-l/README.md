@@ -1,6 +1,6 @@
 # Décret n° 2006-0202/PR/MET confiant à la Direction des Affaires Maritimes la gestion et l’exploitation de tout navire d’État destiné aux transports des passagers et des marchandises dans la limite des eaux territoriales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0202-pr-met-confiant-a-la-direction-des-affaires-maritimes-la-gestion-et-lexploitation-de-tout-navire-detat-destine-aux-transports-des-passagers-et-des-marchandises-dans-la-limi/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0202-pr-met-confiant-a-la-direction-des-affaires-maritimes-la-gestion-et-lexploitation-de-tout-navire-detat-destine-aux-transports-des-passagers-et-des-marchandises-dans-la-limi/>
 
 En vigueur : 2006-08-15 (date du Journal officiel qui le publie).
 

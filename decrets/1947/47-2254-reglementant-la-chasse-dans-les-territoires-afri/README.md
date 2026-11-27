@@ -1,8 +1,8 @@
 # Décret n° 47-2254 réglementant la chasse dans les territoires africains relevant du ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2254-reglementant-la-chasse-dans-les-territoires-africains-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2254-reglementant-la-chasse-dans-les-territoires-africains-relevant-du-ministere-de-la-france-doutre-mer/>
 
-En vigueur : 1947-11-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1947-11-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -70,4 +70,4 @@ André MARIE.
 | [art-031.md](art-031.md) | Art. 31 |
 | [art-032.md](art-032.md) | Art. 32 |
 | [art-033.md](art-033.md) | Art. 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

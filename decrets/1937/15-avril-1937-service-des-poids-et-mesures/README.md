@@ -1,6 +1,6 @@
 # Décret n° 15 avril 1937. Service des poids et mesures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-avril-1937-service-des-poids-et-mesures/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-avril-1937-service-des-poids-et-mesures/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ Charles SPINASSE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

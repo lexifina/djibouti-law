@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0330/PR/MERN approuvant et rendant exécutoire le budget prévisionnel l’an 2001 de la Société Internationale des Hydrocarbures de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0330-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-lan-2001-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0330-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-lan-2001-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2001-04-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

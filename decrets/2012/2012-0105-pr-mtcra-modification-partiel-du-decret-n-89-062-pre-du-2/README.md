@@ -1,8 +1,8 @@
 # Décret n° 2012-0105/PR/MTCRA portant modification partiel du décret n° 89-062/PRE du 29 mai 1989 relatif au corps de l’Equipement et des Travaux Publics et revalorisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0105-pr-mtcra-portant-modification-partiel-du-decret-n89-062-pre-du-29-mai-1989-relatif-au-corps-de-lequipement-et-des-travaux-publics-et-revalorisation/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0105-pr-mtcra-portant-modification-partiel-du-decret-n89-062-pre-du-29-mai-1989-relatif-au-corps-de-lequipement-et-des-travaux-publics-et-revalorisation/>
 
-En vigueur : 2012-05-13 (date fixÃ©e par le texte).
+En vigueur : 2012-05-13 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1651 portant application à la Guadeloupe, à la Martinique, à la Réunion, à Madagascar et Dépendances, à la Côte Francaise des Somalis, a la Guyane et à Saint-Pierre et Miquelon de l’ordonnance du 21 avril 1945 portant deuxième application de l’ordonnance du 12 novembre 1943 sur la nullité des actes de spoliation accomplis par l’ennemi ou sous son contrôle et édictant la restitution aux victimes de ces actes de ceux de leurs biens qui ont fait l’objet d’actes de disposition.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1651-portant-application-a-la-guadeloupe-a-la-martinique-a-la-reunion-a-madagascar-et-dependances-a-la-cote-francaise-des-somalis-a-la-guyane-et-a-saint-pierre-et-miquelon-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1651-portant-application-a-la-guadeloupe-a-la-martinique-a-la-reunion-a-madagascar-et-dependances-a-la-cote-francaise-des-somalis-a-la-guyane-et-a-saint-pierre-et-miquelon-de-l/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

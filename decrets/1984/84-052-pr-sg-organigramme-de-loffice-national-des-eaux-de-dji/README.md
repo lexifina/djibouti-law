@@ -1,6 +1,6 @@
 # Décret n° 84-052/PR/SG portant organigramme de l’Office National des Eaux de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-052-pr-sg-portant-organigramme-de-loffice-national-des-eaux-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/05/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-052-pr-sg-portant-organigramme-de-loffice-national-des-eaux-de-djibouti/>
 
 En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Le Conseil des Ministres entendu en sa séance du 15 MAI 1984.
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

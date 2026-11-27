@@ -1,6 +1,6 @@
 # Loi n° 215/AN/86/1ère L portant approbation d’un accord de prêt entre la république de Djibouti et le fonds saoudien pour le développement économique arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-86-1ere-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-saoudien-pour-le-developpement-economique-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-86-1ere-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-saoudien-pour-le-developpement-economique-arabe/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

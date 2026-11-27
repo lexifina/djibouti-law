@@ -1,6 +1,6 @@
 # Décret n° 71-1007 relatif à organisation de l’espace aérien
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-1007-relatif-a-organisation-de-lespace-aerien/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-1007-relatif-a-organisation-de-lespace-aerien/>
 
 En vigueur : 1973-10-10 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ PHILIPPE MALAUD.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

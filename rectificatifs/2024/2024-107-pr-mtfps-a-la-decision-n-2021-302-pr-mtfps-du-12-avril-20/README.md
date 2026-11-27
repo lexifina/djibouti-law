@@ -1,6 +1,6 @@
 # Rectificatif n° 2024-107/PR/MTFPS à la décision n° 2021-302/PR/MTFPS du 12 avril 2021 portant recrutement.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 14/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2024-107-pr-mtfps-a-la-decision-n-2021-302-pr-mtfps-du-12-avril-2021-portant-recrutement/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 05 du 14/03/2024 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2024-107-pr-mtfps-a-la-decision-n-2021-302-pr-mtfps-du-12-avril-2021-portant-recrutement/>
 
 En vigueur : 2024-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

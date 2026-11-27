@@ -1,6 +1,6 @@
 # Décret n° n°24 Décret du 18 octobre 1927 portant ouverture de crédits supplémenlaires au budget de la colonie (exercice 1927)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 372 du 30/11/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n24-decret-du-18-octobre-1927-portant-ouverture-de-credits-supplemenlaires-au-budget-de-la-colonie-exercice-1927/>
+Décret · Journal officiel de la République de Djibouti, n° 372 du 30/11/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n24-decret-du-18-octobre-1927-portant-ouverture-de-credits-supplemenlaires-au-budget-de-la-colonie-exercice-1927/>
 
 En vigueur : 1927-11-30 (date du Journal officiel qui le publie).
 

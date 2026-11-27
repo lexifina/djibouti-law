@@ -1,6 +1,6 @@
 # Décret n° 18-247-1917 concernant l’ajournement en 1917 des élections législatives, départementales, communales ou consulaires
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 247 du 31/05/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-247-1917-concernant-lajournement-en-1917-des-elections-legislatives-departementales-communales-ou-consulaires/>
+Décret · Journal officiel de la République de Djibouti, n° 247 du 31/05/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-247-1917-concernant-lajournement-en-1917-des-elections-legislatives-departementales-communales-ou-consulaires/>
 
 En vigueur : 1917-05-31 (date du Journal officiel qui le publie).
 

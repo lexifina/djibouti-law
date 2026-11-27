@@ -1,6 +1,6 @@
 # Décret n° 74-210 relatif aux attributions du secrétaire d’Etat auprès du Premier ministre, chargé des départements et territoires d’outre- mer (JORE n° 59 du 8 mars 1974, pages 2668,2669.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-210-relatif-aux-attributions-du-secretaire-detat-aupres-du-premier-ministre-charge-des-departements-et-territoires-doutre-mer-jore-n-59-du-8-mars-1974-pages-266/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-210-relatif-aux-attributions-du-secretaire-detat-aupres-du-premier-ministre-charge-des-departements-et-territoires-doutre-mer-jore-n-59-du-8-mars-1974-pages-266/>
 
 En vigueur : 1974-03-25 (date du Journal officiel qui le publie).
 

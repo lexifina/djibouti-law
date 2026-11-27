@@ -1,6 +1,6 @@
 # Décret n° 24/06/1942 interprétant et complétant le décret du 29 décembre 1941 portant application aux territoires relevant du secrétariat d’Etat aux colonies autres que les Antilles, la Réunion, l’Inde et l’Indochine les dispositions de la loi du 26 juillet 1941 fixant le taux des amendes pénales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 547 du 30/06/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-06-1942-interpretant-et-completant-le-decret-du-29-decembre-1941-portant-application-aux-territoires-relevant-du-secretariat-detat-aux-colonies-autres-que-les-antilles-la-reunion/>
+Décret · Journal officiel de la République de Djibouti, n° 547 du 30/06/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-06-1942-interpretant-et-completant-le-decret-du-29-decembre-1941-portant-application-aux-territoires-relevant-du-secretariat-detat-aux-colonies-autres-que-les-antilles-la-reunion/>
 
 En vigueur : 1942-06-30 (date du Journal officiel qui le publie).
 

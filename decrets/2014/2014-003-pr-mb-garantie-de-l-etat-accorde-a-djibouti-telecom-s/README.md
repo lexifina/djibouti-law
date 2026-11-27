@@ -1,6 +1,6 @@
 # Décret n° 2014-003/PR/MB portant Garantie de l’État accordé à Djibouti Télécom S.A.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-003-pr-mb-portant-garantie-de-letat-accorde-a-djibouti-telecom-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-003-pr-mb-portant-garantie-de-letat-accorde-a-djibouti-telecom-s-a/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

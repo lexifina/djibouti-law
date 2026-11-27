@@ -1,6 +1,6 @@
 # Loi n° 22 mars 1934 Loi relative aux taxes à appliquer dans les chancelleries diplomatiques et consulaires et au ministère des affaires étrangères.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-22-mars-1934-loi-relative-aux-taxes-a-appliquer-dans-les-chancelleries-diplomatiques-et-consulaires-et-au-ministere-des-affaires-etrangeres/>
+Loi · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/loi-n-22-mars-1934-loi-relative-aux-taxes-a-appliquer-dans-les-chancelleries-diplomatiques-et-consulaires-et-au-ministere-des-affaires-etrangeres/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ G ERMAIN-M ARTIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-unique.md](art-unique.md) | Article unique |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

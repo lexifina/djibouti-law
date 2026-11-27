@@ -1,6 +1,6 @@
 # Loi n° 114/AN/10/6ème L portant Budget prévisionnel de l’Etat pour l’Exercice 2011.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-10-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2011/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-10-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2011/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 

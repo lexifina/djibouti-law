@@ -1,6 +1,6 @@
 # Décret n° 2009-0248/PR portant création de la Cellule Interministérielle de Crise.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0248-pr-portant-creation-de-la-cellule-interministerielle-de-crise/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0248-pr-portant-creation-de-la-cellule-interministerielle-de-crise/>
 
 En vigueur : 2009-11-15 (date du Journal officiel qui le publie).
 

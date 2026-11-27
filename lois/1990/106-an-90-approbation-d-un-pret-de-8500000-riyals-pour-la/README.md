@@ -1,6 +1,6 @@
 # Loi n° 106/AN/90/2eL portant approbation d’un prét de 8500000 Riyals pour la Construction du Grand Marché central «El Riyadh» entre le Rovaume d’Arabie saoudite et la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-90-2el-portant-approbation-dun-pret-de-8500000-riyals-pour-la-construction-du-grand-marche-central-el-riyadh-entre-le-rovaume-darabie-saoudite-et-la-rep/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-90-2el-portant-approbation-dun-pret-de-8500000-riyals-pour-la-construction-du-grand-marche-central-el-riyadh-entre-le-rovaume-darabie-saoudite-et-la-rep/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 82-0467/PR/EN fixant l’horaire de l’Enseignement de l’Arabe à la rentrée 1982-1983.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0467-pr-en-fixant-lhoraire-de-lenseignement-de-larabe-a-la-rentree-1982-1983/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0467-pr-en-fixant-lhoraire-de-lenseignement-de-larabe-a-la-rentree-1982-1983/>
 
-En vigueur : 1982-09-15 (date fixÃ©e par le texte).
+En vigueur : 1982-09-15 (date fixée par le texte).
 
 ## Visas
 

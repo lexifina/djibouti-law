@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0454/PR/MESN portant approbation du budget prévisionnel de l’exercice 2005 de l’Organisme de Protection Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0454-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2005-de-lorganisme-de-protection-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0454-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2005-de-lorganisme-de-protection-sociale/>
 
 En vigueur : 2005-07-31 (date du Journal officiel qui le publie).
 

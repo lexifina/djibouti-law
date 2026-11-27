@@ -1,6 +1,6 @@
 # Décret n° 62-444-1933 Solde et accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 444 du 30/11/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-444-1933-solde-et-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 444 du 30/11/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-444-1933-solde-et-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1933-11-30 (date du Journal officiel qui le publie).
 

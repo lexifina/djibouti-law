@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0066/PR/MEFPCP portant attribution de deux parcelles de terrain à la Société de l’État C.N.C et annule l’Arrêté n° 2002/0691/PR/MEFPP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0066-pr-mefpcp-portant-attribution-de-deux-parcelles-de-terrain-a-la-societe-de-letat-c-n-c-et-annule-larrete-n2002-0691-pr-mefpp/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0066-pr-mefpcp-portant-attribution-de-deux-parcelles-de-terrain-a-la-societe-de-letat-c-n-c-et-annule-larrete-n2002-0691-pr-mefpp/>
 
 En vigueur : 2004-01-31 (date du Journal officiel qui le publie).
 

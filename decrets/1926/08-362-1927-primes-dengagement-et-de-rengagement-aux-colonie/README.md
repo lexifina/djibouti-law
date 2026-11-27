@@ -1,6 +1,6 @@
 # Décret n° 08-362-1927 Primes d’engagement et de rengagement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 362 du 31/01/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-362-1927-primes-dengagement-et-de-rengagement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 362 du 31/01/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-362-1927-primes-dengagement-et-de-rengagement-aux-colonies/>
 
 En vigueur : 1927-01-31 (date du Journal officiel qui le publie).
 

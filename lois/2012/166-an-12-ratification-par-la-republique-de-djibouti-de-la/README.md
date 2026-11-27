@@ -1,8 +1,8 @@
 # Loi n° 166/AN/12/6ème L portant ratification par la République de Djibouti de l’Amendement de Beijing au Protocole de Montréal relatif aux substances appauvrissant la couche d’ozone.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-12-6eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-beijing-au-protocole-de-montreal-relatif-aux-substances-appauvrissant-la-couche-dozone/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-12-6eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-beijing-au-protocole-de-montreal-relatif-aux-substances-appauvrissant-la-couche-dozone/>
 
-En vigueur : 2012-07-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-07-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

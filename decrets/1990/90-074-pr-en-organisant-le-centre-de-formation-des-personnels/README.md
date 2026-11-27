@@ -1,6 +1,6 @@
 # Décret n° 90-074/PR/EN organisant le Centre de Formation des Personnels de I’Education nationale (CFPEN)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-074-pr-en-organisant-le-centre-de-formation-des-personnels-de-ieducation-nationale-cfpen/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-074-pr-en-organisant-le-centre-de-formation-des-personnels-de-ieducation-nationale-cfpen/>
 
 En vigueur : 1990-07-15 (date du Journal officiel qui le publie).
 
@@ -25,7 +25,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -37,4 +37,4 @@ HASSAN GOULED APTIDON
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

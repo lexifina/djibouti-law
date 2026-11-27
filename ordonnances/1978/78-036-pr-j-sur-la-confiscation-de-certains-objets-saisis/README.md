@@ -1,6 +1,6 @@
 # Ordonnance n° 78-036/PR/J Sur la confiscation de certains objets saisis.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 24/04/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-036-pr-j-sur-la-confiscation-de-certains-objets-saisis/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 24/04/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-036-pr-j-sur-la-confiscation-de-certains-objets-saisis/>
 
 En vigueur : 1978-04-24 (date du Journal officiel qui le publie).
 

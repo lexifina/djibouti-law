@@ -1,6 +1,6 @@
 # Décret n° 03-258-1918 30/01/1918
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 258 du 30/04/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-258-1918-30-01-1918/>
+Décret · Journal officiel de la République de Djibouti, n° 258 du 30/04/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-258-1918-30-01-1918/>
 
 En vigueur : 1918-04-30 (date du Journal officiel qui le publie).
 

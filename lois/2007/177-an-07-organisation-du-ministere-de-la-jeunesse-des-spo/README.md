@@ -1,6 +1,6 @@
 # Loi n° 177/AN/07/5ème L portant organisation du Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-07-5eme-l-portant-organisation-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-07-5eme-l-portant-organisation-du-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme/>
 
 En vigueur : 2007-04-30 (date du Journal officiel qui le publie).
 
@@ -57,4 +57,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 59/AN/23/9ème L portant adhésion de la République de Djibouti à l’Arrangement de Lisbonne concernant la protection des appellations d’origine et leur enregistrement international et sa dernière révision, l’Acte de Genève adopté en 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-23-9eme-l-portant-adhesion-de-la-republique-de-djibouti-a-larrangement-de-lisbonne-concernant-la-protection-des-appellations-dorigine-et-leur-enregistrement-international-et-sa-de/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-23-9eme-l-portant-adhesion-de-la-republique-de-djibouti-a-larrangement-de-lisbonne-concernant-la-protection-des-appellations-dorigine-et-leur-enregistrement-international-et-sa-de/>
 
 En vigueur : 2024-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

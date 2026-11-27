@@ -1,6 +1,6 @@
 # Arrêté n° 2013-712/PR/MB portant déchéance des droits accordés sur le titre foncier n° 2594.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-712-pr-mb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n2594/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 14/11/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-712-pr-mb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n2594/>
 
 En vigueur : 2013-11-14 (date du Journal officiel qui le publie).
 

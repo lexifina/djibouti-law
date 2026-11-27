@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0051/PR/MCCPT portant Organisation de la Journée Nationale des Artistes et de la Journée Nationale des langues maternelles.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0051-pr-mccpt-portant-organisation-de-la-journee-nationale-des-artistes-et-de-la-journee-nationale-des-langues-maternelles/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0051-pr-mccpt-portant-organisation-de-la-journee-nationale-des-artistes-et-de-la-journee-nationale-des-langues-maternelles/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

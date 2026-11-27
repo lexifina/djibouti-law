@@ -1,6 +1,6 @@
 # Décret n° 23/10/1935 promulguant à la Côte française des Somalis et dépendances .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-10-1935-promulguant-a-la-cote-francaise-des-somalis-et-dependances/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-10-1935-promulguant-a-la-cote-francaise-des-somalis-et-dependances/>
 
 En vigueur : 1947-12-31 (date du Journal officiel qui le publie).
 

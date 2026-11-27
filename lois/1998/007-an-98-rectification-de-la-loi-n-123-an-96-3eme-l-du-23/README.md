@@ -1,6 +1,6 @@
 # Loi n° 7/AN/98/4ème L portant rectification de la loi n° 123/AN/96/3ème L du 23 janvier 1997 portant approbation des Comptes Administratifs de la Chambre Internationale de Commerce et d’Industrie de Djibouti et des Magasins Généraux pour l’exercice 1995.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n7-an-98-4eme-l-portant-rectification-de-la-loi-n123-an-96-3eme-l-du-23-janvier-1997-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindus/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n7-an-98-4eme-l-portant-rectification-de-la-loi-n123-an-96-3eme-l-du-23-janvier-1997-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindus/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2016-002/PR/MERN portant octroi d’une indemnité spéciale de sujétion au secrétaire Général.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-002-pr-mern-portant-octroi-dune-indemnite-speciale-de-sujetion-au-secretaire-general/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-002-pr-mern-portant-octroi-dune-indemnite-speciale-de-sujetion-au-secretaire-general/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

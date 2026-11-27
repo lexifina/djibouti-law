@@ -1,8 +1,8 @@
 # Décret n° 2018-307/PR/MET portant création et organisation du Comité National de Facilitation du Transport Aérien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-307-pr-met-portant-creation-et-organisation-du-comite-national-de-facilitation-du-transport-aerien/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-307-pr-met-portant-creation-et-organisation-du-comite-national-de-facilitation-du-transport-aerien/>
 
-En vigueur : 2018-10-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-10-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

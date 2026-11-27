@@ -1,8 +1,8 @@
 # Décret n° 2020-070/PRE portant approbation du bilan d’ouverture et fixant le capital social de la Société de Gestion de la Jetée du Terminal Pétrolier de Doraleh (SJTP S.A).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-070-pre-portant-approbation-du-bilan-douverture-et-fixant-le-capital-social-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh-sjtp-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-070-pre-portant-approbation-du-bilan-douverture-et-fixant-le-capital-social-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh-sjtp-s-a/>
 
-En vigueur : 2020-04-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-04-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 150/AN/85/1ère L accordant des parcelles de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-85-1ere-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-85-1ere-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

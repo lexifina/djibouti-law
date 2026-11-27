@@ -1,6 +1,6 @@
 # Décret n° 20-404-1930 Indemnité de mission et de zone .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-404-1930-indemnite-de-mission-et-de-zone/>
+Décret · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-404-1930-indemnite-de-mission-et-de-zone/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2022-019/PR/MI modifiant les modalités de l’immatriculation des véhicules relevant du régime d’admission temporaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-019-pr-mi-modifiant-les-modalites-de-limmatriculation-des-vehicules-relevant-du-regime-dadmission-temporaire/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-019-pr-mi-modifiant-les-modalites-de-limmatriculation-des-vehicules-relevant-du-regime-dadmission-temporaire/>
 
-En vigueur : 2022-01-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-01-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

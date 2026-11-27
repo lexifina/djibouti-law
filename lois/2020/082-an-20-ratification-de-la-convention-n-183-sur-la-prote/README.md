@@ -1,8 +1,8 @@
 # Loi n° 82/AN/20/8ème L portant ratification de la convention (n° 183) sur la protection de la maternité, recommandation 2000, 1952.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-20-8eme-l-portant-ratification-de-la-convention-n183-sur-la-protection-de-la-maternite-recommandation-2000-1952/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-20-8eme-l-portant-ratification-de-la-convention-n183-sur-la-protection-de-la-maternite-recommandation-2000-1952/>
 
-En vigueur : 2020-07-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-07-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

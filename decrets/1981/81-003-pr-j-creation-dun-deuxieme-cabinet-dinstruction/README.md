@@ -1,6 +1,6 @@
 # Décret n° 81-003/PR/J Portant création d’un deuxième Cabinet d’Instruction
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 12/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-003-pr-j-portant-creation-dun-deuxieme-cabinet-dinstruction/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 12/02/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-003-pr-j-portant-creation-dun-deuxieme-cabinet-dinstruction/>
 
 En vigueur : 1981-02-12 (date du Journal officiel qui le publie).
 

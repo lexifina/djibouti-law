@@ -1,8 +1,8 @@
 # Décret n° 2024-037/PR/MJDH portant agrément à l’exercice de la Profession d’Avocat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 29/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2024-037-pr-mjdh-portant-agrement-a-lexercice-de-la-profession-davocat/>
+Décret · Journal officiel de la République de Djibouti, n° 04 du 29/02/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2024-037-pr-mjdh-portant-agrement-a-lexercice-de-la-profession-davocat/>
 
-En vigueur : 2024-02-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-02-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

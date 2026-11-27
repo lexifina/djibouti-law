@@ -1,6 +1,6 @@
 # Loi n° 199/AN/86/1ère L portant statut du service de la protection civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-86-1ere-l-portant-statut-du-service-de-la-protection-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-86-1ere-l-portant-statut-du-service-de-la-protection-civile/>
 
 En vigueur : 1986-04-30 (date du Journal officiel qui le publie).
 

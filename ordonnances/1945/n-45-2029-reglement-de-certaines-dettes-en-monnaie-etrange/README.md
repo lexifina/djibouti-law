@@ -1,6 +1,6 @@
 # Ordonnance n° n’ 45-2029 concernant le règlement de certaines dettes en monnaie étrangère
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2029-concernant-le-reglement-de-certaines-dettes-en-monnaie-etrangere-2/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2029-concernant-le-reglement-de-certaines-dettes-en-monnaie-etrangere-2/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ P. GIACOBBI.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

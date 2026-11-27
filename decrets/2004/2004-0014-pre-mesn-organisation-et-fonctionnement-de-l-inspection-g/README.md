@@ -1,6 +1,6 @@
 # Décret n° 2004-0014/PRE/MESN portant organisation et fonctionnement de l’Inspection Générale d’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0014-pre-mesn-portant-organisation-et-fonctionnement-de-linspection-generale-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0014-pre-mesn-portant-organisation-et-fonctionnement-de-linspection-generale-detat/>
 
 En vigueur : 2004-01-31 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

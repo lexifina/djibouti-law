@@ -1,6 +1,6 @@
 # Décret n° 4 aout 1943 l’organisation du Haut Commandement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 15/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-aout-1943-lorganisation-du-haut-commandement/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 15/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-aout-1943-lorganisation-du-haut-commandement/>
 
 En vigueur : 1943-09-15 (date du Journal officiel qui le publie).
 
@@ -38,7 +38,7 @@ H. BONNET
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art.3 — |
+| [art-003.md](art-003.md) | Art.3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

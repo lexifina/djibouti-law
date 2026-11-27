@@ -2,7 +2,7 @@
 au Code des Investissements de la Société
 « AL GAMIL CONCASSAGE ET BETON »
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0047-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-al-gamil-concassage-et-beton/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0047-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-al-gamil-concassage-et-beton/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

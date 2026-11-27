@@ -1,6 +1,6 @@
 # Loi n° 379 La loi complétant, modifiant et codifiant le régime des prix dans les territoires dépendant du secrétariat d Etat aux colonies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 546 du 31/05/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-379-la-loi-completant-modifiant-et-codifiant-le-regime-des-prix-dans-les-territoires-dependant-du-secretariat-d-etat-aux-colonies/>
+Loi · Journal officiel de la République de Djibouti, n° 546 du 31/05/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-379-la-loi-completant-modifiant-et-codifiant-le-regime-des-prix-dans-les-territoires-dependant-du-secretariat-d-etat-aux-colonies/>
 
 En vigueur : 1942-05-31 (date du Journal officiel qui le publie).
 
@@ -24,7 +24,7 @@ DARLAN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -47,4 +47,4 @@ DARLAN.
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

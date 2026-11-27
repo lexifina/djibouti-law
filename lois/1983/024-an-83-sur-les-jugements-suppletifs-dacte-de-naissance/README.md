@@ -1,6 +1,6 @@
 # Loi n° 24/AN/83/1ère L sur les jugements supplétifs d’acte de naissance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-83-1ere-l-sur-les-jugements-suppletifs-dacte-de-naissance/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-83-1ere-l-sur-les-jugements-suppletifs-dacte-de-naissance/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

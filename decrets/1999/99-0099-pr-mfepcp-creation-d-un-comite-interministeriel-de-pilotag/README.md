@@ -1,6 +1,6 @@
 # Décret n° 99-0099 /PR/MFEPCP portant création d’un Comité Interministériel de Pilotage et de Suivi du Programme d’Ajustement Structurel (CIP-PAS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0099-pr-mfepcp-portant-creation-dun-comite-interministeriel-de-pilotage-et-de-suivi-du-programme-dajustement-structurel-cip-pas/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0099-pr-mfepcp-portant-creation-dun-comite-interministeriel-de-pilotage-et-de-suivi-du-programme-dajustement-structurel-cip-pas/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

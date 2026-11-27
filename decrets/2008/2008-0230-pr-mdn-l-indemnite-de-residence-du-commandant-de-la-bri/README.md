@@ -1,6 +1,6 @@
 # Décret n° 2008-0230/PR/MDN fixant l’indemnité de résidence du Commandant de la Brigade en attente d’Afrique de l’Est (EASBRIG).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0230-pr-mdn-fixant-lindemnite-de-residence-du-commandant-de-la-brigade-en-attente-dafrique-de-lest-easbrig/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0230-pr-mdn-fixant-lindemnite-de-residence-du-commandant-de-la-brigade-en-attente-dafrique-de-lest-easbrig/>
 
 En vigueur : 2008-09-30 (date du Journal officiel qui le publie).
 

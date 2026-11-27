@@ -1,6 +1,6 @@
 # 2023-123/PR/MTFPS portant rectificatif partiel à la décision n° 2023- 019/PR/MTFPS du 08 janvier 2023 portant engagement de Mme. Radia Ashab Houmed.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-123-pr-mtfps-portant-rectificatif-partiel-a-la-decision-n-2023-019-pr-mtfps-du-08-janvier-2023-portant-engagement-de-mme-radia-ashab-houmed/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 6 du 30/03/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-123-pr-mtfps-portant-rectificatif-partiel-a-la-decision-n-2023-019-pr-mtfps-du-08-janvier-2023-portant-engagement-de-mme-radia-ashab-houmed/>
 
 En vigueur : 2023-03-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

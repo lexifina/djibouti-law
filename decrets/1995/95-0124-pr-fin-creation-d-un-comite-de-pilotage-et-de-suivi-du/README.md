@@ -1,6 +1,6 @@
 # Décret n° 95-0124/PR/FIN portant création d’un comité de pilotage et de suivi du programme d’ajustement structurel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0124-pr-fin-portant-creation-dun-comite-de-pilotage-et-de-suivi-du-programme-dajustement-structurel/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0124-pr-fin-portant-creation-dun-comite-de-pilotage-et-de-suivi-du-programme-dajustement-structurel/>
 
 En vigueur : 1995-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 238/AN/87/1ère L portant ratification d’une convention d’aval entre la République de Djibouti et la Caisse Centrale de Coopération Économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n238-an-87-1ere-l-portant-ratification-dune-convention-daval-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n238-an-87-1ere-l-portant-ratification-dune-convention-daval-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
 
 En vigueur : 1987-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 206/AN/07/5ème L portant ratification d’un Accord de don additionnel au financement du Projet PRUSI entre la République de Djibouti et l’Association Internationale pour le Développement (IDA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-07-5eme-l-portant-ratification-dun-accord-de-don-additionnel-au-financement-du-projet-prusi-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-d/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n206-an-07-5eme-l-portant-ratification-dun-accord-de-don-additionnel-au-financement-du-projet-prusi-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-d/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 71/AN/83/1ère L accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/12/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-83-1ere-l-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 31/12/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-83-1ere-l-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1983-12-31 (date du Journal officiel qui le publie).
 

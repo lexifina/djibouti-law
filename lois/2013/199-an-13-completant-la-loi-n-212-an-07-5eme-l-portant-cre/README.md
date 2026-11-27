@@ -1,6 +1,6 @@
 # Loi n° 199/AN/13/6ème L complétant la Loi n° 212/AN/07/5ème L portant création de la Caisse Nationale de Sécurité Sociale (C.N.S.S) et étendant les prestations soins aux travailleurs indépendants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-13-6eme-l-completant-la-loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-c-n-s-s-et-etendant-les-prestations-soins-aux-travailleurs-independ/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-13-6eme-l-completant-la-loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-c-n-s-s-et-etendant-les-prestations-soins-aux-travailleurs-independ/>
 
 En vigueur : 2013-02-28 (date du Journal officiel qui le publie).
 

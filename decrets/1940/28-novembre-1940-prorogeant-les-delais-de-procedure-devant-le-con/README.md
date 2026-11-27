@@ -1,6 +1,6 @@
 # Décret n° 28 novembre 1940 prorogeant les délais de procédure devant le Conseil d’Etat, la Cour de cassation et le Tribunal de conflits.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-novembre-1940-prorogeant-les-delais-de-procedure-devant-le-conseil-detat-la-cour-de-cassation-et-le-tribunal-de-conflits/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-novembre-1940-prorogeant-les-delais-de-procedure-devant-le-conseil-detat-la-cour-de-cassation-et-le-tribunal-de-conflits/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° le 18 janvier 1936 Exercice de la médecine et de l’art dentaire aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-janvier-1936-exercice-de-la-medecine-et-de-lart-dentaire-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-janvier-1936-exercice-de-la-medecine-et-de-lart-dentaire-aux-colonies/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 

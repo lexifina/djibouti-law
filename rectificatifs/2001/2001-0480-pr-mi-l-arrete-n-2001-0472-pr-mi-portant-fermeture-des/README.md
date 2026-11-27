@@ -1,6 +1,6 @@
 # Rectificatif n° 2001-0480/PR/MI de l’Arrêté n° 2001-0472/PR/MI portant fermeture des frontières terrestres à l’occasion de la Fête de l’Indépendance du 27 juin 2001.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2001-0480-pr-mi-de-larrete-n2001-0472-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2001/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2001-0480-pr-mi-de-larrete-n2001-0472-pr-mi-portant-fermeture-des-frontieres-terrestres-a-loccasion-de-la-fete-de-lindependance-du-27-juin-2001/>
 
 En vigueur : 2001-06-30 (date du Journal officiel qui le publie).
 

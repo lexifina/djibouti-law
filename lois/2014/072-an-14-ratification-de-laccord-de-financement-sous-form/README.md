@@ -1,6 +1,6 @@
 # Loi n° 72/AN/14/7ème L portant ratification de l’accord de financement sous forme de prêt accordé par le FADES.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-14-7eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-pret-accorde-par-le-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-14-7eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-pret-accorde-par-le-fades/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

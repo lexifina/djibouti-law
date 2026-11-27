@@ -1,6 +1,6 @@
 # Arrêté n° 82-0911/PR/MINT/MEN fixant les règles particulières auxquelles sont soumises les associations coopératives socioculturelles et sportives (ACSES) des établissements du premier et deuxième degrés.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0911-pr-mint-men-fixant-les-regles-particulieres-auxquelles-sont-soumises-les-associations-cooperatives-socioculturelles-et-sportives-acses-des-etablissements-du-premier-et-deuxieme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0911-pr-mint-men-fixant-les-regles-particulieres-auxquelles-sont-soumises-les-associations-cooperatives-socioculturelles-et-sportives-acses-des-etablissements-du-premier-et-deuxieme/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

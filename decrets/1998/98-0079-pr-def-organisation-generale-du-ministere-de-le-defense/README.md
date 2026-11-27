@@ -1,8 +1,8 @@
 # Décret n° 98-0079/PR/DEF portant organisation générale du Ministère de le Défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0079-pr-def-portant-organisation-generale-du-ministere-de-le-defense/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0079-pr-def-portant-organisation-generale-du-ministere-de-le-defense/>
 
-En vigueur : 1998-07-13 (date fixÃ©e par le texte).
+En vigueur : 1998-07-13 (date fixée par le texte).
 
 ## Visas
 

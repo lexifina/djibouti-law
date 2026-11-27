@@ -1,6 +1,6 @@
 # Décret n° 2002-0204/PRE portant concession des Terrains pour la réalisation des projets d’investissements.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0204-pre-portant-concession-des-terrains-pour-la-realisation-des-projets-dinvestissements/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0204-pre-portant-concession-des-terrains-pour-la-realisation-des-projets-dinvestissements/>
 
 En vigueur : 2002-10-15 (date du Journal officiel qui le publie).
 

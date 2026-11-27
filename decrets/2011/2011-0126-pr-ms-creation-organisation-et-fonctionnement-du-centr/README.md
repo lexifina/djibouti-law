@@ -1,6 +1,6 @@
 # Décret n° 2011-0126/PR/MS portant création, organisation et fonctionnement du Centre Hospitalier Régional d’Arta.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0126-pr-ms-portant-creation-organisation-et-fonctionnement-du-centre-hospitalier-regional-darta/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/07/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0126-pr-ms-portant-creation-organisation-et-fonctionnement-du-centre-hospitalier-regional-darta/>
 
 En vigueur : 2011-07-14 (date du Journal officiel qui le publie).
 
@@ -102,4 +102,4 @@ ISMAÏL OMAR GUELLEH
 | [art-056.md](art-056.md) | Article 56 |
 | [art-057.md](art-057.md) | Article 57 |
 | [art-058.md](art-058.md) | Article 58 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

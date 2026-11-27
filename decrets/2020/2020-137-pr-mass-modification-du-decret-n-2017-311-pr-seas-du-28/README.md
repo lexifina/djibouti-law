@@ -1,8 +1,8 @@
 # Décret n° 2020-137/PR/MASS portant modification du Décret n° 2017-311/PR/SEAS du 28 septembre 2017 portant création organisation et fonctionnement du Registre Social.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-137-pr-mass-portant-modification-du-decret-n2017-311-pr-seas-du-28-septembre-2017-portant-creation-organisation-et-fonctionnement-du-registre-social/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-137-pr-mass-portant-modification-du-decret-n2017-311-pr-seas-du-28-septembre-2017-portant-creation-organisation-et-fonctionnement-du-registre-social/>
 
-En vigueur : 2020-07-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-07-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

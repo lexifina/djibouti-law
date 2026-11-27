@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 DEFINITION DES BANQUES ISLAMIQUES

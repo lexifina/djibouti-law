@@ -1,8 +1,8 @@
 # Décret n° 2020-150/PR/MI portant composition, caractéristique et champ d’application liés au Numéro National d’Identification (NNI).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-150-pr-mi-portant-composition-caracteristique-et-champ-dapplication-lies-au-numero-national-didentification-nni/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-150-pr-mi-portant-composition-caracteristique-et-champ-dapplication-lies-au-numero-national-didentification-nni/>
 
-En vigueur : 2020-07-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-07-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -43,4 +43,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

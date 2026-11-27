@@ -1,6 +1,6 @@
 # Loi n° 130/AN/01/4ème L portant approbation des comptes financiers de la Caisse Nationale de Retraites pour l’exercice 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-01-4eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-pour-lexercice-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-01-4eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-pour-lexercice-1997/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

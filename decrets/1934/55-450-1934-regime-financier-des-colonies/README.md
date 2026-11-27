@@ -1,6 +1,6 @@
 # Décret n° 55-450-1934 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-55-450-1934-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-55-450-1934-regime-financier-des-colonies/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ GERMAIN-MARTIN.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

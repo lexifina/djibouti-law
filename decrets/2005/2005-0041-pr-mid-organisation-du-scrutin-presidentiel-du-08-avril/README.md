@@ -1,6 +1,6 @@
 # Décret n° 2005-0041/PR/MID Portant organisation du scrutin présidentiel du 08 avril 2005.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0041-pr-mid-portant-organisation-du-scrutin-presidentiel-du-08-avril-2005/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0041-pr-mid-portant-organisation-du-scrutin-presidentiel-du-08-avril-2005/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

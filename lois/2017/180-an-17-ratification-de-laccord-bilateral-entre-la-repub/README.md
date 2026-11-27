@@ -1,6 +1,6 @@
 # Loi n° 180/AN/17/7ème L portant ratification de l’accord bilatéral entre la République de Djibouti et la République Fédérale Démocratique d’Ethiopie relatif au chemin de fer Djibouto-Ethiopien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-17-7eme-l-portant-ratification-de-laccord-bilateral-entre-la-republique-de-djibouti-et-la-republique-federale-democratique-dethiopie-relatif-au-chemin-de-fer-djibouto-ethiopien/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-17-7eme-l-portant-ratification-de-laccord-bilateral-entre-la-republique-de-djibouti-et-la-republique-federale-democratique-dethiopie-relatif-au-chemin-de-fer-djibouto-ethiopien/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 

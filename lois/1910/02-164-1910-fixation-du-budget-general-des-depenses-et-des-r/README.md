@@ -1,6 +1,6 @@
 # Loi n° 02-164-1910 portant fixation du Budget général des dépenses et des recettes de l’exercice 1910.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 164 du 01/07/1910 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-164-1910-portant-fixation-du-budget-general-des-depenses-et-des-recettes-de-lexercice-1910/>
+Loi · Journal officiel de la République de Djibouti, n° 164 du 01/07/1910 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-164-1910-portant-fixation-du-budget-general-des-depenses-et-des-recettes-de-lexercice-1910/>
 
 En vigueur : 1910-07-01 (date du Journal officiel qui le publie).
 

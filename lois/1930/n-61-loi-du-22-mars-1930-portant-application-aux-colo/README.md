@@ -1,6 +1,6 @@
 # Loi n° n°61 Loi du 22 mars 1930 portant application aux colonies de l’article 1° de la loi du 19 mars 1919 concernant la réhabilitation en temps de guerre des condamnés et modifiant le paragraphe cinquième de l’article 621 du Code d’instruction criminelle
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 401 du 30/04/1930 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n61-loi-du-22-mars-1930-portant-application-aux-colonies-de-larticle-1-de-la-loi-du-19-mars-1919-concernant-la-rehabilitation-en-temps-de-guerre-des-condamnes-et-modifiant-l/>
+Loi · Journal officiel de la République de Djibouti, n° 401 du 30/04/1930 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n61-loi-du-22-mars-1930-portant-application-aux-colonies-de-larticle-1-de-la-loi-du-19-mars-1919-concernant-la-rehabilitation-en-temps-de-guerre-des-condamnes-et-modifiant-l/>
 
 En vigueur : 1930-04-30 (date du Journal officiel qui le publie).
 

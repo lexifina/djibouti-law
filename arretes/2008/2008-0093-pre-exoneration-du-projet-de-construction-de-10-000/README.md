@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0093/PRE portant exonération du projet de construction de 10.000 logements.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0093-pre-portant-exoneration-du-projet-de-construction-de-10-000-logements/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0093-pre-portant-exoneration-du-projet-de-construction-de-10-000-logements/>
 
 En vigueur : 2008-02-14 (date du Journal officiel qui le publie).
 

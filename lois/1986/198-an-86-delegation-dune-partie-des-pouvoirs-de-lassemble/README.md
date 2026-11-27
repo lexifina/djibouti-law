@@ -1,6 +1,6 @@
 # Loi n° 198/AN/86/1ère L Portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’ à l’ouverture de la première session ordinaire de 1986.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-86-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqu-a-louverture-de-la-premiere-session-ordinaire-de-1986/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-86-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqu-a-louverture-de-la-premiere-session-ordinaire-de-1986/>
 
 En vigueur : 1986-04-30 (date du Journal officiel qui le publie).
 

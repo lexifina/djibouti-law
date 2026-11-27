@@ -1,6 +1,6 @@
 # Décret n° 15-430-1932 le 17 septembre 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 430 du 30/09/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-430-1932-le-17-septembre-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 430 du 30/09/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-430-1932-le-17-septembre-1932/>
 
 En vigueur : 1932-09-30 (date du Journal officiel qui le publie).
 

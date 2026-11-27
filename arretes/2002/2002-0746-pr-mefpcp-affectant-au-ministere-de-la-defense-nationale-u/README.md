@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0746/PR/MEFPCP affectant au Ministère de la Défense Nationale, une parcelle de terrain sise au PK 23.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0746-pr-mefpcp-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-au-pk-23/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0746-pr-mefpcp-affectant-au-ministere-de-la-defense-nationale-une-parcelle-de-terrain-sise-au-pk-23/>
 
 En vigueur : 2002-09-30 (date du Journal officiel qui le publie).
 

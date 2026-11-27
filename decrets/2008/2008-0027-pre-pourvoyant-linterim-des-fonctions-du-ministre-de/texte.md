@@ -1,1 +1,0 @@
-pendant la duree de lapsence de Mr. Fassan Faran Migul, Ministre de la Jeunesse, des Sports, des Loisirs et du Tourisme, l’intérim des fonctions sera assuré par Mr. Houmed Mohamed Dini, Ministre de l’Emploi et de la Solidarité Nationale, cumulativemenet avec ses fonctions.

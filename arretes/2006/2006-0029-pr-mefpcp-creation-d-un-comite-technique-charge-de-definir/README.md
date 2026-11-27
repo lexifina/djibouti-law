@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0029/PR/MEFPCP portant création d’un Comité technique chargé de définir les mécanismes et les modalités de mise en application de la T.V.A. à Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0029-pr-mefpcp-portant-creation-dun-comite-technique-charge-de-definir-les-mecanismes-et-les-modalites-de-mise-en-application-de-la-t-v-a-a-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0029-pr-mefpcp-portant-creation-dun-comite-technique-charge-de-definir-les-mecanismes-et-les-modalites-de-mise-en-application-de-la-t-v-a-a-djibouti/>
 
 En vigueur : 2006-01-15 (date du Journal officiel qui le publie).
 

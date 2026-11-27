@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0099/PR/MCCPT portant approbation du budget prévisionnel de la «Radio-Télévision de Djibouti» pour l’exercice 2004.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0099-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2004/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0099-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2004/>
 
 En vigueur : 2004-02-15 (date du Journal officiel qui le publie).
 

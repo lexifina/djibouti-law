@@ -1,6 +1,6 @@
 # Décret n° 81-057/PRE du 28 avril 1981 d’application les dispositions prévues aux articles 5 et 7 de la loi organique n° 1/AN/81 du 10 février 1981.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-057-pre-du-28-avril-1981-dapplication-les-dispositions-prevues-aux-articles-5-et-7-de-la-loi-organique-n-1-an-81-du-10-fevrier-1981/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/05/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-057-pre-du-28-avril-1981-dapplication-les-dispositions-prevues-aux-articles-5-et-7-de-la-loi-organique-n-1-an-81-du-10-fevrier-1981/>
 
 En vigueur : 1981-05-03 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Le Conseil des Ministres entendu dans sa séance du 28 avril 1981.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

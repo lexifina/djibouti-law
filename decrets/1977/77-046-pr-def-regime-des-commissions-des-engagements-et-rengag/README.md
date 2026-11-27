@@ -1,6 +1,6 @@
 # Décret n° 77-046/PR/DEF fixant le régime des commissions des engagements et rengagements dans l’Armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-046-pr-def-fixant-le-regime-des-commissions-des-engagements-et-rengagements-dans-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 14/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-046-pr-def-fixant-le-regime-des-commissions-des-engagements-et-rengagements-dans-larmee-nationale/>
 
 En vigueur : 1977-11-14 (date du Journal officiel qui le publie).
 

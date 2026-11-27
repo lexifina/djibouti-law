@@ -1,6 +1,6 @@
 # Décret n° 89-004/PR/J fixant le tarif des huissiers de justice en matière civile et commerciale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-004-pr-j-fixant-le-tarif-des-huissiers-de-justice-en-matiere-civile-et-commerciale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-004-pr-j-fixant-le-tarif-des-huissiers-de-justice-en-matiere-civile-et-commerciale/>
 
 En vigueur : 1989-01-15 (date du Journal officiel qui le publie).
 

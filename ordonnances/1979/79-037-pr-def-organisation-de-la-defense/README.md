@@ -1,6 +1,6 @@
 # Ordonnance n° 79-037/PR/DEF portant organisation de la Défense.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-037-pr-def-portant-organisation-de-la-defense/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-037-pr-def-portant-organisation-de-la-defense/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

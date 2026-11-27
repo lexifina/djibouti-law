@@ -1,6 +1,6 @@
 # Décret n° 2024-296/PRE relatif à la protection des travailleurs, des patients, du public et de l’environnement contre les dangers des rayonnements ionisants.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21du 14/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-296-pre-relatif-a-la-protection-des-travailleurs-des-patients-du-public-et-de-lenvironnement-contre-les-dangers-des-rayonnements-ionisants/>
+Décret · Journal officiel de la République de Djibouti, n° 21du 14/11/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-296-pre-relatif-a-la-protection-des-travailleurs-des-patients-du-public-et-de-lenvironnement-contre-les-dangers-des-rayonnements-ionisants/>
 
 En vigueur : 2024-11-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -141,4 +141,4 @@ ISMAÏL OMAR GUELLE
 | [art-108.md](art-108.md) | Article 108 |
 | [art-109.md](art-109.md) | Article 109 |
 | [art-110.md](art-110.md) | Article 110 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

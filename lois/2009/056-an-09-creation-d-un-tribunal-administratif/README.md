@@ -1,6 +1,6 @@
 # Loi n° 56/AN/09/6ème L portant création d’un tribunal Administratif.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-09-6eme-l-portant-creation-dun-tribunal-administratif/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-09-6eme-l-portant-creation-dun-tribunal-administratif/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 
@@ -82,4 +82,4 @@ Vu Le Décret n°2008-0084/PRE du 27 mars 2008 portant nomination des membres du
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

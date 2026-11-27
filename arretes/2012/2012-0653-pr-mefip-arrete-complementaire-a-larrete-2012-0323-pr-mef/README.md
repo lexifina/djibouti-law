@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0653/PR/MEFIP arrêté complémentaire à l’arrêté 2012-0323/PR/MEFIP du 21 mai 2012 affectant des parcelles de terrains au profit du Fond de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0653-pr-mefip-arrete-complementaire-a-larrete-2012-0323-pr-mefip-du-21-mai-2012-affectant-des-parcelles-de-terrains-au-profit-du-fond-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0653-pr-mefip-arrete-complementaire-a-larrete-2012-0323-pr-mefip-du-21-mai-2012-affectant-des-parcelles-de-terrains-au-profit-du-fond-de-lhabitat/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

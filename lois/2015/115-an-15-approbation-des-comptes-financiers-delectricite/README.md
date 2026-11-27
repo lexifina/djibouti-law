@@ -1,6 +1,6 @@
 # Loi n° 115/AN/15/7ème L portant approbation des Comptes financiers d’Electricité de Djibouti pour l’exercice 2011.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-15-7eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2011/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-15-7eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2011/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

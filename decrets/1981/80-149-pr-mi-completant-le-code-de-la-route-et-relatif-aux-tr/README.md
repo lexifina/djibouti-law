@@ -1,6 +1,6 @@
 # Décret n° 80- 149/PR/MI Complétant le Code de la Route et relatif aux transports en commun.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-149-pr-mi-completant-le-code-de-la-route-et-relatif-aux-transports-en-commun/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-149-pr-mi-completant-le-code-de-la-route-et-relatif-aux-transports-en-commun/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ Le Conseil des Ministres entendu en sa séance du 28 DECEMBRE 1980.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

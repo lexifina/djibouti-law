@@ -1,8 +1,8 @@
 # Loi n° 54/AN/79 portant organisation de la profession médicale en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-79-portant-organisation-de-la-profession-medicale-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-79-portant-organisation-de-la-profession-medicale-en-republique-de-djibouti/>
 
-En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

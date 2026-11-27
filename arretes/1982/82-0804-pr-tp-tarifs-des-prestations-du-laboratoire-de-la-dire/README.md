@@ -1,8 +1,8 @@
 # Arrêté n° 82-0804/PR/TP modifiant les tarifs des prestations du laboratoire de la direction des Travaux Publics.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/06/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0804-pr-tp-modifiant-les-tarifs-des-prestations-du-laboratoire-de-la-direction-des-travaux-publics/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 08/06/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0804-pr-tp-modifiant-les-tarifs-des-prestations-du-laboratoire-de-la-direction-des-travaux-publics/>
 
-En vigueur : 1982-06-08 (date fixÃ©e par le texte).
+En vigueur : 1982-06-08 (date fixée par le texte).
 
 ## Visas
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler.- L’article ler du décret du 25 Octobre 1913 est modifié comme suit:
 1° CADRE SUPÉRIEUR.
 ………………………………………………

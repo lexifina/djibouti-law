@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0070/PR/MEFPCP portant attribution d’une parcelle de terrain au profit de Wijaya Baru Global Berhad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0070-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-au-profit-de-wijaya-baru-global-berhad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0070-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-au-profit-de-wijaya-baru-global-berhad/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

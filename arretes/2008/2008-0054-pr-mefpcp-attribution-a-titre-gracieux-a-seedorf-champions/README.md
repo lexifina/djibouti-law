@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0054/PR/MEFPCP portant attribution à titre gracieux à Seedorf Champions Academy une Parcelle de terrain sise au PK 20.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0054-pr-mefpcp-portant-attribution-a-titre-gracieux-a-seedorf-champions-academy-une-parcelle-de-terrain-sise-au-pk-20/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0054-pr-mefpcp-portant-attribution-a-titre-gracieux-a-seedorf-champions-academy-une-parcelle-de-terrain-sise-au-pk-20/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 3-149-1909 01/04/1909
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 149 du 01/04/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-149-1909-01-04-1909/>
+Décret · Journal officiel de la République de Djibouti, n° 149 du 01/04/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-149-1909-01-04-1909/>
 
 En vigueur : 1909-04-01 (date du Journal officiel qui le publie).
 

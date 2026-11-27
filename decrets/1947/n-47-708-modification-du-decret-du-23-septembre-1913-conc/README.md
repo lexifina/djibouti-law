@@ -1,6 +1,6 @@
 # Décret n° n° 47-708 portant modification du décret du 23 septembre 1913 concernant les passages à bord des paquebots des adjudants, sergents-majors el assimilés, voyageant au compte du Département des colonies…
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-708-portant-modification-du-decret-du-23-septembre-1913-concernant-les-passages-a-bord-des-paquebots-des-adjudants-sergents-majors-el-assimiles-voyageant-au-compte-du-d/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-708-portant-modification-du-decret-du-23-septembre-1913-concernant-les-passages-a-bord-des-paquebots-des-adjudants-sergents-majors-el-assimiles-voyageant-au-compte-du-d/>
 
 En vigueur : 1947-04-30 (date du Journal officiel qui le publie).
 
@@ -27,6 +27,6 @@ SCHUMANX.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

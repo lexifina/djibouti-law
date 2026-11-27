@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Articie premier — Est rendue executoire la délibération n° 1/90 du conseil d’administration de |’Office des Postes et Télecommunications portant approbation du compte financier de |’Office des Postes et Telecommunications pour |’exercice 1989 et arrétant les opérations budgétaires de cet exercice aux montants définitifs ci-apres Produits de fonctionnement:
 Trois milliards neuf cent soixante millions quatre cent quatre vingt dix mille trois cent trente cing francs Djibouti iS 960.490.335 FD) :
 Charges de fonctionnement Trois milliards sept cent vingt deux rnillione cinq-neuf cent vingt neuf francs Djibouti (3.722.527.929 FD).

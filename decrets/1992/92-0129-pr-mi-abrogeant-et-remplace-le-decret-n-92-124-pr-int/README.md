@@ -1,6 +1,6 @@
 # Décret n° 92-0129/PR/MI Abrogeant et remplace le décret n° 92-124/PR/INT/ du 16 novembre 1992 portant publication des liste de candidats et ouverture de la compagne électorale pour les élection législative
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/12/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0129-pr-mi-abrogeant-et-remplace-le-decret-n92-124-pr-int-du-16-novembre-1992-portant-publication-des-liste-de-candidats-et-ouverture-de-la-compagne-electorale-pour-les-electio/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/12/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0129-pr-mi-abrogeant-et-remplace-le-decret-n92-124-pr-int-du-16-novembre-1992-portant-publication-des-liste-de-candidats-et-ouverture-de-la-compagne-electorale-pour-les-electio/>
 
 En vigueur : 1992-12-15 (date du Journal officiel qui le publie).
 

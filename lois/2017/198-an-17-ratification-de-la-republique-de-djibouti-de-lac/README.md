@@ -1,6 +1,6 @@
 # Loi n° 198/AN/17/7ème L portant ratification de la République de Djibouti de l’Accord sur la Facilitation des Echanges de l’OMC.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-17-7eme-l-portant-ratification-de-la-republique-de-djibouti-de-laccord-sur-la-facilitation-des-echanges-de-lomc/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-17-7eme-l-portant-ratification-de-la-republique-de-djibouti-de-laccord-sur-la-facilitation-des-echanges-de-lomc/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

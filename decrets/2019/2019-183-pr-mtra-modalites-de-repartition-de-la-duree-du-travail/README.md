@@ -1,8 +1,8 @@
 # Décret n° 2019-183/PR/MTRA fixant les modalités de répartition de la durée du travail et l’amplitude maximale journalière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-183-pr-mtra-fixant-les-modalites-de-repartition-de-la-duree-du-travail-et-lamplitude-maximale-journaliere/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-183-pr-mtra-fixant-les-modalites-de-repartition-de-la-duree-du-travail-et-lamplitude-maximale-journaliere/>
 
-En vigueur : 2019-07-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -28,4 +28,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

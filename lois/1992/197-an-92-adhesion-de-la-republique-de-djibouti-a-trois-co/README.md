@@ -1,6 +1,6 @@
 # Loi n° 197/AN/92/2e L Portant adhésion de la République de Djibouti à trois conventions internationales relatives à la sécurité de l’Aviation civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-92-2e-l-portant-adhesion-de-la-republique-de-djibouti-a-trois-conventions-internationales-relatives-a-la-securite-de-laviation-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-92-2e-l-portant-adhesion-de-la-republique-de-djibouti-a-trois-conventions-internationales-relatives-a-la-securite-de-laviation-civile/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

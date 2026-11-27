@@ -1,6 +1,6 @@
 # Ordonnance n° 86-042/PR/PM Portant réglementation des dispositions à prendre en cas de dangerosité ou d’abandon des navires dans les eaux territoriales.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-042-pr-pm-portant-reglementation-des-dispositions-a-prendre-en-cas-de-dangerosite-ou-dabandon-des-navires-dans-les-eaux-territoriales/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-042-pr-pm-portant-reglementation-des-dispositions-a-prendre-en-cas-de-dangerosite-ou-dabandon-des-navires-dans-les-eaux-territoriales/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

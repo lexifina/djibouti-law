@@ -1,6 +1,6 @@
 # Décret n° 2001-0126/PR/MET portant réglementation de la Profession d’Agent Maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0126-pr-met-portant-reglementation-de-la-profession-dagent-maritime/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0126-pr-met-portant-reglementation-de-la-profession-dagent-maritime/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

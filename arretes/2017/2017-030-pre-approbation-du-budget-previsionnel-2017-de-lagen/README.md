@@ -1,6 +1,6 @@
 # Arrêté n° 2017-030/PRE portant approbation du budget prévisionnel 2017 de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-030-pre-portant-approbation-du-budget-previsionnel-2017-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-030-pre-portant-approbation-du-budget-previsionnel-2017-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2017-01-31 (date du Journal officiel qui le publie).
 

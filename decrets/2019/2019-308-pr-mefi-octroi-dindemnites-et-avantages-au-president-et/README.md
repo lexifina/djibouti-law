@@ -1,8 +1,8 @@
 # Décret n° 2019-308/PR/MEFI portant octroi d’indemnités et Avantages au Président et Vice président du Comité de cadrage macroéconomique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-308-pr-mefi-portant-octroi-dindemnites-et-avantages-au-president-et-vice-president-du-comite-de-cadrage-macroeconomique/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-308-pr-mefi-portant-octroi-dindemnites-et-avantages-au-president-et-vice-president-du-comite-de-cadrage-macroeconomique/>
 
-En vigueur : 2019-12-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-12-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

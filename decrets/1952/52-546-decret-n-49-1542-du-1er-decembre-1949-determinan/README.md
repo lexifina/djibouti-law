@@ -1,6 +1,6 @@
 # Décret n° 52-546 modifiant le décret n° 49-1542 du 1er décembre 1949 déterminant les indemnités diverses susceptibles d’être payées au titre de la solde aux militaires de l’armée de terre en service dans les Territoires et Départements d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-546-modifiant-le-decret-n-49-1542-du-1er-decembre-1949-determinant-les-indemnites-diverses-susceptibles-detre-payees-au-titre-de-la-solde-aux-militaires-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-546-modifiant-le-decret-n-49-1542-du-1er-decembre-1949-determinant-les-indemnites-diverses-susceptibles-detre-payees-au-titre-de-la-solde-aux-militaires-de-l/>
 
 En vigueur : 1952-07-01 (date du Journal officiel qui le publie).
 

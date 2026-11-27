@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0655/PR/SESN portant renouvellement des membres du Conseil d’Administration de l’ADDS.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0655-pr-sesn-portant-renouvellement-des-membres-du-conseil-dadministration-de-ladds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0655-pr-sesn-portant-renouvellement-des-membres-du-conseil-dadministration-de-ladds/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

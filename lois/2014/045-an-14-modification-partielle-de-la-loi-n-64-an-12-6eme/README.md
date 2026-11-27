@@ -1,6 +1,6 @@
 # Loi n° 45/AN/14/7ème L portant modification partielle de la loi n° 64/AN/12/6ème L portant organisation du ministère de l’éducation nationale et de la formation professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-14-7eme-l-portant-modification-partielle-de-la-loi-n64-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-14-7eme-l-portant-modification-partielle-de-la-loi-n64-an-12-6eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 

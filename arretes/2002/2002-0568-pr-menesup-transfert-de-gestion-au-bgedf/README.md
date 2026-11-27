@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0568/PR/MENESUP portant transfert de Gestion au BGEDF.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0568-pr-menesup-portant-transfert-de-gestion-au-bgedf/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0568-pr-menesup-portant-transfert-de-gestion-au-bgedf/>
 
-En vigueur : 2002-08-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-08-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

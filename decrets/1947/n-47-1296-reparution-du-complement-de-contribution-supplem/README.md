@@ -1,6 +1,6 @@
 # Décret n° n°47-1296 portant reparution du complément de contribution supplémentaire des terriloires d’outre-mer au service financier de la caisse intercoloniale des retraies pour année 1947..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n47-1296-portant-reparution-du-complement-de-contribution-supplementaire-des-terriloires-doutre-mer-au-service-financier-de-la-caisse-intercoloniale-des-retraies-pour-annee-1/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n47-1296-portant-reparution-du-complement-de-contribution-supplementaire-des-terriloires-doutre-mer-au-service-financier-de-la-caisse-intercoloniale-des-retraies-pour-annee-1/>
 
 En vigueur : 1947-10-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ marius moutet
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

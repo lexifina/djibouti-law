@@ -1,6 +1,6 @@
 # Amendement n° 39-404-1930 fixant pour le deuxième semestre 1930 les taux de majoration d’hôpital de séjour et de rapatriement des marins du commerce délaissés forfaitairement hors de France.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-39-404-1930-fixant-pour-le-deuxieme-semestre-1930-les-taux-de-majoration-dhopital-de-sejour-et-de-rapatriement-des-marins-du-commerce-delaisses-forfaitairement-hors-de-france/>
+Amendement · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-39-404-1930-fixant-pour-le-deuxieme-semestre-1930-les-taux-de-majoration-dhopital-de-sejour-et-de-rapatriement-des-marins-du-commerce-delaisses-forfaitairement-hors-de-france/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 

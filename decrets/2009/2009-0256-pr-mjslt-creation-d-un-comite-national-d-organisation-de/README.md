@@ -1,6 +1,6 @@
 # Décret n° 2009-0256/PR/MJSLT portant création d’un Comité National d’Organisation de la 24ème Session Ministérielle de la Commission de la Jeunesse et des Sports de l’Océan Indien (CJSOI).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0256-pr-mjslt-portant-creation-dun-comite-national-dorganisation-de-la-24eme-session-ministerielle-de-la-commission-de-la-jeunesse-et-des-sports-de-locea/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0256-pr-mjslt-portant-creation-dun-comite-national-dorganisation-de-la-24eme-session-ministerielle-de-la-commission-de-la-jeunesse-et-des-sports-de-locea/>
 
 En vigueur : 2009-11-15 (date du Journal officiel qui le publie).
 

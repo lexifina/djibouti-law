@@ -1,6 +1,6 @@
 # Décret n° 53-274 fixant l’organisation et le service de la gendarmerie stationnée dans l*s territoires relevant du ministre de la France d’outre-mer et dans les départements d’outre-mer, ainsi que les règles d’administration de son personnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-274-fixant-lorganisation-et-le-service-de-la-gendarmerie-stationnee-dans-ls-territoires-relevant-du-ministre-de-la-france-doutre-mer-et-dans-les-departements-d/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/07/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-274-fixant-lorganisation-et-le-service-de-la-gendarmerie-stationnee-dans-ls-territoires-relevant-du-ministre-de-la-france-doutre-mer-et-dans-les-departements-d/>
 
 En vigueur : 1953-07-01 (date du Journal officiel qui le publie).
 
@@ -70,4 +70,4 @@ Louis JACQUINOT.
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

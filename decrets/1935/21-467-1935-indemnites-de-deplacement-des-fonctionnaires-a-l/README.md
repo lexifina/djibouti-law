@@ -1,6 +1,6 @@
 # Décret n° 21-467-1935 Indemnités de déplacement des fonctionnaires à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-467-1935-indemnites-de-deplacement-des-fonctionnaires-a-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-467-1935-indemnites-de-deplacement-des-fonctionnaires-a-letranger/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 

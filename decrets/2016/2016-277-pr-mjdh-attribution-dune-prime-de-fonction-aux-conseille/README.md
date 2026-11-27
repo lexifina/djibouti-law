@@ -1,8 +1,8 @@
 # Décret n° 2016-277/PR/MJDH portant attribution d’une prime de fonction aux Conseillers et Substituts Généraux de la Cour Suprême, aux Conseillers et Substituts Généraux de la Cour d’Appel et aux Conseillers du Tribunal d’Administratif.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-277-pr-mjdh-portant-attribution-dune-prime-de-fonction-aux-conseillers-et-substituts-generaux-de-la-cour-supreme-aux-conseillers-et-substituts-generaux-de-la-cour-dappel-et-au/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-277-pr-mjdh-portant-attribution-dune-prime-de-fonction-aux-conseillers-et-substituts-generaux-de-la-cour-supreme-aux-conseillers-et-substituts-generaux-de-la-cour-dappel-et-au/>
 
-En vigueur : 2016-10-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-10-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

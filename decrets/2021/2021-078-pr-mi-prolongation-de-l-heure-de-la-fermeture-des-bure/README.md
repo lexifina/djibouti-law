@@ -1,6 +1,6 @@
 # Décret n° 2021-078/PR/MI portant prolongation de l’heure de la fermeture des bureaux de vote pour les Elections Présidentielles du Vendredi 09 Avril 2021.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-078-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-09-avril-2021/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-078-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-09-avril-2021/>
 
 En vigueur : 2021-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

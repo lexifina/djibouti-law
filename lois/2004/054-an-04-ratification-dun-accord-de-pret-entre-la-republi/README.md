@@ -1,6 +1,6 @@
 # Loi n° 54/AN/04/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Koweïtien de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-de-developpement/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

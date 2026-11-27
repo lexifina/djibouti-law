@@ -1,6 +1,6 @@
 # Décret n° du 24 mars 1939 portant application aux colonies françaises, pays de protectorat et territoires sous mandat français relevant du ministère des colonies de la loi du 15 juin 1938 sur la protection des correspondances et des signaux de détresse transmis par la voie radio-électrique,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-24-mars-1939-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-francais-relevant-du-ministere-des-colonies-de-la-loi-du-15-juin-1938-sur-la/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-24-mars-1939-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-francais-relevant-du-ministere-des-colonies-de-la-loi-du-15-juin-1938-sur-la/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 

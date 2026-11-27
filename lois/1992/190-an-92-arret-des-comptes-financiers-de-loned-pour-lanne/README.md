@@ -1,6 +1,6 @@
 # Loi n° 190/AN/92/2e L portant arrêt des comptes financiers de l’ONED pour l’année 1990.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-92-2e-l-portant-arret-des-comptes-financiers-de-loned-pour-lannee-1990/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-92-2e-l-portant-arret-des-comptes-financiers-de-loned-pour-lannee-1990/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

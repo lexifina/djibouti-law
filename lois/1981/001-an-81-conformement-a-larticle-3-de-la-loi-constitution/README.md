@@ -1,6 +1,6 @@
 # Loi Organique n° 1/AN/81 Conformément à l’article 3 de la loi constitutionnelle n° 2 du 27 juin 1977.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 10/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n1-an-81-conformement-a-larticle-3-de-la-loi-constitutionnelle-n-2-du-27-juin-1977/>
+Loi organique · Journal officiel de la République de Djibouti, n° 1 du 10/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n1-an-81-conformement-a-larticle-3-de-la-loi-constitutionnelle-n-2-du-27-juin-1977/>
 
 En vigueur : 1981-02-10 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ ISMAËL GUEDI.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

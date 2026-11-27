@@ -1,6 +1,6 @@
 # Loi n° 134/AN/90/2ème L portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1989.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-90-2eme-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1989/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-90-2eme-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1989/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

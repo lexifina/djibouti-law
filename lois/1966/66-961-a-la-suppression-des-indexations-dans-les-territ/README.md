@@ -1,6 +1,6 @@
 # Loi n° 66-961 relative à la suppression des indexations dans les territoires d’outre-mer
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-66-961-relative-a-la-suppression-des-indexations-dans-les-territoires-doutre-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 01/03/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-66-961-relative-a-la-suppression-des-indexations-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1967-03-01 (date du Journal officiel qui le publie).
 

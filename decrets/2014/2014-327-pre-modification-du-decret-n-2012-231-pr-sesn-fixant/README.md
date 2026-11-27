@@ -1,6 +1,6 @@
 # Décret n° 2014-327/PRE portant modification du Décret n° 2012-231/PR/SESN fixant l’organisation et les modalités de fonctionnement du Fonds de Solidarité Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-327-pre-portant-modification-du-decret-n2012-231-pr-sesn-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-fonds-de-solidarite-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-327-pre-portant-modification-du-decret-n2012-231-pr-sesn-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-fonds-de-solidarite-nationale/>
 
 En vigueur : 2014-12-15 (date du Journal officiel qui le publie).
 

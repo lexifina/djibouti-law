@@ -1,6 +1,6 @@
 # Décret n° 2011-0227/PR/MI portant modification du décret n° 2011-0187/PR/MI du 13 octobre 2011 portant convocation du corps électoral et fixant la date des élections régionales et communales ainsi que les dates de dépôts des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0227-pr-mi-portant-modification-du-decret-n2011-0187-pr-mi-du-13-octobre-2011-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-a/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0227-pr-mi-portant-modification-du-decret-n2011-0187-pr-mi-du-13-octobre-2011-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-a/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 78-047/PR/MCITT fixant certaines conditions de délivrance du certificat de navigation pour aéronefs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-047-pr-mcitt-fixant-certaines-conditions-de-delivrance-du-certificat-de-navigation-pour-aeronefs/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-047-pr-mcitt-fixant-certaines-conditions-de-delivrance-du-certificat-de-navigation-pour-aeronefs/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 

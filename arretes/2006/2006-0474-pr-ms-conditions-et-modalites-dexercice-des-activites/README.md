@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0474/PR/MS portant conditions et modalités d’exercice des activités privées des médecins et dentistes affectés au Ministère de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0474-pr-ms-portant-conditions-et-modalites-dexercice-des-activites-privees-des-medecins-et-dentistes-affectes-au-ministere-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0474-pr-ms-portant-conditions-et-modalites-dexercice-des-activites-privees-des-medecins-et-dentistes-affectes-au-ministere-de-la-sante/>
 
 En vigueur : 2006-07-15 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

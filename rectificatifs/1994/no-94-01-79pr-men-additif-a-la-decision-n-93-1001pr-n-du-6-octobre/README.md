@@ -1,6 +1,6 @@
 # Additif n° no 94-01 79PR/MEN . Additif à la décision n° 93- 1001PRÆN du 6 octobre 1993.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1994 Â· <https://www.journalofficiel.dj/texte-juridique/>
+Additif · Journal officiel de la République de Djibouti, n° 4 du 28/02/1994 · <https://www.journalofficiel.dj/texte-juridique/>
 
 En vigueur : 1994-02-28 (date du Journal officiel qui le publie).
 

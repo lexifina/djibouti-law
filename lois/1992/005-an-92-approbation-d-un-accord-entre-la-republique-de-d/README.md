@@ -1,6 +1,6 @@
 # Loi n° 5/AN/92/2e L portant approbation d’un accord entre la République de Djibouti et le Fonds africain de Développement (FAD)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-92-2e-l-portant-approbation-dun-accord-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-92-2e-l-portant-approbation-dun-accord-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad/>
 
 En vigueur : 1992-10-31 (date du Journal officiel qui le publie).
 

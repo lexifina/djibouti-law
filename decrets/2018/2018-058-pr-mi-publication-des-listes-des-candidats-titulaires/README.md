@@ -1,6 +1,6 @@
 # Décret n° 2018-058/PR/MI portant publication des listes des candidats titulaires et suppléants pour les élections législatives du vendredi 23 février 2018.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 04/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-058-pr-mi-portant-publication-des-listes-des-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-23-fevrier-2018/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 04/02/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-058-pr-mi-portant-publication-des-listes-des-candidats-titulaires-et-suppleants-pour-les-elections-legislatives-du-vendredi-23-fevrier-2018/>
 
 En vigueur : 2018-02-04 (date du Journal officiel qui le publie).
 

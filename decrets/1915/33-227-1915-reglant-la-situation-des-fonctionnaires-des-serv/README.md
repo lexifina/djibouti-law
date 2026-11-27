@@ -1,6 +1,6 @@
 # Décret n° 33-227-1915 réglant la situation des fonctionnaires des services coloniaux el locaux des colonies mobilisés, après leur libération du service militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 227 du 30/09/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-33-227-1915-reglant-la-situation-des-fonctionnaires-des-services-coloniaux-el-locaux-des-colonies-mobilises-apres-leur-liberation-du-service-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 227 du 30/09/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-33-227-1915-reglant-la-situation-des-fonctionnaires-des-services-coloniaux-el-locaux-des-colonies-mobilises-apres-leur-liberation-du-service-militaire/>
 
 En vigueur : 1915-09-30 (date du Journal officiel qui le publie).
 

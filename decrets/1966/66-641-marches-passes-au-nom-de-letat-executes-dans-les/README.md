@@ -1,6 +1,6 @@
 # Décret n° 66-641 relatif aux marchés passés au nom de l’Etat exécutés dans les Territoires d’Outre-Mer, modifiant et complétant le décret n° 49-500 du 11 avril 1949 (J.O.R.F. du 30 août 1966, p. 7579-7580).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-641-relatif-aux-marches-passes-au-nom-de-letat-executes-dans-les-territoires-doutre-mer-modifiant-et-completant-le-decret-n-49-500-du-11-avril-1949-j-o-r-f-du-30-aout/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-641-relatif-aux-marches-passes-au-nom-de-letat-executes-dans-les-territoires-doutre-mer-modifiant-et-completant-le-decret-n-49-500-du-11-avril-1949-j-o-r-f-du-30-aout/>
 
 En vigueur : 1966-10-01 (date du Journal officiel qui le publie).
 
@@ -26,9 +26,9 @@ Robert BOULIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

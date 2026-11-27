@@ -1,6 +1,6 @@
 # Décret n° 08-462-1935 Approbation et publication de l’arrangement franco-allemand relatif au règlement des créances commerciales franco-sarroises et germano-sarroises.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-462-1935-approbation-et-publication-de-larrangement-franco-allemand-relatif-au-reglement-des-creances-commerciales-franco-sarroises-et-germano-sarroises/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-462-1935-approbation-et-publication-de-larrangement-franco-allemand-relatif-au-reglement-des-creances-commerciales-franco-sarroises-et-germano-sarroises/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ Louis ROLLIN.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

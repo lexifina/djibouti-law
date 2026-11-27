@@ -1,6 +1,6 @@
 # Décret n° 77-064/PR/JSAC portant réorganisation du sport national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-064-pr-jsac-portant-reorganisation-du-sport-national/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-064-pr-jsac-portant-reorganisation-du-sport-national/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ HASSAN GOULED APTIDON.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

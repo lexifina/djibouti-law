@@ -1,6 +1,6 @@
 # Décret n° 26 avril 1946 déterminant à litre exceptionnel dans les territoires «lu Ministre de la France d’outre-mer autres que les Antilles, la Réunion et la Guyane les conditions de résidence exigées pour l’inscription sur les listes électorales et fixant une procédure spéciale d’inscription de certaines catégories d’électeurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-avril-1946-determinant-a-litre-exceptionnel-dans-les-territoires-lu-ministre-de-la-france-doutre-mer-autres-que-les-antilles-la-reunion-et-la-guyane-les-conditions-d/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-avril-1946-determinant-a-litre-exceptionnel-dans-les-territoires-lu-ministre-de-la-france-doutre-mer-autres-que-les-antilles-la-reunion-et-la-guyane-les-conditions-d/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 

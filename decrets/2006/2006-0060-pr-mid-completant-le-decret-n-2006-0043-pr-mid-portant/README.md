@@ -1,6 +1,6 @@
 # Décret n° 2006-0060/PR/MID complétant le décret n° 2006-0043/PR/MID portant publication des listes candidates aux Élections Régionales et Communales du 10 mars.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 27/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0060-pr-mid-completant-le-decret-n2006-0043-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-10-mars/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 27/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0060-pr-mid-completant-le-decret-n2006-0043-pr-mid-portant-publication-des-listes-candidates-aux-elections-regionales-et-communales-du-10-mars/>
 
 En vigueur : 2006-02-27 (date du Journal officiel qui le publie).
 

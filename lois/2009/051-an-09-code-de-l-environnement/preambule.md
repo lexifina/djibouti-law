@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I :
 DISPOSITIONS GENERALES
 L’environnement de Djibouti est un patrimoine national, partie intégrante du patrimoine mondial. Sa préservation constitue de ce fait un intérêt primordial à l’échelle locale, nationale, régionale et internationale pour garantir les besoins des générations actuelles et futures.

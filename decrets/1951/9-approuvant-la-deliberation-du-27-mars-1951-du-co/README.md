@@ -1,6 +1,6 @@
 # Décret n° 9 approuvant la délibération du 27 mars 1951 du Conseil Représentatif de la Côte Française des Somalis instituant des droits de place sur le marché de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-approuvant-la-deliberation-du-27-mars-1951-du-conseil-representatif-de-la-cote-francaise-des-somalis-instituant-des-droits-de-place-sur-le-marche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-approuvant-la-deliberation-du-27-mars-1951-du-conseil-representatif-de-la-cote-francaise-des-somalis-instituant-des-droits-de-place-sur-le-marche-de-djibouti/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

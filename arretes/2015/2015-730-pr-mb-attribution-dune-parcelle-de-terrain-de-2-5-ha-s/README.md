@@ -1,6 +1,6 @@
 # Arrêté n° 2015-730/PR/MB portant attribution d’une parcelle de terrain de 2.5 ha sise dans la zone de Haramous SUD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-730-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-2-5-ha-sise-dans-la-zone-de-haramous-sud/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-730-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-2-5-ha-sise-dans-la-zone-de-haramous-sud/>
 
 En vigueur : 2015-11-30 (date du Journal officiel qui le publie).
 

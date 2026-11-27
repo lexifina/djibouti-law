@@ -1,6 +1,6 @@
 # Décret n° 02-226-1915 10/07/1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 226 du 31/08/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-226-1915-10-07-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 226 du 31/08/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-226-1915-10-07-1915/>
 
 En vigueur : 1915-08-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Gaston THOMSON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 – |
+| [art-002.md](art-002.md) | Art. 2 |

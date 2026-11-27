@@ -1,6 +1,6 @@
 # Décret n° 52-429 modifiant l’article 2 du décret n° 49-1595 du 14 décembre 1949 rendant applicable aux territoires relevant du Ministère de la France d’Outre-Mer les dispositions de la loi n° 49-572 du ] 23 avril 1949 permettant le changement des prénoms de l’adopté î en cas d’adoption ou de légitimation adoptive et modifiant les S articles 350, 364 et 369 du Code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-429-modifiant-larticle-2-du-decret-n-49-1595-du-14-decembre-1949-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-de-la-lo/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/06/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-429-modifiant-larticle-2-du-decret-n-49-1595-du-14-decembre-1949-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-de-la-lo/>
 
 En vigueur : 1952-06-01 (date du Journal officiel qui le publie).
 

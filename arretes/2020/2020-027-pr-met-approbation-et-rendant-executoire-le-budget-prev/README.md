@@ -1,6 +1,6 @@
 # Arrêté n° 2020-027/PR/MET portant approbation et rendant exécutoire le budget prévisionnel 2020 de l’Agence Djiboutienne des Routes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-027-pr-met-portant-approbation-et-rendant-executoire-le-budget-previsionnel-2020-de-lagence-djiboutienne-des-routes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-027-pr-met-portant-approbation-et-rendant-executoire-le-budget-previsionnel-2020-de-lagence-djiboutienne-des-routes/>
 
 En vigueur : 2020-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

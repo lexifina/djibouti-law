@@ -1,6 +1,6 @@
 # Loi de finances n° 116/AN/96/3éme L portant Règlement Provisoire du Budget de l’État 1995.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n116-an-96-3eme-l-portant-reglement-provisoire-du-budget-de-letat-1995/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 1 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n116-an-96-3eme-l-portant-reglement-provisoire-du-budget-de-letat-1995/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

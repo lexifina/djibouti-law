@@ -1,6 +1,6 @@
 # Décret n° 06-455-1934 Côte française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 455 du 31/10/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-455-1934-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 455 du 31/10/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-455-1934-cote-francaise-des-somalis/>
 
 En vigueur : 1934-10-31 (date du Journal officiel qui le publie).
 

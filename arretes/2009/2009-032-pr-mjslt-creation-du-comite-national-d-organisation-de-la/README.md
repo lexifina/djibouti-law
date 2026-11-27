@@ -1,6 +1,6 @@
 # Arrêté n° 2009-032/PR/MJSLT portant création du Comité National d’Organisation de la treizième édition du Semi Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-032-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-treizieme-edition-du-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-032-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-treizieme-edition-du-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2009-01-15 (date du Journal officiel qui le publie).
 

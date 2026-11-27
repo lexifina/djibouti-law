@@ -1,6 +1,6 @@
 # Décret n° 5-403-1930 Indemnité de séjour en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 403 du 30/06/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-403-1930-indemnite-de-sejour-en-france/>
+Décret · Journal officiel de la République de Djibouti, n° 403 du 30/06/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-403-1930-indemnite-de-sejour-en-france/>
 
 En vigueur : 1930-06-30 (date du Journal officiel qui le publie).
 

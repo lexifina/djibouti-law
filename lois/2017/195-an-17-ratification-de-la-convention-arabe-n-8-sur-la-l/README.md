@@ -1,6 +1,6 @@
 # Loi n° 195/AN/17/7ème L portant ratification de la Convention Arabe n° 8 sur la liberté et droits syndicaux (1977).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-17-7eme-l-portant-ratification-de-la-convention-arabe-n8-sur-la-liberte-et-droits-syndicaux-1977/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-17-7eme-l-portant-ratification-de-la-convention-arabe-n8-sur-la-liberte-et-droits-syndicaux-1977/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

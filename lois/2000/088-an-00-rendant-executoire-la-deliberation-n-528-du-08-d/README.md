@@ -1,6 +1,6 @@
 # Loi n° 88/AN/00/4ème L rendant exécutoire la délibération n° 528 du 08 décembre 1999 du Conseil d’Administration de l’Electricité de Djibouti portant approbation du compte financier définitif de l’EDD exercice 1998.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-00-4eme-l-rendant-executoire-la-deliberation-n528-du-08-decembre-1999-du-conseil-dadministration-de-lelectricite-de-djibouti-portant-approbation-du-compte-fina/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-00-4eme-l-rendant-executoire-la-deliberation-n528-du-08-decembre-1999-du-conseil-dadministration-de-lelectricite-de-djibouti-portant-approbation-du-compte-fina/>
 
 En vigueur : 2000-07-15 (date du Journal officiel qui le publie).
 

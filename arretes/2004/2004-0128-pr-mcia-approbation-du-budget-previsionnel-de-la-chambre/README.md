@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0128/PR/MCIA portant approbation du Budget prévisionnel de la Chambre de Commerce de Djibouti et des Magasins Généraux pour l’année 2004.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0128-pr-mcia-portant-approbation-du-budget-previsionnel-de-la-chambre-de-commerce-de-djibouti-et-des-magasins-generaux-pour-lannee-2004/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0128-pr-mcia-portant-approbation-du-budget-previsionnel-de-la-chambre-de-commerce-de-djibouti-et-des-magasins-generaux-pour-lannee-2004/>
 
 En vigueur : 2004-03-15 (date du Journal officiel qui le publie).
 

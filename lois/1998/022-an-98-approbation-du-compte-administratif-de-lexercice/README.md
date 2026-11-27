@@ -1,6 +1,6 @@
 # Loi n° 22/AN/98/4ème L portant approbation du Compte Administratif de l’exercice 1996 de l’Office National du Tourisme et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-98-4eme-l-portant-approbation-du-compte-administratif-de-lexercice-1996-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-98-4eme-l-portant-approbation-du-compte-administratif-de-lexercice-1996-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 

@@ -1,7 +1,7 @@
 # Arrêté n° 2010-0045/PR/MPI portant Agrément au Code
 des Investissements de la Société « CAC BANK SA ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0045-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-cac-bank-sa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0045-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-cac-bank-sa/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

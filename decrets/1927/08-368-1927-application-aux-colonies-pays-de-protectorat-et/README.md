@@ -1,6 +1,6 @@
 # Décret n° 08-368-1927 Application aux colonies. pays de protectorat et territoires a mandat dépendant du ministère des colonies, sauf les Antilles et la Réunion, de la loi du 27 mars 1923 modifiant l’article 317 du Code pénal.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 368 du 31/07/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-368-1927-application-aux-colonies-pays-de-protectorat-et-territoires-a-mandat-dependant-du-ministere-des-colonies-sauf-les-antilles-et-la-reunion-de-la-loi-du-27-mars-1923-modif/>
+Décret · Journal officiel de la République de Djibouti, n° 368 du 31/07/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-368-1927-application-aux-colonies-pays-de-protectorat-et-territoires-a-mandat-dependant-du-ministere-des-colonies-sauf-les-antilles-et-la-reunion-de-la-loi-du-27-mars-1923-modif/>
 
 En vigueur : 1927-07-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Léon B:rTHOU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

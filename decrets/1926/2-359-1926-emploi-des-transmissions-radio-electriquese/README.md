@@ -1,6 +1,6 @@
 # Décret n° 2-359-1926 Emploi des transmissions radio-électriquese
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 359 du 31/10/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-359-1926-emploi-des-transmissions-radio-electriquese/>
+Décret · Journal officiel de la République de Djibouti, n° 359 du 31/10/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-359-1926-emploi-des-transmissions-radio-electriquese/>
 
 En vigueur : 1926-10-31 (date du Journal officiel qui le publie).
 
@@ -57,4 +57,4 @@ De Monzie.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

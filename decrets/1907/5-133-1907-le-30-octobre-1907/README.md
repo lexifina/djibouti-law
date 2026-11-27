@@ -1,6 +1,6 @@
 # Décret n° 5-133-1907 le 30 octobre 1907.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 133 du 01/12/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-133-1907-le-30-octobre-1907/>
+Décret · Journal officiel de la République de Djibouti, n° 133 du 01/12/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-133-1907-le-30-octobre-1907/>
 
 En vigueur : 1907-12-01 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ GASTON DOUMERGUE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

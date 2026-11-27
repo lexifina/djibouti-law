@@ -1,6 +1,6 @@
 # Ordonnance n° le 6 juillet 1943. sur le maintien du bénéfice des traitements et salaires pour la journée de congé du 14 juillet.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 15/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-le-6-juillet-1943-sur-le-maintien-du-benefice-des-traitements-et-salaires-pour-la-journee-de-conge-du-14-juillet/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 14 du 15/07/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-le-6-juillet-1943-sur-le-maintien-du-benefice-des-traitements-et-salaires-pour-la-journee-de-conge-du-14-juillet/>
 
 En vigueur : 1943-07-15 (date du Journal officiel qui le publie).
 

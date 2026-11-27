@@ -1,6 +1,6 @@
 # Loi n° 194/AN/17/7ème L portant ratification du Protocole relatif à la Convention (n° 29) sur le travail forcé, 1930.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-17-7eme-l-portant-ratification-du-protocole-relatif-a-la-convention-n29-sur-le-travail-force-1930/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-17-7eme-l-portant-ratification-du-protocole-relatif-a-la-convention-n29-sur-le-travail-force-1930/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

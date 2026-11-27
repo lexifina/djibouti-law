@@ -1,6 +1,6 @@
 # Décret n° 23/07/1937 portant règlement en matière de solde et d’accessoires de solde du personnel et des cadres locaux des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 489 du 31/08/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1937-portant-reglement-en-matiere-de-solde-et-daccessoires-de-solde-du-personnel-et-des-cadres-locaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 489 du 31/08/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1937-portant-reglement-en-matiere-de-solde-et-daccessoires-de-solde-du-personnel-et-des-cadres-locaux-des-colonies/>
 
 En vigueur : 1937-08-31 (date du Journal officiel qui le publie).
 

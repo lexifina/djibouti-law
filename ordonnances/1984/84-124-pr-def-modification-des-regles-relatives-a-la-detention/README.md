@@ -1,6 +1,6 @@
 # Ordonnance n° 84-124/PR/DEF portant modification des règles relatives à la détention préventive en cas de poursuites délictuelles contre des militaires de l’Armée Nationale.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-124-pr-def-portant-modification-des-regles-relatives-a-la-detention-preventive-en-cas-de-poursuites-delictuelles-contre-des-militaires-de-larmee-nationale/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 11 du 15/12/1984 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-124-pr-def-portant-modification-des-regles-relatives-a-la-detention-preventive-en-cas-de-poursuites-delictuelles-contre-des-militaires-de-larmee-nationale/>
 
 En vigueur : 1984-12-15 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Conseil des Ministres entendu en sa séance du 13 Novembre 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

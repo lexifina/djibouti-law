@@ -1,6 +1,6 @@
 # Rectificatif n° 1213 8 décembre 1948
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1948 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1213-8-decembre-1948/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 12 du 31/12/1948 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1213-8-decembre-1948/>
 
 En vigueur : 1948-12-31 (date du Journal officiel qui le publie).
 

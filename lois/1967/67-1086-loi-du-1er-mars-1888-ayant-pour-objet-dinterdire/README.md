@@ -1,6 +1,6 @@
 # Loi n° 67-1086 modifiant la loi du 1er mars 1888 ayant pour objet d’interdire aux étrangers la pêche dans les eaux territoriales françaises.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-67-1086-modifiant-la-loi-du-1er-mars-1888-ayant-pour-objet-dinterdire-aux-etrangers-la-peche-dans-les-eaux-territoriales-francaises/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 25/03/1973 · <https://www.journalofficiel.dj/texte-juridique/loi-n-67-1086-modifiant-la-loi-du-1er-mars-1888-ayant-pour-objet-dinterdire-aux-etrangers-la-peche-dans-les-eaux-territoriales-francaises/>
 
 En vigueur : 1973-03-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 148/AN/01/4ème L portant ratification par la République de Djibouti du Protocole de Kyoto relatif à la Convention cadre des Nations Unies sur les changements climatiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-01-4eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-kyoto-relatif-a-la-convention-cadre-des-nations-unies-sur-les-changements-climatiques/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-01-4eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-kyoto-relatif-a-la-convention-cadre-des-nations-unies-sur-les-changements-climatiques/>
 
 En vigueur : 2001-12-31 (date du Journal officiel qui le publie).
 

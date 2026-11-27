@@ -1,6 +1,6 @@
 # Loi n° 66/AN/09/6ème L portant modification de la Loi n° 14/AN/98/4ème L du 1er avril 1998 portant Loi des Finances rectificative pour l’Exercice 1998.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-09-6eme-l-portant-modification-de-la-loi-n14-an-98-4eme-l-du-1er-avril-1998-portant-loi-des-finances-rectificative-pour-lexercice-1998/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-09-6eme-l-portant-modification-de-la-loi-n14-an-98-4eme-l-du-1er-avril-1998-portant-loi-des-finances-rectificative-pour-lexercice-1998/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 91‑114/PR/MCTT modifiant l’Ordonnance n° 84-004 du 13 janvier 1984 portant modification des statuts de l’Aéroport International de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91%e2%80%91114-pr-mctt-modifiant-lordonnance-n-84-004-du-13-janvier-1984-portant-modification-des-statuts-de-laeroport-international-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91%e2%80%91114-pr-mctt-modifiant-lordonnance-n-84-004-du-13-janvier-1984-portant-modification-des-statuts-de-laeroport-international-de-djibouti/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ HASSAN GOULED APTIDON
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

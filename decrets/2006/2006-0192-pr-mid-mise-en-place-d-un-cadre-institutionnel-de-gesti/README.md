@@ -1,8 +1,8 @@
 # Décret n° 2006-0192/PR/MID portant mise en place d’un cadre institutionnel de Gestion des risques et des catastrophes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0192-pr-mid-portant-mise-en-place-dun-cadre-institutionnel-de-gestion-des-risques-et-des-catastrophes/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0192-pr-mid-portant-mise-en-place-dun-cadre-institutionnel-de-gestion-des-risques-et-des-catastrophes/>
 
-En vigueur : 2006-07-23 (date fixÃ©e par le texte).
+En vigueur : 2006-07-23 (date fixée par le texte).
 
 ## Visas
 

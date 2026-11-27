@@ -1,6 +1,6 @@
 # Arrêté n° 2019-122/PR/MB portant attribution deux parcelle de terrain sises à PK 23.deux parcelle de terrain sises à PK 23.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-122-pr-mb-portant-attribution-deux-parcelle-de-terrain-sises-a-pk-23-deux-parcelle-de-terrain-sises-a-pk-23/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-122-pr-mb-portant-attribution-deux-parcelle-de-terrain-sises-a-pk-23-deux-parcelle-de-terrain-sises-a-pk-23/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

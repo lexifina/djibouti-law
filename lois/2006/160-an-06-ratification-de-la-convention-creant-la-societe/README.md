@@ -1,6 +1,6 @@
 # Loi n° 160/AN/06/5ème L portant ratification de la Convention créant la Société Internationale Islamique de Financement du Commerce (SIFC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-06-5eme-l-portant-ratification-de-la-convention-creant-la-societe-internationale-islamique-de-financement-du-commerce-sifc/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-06-5eme-l-portant-ratification-de-la-convention-creant-la-societe-internationale-islamique-de-financement-du-commerce-sifc/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

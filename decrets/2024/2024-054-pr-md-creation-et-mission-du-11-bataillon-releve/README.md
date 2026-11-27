@@ -1,6 +1,6 @@
 # Décret n° 2024-054/PR/MD portant création et mission du 11° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 14/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-054-pr-md-portant-creation-et-mission-du-11-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 05 du 14/03/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-054-pr-md-portant-creation-et-mission-du-11-bataillon-releve/>
 
 En vigueur : 2024-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

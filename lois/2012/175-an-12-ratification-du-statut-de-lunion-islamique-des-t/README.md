@@ -1,6 +1,6 @@
 # Loi n° 175/AN/12/6ème L portant ratification du Statut de l’Union Islamique des Télécommunications de l’Organisation de la Coopération Islamique (OCI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-12-6eme-l-portant-ratification-du-statut-de-lunion-islamique-des-telecommunications-de-lorganisation-de-la-cooperation-islamique-oci/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-12-6eme-l-portant-ratification-du-statut-de-lunion-islamique-des-telecommunications-de-lorganisation-de-la-cooperation-islamique-oci/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

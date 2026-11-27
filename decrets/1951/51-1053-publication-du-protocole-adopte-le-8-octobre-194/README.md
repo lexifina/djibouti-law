@@ -1,6 +1,6 @@
 # Décret n° 51-1053 portant publication du protocole adopté le 8 octobre 1948 par l’Assemblée générale des Nations Unies à l’effet de placer sous contrôle international certaines drogues non visées par la Convention du 13 juillet 1931.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1053-portant-publication-du-protocole-adopte-le-8-octobre-1948-par-lassemblee-generale-des-nations-unies-a-leffet-de-placer-sous-controle-international-certaines-drogues-non-vis/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1053-portant-publication-du-protocole-adopte-le-8-octobre-1948-par-lassemblee-generale-des-nations-unies-a-leffet-de-placer-sous-controle-international-certaines-drogues-non-vis/>
 
 En vigueur : 1952-01-01 (date du Journal officiel qui le publie).
 

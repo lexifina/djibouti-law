@@ -1,6 +1,6 @@
 # Décret n° 2020-248/PRE instituant un deuil national de deux jours en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-248-pre-instituant-un-deuil-national-de-deux-jours-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-248-pre-instituant-un-deuil-national-de-deux-jours-en-republique-de-djibouti/>
 
 En vigueur : 2020-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

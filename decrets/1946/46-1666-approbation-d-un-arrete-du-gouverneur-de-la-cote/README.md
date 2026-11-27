@@ -1,6 +1,6 @@
 # Décret n° 46-1666 portant approbation d’un arrêté du Gouverneur de la Côte française des Somalis portant ouverture : 1° d’un article au chapitre Ier des recettes du budget local (exercice 1944); 20 d’un crédit supplémentaire audit budget.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1666-portant-approbation-dun-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-1-dun-article-au-chapitre-ier-des-recettes-du-budget-l/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1666-portant-approbation-dun-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-1-dun-article-au-chapitre-ier-des-recettes-du-budget-l/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Marius MOUTET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

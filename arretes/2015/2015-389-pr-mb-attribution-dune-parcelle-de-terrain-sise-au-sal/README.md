@@ -1,6 +1,6 @@
 # Arrêté n° 2015-389/PR/MB portant attribution d’une parcelle de terrain sise au Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-389-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-au-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-389-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-au-salines-ouest/>
 
 En vigueur : 2015-06-15 (date du Journal officiel qui le publie).
 

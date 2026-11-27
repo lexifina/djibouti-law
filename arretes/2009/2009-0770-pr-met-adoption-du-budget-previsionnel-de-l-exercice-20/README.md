@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0770/PR/MET portant adoption du budget prévisionnel de l’exercice 2009 du Port Autonome International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0770-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2009-du-port-autonome-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0770-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2009-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 2009-10-31 (date du Journal officiel qui le publie).
 

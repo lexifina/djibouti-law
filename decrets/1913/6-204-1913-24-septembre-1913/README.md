@@ -1,6 +1,6 @@
 # Décret n° 6-204-1913 24 septembre 1913
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 204 du 31/10/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-204-1913-24-septembre-1913/>
+Décret · Journal officiel de la République de Djibouti, n° 204 du 31/10/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-204-1913-24-septembre-1913/>
 
 En vigueur : 1913-10-31 (date du Journal officiel qui le publie).
 
@@ -25,7 +25,7 @@ Charles DUMONT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

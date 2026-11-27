@@ -1,6 +1,6 @@
 # Décret n° 77-026 modifiant le décret n° 77-20 du 11 août 1977 portant attributions du directeur de la Gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 26/09/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-026-modifiant-le-decret-n77-20-du-11-aout-1977-portant-attributions-du-directeur-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 26/09/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-026-modifiant-le-decret-n77-20-du-11-aout-1977-portant-attributions-du-directeur-de-la-gendarmerie-nationale/>
 
 En vigueur : 1977-09-26 (date du Journal officiel qui le publie).
 

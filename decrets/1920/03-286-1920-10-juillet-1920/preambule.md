@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE 1er
 DISPOSITIONS GÉNÉRALES.
 Art, 1er.— Les administrateurs des colonies assurent le fonctionnement des services généraux et concourent au service des bureaux des gouvernements généraux et des gouvernements dans les colonies autres que l’Indochine.

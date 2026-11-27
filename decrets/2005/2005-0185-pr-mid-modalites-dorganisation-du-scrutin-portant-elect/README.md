@@ -1,6 +1,6 @@
 # Décret n° 2005-0185/PR/MID Fixant les modalités d’organisation du scrutin portant élection des membres des Assemblées Régionales et communales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0185-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-portant-election-des-membres-des-assemblees-regionales-et-communales/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0185-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-portant-election-des-membres-des-assemblees-regionales-et-communales/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ SUR Proposition du Ministre de l’Intérieur et de la Décentralisation.
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

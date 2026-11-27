@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE I : OBJET-CHAMP D’APPLICATION
 CHAPITRE I : OBJET

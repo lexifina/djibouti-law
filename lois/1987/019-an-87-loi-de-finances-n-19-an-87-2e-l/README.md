@@ -1,6 +1,6 @@
 # Loi de finances n° 19/AN/87/2e L
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n19-an-87-2e-l/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 1 du 15/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n19-an-87-2e-l/>
 
 En vigueur : 1988-01-15 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Vu le projet de budget de l'Etat de l'exercice 1988, approuvé en sa séance du 
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

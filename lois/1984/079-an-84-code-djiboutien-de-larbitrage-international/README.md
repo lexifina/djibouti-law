@@ -1,6 +1,6 @@
 # Loi n° 79/AN/84/1re L portant « Code djiboutien » de l’arbitrage International.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-84-1re-l-portant-code-djiboutien-de-larbitrage-international/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-84-1re-l-portant-code-djiboutien-de-larbitrage-international/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ VU le décret n°82-041/PRE du 05 juin 1982 portant nomination des membres du go
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

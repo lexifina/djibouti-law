@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0190/PR/MEFCIP portant la déchéance des droits accordés en vertu des titres fonciers n° 8409, 8410 et 8411 au profit de Mr Mohamed Kayed Said Mohamed.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0190-pr-mefcip-portant-la-decheance-des-droits-accordes-en-vertu-des-titres-fonciers-n8409-8410-et-8411-au-profit-de-mr-mohamed-kayed-said-mohamed/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0190-pr-mefcip-portant-la-decheance-des-droits-accordes-en-vertu-des-titres-fonciers-n8409-8410-et-8411-au-profit-de-mr-mohamed-kayed-said-mohamed/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

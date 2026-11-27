@@ -1,6 +1,6 @@
 # Décret n° 01/11/1936 Attributions des Ministres de l’air et des colonies en matière d’aéronautique civile dans les colonies et pays de protectorat relevant du département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-11-1936-attributions-des-ministres-de-lair-et-des-colonies-en-matiere-daeronautique-civile-dans-les-colonies-et-pays-de-protectorat-relevant-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-11-1936-attributions-des-ministres-de-lair-et-des-colonies-en-matiere-daeronautique-civile-dans-les-colonies-et-pays-de-protectorat-relevant-du-departement-des-colonies/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ Pierre COT.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

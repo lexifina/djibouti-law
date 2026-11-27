@@ -1,6 +1,6 @@
 # Décret n° 2019-213/PR/MD portant création et mission du 7° Bataillon (Relève)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-213-pr-md-portant-creation-et-mission-du-7-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-213-pr-md-portant-creation-et-mission-du-7-bataillon-releve/>
 
 En vigueur : 2019-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

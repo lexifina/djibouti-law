@@ -1,6 +1,6 @@
 # Décret n° 2026-023/PR/MEFI relatif à l’agrément d’une société d’assurance islamique D INSURANCE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 29/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-023-pr-mefi-relatif-a-lagrement-dune-societe-dassurance-islamique-d-insurance/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 29/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-023-pr-mefi-relatif-a-lagrement-dune-societe-dassurance-islamique-d-insurance/>
 
 En vigueur : 2026-01-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

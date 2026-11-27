@@ -1,8 +1,8 @@
 # Loi n° 97/AN/20/8ème L relative à la liberté de la communication et de la déontologie de l’information modifiant et complétant certaines dispositions de la loi n° 2/AN/92/2ème L et de la loi n° 187/AN/07/5ème L.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-20-8eme-l-relative-a-la-liberte-de-la-communication-et-de-la-deontologie-de-linformation-modifiant-et-completant-certaines-dispositions-de-la-loi-n2-an-92-2eme-l-et-de-la-loi/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-20-8eme-l-relative-a-la-liberte-de-la-communication-et-de-la-deontologie-de-linformation-modifiant-et-completant-certaines-dispositions-de-la-loi-n2-an-92-2eme-l-et-de-la-loi/>
 
-En vigueur : 2020-11-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-11-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -94,4 +94,4 @@ ISMAÏL OMAR GUELLEH
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

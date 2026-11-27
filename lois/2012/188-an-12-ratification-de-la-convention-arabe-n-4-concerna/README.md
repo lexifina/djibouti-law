@@ -1,6 +1,6 @@
 # Loi n° 188/AN/12/6ème L portant ratification de la Convention arabe n° 4 concernant le mouvement de la main d’oeuvre, révisé, (1975).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-12-6eme-l-portant-ratification-de-la-convention-arabe-n4-concernant-le-mouvement-de-la-main-doeuvre-revise-1975/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-12-6eme-l-portant-ratification-de-la-convention-arabe-n4-concernant-le-mouvement-de-la-main-doeuvre-revise-1975/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

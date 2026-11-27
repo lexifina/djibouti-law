@@ -1,6 +1,6 @@
 # Décret n° 62-572 modifiant et complétant le décret n° 62-305 du 19 mars 1962 portant règlement du référendum d’autodétermination (J.O.R.F. du 18 mai 1962, p. 4868). Arrêté de promulgation n° 702 du 21 mai 1962.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-572-modifiant-et-completant-le-decret-n-62-305-du-19-mars-1962-portant-reglement-du-referendum-dautodetermination-j-o-r-f-du-18-mai-1962-p-4868-arrete-de-promul/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-572-modifiant-et-completant-le-decret-n-62-305-du-19-mars-1962-portant-reglement-du-referendum-dautodetermination-j-o-r-f-du-18-mai-1962-p-4868-arrete-de-promul/>
 
 En vigueur : 1962-05-31 (date du Journal officiel qui le publie).
 

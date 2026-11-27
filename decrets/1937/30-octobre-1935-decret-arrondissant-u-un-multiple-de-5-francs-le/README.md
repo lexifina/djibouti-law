@@ -1,6 +1,6 @@
 # Décret n° 30 octobre 1935. Décret arrondissant ù un multiple de 5 francs les taxes consulaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-octobre-1935-decret-arrondissant-u-un-multiple-de-5-francs-les-taxes-consulaires/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-octobre-1935-decret-arrondissant-u-un-multiple-de-5-francs-les-taxes-consulaires/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Le Ministre des finances, Marcel RÉGNIER.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

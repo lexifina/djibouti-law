@@ -1,6 +1,6 @@
 # Loi n° LR/77-004 modifiant la délibération
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 09/07/1977 Â· <https://www.journalofficiel.dj/texte-juridique/loi-nlr-77-004-modifiant-la-deliberation/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 09/07/1977 · <https://www.journalofficiel.dj/texte-juridique/loi-nlr-77-004-modifiant-la-deliberation/>
 
 En vigueur : 1977-07-09 (date du Journal officiel qui le publie).
 

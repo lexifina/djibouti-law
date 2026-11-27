@@ -1,6 +1,6 @@
 # Décret n° 16-468-1935 Exécution de la résolution adoptée le 14 octobre 1935, à Genève, par le Comité de coordination des mesures à prendre en application de l’article 16 du parte de la Société des nations
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-468-1935-execution-de-la-resolution-adoptee-le-14-octobre-1935-a-geneve-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-parte-de-la-societe/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-468-1935-execution-de-la-resolution-adoptee-le-14-octobre-1935-a-geneve-par-le-comite-de-coordination-des-mesures-a-prendre-en-application-de-larticle-16-du-parte-de-la-societe/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 L’an mil neuf cent soixante-dix-sept le 27 juin à 0 heure ;
 L’Assemblée nationale, réunie en séance extraordinaire, a délibéré
 et solennellement approuvé,

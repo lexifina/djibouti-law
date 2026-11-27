@@ -1,6 +1,6 @@
 # Décret n° 82-005/PR/PORT portant approbation du règlement financier et comptable du Port autonome international de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-005-pr-port-portant-approbation-du-reglement-financier-et-comptable-du-port-autonome-international-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-005-pr-port-portant-approbation-du-reglement-financier-et-comptable-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ HASSAN GOULED APTIDON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

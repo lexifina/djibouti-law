@@ -1,6 +1,6 @@
 # Loi n° 14-163-1910 relative au libre salaire de la femme mariée et à la contribution des époux aux charges du ménage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 163 du 01/06/1910 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-14-163-1910-relative-au-libre-salaire-de-la-femme-mariee-et-a-la-contribution-des-epoux-aux-charges-du-menage/>
+Loi · Journal officiel de la République de Djibouti, n° 163 du 01/06/1910 · <https://www.journalofficiel.dj/texte-juridique/loi-n-14-163-1910-relative-au-libre-salaire-de-la-femme-mariee-et-a-la-contribution-des-epoux-aux-charges-du-menage/>
 
 En vigueur : 1910-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0589/PR/MERN exonération à titre exceptionnel des impôts.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0589-pr-mern-exoneration-a-titre-exceptionnel-des-impots/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0589-pr-mern-exoneration-a-titre-exceptionnel-des-impots/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

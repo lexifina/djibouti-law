@@ -1,6 +1,6 @@
 # Décret n° 2001-0011/PR/MHUEAT portant définition de la procédure d’étude d’impact environnemental.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 23/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0011-pr-mhueat-portant-definition-de-la-procedure-detude-dimpact-environnemental-2/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 23/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0011-pr-mhueat-portant-definition-de-la-procedure-detude-dimpact-environnemental-2/>
 
 En vigueur : 1978-01-23 (date du Journal officiel qui le publie).
 

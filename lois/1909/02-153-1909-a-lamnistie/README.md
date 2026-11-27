@@ -1,6 +1,6 @@
 # Loi n° 02-153-1909 relative à l’amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 153 du 01/08/1909 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-153-1909-relative-a-lamnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 153 du 01/08/1909 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-153-1909-relative-a-lamnistie/>
 
 En vigueur : 1909-08-01 (date du Journal officiel qui le publie).
 

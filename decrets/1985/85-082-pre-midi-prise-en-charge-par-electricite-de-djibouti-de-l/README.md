@@ -1,6 +1,6 @@
 # Décret n° 85-082/PRE/MIDI portant prise en charge, par Électricité de Djibouti, de la distribution d’électricité dans le périmètre du Mouloud.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-082-pre-midi-portant-prise-en-charge-par-electricite-de-djibouti-de-la-distribution-delectricite-dans-le-perimetre-du-mouloud/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-082-pre-midi-portant-prise-en-charge-par-electricite-de-djibouti-de-la-distribution-delectricite-dans-le-perimetre-du-mouloud/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

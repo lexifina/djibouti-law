@@ -1,6 +1,6 @@
 # Loi n° 190/AN/07/5ème L portant approbation des comptes financiers définitifs de l’ONED pour l’Exercice 2005.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-07-5eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2005/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-07-5eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2005/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

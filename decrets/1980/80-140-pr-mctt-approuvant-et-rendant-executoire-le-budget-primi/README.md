@@ -1,6 +1,6 @@
 # Décret n° 80-140/PR/MCTT approuvant et rendant exécutoire le budget primitif 1981 de l’office de Développement du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 12/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-140-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1981-de-loffice-de-developpement-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 12/02/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-140-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1981-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1981-02-12 (date du Journal officiel qui le publie).
 

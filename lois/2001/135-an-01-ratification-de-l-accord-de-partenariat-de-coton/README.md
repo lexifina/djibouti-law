@@ -1,6 +1,6 @@
 # Loi n° 135/AN/01/4ème L portant ratification de l’Accord de Partenariat de Cotonou entre le Groupe ACP et l’Union Européenne.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-01-4eme-l-portant-ratification-de-laccord-de-partenariat-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-01-4eme-l-portant-ratification-de-laccord-de-partenariat-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

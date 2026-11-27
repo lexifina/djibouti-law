@@ -1,6 +1,6 @@
 # Décret n° 75-653 relatif à la durée des fonctions des représentants de l’Etat dans les conseils et organismes délibérants des groupements d’intérêt économique et des sociétés d’économie mixte, des entreprises nationales et des établissements publics de l’Etat à caractère industriel et commercial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 10/09/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-653-relatif-a-la-duree-des-fonctions-des-representants-de-letat-dans-les-conseils-et-organismes-deliberants-des-groupements-dinteret-economique-et-des-societes-deconomie-mixte/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 10/09/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-653-relatif-a-la-duree-des-fonctions-des-representants-de-letat-dans-les-conseils-et-organismes-deliberants-des-groupements-dinteret-economique-et-des-societes-deconomie-mixte/>
 
 En vigueur : 1975-09-10 (date du Journal officiel qui le publie).
 

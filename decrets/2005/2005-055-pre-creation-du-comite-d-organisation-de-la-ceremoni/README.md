@@ -1,8 +1,8 @@
 # Décret n° 2005-055/PRE portant création du comité d’organisation de la Cérémonie d’Investiture du Président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-055-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-055-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique/>
 
-En vigueur : 2005-04-25 (date fixÃ©e par le texte).
+En vigueur : 2005-04-25 (date fixée par le texte).
 
 ## Visas
 

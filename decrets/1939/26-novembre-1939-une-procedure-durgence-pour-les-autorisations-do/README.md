@@ -1,6 +1,6 @@
 # Décret n° 26 novembre 1939 instituant une procédure d’urgence pour les autorisations d’ouverture et d’exploitation des dépôts d’hydrocarbures,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-novembre-1939-instituant-une-procedure-durgence-pour-les-autorisations-douverture-et-dexploitation-des-depots-dhydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-novembre-1939-instituant-une-procedure-durgence-pour-les-autorisations-douverture-et-dexploitation-des-depots-dhydrocarbures/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 51-803 portant règlement d’administration publique pour la création des grades d’inspecteur adjoint et d’inspecteur des transmissions de.la France d’Outre-Mer et la détermination des dispositions statutaires provisoirement applicables aux fonctionnaires intégrés dans ces gratte, (J.O.R.F. du 27 juin 1951, p. 6716.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-803-portant-reglement-dadministration-publique-pour-la-creation-des-grades-dinspecteur-adjoint-et-dinspecteur-des-transmissions-de-la-france-doutre-mer-et-la-determination-d/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-803-portant-reglement-dadministration-publique-pour-la-creation-des-grades-dinspecteur-adjoint-et-dinspecteur-des-transmissions-de-la-france-doutre-mer-et-la-determination-d/>
 
 En vigueur : 1951-08-01 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Maurice PETSCHE.
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

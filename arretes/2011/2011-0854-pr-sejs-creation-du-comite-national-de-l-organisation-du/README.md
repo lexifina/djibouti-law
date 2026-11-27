@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0854/PR/SEJS portant création du Comité National de l’Organisation du Tournoi International Féminin de Tennis.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0854-pr-sejs-portant-creation-du-comite-national-de-lorganisation-du-tournoi-international-feminin-de-tennis/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0854-pr-sejs-portant-creation-du-comite-national-de-lorganisation-du-tournoi-international-feminin-de-tennis/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

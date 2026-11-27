@@ -1,6 +1,6 @@
 # Décret n° 2011-0167/PR/MAMBW portant création de la mission officielle du Pèlerinage pour l’Année 2011.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0167-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2011/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0167-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2011/>
 
 En vigueur : 2011-09-15 (date du Journal officiel qui le publie).
 

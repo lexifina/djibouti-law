@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0087/PR/MCC portant approbation des comptes prévisionnels de la Radio-Télévision de Djibouti pour l’exercice 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0087-pr-mcc-portant-approbation-des-comptes-previsionnels-de-la-radio-television-de-djibouti-pour-lexercice-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0087-pr-mcc-portant-approbation-des-comptes-previsionnels-de-la-radio-television-de-djibouti-pour-lexercice-2001/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

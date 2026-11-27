@@ -1,6 +1,6 @@
 # Décret n° 1004 relatif aux indemnités de route et aux pas sages accordés au personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1004-relatif-aux-indemnites-de-route-et-aux-pas-sages-accordes-au-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1004-relatif-aux-indemnites-de-route-et-aux-pas-sages-accordes-au-personnel-colonial/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 

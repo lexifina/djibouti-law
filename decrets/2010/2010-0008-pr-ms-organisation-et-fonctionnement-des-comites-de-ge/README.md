@@ -1,8 +1,8 @@
 # Décret n° 2010-0008/PR/MS portant organisation et fonctionnement des comités de gestion des centres de santé dépendant du Ministère de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0008-pr-ms-portant-organisation-et-fonctionnement-des-comites-de-gestion-des-centres-de-sante-dependant-du-ministere-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0008-pr-ms-portant-organisation-et-fonctionnement-des-comites-de-gestion-des-centres-de-sante-dependant-du-ministere-de-la-sante/>
 
-En vigueur : 2010-01-23 (date fixÃ©e par le texte).
+En vigueur : 2010-01-23 (date fixée par le texte).
 
 ## Visas
 
@@ -116,4 +116,4 @@ Le Conseil des Ministres entendu en sa séance du 02 Décembre
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

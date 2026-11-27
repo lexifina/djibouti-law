@@ -1,6 +1,6 @@
 # Décret n° 99-0023/PRE portant organisation du scrutin présidentiel du 09 avril 1999.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0023-pre-portant-organisation-du-scrutin-presidentiel-du-09-avril-1999/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0023-pre-portant-organisation-du-scrutin-presidentiel-du-09-avril-1999/>
 
 En vigueur : 1999-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 05-203-1913 modifiant les lois des cadres de l’infanterie, de la cavalerie, de l’artillerie et du génie, en ce qui concerne l’effectif des unités et fixant les conditions du recrutement de l’armée active et la durée du service dans l’armée active et ses réserves.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 203 du 30/09/1913 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-05-203-1913-modifiant-les-lois-des-cadres-de-linfanterie-de-la-cavalerie-de-lartillerie-et-du-genie-en-ce-qui-concerne-leffectif-des-unites-et-fixant-les-conditions-du-recr/>
+Loi · Journal officiel de la République de Djibouti, n° 203 du 30/09/1913 · <https://www.journalofficiel.dj/texte-juridique/loi-n-05-203-1913-modifiant-les-lois-des-cadres-de-linfanterie-de-la-cavalerie-de-lartillerie-et-du-genie-en-ce-qui-concerne-leffectif-des-unites-et-fixant-les-conditions-du-recr/>
 
 En vigueur : 1913-09-30 (date du Journal officiel qui le publie).
 
@@ -62,4 +62,4 @@ Eug. ETIENNE.
 | [art-048.md](art-048.md) | Art. 48 |
 | [art-049.md](art-049.md) | Art. 49 |
 | [art-050.md](art-050.md) | Art. 50 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

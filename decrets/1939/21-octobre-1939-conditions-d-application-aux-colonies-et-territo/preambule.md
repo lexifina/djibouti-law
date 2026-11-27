@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE 1° »
 Personnes assuietties à du déclaration.
 Art 1 – loutes personnes phvsiones., de nationalité française, sont tenues de produire la déclaration prévue par l’article 1° du décret relatif aux. avoirs à l’étranger dès lorsqu’au 15 novembre 1939 elles possèdent dans une colonie ou un territoire africain sous mandat francais leur résidence habituelle,

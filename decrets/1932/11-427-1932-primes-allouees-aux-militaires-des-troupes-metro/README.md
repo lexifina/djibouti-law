@@ -1,6 +1,6 @@
 # Décret n° 11-427-1932 Primes allouées aux militaires des troupes métropolitaines en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 427 du 30/06/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-427-1932-primes-allouees-aux-militaires-des-troupes-metropolitaines-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 427 du 30/06/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-427-1932-primes-allouees-aux-militaires-des-troupes-metropolitaines-en-service-aux-colonies/>
 
 En vigueur : 1932-06-30 (date du Journal officiel qui le publie).
 

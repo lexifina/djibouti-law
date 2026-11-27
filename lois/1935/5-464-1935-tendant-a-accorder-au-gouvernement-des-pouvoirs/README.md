@@ -1,6 +1,6 @@
 # Loi n° 5-464-1935 tendant à accorder au Gouvernement des pouvoirs exceptionnels pour assurer la défense du franc et la lutte contre la spéculation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-464-1935-tendant-a-accorder-au-gouvernement-des-pouvoirs-exceptionnels-pour-assurer-la-defense-du-franc-et-la-lutte-contre-la-speculation/>
+Loi · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-464-1935-tendant-a-accorder-au-gouvernement-des-pouvoirs-exceptionnels-pour-assurer-la-defense-du-franc-et-la-lutte-contre-la-speculation/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2026-118/PR/MJDH PORTANT MESURES DE GRACE PRESIDENTIELLE
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-118-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-118-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2026-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

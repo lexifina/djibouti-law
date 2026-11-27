@@ -1,6 +1,6 @@
 # Loi n° 47/AN/19/8ème L modifiant et complétant la loi n° 003/AN/18/8ème L portant Code Civil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-19-8eme-l-modifiant-et-completant-la-loi-n003-an-18-8eme-l-portant-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-19-8eme-l-modifiant-et-completant-la-loi-n003-an-18-8eme-l-portant-code-civil/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

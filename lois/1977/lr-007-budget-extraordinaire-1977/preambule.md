@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Le budget des recettes extraordinaires de l’exercice 1977 est modifié comme suit :
 | Chap. Art.
 | INTITULE

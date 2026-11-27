@@ -1,6 +1,6 @@
 # Loi n° 179/AN/12/6ème L portant approbation des Comptes financiers d’Electricité de Djibouti pour l’exercice 2009.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-12-6eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2009/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-12-6eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2009/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

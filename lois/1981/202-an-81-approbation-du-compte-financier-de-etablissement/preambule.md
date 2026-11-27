@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Est approuvé le compte financier annuel de |’Etablissement de L’Aéroport de Djibouti, arrété au 31 décembre 1980 et se décomposant comme suit:
 1° Compte d’exploitation générale (1re section)
 – Produits : 477 302 599 FD

@@ -1,6 +1,6 @@
 # Ordonnance n° 77-030/PR modifiant certaines dispositions du Code d’Instruction Criminelle relatives aux citations.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 26/09/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-030-pr-modifiant-certaines-dispositions-du-code-dinstruction-criminelle-relatives-aux-citations/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 26/09/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-030-pr-modifiant-certaines-dispositions-du-code-dinstruction-criminelle-relatives-aux-citations/>
 
 En vigueur : 1977-09-26 (date du Journal officiel qui le publie).
 

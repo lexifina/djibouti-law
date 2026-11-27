@@ -1,6 +1,6 @@
 # Décret n° 18 décembre 1936 Application aux colonies françaises, pays de protectorat et territoires sous mandat dépendant du ministère des colonies des dispositions du décret du 30 octobre 1935 unifiant le droit en matière de lettre de change et de billets à ordre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-decembre-1936-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-des-dispositions-du-decret-du-30-octobre-1935-u/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-decembre-1936-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-des-dispositions-du-decret-du-30-octobre-1935-u/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

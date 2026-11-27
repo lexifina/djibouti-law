@@ -1,6 +1,6 @@
 # Loi n° 63/AN/14/7ème L portant ratification de l’accord de financement du projet « accès à une éducation de qualité », financé par le Partenariat mondial pour l’éducation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-acces-a-une-education-de-qualite-finance-par-le-partenariat-mondial-pour-leducation/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-acces-a-une-education-de-qualite-finance-par-le-partenariat-mondial-pour-leducation/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

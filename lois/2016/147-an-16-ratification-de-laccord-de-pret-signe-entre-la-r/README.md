@@ -1,6 +1,6 @@
 # Loi n° 147/AN/16/7ème L portant ratification de l’Accord de prêt signé entre la République de Djibouti et la Banque Export-import de la République Populaire de Chine pour le financement de construction du Port polyvalent de Doraleh et du terminal d’exportation de bétail de Dame
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-16-7eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine-pour-le-financement-de-const/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-16-7eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-export-import-de-la-republique-populaire-de-chine-pour-le-financement-de-const/>
 
 En vigueur : 2016-06-15 (date du Journal officiel qui le publie).
 

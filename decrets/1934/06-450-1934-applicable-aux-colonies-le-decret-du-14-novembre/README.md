@@ -1,6 +1,6 @@
 # Décret n° 06-450-1934 Applicable aux colonies le décret du 14 novembre 1933 relatif au tarif de la passe de sacs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-450-1934-applicable-aux-colonies-le-decret-du-14-novembre-1933-relatif-au-tarif-de-la-passe-de-sacs/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-450-1934-applicable-aux-colonies-le-decret-du-14-novembre-1933-relatif-au-tarif-de-la-passe-de-sacs/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

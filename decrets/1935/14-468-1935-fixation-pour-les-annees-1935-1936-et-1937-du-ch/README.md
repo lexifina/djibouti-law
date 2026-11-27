@@ -1,6 +1,6 @@
 # Décret n° 14-468-1935 Fixation pour Les années 1935, 1936 et 1937 du chiffre minimum auquel doivent s ’élever les fonds disponibles des caisses de réserve des colonies et des territoires du Togo et du Cameroun placts sous le mandat de la France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-468-1935-fixation-pour-les-annees-1935-1936-et-1937-du-chiffre-minimum-auquel-doivent-s-elever-les-fonds-disponibles-des-caisses-de-reserve-des-colonies-et-des-territoires/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-468-1935-fixation-pour-les-annees-1935-1936-et-1937-du-chiffre-minimum-auquel-doivent-s-elever-les-fonds-disponibles-des-caisses-de-reserve-des-colonies-et-des-territoires/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

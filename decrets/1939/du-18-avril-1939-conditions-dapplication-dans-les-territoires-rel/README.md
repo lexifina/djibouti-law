@@ -1,6 +1,6 @@
 # Décret n° du 18 avril 1939 fixant les conditions d’application dans les territoires relevant du ministère des colonies du décret du 12 avril 1939 relatif à la constitution des associations étrangères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-18-avril-1939-fixant-les-conditions-dapplication-dans-les-territoires-relevant-du-ministere-des-colonies-du-decret-du-12-avril-1939-relatif-a-la-constitution-des-associations-etra/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-18-avril-1939-fixant-les-conditions-dapplication-dans-les-territoires-relevant-du-ministere-des-colonies-du-decret-du-12-avril-1939-relatif-a-la-constitution-des-associations-etra/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Georges MANDEL,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |

@@ -1,8 +1,8 @@
 # Arrêté n° 2018-099/PR/MENSUR portant renouvellement des membres du Conseil d’Administration du Centre d’Etudes et de Recherche de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-099-pr-mensur-portant-renouvellement-des-membres-du-conseil-dadministration-du-centre-detudes-et-de-recherche-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-099-pr-mensur-portant-renouvellement-des-membres-du-conseil-dadministration-du-centre-detudes-et-de-recherche-de-djibouti/>
 
-En vigueur : 2018-07-09 (date fixÃ©e par le texte).
+En vigueur : 2018-07-09 (date fixée par le texte).
 
 ## Visas
 

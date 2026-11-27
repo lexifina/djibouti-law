@@ -1,6 +1,6 @@
 # Décret n° 18 décembre 1936 Réglementation dans les colonies françaises, pays de protectorat et territoires sous mandat dépendant du Ministère des colonies, à l’exception de la Martinique, de la Guade loupe et de la Réunion des droits du porteur d’un effet de commerce non timbré ou insuffisamment timbré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-decembre-1936-reglementation-dans-les-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-a-lexception-de-la-martinique/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-decembre-1936-reglementation-dans-les-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-a-lexception-de-la-martinique/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

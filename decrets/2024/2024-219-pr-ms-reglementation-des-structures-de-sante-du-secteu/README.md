@@ -1,6 +1,6 @@
 # Décret n° 2024-219/PR/MS portant réglementation des structures de santé du secteur privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 29/08/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-219-pr-ms-portant-reglementation-des-structures-de-sante-du-secteur-prive/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 29/08/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-219-pr-ms-portant-reglementation-des-structures-de-sante-du-secteur-prive/>
 
 En vigueur : 2024-08-29 (date du Journal officiel qui le publie).
 
@@ -98,4 +98,4 @@ ISMAÏL OMAR GUELLEH
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
 | [art-063.md](art-063.md) | Article 63 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

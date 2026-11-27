@@ -1,6 +1,6 @@
 # Loi n° 93/AN/05/5ème L portant ratification d’un Accord de financement entre la République de Djibouti et la Banque Africaine de Développement (BAD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-05-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-bad/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-05-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-bad/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

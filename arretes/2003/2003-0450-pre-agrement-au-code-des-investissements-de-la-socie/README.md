@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0450/PRE portant Agrément au Code des Investissements de la Société Media Home.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0450-pre-portant-agrement-au-code-des-investissements-de-la-societe-media-home/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0450-pre-portant-agrement-au-code-des-investissements-de-la-societe-media-home/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

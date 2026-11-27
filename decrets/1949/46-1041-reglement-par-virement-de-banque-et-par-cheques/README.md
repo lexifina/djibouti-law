@@ -1,6 +1,6 @@
 # Décret n° 46-1041 relatif au règlement par virement de banque et par chèques des dépenses et des créances de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1041-relatif-au-reglement-par-virement-de-banque-et-par-cheques-des-depenses-et-des-creances-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1041-relatif-au-reglement-par-virement-de-banque-et-par-cheques-des-depenses-et-des-creances-de-letat/>
 
 En vigueur : 1949-10-31 (date du Journal officiel qui le publie).
 

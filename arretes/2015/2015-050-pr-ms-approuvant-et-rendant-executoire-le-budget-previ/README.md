@@ -1,6 +1,6 @@
 # Arrêté n° 2015-050/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel 2015 de l’hôpital Dar-El-Hanan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-050-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2015-de-lhopital-dar-el-hanan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-050-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2015-de-lhopital-dar-el-hanan/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

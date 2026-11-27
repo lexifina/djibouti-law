@@ -1,8 +1,8 @@
 # Ordonnance n° 78-085/PR/J portant réorganisation temporaire de la magistrature du siège.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-085-pr-j-portant-reorganisation-temporaire-de-la-magistrature-du-siege/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-085-pr-j-portant-reorganisation-temporaire-de-la-magistrature-du-siege/>
 
-En vigueur : 1978-11-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1978-11-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

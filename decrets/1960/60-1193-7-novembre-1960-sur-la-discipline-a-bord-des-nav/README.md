@@ -1,6 +1,6 @@
 # Décret n° 60-1193 du 7 novembre 1960 sur la discipline à bord des navires de la marine marchande.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1193-du-7-novembre-1960-sur-la-discipline-a-bord-des-navires-de-la-marine-marchande/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1193-du-7-novembre-1960-sur-la-discipline-a-bord-des-navires-de-la-marine-marchande/>
 
 En vigueur : 1960-12-31 (date du Journal officiel qui le publie).
 

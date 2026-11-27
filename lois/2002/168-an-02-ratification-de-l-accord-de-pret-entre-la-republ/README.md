@@ -1,6 +1,6 @@
 # Loi n° 168/AN/02/4ème L portant ratification de l’Accord de Prêt entre la République de Djibouti et l’Association Internationale pour le Développement (IDA) relatif au Crédit à la Consolidation des Finances Publiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-02-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-developpement-ida-relatif-au-credit-a-la/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-02-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-developpement-ida-relatif-au-credit-a-la/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

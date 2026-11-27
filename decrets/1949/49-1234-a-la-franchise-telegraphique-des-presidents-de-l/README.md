@@ -1,6 +1,6 @@
 # Décret n° 49-1234 relatif à la franchise télégraphique des présidents de l’Assemblée nationale du Conseil de la République et de l’Union française.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1234-relatif-a-la-franchise-telegraphique-des-presidents-de-lassemblee-nationale-du-conseil-de-la-republique-et-de-lunion-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1234-relatif-a-la-franchise-telegraphique-des-presidents-de-lassemblee-nationale-du-conseil-de-la-republique-et-de-lunion-francaise/>
 
 En vigueur : 1949-10-31 (date du Journal officiel qui le publie).
 

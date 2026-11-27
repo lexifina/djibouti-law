@@ -1,6 +1,6 @@
 # Décret n° 47-18 portant modification aux tarif n °20 et 21 annexés au décret du 29 décembre 1903. portant règlement sur la solde et le accessoires de solde des troupes coloniales et métropolitaines à la charge du Départe ment des colonies, en ce qui concerne les retenues journalières d’hôpital.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-18-portant-modification-aux-tarif-n-20-et-21-annexes-au-decret-du-29-decembre-1903-portant-reglement-sur-la-solde-et-le-accessoires-de-solde-des-troupes-coloniales-et-metropo/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-18-portant-modification-aux-tarif-n-20-et-21-annexes-au-decret-du-29-decembre-1903-portant-reglement-sur-la-solde-et-le-accessoires-de-solde-des-troupes-coloniales-et-metropo/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 57/AN/89/2ème L portant approbation des comptes définitifs du Port Autonome International de Djibouti pour l’exercice 1987
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-89-2eme-l-portant-approbation-des-comptes-definitifs-du-port-autonome-international-de-djibouti-pour-lexercice-1987/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-89-2eme-l-portant-approbation-des-comptes-definitifs-du-port-autonome-international-de-djibouti-pour-lexercice-1987/>
 
 En vigueur : 1989-02-15 (date du Journal officiel qui le publie).
 

@@ -1,1 +1,0 @@
-Par décret n°2023-164/PRE, du Président de la République, chef du Gouvernement, en date du 21 juin 2023, pendant la durée de l’absence de S.E.M KASSIM HAROUN ALI, l’intérim des fonctions du Ministre Délégué chargé de la Décentralisation, sera assuré par S.E.M. SAID NOUH HASSAN, Ministre de l’Intérieur, cumulativement avec ses fonctions.

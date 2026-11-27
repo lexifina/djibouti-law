@@ -1,6 +1,6 @@
 # Loi n° 203/AN/92/2e L Fixant la date d’ouverture et la durée de la tre session ordinaire de 1992:
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-92-2e-l-fixant-la-date-douverture-et-la-duree-de-la-tre-session-ordinaire-de-1992/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-92-2e-l-fixant-la-date-douverture-et-la-duree-de-la-tre-session-ordinaire-de-1992/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 

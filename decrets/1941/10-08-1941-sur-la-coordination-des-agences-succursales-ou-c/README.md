@@ -1,6 +1,6 @@
 # Décret n° 10/08/1941 sur la coordination des agences, succursales ou comptoirs, situés en territoires ralliés, d’une même société, ayant son siège social en territoire soumis à l’emprise de l’ennemi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-08-1941-sur-la-coordination-des-agences-succursales-ou-comptoirs-situes-en-territoires-rallies-dune-meme-societe-ayant-son-siege-social-en-territoire-soumis-a-l/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-08-1941-sur-la-coordination-des-agences-succursales-ou-comptoirs-situes-en-territoires-rallies-dune-meme-societe-ayant-son-siege-social-en-territoire-soumis-a-l/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

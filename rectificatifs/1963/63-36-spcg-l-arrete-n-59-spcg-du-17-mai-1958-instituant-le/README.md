@@ -1,6 +1,6 @@
 # Rectificatif n° 63/36/SPCG modifiant l’arrêté n° 59/SPCG du 17 mai 1958 instituant le congé annuel pour les membres du Corps Enseignant.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1963 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-63-36-spcg-modifiant-larrete-n-59-spcg-du-17-mai-1958-instituant-le-conge-annuel-pour-les-membres-du-corps-enseignant/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 5 du 31/05/1963 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-63-36-spcg-modifiant-larrete-n-59-spcg-du-17-mai-1958-instituant-le-conge-annuel-pour-les-membres-du-corps-enseignant/>
 
 En vigueur : 1963-05-31 (date du Journal officiel qui le publie).
 

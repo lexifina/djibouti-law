@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 DECRETE
 SECTION I :
 STATUT ET MISSIONS

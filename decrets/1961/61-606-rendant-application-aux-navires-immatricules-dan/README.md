@@ -1,6 +1,6 @@
 # Décret n° 61-606 rendant application aux navires immatriculés dans les territoires d’’outre-mer de la République certains décrets sur la sauvegarde de la vie humaine en mer et l’habitabilité à bord des navires de commerce, de pêche et de plaisance d’une jauge brute égale ou supé rieure à 500 tonneaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-606-rendant-application-aux-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique-certains-decrets-sur-la-sauvegarde-de-la-vie-humaine-en-mer-et-l/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-606-rendant-application-aux-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique-certains-decrets-sur-la-sauvegarde-de-la-vie-humaine-en-mer-et-l/>
 
 En vigueur : 1961-06-30 (date du Journal officiel qui le publie).
 

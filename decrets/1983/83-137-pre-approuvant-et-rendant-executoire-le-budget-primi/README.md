@@ -1,6 +1,6 @@
 # Décret n° 83-137/PRE approuvant et rendant exécutoire le budget primitif 1984 de l’Office de Développement du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-137-pre-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-loffice-de-developpement-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-137-pre-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ HASSAN GOULED APTIDON
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

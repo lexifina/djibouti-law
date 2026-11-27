@@ -1,6 +1,6 @@
 # Décret n° 08-455-1934 Application aux colonies du décret du 24 octobre 1935 relatif à l’arrondissement des dépenses publiques au franc inférieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 455 du 31/10/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-455-1934-application-aux-colonies-du-decret-du-24-octobre-1935-relatif-a-larrondissement-des-depenses-publiques-au-franc-inferieur/>
+Décret · Journal officiel de la République de Djibouti, n° 455 du 31/10/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-455-1934-application-aux-colonies-du-decret-du-24-octobre-1935-relatif-a-larrondissement-des-depenses-publiques-au-franc-inferieur/>
 
 En vigueur : 1934-10-31 (date du Journal officiel qui le publie).
 
@@ -28,5 +28,5 @@ GERMAIN-MARTIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

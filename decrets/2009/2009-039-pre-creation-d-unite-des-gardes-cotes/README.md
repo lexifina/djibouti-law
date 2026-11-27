@@ -1,6 +1,6 @@
 # Décret n° 2009-039/PRE portant création d’unité des Gardes-côtes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-039-pre-portant-creation-dunite-des-gardes-cotes/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-039-pre-portant-creation-dunite-des-gardes-cotes/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 

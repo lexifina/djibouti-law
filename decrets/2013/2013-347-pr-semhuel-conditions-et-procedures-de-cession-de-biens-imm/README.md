@@ -1,6 +1,6 @@
 # Décret n° 2013-347/PR/SEMHUEL portant conditions et procédures de cession de biens immobiliers produits par les promoteurs agréés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-347-pr-semhuel-portant-conditions-et-procedures-de-cession-de-biens-immobiliers-produits-par-les-promoteurs-agrees/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-347-pr-semhuel-portant-conditions-et-procedures-de-cession-de-biens-immobiliers-produits-par-les-promoteurs-agrees/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

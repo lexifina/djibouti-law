@@ -1,6 +1,6 @@
 # Loi n° 51/AN/19/8ème L portant modification partielle de l’article 113 de la loi n° 133/AN/05/5ème du 28 janvier 2006 portant Code du travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-19-8eme-l-portant-modification-partielle-de-larticle-113-de-la-loi-n133-an-05-5eme-du-28-janvier-2006-portant-code-du-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-19-8eme-l-portant-modification-partielle-de-larticle-113-de-la-loi-n133-an-05-5eme-du-28-janvier-2006-portant-code-du-travail/>
 
 En vigueur : 2019-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

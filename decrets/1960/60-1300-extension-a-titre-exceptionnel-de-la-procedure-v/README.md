@@ -1,6 +1,6 @@
 # Décret n° 60-1300 portant extension, à titre exceptionnel, de la procédure visée par les articles 34 à 39 du code électoral aux catégories d’électeurs prévues par les articles 12, 13 et 14 dudit code.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1300-portant-extension-a-titre-exceptionnel-de-la-procedure-visee-par-les-articles-34-a-39-du-code-electoral-aux-categories-delecteurs-prevues-par-les-articles-12-13-et/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1300-portant-extension-a-titre-exceptionnel-de-la-procedure-visee-par-les-articles-34-a-39-du-code-electoral-aux-categories-delecteurs-prevues-par-les-articles-12-13-et/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 

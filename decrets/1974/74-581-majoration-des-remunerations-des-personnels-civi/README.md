@@ -1,6 +1,6 @@
 # Décret n° 74-581 portant majoration des rémunérations des personnels civils et militaires de l’Etat au 1° juin 1974
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-581-portant-majoration-des-remunerations-des-personnels-civils-et-militaires-de-letat-au-1-juin-1974/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-581-portant-majoration-des-remunerations-des-personnels-civils-et-militaires-de-letat-au-1-juin-1974/>
 
 En vigueur : 1974-06-25 (date du Journal officiel qui le publie).
 

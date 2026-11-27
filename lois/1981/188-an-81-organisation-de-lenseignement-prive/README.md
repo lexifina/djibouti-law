@@ -1,6 +1,6 @@
 # Loi n° 188/AN/81 portant organisation de l’enseignement privé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-81-portant-organisation-de-lenseignement-prive/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-81-portant-organisation-de-lenseignement-prive/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 

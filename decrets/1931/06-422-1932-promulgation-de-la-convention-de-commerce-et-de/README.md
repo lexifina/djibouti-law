@@ -1,6 +1,6 @@
 # Décret n° 06-422-1932 promulgation de la convention de commerce et de navigation signée à Paris, le 30 janvier 1929, entre la France et le, royaume des Serbes-Croates-Slovènes et du protocole de signature portant la même date.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 422 du 31/01/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-422-1932-promulgation-de-la-convention-de-commerce-et-de-navigation-signee-a-paris-le-30-janvier-1929-entre-la-france-et-le-royaume-des-serbes-croates-slovenes-et-du-protocole-de/>
+Décret · Journal officiel de la République de Djibouti, n° 422 du 31/01/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-422-1932-promulgation-de-la-convention-de-commerce-et-de-navigation-signee-a-paris-le-30-janvier-1929-entre-la-france-et-le-royaume-des-serbes-croates-slovenes-et-du-protocole-de/>
 
 En vigueur : 1932-01-31 (date du Journal officiel qui le publie).
 

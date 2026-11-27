@@ -1,6 +1,6 @@
 # Décret n° 2015-345/PR/MI portant modification du premier article du Décret n° 2013-356/PR/MI du 29 décembre 2013 relatif au changement de la Carte Nationale d’Identité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-345-pr-mi-portant-modification-du-premier-article-du-decret-n2013-356-pr-mi-du-29-decembre-2013-relatif-au-changement-de-la-carte-nationale-didentite/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-345-pr-mi-portant-modification-du-premier-article-du-decret-n2013-356-pr-mi-du-29-decembre-2013-relatif-au-changement-de-la-carte-nationale-didentite/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

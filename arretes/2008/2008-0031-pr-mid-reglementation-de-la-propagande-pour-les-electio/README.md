@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0031/PR/MID portant réglementation de la propagande pour les élections législatives du 08 Février 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0031-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-legislatives-du-08-fevrier-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0031-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-legislatives-du-08-fevrier-2008/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 

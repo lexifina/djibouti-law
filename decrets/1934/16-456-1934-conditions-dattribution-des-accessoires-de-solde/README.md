@@ -1,6 +1,6 @@
 # Décret n° 16-456-1934 Conditions d’attribution des accessoires de solde au personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 456 du 30/11/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-456-1934-conditions-dattribution-des-accessoires-de-solde-au-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 456 du 30/11/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-456-1934-conditions-dattribution-des-accessoires-de-solde-au-personnel-colonial/>
 
 En vigueur : 1934-11-30 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ Pierre LAVAL.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

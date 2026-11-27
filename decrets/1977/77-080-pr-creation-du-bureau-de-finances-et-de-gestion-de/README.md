@@ -1,6 +1,6 @@
 # Décret n° 77-080/PR Portant création du bureau de Finances et de gestion de la présidence de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-080-pr-portant-creation-du-bureau-de-finances-et-de-gestion-de-la-presidence-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-080-pr-portant-creation-du-bureau-de-finances-et-de-gestion-de-la-presidence-de-la-republique/>
 
 En vigueur : 1978-01-09 (date du Journal officiel qui le publie).
 

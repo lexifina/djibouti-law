@@ -1,8 +1,8 @@
 # Décret n° 2009-0205/PR/MEFPCP autorisant la cession d’un immeuble.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0205-pr-mefpcp-autorisant-la-cession-dun-immeuble/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0205-pr-mefpcp-autorisant-la-cession-dun-immeuble/>
 
-En vigueur : 2009-09-06 (date fixÃ©e par le texte).
+En vigueur : 2009-09-06 (date fixée par le texte).
 
 ## Visas
 
@@ -19,4 +19,4 @@ SUR Proposition du Ministre de l’Economie, des Finances et de la Planification
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

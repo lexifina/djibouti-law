@@ -1,6 +1,6 @@
 # Décret n° 80 – 143 /PR/ MI complétant le Code de la Route et relatif au Stationnement des véhicules de transport en Commun.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-143-pr-mi-completant-le-code-de-la-route-et-relatif-au-stationnement-des-vehicules-de-transport-en-commun-2/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-143-pr-mi-completant-le-code-de-la-route-et-relatif-au-stationnement-des-vehicules-de-transport-en-commun-2/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 

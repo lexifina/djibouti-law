@@ -1,8 +1,8 @@
 # Décret n° 2003-0094/PRE portant création et définition de la fonction «Gestionnaire des Ressources Humaines» dans les structures relevant de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0094-pre-portant-creation-et-definition-de-la-fonction-gestionnaire-des-ressources-humaines-dans-les-structures-relevant-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0094-pre-portant-creation-et-definition-de-la-fonction-gestionnaire-des-ressources-humaines-dans-les-structures-relevant-de-letat/>
 
-En vigueur : 2003-05-29 (date fixÃ©e par le texte).
+En vigueur : 2003-05-29 (date fixée par le texte).
 
 ## Visas
 

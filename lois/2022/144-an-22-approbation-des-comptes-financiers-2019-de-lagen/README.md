@@ -1,6 +1,6 @@
 # Loi n° 144/AN/22/8ème L portant approbation des comptes financiers 2019 de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-22-8eme-l-portant-approbation-des-comptes-financiers-2019-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-22-8eme-l-portant-approbation-des-comptes-financiers-2019-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2022-04-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

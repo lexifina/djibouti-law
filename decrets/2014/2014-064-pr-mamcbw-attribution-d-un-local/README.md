@@ -1,8 +1,8 @@
 # Décret n° 2014-064/PR/MAMCBW portant attribution d’un local.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-064-pr-mamcbw-portant-attribution-dun-local/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-064-pr-mamcbw-portant-attribution-dun-local/>
 
-En vigueur : 2014-03-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-03-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

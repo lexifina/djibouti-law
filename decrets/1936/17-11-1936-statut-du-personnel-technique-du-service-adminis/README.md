@@ -1,6 +1,6 @@
 # Décret n° 17/11/1936 Statut du personnel technique du service administratif colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-11-1936-statut-du-personnel-technique-du-service-administratif-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-11-1936-statut-du-personnel-technique-du-service-administratif-colonial/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 
@@ -27,7 +27,7 @@ Vincent AURIOL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -41,4 +41,4 @@ Vincent AURIOL.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

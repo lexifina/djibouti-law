@@ -1,6 +1,6 @@
 # Décret n° 2016-199/PR/MAMCBW portant mise en place du Bureau des Affaires des Pèlerins de Djibouti du Hajj 2016.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-199-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2016/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-199-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2016/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

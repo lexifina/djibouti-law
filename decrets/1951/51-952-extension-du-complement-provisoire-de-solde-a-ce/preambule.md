@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — À compter du 1° mars ‘1951 les personnels civils appartenant aux cadres énumérés dans’les tableaux I et II annexés au décret n° 51-510 du 5 mai 1951, ainsi que les magsistrats, qui sont en service dans les territoires relevant de l’autorité du Ministre de la France d’Outre-Mer, énumérés ci-après : Afrique Occidentaie Française, Togo, Cameroun, Afrique Equatoriale Française, Madagascar et dépendances, territoire des Comores, Côte Française des Somalis, Saint-Pierre et Miquelon, reçoivent application du complément provisoire de solde institué par l’article à du décret n° 51-617 du 24 mai 1951.
 Les taux annuels du complément provisoire de solde sont fixés, en francs métropolitains, conformément au tableau annexé au présent décret. :

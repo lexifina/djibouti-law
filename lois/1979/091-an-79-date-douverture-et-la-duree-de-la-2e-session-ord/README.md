@@ -1,6 +1,6 @@
 # Loi n° 91/AN/79 fixant la date d’ouverture et la durée de la 2e session ordinaire dite session budgétaire de 1979 de l’Assemblée nationale L’Assemblée nationale a adopté ;
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-79-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-dite-session-budgetaire-de-1979-de-lassemblee-nationale-lassemblee-nationale-a-adopte/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-79-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-dite-session-budgetaire-de-1979-de-lassemblee-nationale-lassemblee-nationale-a-adopte/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

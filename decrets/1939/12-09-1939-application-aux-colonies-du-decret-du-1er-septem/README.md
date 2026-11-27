@@ -1,6 +1,6 @@
 # Décret n° 12/09/1939 portant application aux colonies du décret du 1er septembre 1939 relatif à la situation des personnels des administrations, services et établissements publics dans le cas de mobilisation générale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1939-portant-application-aux-colonies-du-decret-du-1er-septembre-1939-relatif-a-la-situation-des-personnels-des-administrations-services-et-etablissements-publics-dans-le-cas-de/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1939-portant-application-aux-colonies-du-decret-du-1er-septembre-1939-relatif-a-la-situation-des-personnels-des-administrations-services-et-etablissements-publics-dans-le-cas-de/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

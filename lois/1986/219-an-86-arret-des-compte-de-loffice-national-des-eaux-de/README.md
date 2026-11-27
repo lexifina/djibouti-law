@@ -1,6 +1,6 @@
 # Loi n° 219/AN/86/1re L portant arrêt des compte de l’office national des Eaux de Djibouti pour l’exercice 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-86-1re-l-portant-arret-des-compte-de-loffice-national-des-eaux-de-djibouti-pour-lexercice-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-86-1re-l-portant-arret-des-compte-de-loffice-national-des-eaux-de-djibouti-pour-lexercice-1985/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

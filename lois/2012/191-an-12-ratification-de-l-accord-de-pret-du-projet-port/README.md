@@ -1,6 +1,6 @@
 # Loi n° 191/AN/12/6ème L portant ratification de l’Accord de Prêt du projet Port de Tadjourah conclu avec le FADES.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-12-6eme-l-portant-ratification-de-laccord-de-pret-du-projet-port-de-tadjourah-conclu-avec-le-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-12-6eme-l-portant-ratification-de-laccord-de-pret-du-projet-port-de-tadjourah-conclu-avec-le-fades/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

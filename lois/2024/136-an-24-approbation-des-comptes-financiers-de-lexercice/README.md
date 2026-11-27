@@ -1,6 +1,6 @@
 # Loi n° 136/AN/24/9ème L Portant approbation des comptes financiers de l’exercice 2023 du Diwan des Biens Waqfs
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2023-du-diwan-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 30/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2023-du-diwan-des-biens-waqfs/>
 
 En vigueur : 2025-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

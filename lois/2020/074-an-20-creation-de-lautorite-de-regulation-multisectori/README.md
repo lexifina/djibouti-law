@@ -1,8 +1,8 @@
 # Loi n° 74/AN/20/8ème L portant création de l’autorité de régulation multisectorielle de Djibouti (ARMD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-20-8eme-l-portant-creation-de-lautorite-de-regulation-multisectorielle-de-djibouti-armd/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-20-8eme-l-portant-creation-de-lautorite-de-regulation-multisectorielle-de-djibouti-armd/>
 
-En vigueur : 2020-02-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-02-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -84,4 +84,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

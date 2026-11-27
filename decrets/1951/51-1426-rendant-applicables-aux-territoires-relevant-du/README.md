@@ -1,6 +1,6 @@
 # Décret n° 51-1426 rendant applicables aux territoires relevant du ministère de la France d’outremer la loi n° 49-1093 du 2 août 1949 et le décret n° 50-737 du 24 juin 1950 portant règlement d’administration publique, relatifs à la publicité des protêts.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1426-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutremer-la-loi-n-49-1093-du-2-aout-1949-et-le-decret-n-50-737-du-24-juin-1950-port/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1426-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutremer-la-loi-n-49-1093-du-2-aout-1949-et-le-decret-n-50-737-du-24-juin-1950-port/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

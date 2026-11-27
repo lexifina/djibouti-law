@@ -1,6 +1,6 @@
 # Décret n° du 10 septembre 1941. rendant applicable aux territoires relevant du Secrétariat d’Etat aux colonies la loi du 4 mai 1941 complétant l’article 2 du décret du 1er septembre 1939 relatif aux actions en justice et prescriptions et délais de procédure intéressant les mobilisés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 538 du 30/09/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-10-septembre-1941-rendant-applicable-aux-territoires-relevant-du-secretariat-detat-aux-colonies-la-loi-du-4-mai-1941-completant-larticle-2-du-decret-du-1er-septem/>
+Décret · Journal officiel de la République de Djibouti, n° 538 du 30/09/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-10-septembre-1941-rendant-applicable-aux-territoires-relevant-du-secretariat-detat-aux-colonies-la-loi-du-4-mai-1941-completant-larticle-2-du-decret-du-1er-septem/>
 
 En vigueur : 1941-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2-290-1920 le 31 décembre1920
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 290 du 31/12/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-290-1920-le-31-decembre1920/>
+Décret · Journal officiel de la République de Djibouti, n° 290 du 31/12/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-290-1920-le-31-decembre1920/>
 
 En vigueur : 1920-12-31 (date du Journal officiel qui le publie).
 

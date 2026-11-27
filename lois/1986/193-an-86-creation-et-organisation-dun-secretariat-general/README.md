@@ -1,6 +1,6 @@
 # Loi n° 193/AN/86/1ère L portant création et organisation d’un Secrétariat Général à l’Information
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/02/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-86-1ere-l-portant-creation-et-organisation-dun-secretariat-general-a-linformation/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/02/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-86-1ere-l-portant-creation-et-organisation-dun-secretariat-general-a-linformation/>
 
 En vigueur : 1986-02-16 (date du Journal officiel qui le publie).
 

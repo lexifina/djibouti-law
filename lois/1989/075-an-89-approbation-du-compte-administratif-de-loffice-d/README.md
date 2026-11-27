@@ -1,6 +1,6 @@
 # Loi n° 75/AN/89/2ème L portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1988.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-89-2eme-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1988/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-89-2eme-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1988/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

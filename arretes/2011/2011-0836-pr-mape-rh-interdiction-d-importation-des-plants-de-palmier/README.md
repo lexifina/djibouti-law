@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0836/PR/MAPE-RH portant interdiction d’importation des plants de palmiers dattiers en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0836-pr-mape-rh-portant-interdiction-dimportation-des-plants-de-palmiers-dattiers-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0836-pr-mape-rh-portant-interdiction-dimportation-des-plants-de-palmiers-dattiers-en-republique-de-djibouti/>
 
 En vigueur : 2011-11-30 (date du Journal officiel qui le publie).
 

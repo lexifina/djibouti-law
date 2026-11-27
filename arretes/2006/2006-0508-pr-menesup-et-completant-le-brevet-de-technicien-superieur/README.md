@@ -1,8 +1,8 @@
 # Arrêté n° 2006-0508/PR/MENESUP modifiant et complétant le Brevet de Technicien Supérieur “Gestion Administrative en Arabe”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0508-pr-menesup-modifiant-et-completant-le-brevet-de-technicien-superieur-gestion-administrative-en-arabe/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0508-pr-menesup-modifiant-et-completant-le-brevet-de-technicien-superieur-gestion-administrative-en-arabe/>
 
-En vigueur : 2006-07-20 (date fixÃ©e par le texte).
+En vigueur : 2006-07-20 (date fixée par le texte).
 
 ## Visas
 

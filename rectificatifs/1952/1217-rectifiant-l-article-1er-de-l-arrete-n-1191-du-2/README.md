@@ -1,6 +1,6 @@
 # Rectificatif n° 1217 rectifiant l’article 1er de l’arrêté n° 1191 du 28 novembre 1952.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1953 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1217-rectifiant-larticle-1er-de-larrete-n-1191-du-28-novembre-1952/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 1 du 01/01/1953 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1217-rectifiant-larticle-1er-de-larrete-n-1191-du-28-novembre-1952/>
 
 En vigueur : 1953-01-01 (date du Journal officiel qui le publie).
 

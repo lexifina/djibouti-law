@@ -1,6 +1,6 @@
 # Arrêté n° 98-0356/PR/MTFP portant modification de l’article 19 alinéa D de l’arrêté n° 93-O743/PR/MT du 19 juillet 1993 concernant la réglementation des conditions générales d’emploi des travailleurs civils des forces armées étrangères stationnées à Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1998 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0356-pr-mtfp-portant-modification-de-larticle-19-alinea-d-de-larrete-n93-o743-pr-mt-du-19-juillet-1993-concernant-la-reglementation-des-conditions-generales-demploi-des-t/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/1998 · <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0356-pr-mtfp-portant-modification-de-larticle-19-alinea-d-de-larrete-n93-o743-pr-mt-du-19-juillet-1993-concernant-la-reglementation-des-conditions-generales-demploi-des-t/>
 
 En vigueur : 1998-06-30 (date du Journal officiel qui le publie).
 

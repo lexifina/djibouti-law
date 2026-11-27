@@ -1,6 +1,6 @@
 # Décret n° 1321 portant modification au décret n° 49-1364 du 2 août 1949 fixant le statut particulier des auxiliaires de gendarmerie des territoires relevant du Ministère de la France d’Outre-Mer autres que l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1321-portant-modification-au-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxiliaires-de-gendarmerie-des-territoires-relevant-du-ministere-de-la-france-dout/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1321-portant-modification-au-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxiliaires-de-gendarmerie-des-territoires-relevant-du-ministere-de-la-france-dout/>
 
 En vigueur : 1953-02-01 (date du Journal officiel qui le publie).
 

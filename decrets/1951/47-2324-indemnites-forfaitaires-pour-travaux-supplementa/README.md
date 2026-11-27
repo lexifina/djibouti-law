@@ -1,8 +1,8 @@
 # Décret n° 47-2324 relatif aux indemnités forfaitaires pour travaux supplémentaires pouvant être attribuées au personnel du cadre coloniale des Travaux météorologiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2324-relatif-aux-indemnites-forfaitaires-pour-travaux-supplementaires-pouvant-etre-attribuees-au-personnel-du-cadre-coloniale-des-travaux-meteorologiques/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2324-relatif-aux-indemnites-forfaitaires-pour-travaux-supplementaires-pouvant-etre-attribuees-au-personnel-du-cadre-coloniale-des-travaux-meteorologiques/>
 
-En vigueur : 1947-01-01 (date fixÃ©e par le texte).
+En vigueur : 1947-01-01 (date fixée par le texte).
 
 ## Visas
 

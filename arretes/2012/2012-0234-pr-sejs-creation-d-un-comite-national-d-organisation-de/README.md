@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0234/PR/SEJS portant création d’un comité National d’organisation de l’IHF Challenge Trophee féminin et masculin de handball de la zone 5A.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0234-pr-sejs-portant-creation-dun-comite-national-dorganisation-de-lihf-challenge-trophee-feminin-et-masculin-de-handball-de-la-zone-5a/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0234-pr-sejs-portant-creation-dun-comite-national-dorganisation-de-lihf-challenge-trophee-feminin-et-masculin-de-handball-de-la-zone-5a/>
 
 En vigueur : 2012-04-15 (date du Journal officiel qui le publie).
 

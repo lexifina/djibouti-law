@@ -1,6 +1,6 @@
 # Décret n° 2014-295/PR/MERN portant création du comité de pilotage des projets Poly-GCL du pipeline gazier entre la République de Djibouti et la République Fédérale d’Ethiopie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-295-pr-mern-portant-creation-du-comite-de-pilotage-des-projets-poly-gcl-du-pipeline-gazier-entre-la-republique-de-djibouti-et-la-republique-federale-dethiopie/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-295-pr-mern-portant-creation-du-comite-de-pilotage-des-projets-poly-gcl-du-pipeline-gazier-entre-la-republique-de-djibouti-et-la-republique-federale-dethiopie/>
 
 En vigueur : 2014-10-15 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

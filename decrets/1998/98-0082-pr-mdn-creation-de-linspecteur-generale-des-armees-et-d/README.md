@@ -1,6 +1,6 @@
 # Décret n° 98-0082/PR/MDN portant création de l’Inspecteur Générale des Armées et de la Gendarmerie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0082-pr-mdn-portant-creation-de-linspecteur-generale-des-armees-et-de-la-gendarmerie/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0082-pr-mdn-portant-creation-de-linspecteur-generale-des-armees-et-de-la-gendarmerie/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 

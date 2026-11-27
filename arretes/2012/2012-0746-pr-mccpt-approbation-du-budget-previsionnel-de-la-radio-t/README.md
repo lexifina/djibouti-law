@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0746/PR/MCCPT portant approbation du Budget prévisionnel de la Radio-Télévision de Djibouti pour l’exercice 2013.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0746-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2013/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0746-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2013/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

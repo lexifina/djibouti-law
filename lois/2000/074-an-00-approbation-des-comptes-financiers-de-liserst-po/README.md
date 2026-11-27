@@ -1,6 +1,6 @@
 # Loi n° 74/AN/00/4ème L portant approbation des comptes financiers de l’ISERST pour l’exercice 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-liserst-pour-lexercice-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-liserst-pour-lexercice-1997/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

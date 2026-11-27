@@ -1,6 +1,6 @@
 # Loi n° 184/AN/81 portant approbation du plan de Lotissement de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-81-portant-approbation-du-plan-de-lotissement-de-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/05/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-81-portant-approbation-du-plan-de-lotissement-de-tadjourah/>
 
 En vigueur : 1981-05-01 (date du Journal officiel qui le publie).
 

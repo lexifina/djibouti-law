@@ -1,8 +1,8 @@
 # Décret n° 2026-043/PRE portant renouvellement des membres de la Commission Nationale de la Communication (CNC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 15/03/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-043-pre-portant-renouvellement-des-membres-de-la-commission-nationale-de-la-communication-cnc/>
+Décret · Journal officiel de la République de Djibouti, n° 05 du 15/03/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-043-pre-portant-renouvellement-des-membres-de-la-commission-nationale-de-la-communication-cnc/>
 
-En vigueur : 2026-03-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-03-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

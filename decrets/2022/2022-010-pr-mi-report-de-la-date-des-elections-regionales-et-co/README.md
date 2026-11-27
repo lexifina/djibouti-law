@@ -1,6 +1,6 @@
 # Décret n° 2022-010/PR/MI portant report de la date des Elections Régionales et Communales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 07/02/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-010-pr-mi-portant-report-de-la-date-des-elections-regionales-et-communales/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 07/02/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-010-pr-mi-portant-report-de-la-date-des-elections-regionales-et-communales/>
 
 En vigueur : 2022-02-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

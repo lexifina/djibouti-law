@@ -1,6 +1,6 @@
 # Décret n° 46-790 étendant aux Territoires français d’Outre-Mer les dispositions du décret n° 46-335 du 25 février 1946 relatif à la franchise militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-790-etendant-aux-territoires-francais-doutre-mer-les-dispositions-du-decret-n-46-335-du-25-fevrier-1946-relatif-a-la-franchise-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-790-etendant-aux-territoires-francais-doutre-mer-les-dispositions-du-decret-n-46-335-du-25-fevrier-1946-relatif-a-la-franchise-militaire/>
 
 En vigueur : 1952-08-01 (date du Journal officiel qui le publie).
 
@@ -42,5 +42,5 @@ M. MouTET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

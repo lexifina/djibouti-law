@@ -1,6 +1,6 @@
 # Décret n° 2010-0105/PR/MDN fixant les indemnités et les avantages en nature accordés au Directeur du Service National Adapté.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0105-pr-mdn-fixant-les-indemnites-et-les-avantages-en-nature-accordes-au-directeur-du-service-national-adapte/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0105-pr-mdn-fixant-les-indemnites-et-les-avantages-en-nature-accordes-au-directeur-du-service-national-adapte/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 

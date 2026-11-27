@@ -1,6 +1,6 @@
 # Loi n° 186/AN/02/4ème L portant ratification de la Convention sur les Zones Humides/Convention de Ramsar.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-02-4eme-l-portant-ratification-de-la-convention-sur-les-zones-humides-convention-de-ramsar/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-02-4eme-l-portant-ratification-de-la-convention-sur-les-zones-humides-convention-de-ramsar/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

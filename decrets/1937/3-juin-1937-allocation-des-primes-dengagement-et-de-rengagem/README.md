@@ -1,6 +1,6 @@
 # Décret n° 3 juin 1937. Allocation des primes d’engagement et de rengagement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-juin-1937-allocation-des-primes-dengagement-et-de-rengagement/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-juin-1937-allocation-des-primes-dengagement-et-de-rengagement/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

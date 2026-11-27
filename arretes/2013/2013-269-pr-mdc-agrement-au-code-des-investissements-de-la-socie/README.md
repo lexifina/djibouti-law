@@ -1,6 +1,6 @@
 # Arrêté n° 2013-269/PR/MDC portant Agrément au Code des Investissements de la société “Djibouti Petroleum” pour un projet de stockage et distribution des carburants.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-269-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-petroleum-pour-un-projet-de-stockage-et-distribution-des-carburants/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-269-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-petroleum-pour-un-projet-de-stockage-et-distribution-des-carburants/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

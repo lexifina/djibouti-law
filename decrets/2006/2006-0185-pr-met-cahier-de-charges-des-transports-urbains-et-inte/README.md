@@ -1,6 +1,6 @@
 # Décret n° 2006-0185/PR/MET fixant le Cahier de Charges des Transports Urbains et Interurbains des Personnes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0185-pr-met-fixant-le-cahier-de-charges-des-transports-urbains-et-interurbains-des-personnes/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0185-pr-met-fixant-le-cahier-de-charges-des-transports-urbains-et-interurbains-des-personnes/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

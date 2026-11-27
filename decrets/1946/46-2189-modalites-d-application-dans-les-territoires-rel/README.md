@@ -1,6 +1,6 @@
 # Décret n° 46-2189 fixant les modalités d’application dans les territoires relevant du ministère de la France d‘outre-mer du titre VI de la loi du 5 octobre 1946 relative à l’élection des membres de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2189-fixant-les-modalites-dapplication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-titre-vi-de-la-loi-du-5-octobre-1946-relative-a-l-2/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2189-fixant-les-modalites-dapplication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-titre-vi-de-la-loi-du-5-octobre-1946-relative-a-l-2/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ Marins MOUTET.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

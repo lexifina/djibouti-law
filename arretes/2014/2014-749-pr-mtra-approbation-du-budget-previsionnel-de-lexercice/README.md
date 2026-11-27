@@ -1,6 +1,6 @@
 # Arrêté n° 2014-749/PR/MTRA portant approbation du budget prévisionnel de l’exercice 2015 de la Caisse Nationale de Sécurité Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-749-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2015-de-la-caisse-nationale-de-securite-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-749-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2015-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2014-12-15 (date du Journal officiel qui le publie).
 

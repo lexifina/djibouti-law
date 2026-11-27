@@ -1,8 +1,8 @@
 # Décret n° 2017-419/PR/MERN fixant les conditions et modalités de réexportation des produits pétroliers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-419-pr-mern-fixant-les-conditions-et-modalites-de-reexportation-des-produits-petroliers/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-419-pr-mern-fixant-les-conditions-et-modalites-de-reexportation-des-produits-petroliers/>
 
-En vigueur : 2017-12-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-12-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

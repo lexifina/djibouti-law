@@ -1,6 +1,6 @@
 # Loi n° 89/AN/05/5ème L portant ratification d’une Convention entre le Gouvernement de la République de Djibouti et le Gouvernement de la République Française relative à la situation financière et fiscale des Forces Françaises Stationn&e
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-05-5eme-l-portant-ratification-dune-convention-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-francaise-relative-a-la-situation-financ/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-05-5eme-l-portant-ratification-dune-convention-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-francaise-relative-a-la-situation-financ/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

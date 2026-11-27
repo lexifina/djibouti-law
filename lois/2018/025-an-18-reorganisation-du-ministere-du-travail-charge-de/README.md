@@ -1,8 +1,8 @@
 # Loi n° 25/AN/18/8ème L portant réorganisation du Ministère du Travail, chargé de la Réforme de l’Administration.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-18-8eme-l-portant-reorganisation-du-ministere-du-travail-charge-de-la-reforme-de-ladministration/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-18-8eme-l-portant-reorganisation-du-ministere-du-travail-charge-de-la-reforme-de-ladministration/>
 
-En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -105,4 +105,4 @@ ISMAÏL OMAR GUELLEH
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-061/PR/MERN portant exonération du Projet “d’Exploration Géothermique au Lac Assal”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 29/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-061-pr-mern-portant-exoneration-du-projet-dexploration-geothermique-au-lac-assal/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 29/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-061-pr-mern-portant-exoneration-du-projet-dexploration-geothermique-au-lac-assal/>
 
 En vigueur : 2018-03-29 (date du Journal officiel qui le publie).
 

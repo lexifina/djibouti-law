@@ -1,6 +1,6 @@
 # Arrêté n° 2018-190/PR/MB portant attribution d’une parcelle de terrain au profit de la Société Palmeraie Développement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-190-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-palmeraie-developpement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-190-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-palmeraie-developpement/>
 
 En vigueur : 2019-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

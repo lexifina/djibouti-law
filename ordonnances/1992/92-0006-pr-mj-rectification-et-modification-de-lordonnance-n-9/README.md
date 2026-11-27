@@ -1,6 +1,6 @@
 # Ordonnance n° 92‑0006/PR/MJ portant rectification et modification de l’ordonnance n° 91.173/PR/J du 3.12.91
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92%e2%80%910006-pr-mj-portant-rectification-et-modification-de-lordonnance-n91-173-pr-j-du-3-12-91/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 15/01/1992 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92%e2%80%910006-pr-mj-portant-rectification-et-modification-de-lordonnance-n91-173-pr-j-du-3-12-91/>
 
 En vigueur : 1992-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2009-055/PRE portant approbation du Contrat de Construction des Logements Sociaux au PK 12.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-055-pre-portant-approbation-du-contrat-de-construction-des-logements-sociaux-au-pk-12/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-055-pre-portant-approbation-du-contrat-de-construction-des-logements-sociaux-au-pk-12/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

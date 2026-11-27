@@ -1,6 +1,6 @@
 # Décret n° n° 1200 Le décret relatif à la protection contre les tentatives d’espionnage économique,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1200-le-decret-relatif-a-la-protection-contre-les-tentatives-despionnage-economique/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1200-le-decret-relatif-a-la-protection-contre-les-tentatives-despionnage-economique/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 

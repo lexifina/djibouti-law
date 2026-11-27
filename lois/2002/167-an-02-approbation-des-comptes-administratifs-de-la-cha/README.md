@@ -1,6 +1,6 @@
 # Loi n° 167/AN/02/4ème L portant approbation des comptes administratifs de la Chambre Internationale de Commerce et d’Industrie de Djibouti et des Magasins Généraux pour l’Exercice 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-02-4eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-02-4eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-2000/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

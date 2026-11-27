@@ -1,6 +1,6 @@
 # Loi n° 26/AN/88/2e L portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente jusqu’à l’ouverture de la 1ére session ordinaire de 1988.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-88-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1988/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-88-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-1988/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

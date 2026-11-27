@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0001/PR/MERN portant approbation du budget d’Électricité de Djibouti (E.D.D) pour l’exercice 2000.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0001-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-e-d-d-pour-lexercice-2000/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0001-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-e-d-d-pour-lexercice-2000/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 04/12/1944 réprimant la destruction de certains documents.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-04-12-1944-reprimant-la-destruction-de-certains-documents/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 01/04/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-04-12-1944-reprimant-la-destruction-de-certains-documents/>
 
 En vigueur : 1945-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-0108/PR/MD portant création du Groupement de la Gendarmerie Mobile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0108-pr-md-portant-creation-du-groupement-de-la-gendarmerie-mobile/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0108-pr-md-portant-creation-du-groupement-de-la-gendarmerie-mobile/>
 
 En vigueur : 2012-05-15 (date du Journal officiel qui le publie).
 

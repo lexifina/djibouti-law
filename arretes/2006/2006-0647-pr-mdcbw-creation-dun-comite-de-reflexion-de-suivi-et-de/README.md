@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0647/PR/MDCBW portant création d’un comité de réflexion de suivi et de gestion du projet d’aménagement du cimetière de PK12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0647-pr-mdcbw-portant-creation-dun-comite-de-reflexion-de-suivi-et-de-gestion-du-projet-damenagement-du-cimetiere-de-pk12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 14/09/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0647-pr-mdcbw-portant-creation-dun-comite-de-reflexion-de-suivi-et-de-gestion-du-projet-damenagement-du-cimetiere-de-pk12/>
 
 En vigueur : 2006-09-14 (date du Journal officiel qui le publie).
 

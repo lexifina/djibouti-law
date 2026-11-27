@@ -1,6 +1,6 @@
 # Décret n° 99-0037/PR/MID portant création des commissions de supervision pour les élections présidentielles du 09 avril 1999.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 16/03/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0037-pr-mid-portant-creation-des-commissions-de-supervision-pour-les-elections-presidentielles-du-09-avril-1999/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 16/03/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0037-pr-mid-portant-creation-des-commissions-de-supervision-pour-les-elections-presidentielles-du-09-avril-1999/>
 
 En vigueur : 1999-03-16 (date du Journal officiel qui le publie).
 

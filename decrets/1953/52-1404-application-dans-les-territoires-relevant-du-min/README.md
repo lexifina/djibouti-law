@@ -1,6 +1,6 @@
 # Décret n° 52-1404 Application dans les territoires relevant du ministre de la France d’outre-mer des dispositions du décret n° 52-1404 du 29 décembre 1952 relatif au fonctionnement des radiocommunications à la mobilisation et dans les cas prévus à l’article 1er de la loi du 11 juillet 1933.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1404-application-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer-des-dispositions-du-decret-n-52-1404-du-29-decembre-1952-relatif-au-fonctionnement/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1404-application-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer-des-dispositions-du-decret-n-52-1404-du-29-decembre-1952-relatif-au-fonctionnement/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 

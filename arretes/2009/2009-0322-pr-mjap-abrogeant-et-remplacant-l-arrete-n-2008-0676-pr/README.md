@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0322/PR/MJAP abrogeant et remplaçant l’arrêté n° 2008-0676/PR/MJAP relatif au Comité interministériel de coordination du processus de rédaction et de soumission des rapports périodiques.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0322-pr-mjap-abrogeant-et-remplacant-larrete-n2008-0676-pr-mjap-relatif-au-comite-interministeriel-de-coordination-du-processus-de-redaction-et-de-soumission-des-rapp/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0322-pr-mjap-abrogeant-et-remplacant-larrete-n2008-0676-pr-mjap-relatif-au-comite-interministeriel-de-coordination-du-processus-de-redaction-et-de-soumission-des-rapp/>
 
-En vigueur : 2009-04-20 (date fixÃ©e par le texte).
+En vigueur : 2009-04-20 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 81-125/PR Instituant une carte nationale d’identité
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-125-pr-instituant-une-carte-nationale-didentite/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-125-pr-instituant-une-carte-nationale-didentite/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 
@@ -14,4 +14,4 @@ Le Consell des Ministres entendu sn sa -séance du 19 décembre 1981.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

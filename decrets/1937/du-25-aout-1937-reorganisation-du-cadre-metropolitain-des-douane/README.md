@@ -1,6 +1,6 @@
 # Décret n° du 25 août 1937. portant réorganisation du cadre métropolitain des douanes de la Côte française des So malis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 490 du 30/09/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-25-aout-1937-portant-reorganisation-du-cadre-metropolitain-des-douanes-de-la-cote-francaise-des-so-malis/>
+Décret · Journal officiel de la République de Djibouti, n° 490 du 30/09/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-25-aout-1937-portant-reorganisation-du-cadre-metropolitain-des-douanes-de-la-cote-francaise-des-so-malis/>
 
 En vigueur : 1937-09-30 (date du Journal officiel qui le publie).
 

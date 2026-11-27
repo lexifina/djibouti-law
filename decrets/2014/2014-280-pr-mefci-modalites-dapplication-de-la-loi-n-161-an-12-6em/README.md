@@ -1,8 +1,8 @@
 # Décret n° 2014-280/PR/MEFCI fixant les modalités d’application de la loi n° 161/AN/12/6ème L du 09 juin 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-280-pr-mefci-fixant-les-modalites-dapplication-de-la-loi-n161-an-12-6eme-l-du-09-juin-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-280-pr-mefci-fixant-les-modalites-dapplication-de-la-loi-n161-an-12-6eme-l-du-09-juin-2012/>
 
-En vigueur : 2014-10-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-10-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

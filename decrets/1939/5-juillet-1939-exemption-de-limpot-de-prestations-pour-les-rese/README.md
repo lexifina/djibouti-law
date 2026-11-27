@@ -1,6 +1,6 @@
 # Décret n° 5 juillet 1939 portant exemption de l’impôt de prestations pour les réservistes rappelés pour l’accomplissement d’ une période militaire en Afrique-Occidentale française, en Afrique-Équatoriale française, à Madagascar et dépendances et à la Cote française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-juillet-1939-portant-exemption-de-limpot-de-prestations-pour-les-reservistes-rappeles-pour-laccomplissement-d-une-periode-militaire-en-afrique-occidentale-francaise-en-afriq/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-juillet-1939-portant-exemption-de-limpot-de-prestations-pour-les-reservistes-rappeles-pour-laccomplissement-d-une-periode-militaire-en-afrique-occidentale-francaise-en-afriq/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

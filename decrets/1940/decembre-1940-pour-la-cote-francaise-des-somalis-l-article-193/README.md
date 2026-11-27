@@ -1,6 +1,6 @@
 # Décret n° décembre 1940. modifiant pour la Côte française des Somalis l’article 193 du Code d’instruction criminelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 530 du 31/01/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-decembre-1940-modifiant-pour-la-cote-francaise-des-somalis-larticle-193-du-code-dinstruction-criminelle/>
+Décret · Journal officiel de la République de Djibouti, n° 530 du 31/01/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-decembre-1940-modifiant-pour-la-cote-francaise-des-somalis-larticle-193-du-code-dinstruction-criminelle/>
 
 En vigueur : 1941-01-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ e Secrétaire d'Etat aux colonies, Platon.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Décret n° 09/08/1941 portant modification des articles 2 et 5 du décret du 20 mai 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-08-1941-portant-modification-des-articles-2-et-5-du-decret-du-20-mai-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-08-1941-portant-modification-des-articles-2-et-5-du-decret-du-20-mai-1940/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

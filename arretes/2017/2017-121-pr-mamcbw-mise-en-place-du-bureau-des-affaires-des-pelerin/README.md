@@ -1,6 +1,6 @@
 # Arrêté n° 2017-121/PR/MAMCBW portant mise en place du Bureau des Affaires des Pèlerins (saison 2017).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-121-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-saison-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-121-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-saison-2017/>
 
 En vigueur : 2017-07-31 (date du Journal officiel qui le publie).
 

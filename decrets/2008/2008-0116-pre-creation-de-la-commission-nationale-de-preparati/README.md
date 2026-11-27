@@ -1,6 +1,6 @@
 # Décret n° 2008-0116/PRE portant création de la Commission Nationale de préparation et d’appui aux discussions politiques inter-somaliennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0116-pre-portant-creation-de-la-commission-nationale-de-preparation-et-dappui-aux-discussions-politiques-inter-somaliennes/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0116-pre-portant-creation-de-la-commission-nationale-de-preparation-et-dappui-aux-discussions-politiques-inter-somaliennes/>
 
 En vigueur : 2008-05-15 (date du Journal officiel qui le publie).
 

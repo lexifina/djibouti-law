@@ -1,6 +1,6 @@
 # Décret n° 2002-0236/PR/MID Modifiant certains articles du décret n° 2002-0198/PR/MID du 30 septembre 2002 relatif à la CENI.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0236-pr-mid-modifiant-certains-articles-du-decret-n2002-0198-pr-mid-du-30-septembre-2002-relatif-a-la-ceni/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0236-pr-mid-modifiant-certains-articles-du-decret-n2002-0198-pr-mid-du-30-septembre-2002-relatif-a-la-ceni/>
 
 En vigueur : 2002-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 93-0305/PR/MCTT rendant exécutoire la résolution n° 1/92 du 28 décembre 1992 du conseil d’administration de l’Aéroport de Djibouti et portant approbation du budget prévisionnel de l’exercice 1993 d’aéroport de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0305-pr-mctt-rendant-executoire-la-resolution-n1-92-du-28-decembre-1992-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-pr/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0305-pr-mctt-rendant-executoire-la-resolution-n1-92-du-28-decembre-1992-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-pr/>
 
 En vigueur : 1993-03-31 (date du Journal officiel qui le publie).
 

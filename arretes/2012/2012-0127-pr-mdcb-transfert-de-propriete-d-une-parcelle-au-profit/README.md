@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0127/PR/MDCB portant transfert de propriété d’une parcelle au profit du Ministère Délégué chargé du Commerce.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0127-pr-mdcb-portant-transfert-de-propriete-dune-parcelle-au-profit-du-ministere-delegue-charge-du-commerce/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0127-pr-mdcb-portant-transfert-de-propriete-dune-parcelle-au-profit-du-ministere-delegue-charge-du-commerce/>
 
 En vigueur : 2012-02-29 (date du Journal officiel qui le publie).
 

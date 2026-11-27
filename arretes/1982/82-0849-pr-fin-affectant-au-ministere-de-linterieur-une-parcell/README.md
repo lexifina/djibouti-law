@@ -1,6 +1,6 @@
 # Arrêté n° 82-0849/PR/FIN affectant au Ministère de l’Intérieur une parcelle de terrain sise à Bal-Bala.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0849-pr-fin-affectant-au-ministere-de-linterieur-une-parcelle-de-terrain-sise-a-bal-bala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0849-pr-fin-affectant-au-ministere-de-linterieur-une-parcelle-de-terrain-sise-a-bal-bala/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

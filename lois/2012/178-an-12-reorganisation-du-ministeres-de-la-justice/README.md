@@ -1,6 +1,6 @@
 # Loi n° 178/AN/12/6ème L portant réorganisation du Ministères de la Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-12-6eme-l-portant-reorganisation-du-ministeres-de-la-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-12-6eme-l-portant-reorganisation-du-ministeres-de-la-justice/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

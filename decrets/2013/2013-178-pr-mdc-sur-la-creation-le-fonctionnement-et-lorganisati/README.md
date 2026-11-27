@@ -3,7 +3,7 @@ le fonctionnement et l’organisation du centre
 d’accompagnement des très petites entreprises
 Nationales (CATPEN).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-178-pr-mdc-portant-sur-la-creation-le-fonctionnement-et-lorganisation-du-centre-daccompagnement-des-tres-petites-entreprises-nationales-catpen/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-178-pr-mdc-portant-sur-la-creation-le-fonctionnement-et-lorganisation-du-centre-daccompagnement-des-tres-petites-entreprises-nationales-catpen/>
 
 En vigueur : 2013-07-31 (date du Journal officiel qui le publie).
 
@@ -54,4 +54,4 @@ ISMAIL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

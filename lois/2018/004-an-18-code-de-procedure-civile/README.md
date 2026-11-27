@@ -1,8 +1,8 @@
 # Loi n° 004/AN/18/8ème L portant Code de Procédure Civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n004-an-18-8eme-l-portant-code-de-procedure-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n004-an-18-8eme-l-portant-code-de-procedure-civile/>
 
-En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

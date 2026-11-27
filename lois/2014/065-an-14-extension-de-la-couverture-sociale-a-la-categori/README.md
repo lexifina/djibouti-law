@@ -1,6 +1,6 @@
 # Loi n° 65/AN/14/7ème L portant extension de la couverture sociale à la catégorie professionnelle des dockers.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-14-7eme-l-portant-extension-de-la-couverture-sociale-a-la-categorie-professionnelle-des-dockers/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-14-7eme-l-portant-extension-de-la-couverture-sociale-a-la-categorie-professionnelle-des-dockers/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 
@@ -93,4 +93,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

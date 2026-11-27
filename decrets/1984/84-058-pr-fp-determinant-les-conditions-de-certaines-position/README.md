@@ -1,6 +1,6 @@
 # Décret n° 84-058/PR/FP déterminant les conditions de certaines positions des fonctionnaires et de certaines modalités de cessation définitive de fonctions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-058-pr-fp-determinant-les-conditions-de-certaines-positions-des-fonctionnaires-et-de-certaines-modalites-de-cessation-definitive-de-fonctions/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-058-pr-fp-determinant-les-conditions-de-certaines-positions-des-fonctionnaires-et-de-certaines-modalites-de-cessation-definitive-de-fonctions/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ Le Conseil des Ministres entendu en sa séance du 12 juin 1984.
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

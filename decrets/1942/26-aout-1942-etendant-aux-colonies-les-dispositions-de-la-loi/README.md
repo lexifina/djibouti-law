@@ -1,6 +1,6 @@
 # Décret n° 26 août 1942 étendant aux colonies les dispositions de la loi du 31 mars 1942
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 550 du 30/09/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-aout-1942-etendant-aux-colonies-les-dispositions-de-la-loi-du-31-mars-1942/>
+Décret · Journal officiel de la République de Djibouti, n° 550 du 30/09/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-aout-1942-etendant-aux-colonies-les-dispositions-de-la-loi-du-31-mars-1942/>
 
 En vigueur : 1942-09-30 (date du Journal officiel qui le publie).
 

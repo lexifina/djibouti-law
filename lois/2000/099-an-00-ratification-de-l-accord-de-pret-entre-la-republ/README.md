@@ -1,6 +1,6 @@
 # Loi n° 99/AN/00/4ème L portant ratification de l’Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement pour le projet de Réhabilitation de la Centrale Electrique de Boulaos 1 (Phase 1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-00-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-pour-le-projet-de-rehabilitation-de-la-centrale-elec/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-00-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-pour-le-projet-de-rehabilitation-de-la-centrale-elec/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

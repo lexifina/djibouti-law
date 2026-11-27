@@ -1,6 +1,6 @@
 # Décret n° 10-303-1922 27/12/1921
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 303 du 28/02/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-303-1922-27-12-1921/>
+Décret · Journal officiel de la République de Djibouti, n° 303 du 28/02/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-303-1922-27-12-1921/>
 
 En vigueur : 1922-02-28 (date du Journal officiel qui le publie).
 

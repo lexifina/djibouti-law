@@ -1,6 +1,6 @@
 # Décret n° 2007-0100/PR/MID relatif aux Pouvoirs des Prefets.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0100-pr-mid-relatif-aux-pouvoirs-des-prefets/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0100-pr-mid-relatif-aux-pouvoirs-des-prefets/>
 
 En vigueur : 2007-05-15 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

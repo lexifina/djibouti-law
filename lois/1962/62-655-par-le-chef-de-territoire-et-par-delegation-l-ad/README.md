@@ -1,6 +1,6 @@
 # Loi n° 62-655 Par le Chef de Territoire et par délégation : L’Administrateur en Chef, charaé de l’expédition des affaires courantes, du Secrétariat Général, Pierre GABIRAULT.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1962 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-62-655-par-le-chef-de-territoire-et-par-delegation-ladministrateur-en-chef-charae-de-lexpedition-des-affaires-courantes-du-secretariat-general-pierre-gabirault/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1962 · <https://www.journalofficiel.dj/texte-juridique/loi-n-62-655-par-le-chef-de-territoire-et-par-delegation-ladministrateur-en-chef-charae-de-lexpedition-des-affaires-courantes-du-secretariat-general-pierre-gabirault/>
 
 En vigueur : 1962-06-30 (date du Journal officiel qui le publie).
 

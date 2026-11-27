@@ -1,6 +1,6 @@
 # Décret n° 22/01/1936 relatif à la défense des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-01-1936-relatif-a-la-defense-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-01-1936-relatif-a-la-defense-des-colonies/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

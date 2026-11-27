@@ -1,6 +1,6 @@
 # Décret n° 323 Le décret relatif à l’application du décret du 31 décembre 1935 portant règlement d’administration publique et afférent au délaissement forfaitaire des marins blessés ou malades.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-323-le-decret-relatif-a-lapplication-du-decret-du-31-decembre-1935-portant-reglement-dadministration-publique-et-afferent-au-delaissement-forfaitaire-des-marins-blesses-ou-malades/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-323-le-decret-relatif-a-lapplication-du-decret-du-31-decembre-1935-portant-reglement-dadministration-publique-et-afferent-au-delaissement-forfaitaire-des-marins-blesses-ou-malades/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ le ministre de la marine marchandise.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

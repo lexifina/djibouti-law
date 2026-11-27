@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0317/PR/MCI portant approbation du Budget 2009 de la SIEMAS.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0317-pr-mci-portant-approbation-du-budget-2009-de-la-siemas/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0317-pr-mci-portant-approbation-du-budget-2009-de-la-siemas/>
 
 En vigueur : 2009-04-30 (date du Journal officiel qui le publie).
 

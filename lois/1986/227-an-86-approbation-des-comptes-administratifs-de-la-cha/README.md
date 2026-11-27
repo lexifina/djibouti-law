@@ -1,6 +1,6 @@
 # Loi n° 227/AN/86/1re L portant approbation des comptes administratifs de la Chambre internationale de Commerce et d’industrie & des Magasins généraux pour l’exercice 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-86-1re-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-des-magasins-generaux-pour-lexercice-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n227-an-86-1re-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-des-magasins-generaux-pour-lexercice-1985/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ HASSAN GOULED APTIDON
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

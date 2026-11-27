@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0908/PR/MJSLT portant création d’un Comité National d’Organisation du Huitième Semi-Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0908-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-huitieme-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0908-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-huitieme-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 

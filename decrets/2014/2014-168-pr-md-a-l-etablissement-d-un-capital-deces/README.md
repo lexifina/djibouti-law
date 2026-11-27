@@ -1,8 +1,8 @@
 # Décret n° 2014-168/PR/MD relatif à l’Etablissement d’un capital décès.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-168-pr-md-relatif-a-letablissement-dun-capital-deces/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-168-pr-md-relatif-a-letablissement-dun-capital-deces/>
 
-En vigueur : 2014-07-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-07-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

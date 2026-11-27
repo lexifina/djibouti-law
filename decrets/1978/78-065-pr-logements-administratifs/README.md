@@ -1,8 +1,8 @@
 # Décret n° 78-065/PR Relatif aux logements administratifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-065-pr-relatif-aux-logements-administratifs/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-065-pr-relatif-aux-logements-administratifs/>
 
-En vigueur : 1978-10-01 (date fixÃ©e par le texte).
+En vigueur : 1978-10-01 (date fixée par le texte).
 
 ## Visas
 

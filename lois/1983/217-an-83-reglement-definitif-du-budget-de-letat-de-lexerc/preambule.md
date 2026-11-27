@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art: 1er. — Les recettes réalisées et les dépenses ordonnancées au titre du budget de l’Etat de l’exercice 1981 sont arrêtées définitivement comme suit:
 BUDGET DE FONCTIONNEMENT
 — Prévisions de recettes et de dépenses………………………..: 717 203 855 000

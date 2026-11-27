@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Chapitre 1 : DE LA CREATION DU COMITE
 DE PILOTAGE

@@ -1,6 +1,6 @@
 # Ordonnance n° 78-081/PR portant additif à l’article 9 du Code d’Instruction criminelle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-081-pr-portant-additif-a-larticle-9-du-code-dinstruction-criminelle/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-081-pr-portant-additif-a-larticle-9-du-code-dinstruction-criminelle/>
 
 En vigueur : 1979-04-24 (date du Journal officiel qui le publie).
 

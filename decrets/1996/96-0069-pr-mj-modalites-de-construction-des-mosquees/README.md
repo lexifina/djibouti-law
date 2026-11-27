@@ -1,6 +1,6 @@
 # Décret n° 96-0069/PR/MJ relatif aux modalités de construction des mosquées .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0069-pr-mj-relatif-aux-modalites-de-construction-des-mosquees/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0069-pr-mj-relatif-aux-modalites-de-construction-des-mosquees/>
 
 En vigueur : 1996-07-15 (date du Journal officiel qui le publie).
 

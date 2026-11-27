@@ -1,6 +1,6 @@
 # Décret n° 06-339-1925 10 janvier 1925
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 339 du 01/02/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-339-1925-10-janvier-1925/>
+Décret · Journal officiel de la République de Djibouti, n° 339 du 01/02/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-339-1925-10-janvier-1925/>
 
 En vigueur : 1925-02-01 (date du Journal officiel qui le publie).
 
@@ -32,6 +32,6 @@ Raynanmy.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

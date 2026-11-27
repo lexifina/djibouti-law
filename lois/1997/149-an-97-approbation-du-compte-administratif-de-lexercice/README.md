@@ -1,6 +1,6 @@
 # Loi n° 149/AN/97/3ème L portant approbation du Compte Administratif de l’Exercice 1995 de l’Office Nationale du Tourisme et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-97-3eme-l-portant-approbation-du-compte-administratif-de-lexercice-1995-de-loffice-nationale-du-tourisme-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-97-3eme-l-portant-approbation-du-compte-administratif-de-lexercice-1995-de-loffice-nationale-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

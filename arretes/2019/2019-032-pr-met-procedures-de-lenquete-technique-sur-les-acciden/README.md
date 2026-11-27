@@ -1,8 +1,8 @@
 # Arrêté n° 2019-032/PR/MET Fixant les procédures de l’enquête technique sur les accidents et les incidents d’aéronefs.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-032-pr-met-fixant-les-procedures-de-lenquete-technique-sur-les-accidents-et-les-incidents-daeronefs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-032-pr-met-fixant-les-procedures-de-lenquete-technique-sur-les-accidents-et-les-incidents-daeronefs/>
 
-En vigueur : 2019-01-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-01-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
 | [art-045.md](art-045.md) | Article 45 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

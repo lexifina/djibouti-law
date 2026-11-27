@@ -1,6 +1,6 @@
 # Loi de finances n° 19/AN/93/3è L portant sur le budget de l’état exercice 1993.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n19-an-93-3e-l-portant-sur-le-budget-de-letat-exercice-1993/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 4 du 28/02/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n19-an-93-3e-l-portant-sur-le-budget-de-letat-exercice-1993/>
 
 En vigueur : 1993-02-28 (date du Journal officiel qui le publie).
 

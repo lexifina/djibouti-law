@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0071/PRE portant création et composition du Comité National des festivités du 25ème Anniversaire de l’Indépendance de la République de Djibouti (Comité du Jubilé de l’Indépendance).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0071-pre-portant-creation-et-composition-du-comite-national-des-festivites-du-25eme-anniversaire-de-lindependance-de-la-republique-de-djibouti-comite-du-jubile-de-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0071-pre-portant-creation-et-composition-du-comite-national-des-festivites-du-25eme-anniversaire-de-lindependance-de-la-republique-de-djibouti-comite-du-jubile-de-l/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

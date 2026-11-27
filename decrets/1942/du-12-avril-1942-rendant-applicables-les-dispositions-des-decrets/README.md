@@ -1,6 +1,6 @@
 # Décret n° du 12 avril 1942 rendant applicables les dispositions des décrets du 16 juillet 1941 aux territoires relevant du Secrétariat d’État aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-12-avril-1942-rendant-applicables-les-dispositions-des-decrets-du-16-juillet-1941-aux-territoires-relevant-du-secretariat-detat-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-12-avril-1942-rendant-applicables-les-dispositions-des-decrets-du-16-juillet-1941-aux-territoires-relevant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1942-04-30 (date du Journal officiel qui le publie).
 

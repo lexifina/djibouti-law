@@ -1,6 +1,6 @@
 # Loi n° 145/AN/11/6ème L portant ratification du Protocole à la Convention de l’OUA sur la prévention et la lutte contre le terrorisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-11-6eme-l-portant-ratification-du-protocole-a-la-convention-de-loua-sur-la-prevention-et-la-lutte-contre-le-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-11-6eme-l-portant-ratification-du-protocole-a-la-convention-de-loua-sur-la-prevention-et-la-lutte-contre-le-terrorisme/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

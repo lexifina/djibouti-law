@@ -1,6 +1,6 @@
 # Loi n° 52/AN/19/8ème L portant ratification de l’Accord Intergouvememental du projet de pipeline de gaz naturel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-19-8eme-l-portant-ratification-de-laccord-intergouvememental-du-projet-de-pipeline-de-gaz-naturel/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-19-8eme-l-portant-ratification-de-laccord-intergouvememental-du-projet-de-pipeline-de-gaz-naturel/>
 
 En vigueur : 2019-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

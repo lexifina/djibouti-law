@@ -1,6 +1,6 @@
 # Décret n° 27 octobre 1940 La loi instituant la carte d’identité de Français
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-octobre-1940-la-loi-instituant-la-carte-didentite-de-francais/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-octobre-1940-la-loi-instituant-la-carte-didentite-de-francais/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

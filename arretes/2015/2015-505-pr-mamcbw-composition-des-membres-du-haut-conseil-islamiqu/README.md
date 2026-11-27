@@ -1,6 +1,6 @@
 # Arrêté n° 2015-505/PR/MAMCBW portant composition des membres du Haut Conseil Islamique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-505-pr-mamcbw-portant-composition-des-membres-du-haut-conseil-islamique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-505-pr-mamcbw-portant-composition-des-membres-du-haut-conseil-islamique/>
 
 En vigueur : 2015-08-15 (date du Journal officiel qui le publie).
 

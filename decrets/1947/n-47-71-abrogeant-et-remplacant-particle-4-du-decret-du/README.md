@@ -1,6 +1,6 @@
 # Décret n° n° 47-71 abrogeant et remplacant Particle 4 du décret du 10 avril 1945 tendant à réprimer dans les territoires d’outre-mer relevant du ministère des colonies à lexceplion de la Martinique, de la Guadeloupe et de la Réunion, les provocalions à résister à l’application des lois, décrets, règlements ou ordres de lautorité publique ainsi que les atteintes au respect dû à l’autorité française dans la métropole et les colonies ou territoires sous mandat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-71-abrogeant-et-remplacant-particle-4-du-decret-du-10-avril-1945-tendant-a-reprimer-dans-les-territoires-doutre-mer-relevant-du-ministere-des-colonies-a-lexceplion-de-la/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-71-abrogeant-et-remplacant-particle-4-du-decret-du-10-avril-1945-tendant-a-reprimer-dans-les-territoires-doutre-mer-relevant-du-ministere-des-colonies-a-lexceplion-de-la/>
 
 En vigueur : 1947-04-30 (date du Journal officiel qui le publie).
 

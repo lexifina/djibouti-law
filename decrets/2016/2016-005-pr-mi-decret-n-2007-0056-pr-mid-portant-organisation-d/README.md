@@ -1,8 +1,8 @@
 # Décret n° 2016-005/PR/MI modifiant le Décret n° 2007 0056/PR/MID portant organisation de la Direction des Mines et de la Sécurité Routière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-005-pr-mi-modifiant-le-decret-n2007-0056-pr-mid-portant-organisation-de-la-direction-des-mines-et-de-la-securite-routiere/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-005-pr-mi-modifiant-le-decret-n2007-0056-pr-mid-portant-organisation-de-la-direction-des-mines-et-de-la-securite-routiere/>
 
-En vigueur : 2016-01-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-01-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

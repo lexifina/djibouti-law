@@ -1,8 +1,8 @@
 # Décret n° 2016-177/PR/MENFOP portant création d’une prime de rendement pour les gestionnaires de l’Education Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-177-pr-menfop-portant-creation-dune-prime-de-rendement-pour-les-gestionnaires-de-leducation-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-177-pr-menfop-portant-creation-dune-prime-de-rendement-pour-les-gestionnaires-de-leducation-nationale/>
 
-En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

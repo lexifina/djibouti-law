@@ -1,6 +1,6 @@
 # Arrêté n° 2011-047/PR/SECSN portant approbation et rendant exécutoire le Budget prévisionnel de l’exercice 2011 de l’Agence Djiboutienne de Développement Social (ADDS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-047-pr-secsn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2011-de-lagence-djiboutienne-de-developpement-social-adds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-047-pr-secsn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2011-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

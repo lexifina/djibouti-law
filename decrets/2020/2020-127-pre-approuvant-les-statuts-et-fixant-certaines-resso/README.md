@@ -1,6 +1,6 @@
 # Décret n° 2020-127/PRE approuvant les statuts et fixant certaines ressources initiales du Fonds Souverain de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-127-pre-approuvant-les-statuts-et-fixant-certaines-ressources-initiales-du-fonds-souverain-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-127-pre-approuvant-les-statuts-et-fixant-certaines-ressources-initiales-du-fonds-souverain-de-djibouti/>
 
 En vigueur : 2020-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

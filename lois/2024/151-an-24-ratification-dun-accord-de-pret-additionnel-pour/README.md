@@ -1,6 +1,6 @@
 # Loi n° 151/AN/24/9ème L portant ratification d’un Accord de prêt additionnel pour le projet d’amélioration des bidonvilles et de développement urbain intégré à Boulaos.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 15/01/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-24-9eme-l-portant-ratification-dun-accord-de-pret-additionnel-pour-le-projet-damelioration-des-bidonvilles-et-de-developpement-urbain-integre-a-boulaos/>
+Loi · Journal officiel de la République de Djibouti, n° 01 du 15/01/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-24-9eme-l-portant-ratification-dun-accord-de-pret-additionnel-pour-le-projet-damelioration-des-bidonvilles-et-de-developpement-urbain-integre-a-boulaos/>
 
 En vigueur : 2025-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 13/AN/08/6ème L portant adoption des comptes financiers de l’Organisme de Protection Sociale pour l’Exercice 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-08-6eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-08-6eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2006/>
 
 En vigueur : 2008-06-15 (date du Journal officiel qui le publie).
 

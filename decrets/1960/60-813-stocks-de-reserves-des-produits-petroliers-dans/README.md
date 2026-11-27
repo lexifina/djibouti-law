@@ -1,6 +1,6 @@
 # Décret n° 60-813 relatif aux stocks de réserves des produits pétroliers dans les Territoires d’Outre-Mer de la République (J.O.R.F. du 7 août 1960, pp. 7367 et 7368). Arrêté de promulgation n° 921 du 18 août 1960.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-813-relatif-aux-stocks-de-reserves-des-produits-petroliers-dans-les-territoires-doutre-mer-de-la-republique-j-o-r-f-du-7-aout-1960-pp-7367-et-7368-arrete-de-promulgation-n/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-813-relatif-aux-stocks-de-reserves-des-produits-petroliers-dans-les-territoires-doutre-mer-de-la-republique-j-o-r-f-du-7-aout-1960-pp-7367-et-7368-arrete-de-promulgation-n/>
 
 En vigueur : 1960-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2008-0179/PRE modifiant l’organisation interne de la Présidence de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0179-pre-modifiant-lorganisation-interne-de-la-presidence-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0179-pre-modifiant-lorganisation-interne-de-la-presidence-de-la-republique/>
 
 En vigueur : 2008-07-31 (date du Journal officiel qui le publie).
 

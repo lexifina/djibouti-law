@@ -1,6 +1,6 @@
 # Loi n° 53-1090 interdisant les procédés de vente dits «à la boule de neige »
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-1090-interdisant-les-procedes-de-vente-dits-a-la-boule-de-neige/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-1090-interdisant-les-procedes-de-vente-dits-a-la-boule-de-neige/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 
@@ -22,6 +22,6 @@ Louis Jacquinot.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

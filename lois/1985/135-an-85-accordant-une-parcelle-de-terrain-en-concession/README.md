@@ -1,6 +1,6 @@
 # Loi n° 135/AN/85/1ère L Accordant une parcelle de terrain en concession provisoire
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-85-1ere-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-85-1ere-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

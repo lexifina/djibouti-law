@@ -1,6 +1,6 @@
 # Décret n° 2001-0063/PRE portant création du Comité d’Organisation de la Conférence constitutive de l’Union des Parlements des pays membres de l’IGAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0063-pre-portant-creation-du-comite-dorganisation-de-la-conference-constitutive-de-lunion-des-parlements-des-pays-membres-de-ligad/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0063-pre-portant-creation-du-comite-dorganisation-de-la-conference-constitutive-de-lunion-des-parlements-des-pays-membres-de-ligad/>
 
 En vigueur : 2001-04-15 (date du Journal officiel qui le publie).
 

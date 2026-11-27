@@ -1,6 +1,6 @@
 # Décret n° 2006-0178/PR/MENESUP portant création de diplômes nationaux menant au grade de Licence et au titre de Diplôme d’Études Universitaires Générales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0178-pr-menesup-portant-creation-de-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0178-pr-menesup-portant-creation-de-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-170/PR/SECL pérennisant les tarifs de la cession amiable dans les Quartiers de Djibouti-ville et de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-170-pr-secl-perennisant-les-tarifs-de-la-cession-amiable-dans-les-quartiers-de-djibouti-ville-et-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-170-pr-secl-perennisant-les-tarifs-de-la-cession-amiable-dans-les-quartiers-de-djibouti-ville-et-de-balbala/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

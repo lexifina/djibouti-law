@@ -1,6 +1,6 @@
 # Décret n° 47-1899 portant fixation du maximum du montant des mandats d’articles d’argent échangés dans les relations entre la France et l’Algérie, d’une part, les départements et territoires français d’outre-mer, à l’exception de la Tunisie, d’autre part.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1899-portant-fixation-du-maximum-du-montant-des-mandats-darticles-dargent-echanges-dans-les-relations-entre-la-france-et-lalgerie-dune-part-les/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1899-portant-fixation-du-maximum-du-montant-des-mandats-darticles-dargent-echanges-dans-les-relations-entre-la-france-et-lalgerie-dune-part-les/>
 
 En vigueur : 1948-01-31 (date du Journal officiel qui le publie).
 

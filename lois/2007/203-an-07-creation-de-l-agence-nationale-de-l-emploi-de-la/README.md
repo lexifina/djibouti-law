@@ -1,6 +1,6 @@
 # Loi n° 203/AN/07/5ème L portant création de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-07-5eme-l-portant-creation-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-07-5eme-l-portant-creation-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

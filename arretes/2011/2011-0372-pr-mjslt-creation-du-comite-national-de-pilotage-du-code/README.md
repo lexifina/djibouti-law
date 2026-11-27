@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0372/PR/MJSLT portant création du Comité National de Pilotage du Code de Sport à Djibouti et de son Comité Technique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0372-pr-mjslt-portant-creation-du-comite-national-de-pilotage-du-code-de-sport-a-djibouti-et-de-son-comite-technique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0372-pr-mjslt-portant-creation-du-comite-national-de-pilotage-du-code-de-sport-a-djibouti-et-de-son-comite-technique/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

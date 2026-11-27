@@ -1,2 +1,0 @@
-Par décret n°2024-060/PRE, du Président de la République, chef du Gouvernement, en date du 13 mars 2024, pendant la durée de l’absence de S.E.M. ISMAN IBRAHIM ROBLEH, l’intérim des fonctions du Ministre du Budget sera assuré par S.E.M. OMAR ABDI SAID, Ministre du Travail chargé de la Formalisation et de la Protection Sociale cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

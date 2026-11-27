@@ -1,6 +1,6 @@
 # Décret n° 86-033/PR/MCTT approuvant et rendant exécutoire le budget primitif 1986 de l’Etablissement public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-033-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/05/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-033-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1986-05-15 (date du Journal officiel qui le publie).
 

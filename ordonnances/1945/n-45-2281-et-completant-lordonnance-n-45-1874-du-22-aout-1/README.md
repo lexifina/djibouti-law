@@ -1,6 +1,6 @@
 # Ordonnance n° n° 45-2281 modifiant et complétant l’ordonnance n° 45-1874 du 22 août 1945 fixant le mode de représentation à l’Assemblée Nationale Constituante des territoires d’outre-mer relevant du Ministre des Colonies.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2281-modifiant-et-completant-lordonnance-n-45-1874-du-22-aout-1945-fixant-le-mode-de-representation-a-lassemblee-nationale-constituante-des-territoire/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2281-modifiant-et-completant-lordonnance-n-45-1874-du-22-aout-1945-fixant-le-mode-de-representation-a-lassemblee-nationale-constituante-des-territoire/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 51/AN/23/9ème L portant adoption des Comptes Financiers 2022 de l’Imprimerie Nationale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 15/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-23-9eme-l-portant-adoption-des-comptes-financiers-2022-de-limprimerie-nationale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 03 du 15/02/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-23-9eme-l-portant-adoption-des-comptes-financiers-2022-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2024-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

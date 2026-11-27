@@ -1,6 +1,6 @@
 # Loi n° 41/AN/99/4ème L portant création de l’Établissement Public dénommé “Imprimerie Nationale de Djibouti”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-99-4eme-l-portant-creation-de-letablissement-public-denomme-imprimerie-nationale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-99-4eme-l-portant-creation-de-letablissement-public-denomme-imprimerie-nationale-de-djibouti/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 

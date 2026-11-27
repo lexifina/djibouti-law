@@ -1,6 +1,6 @@
 # Décret n° 01-179-1911 23/08/1911
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 179 du 01/10/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-179-1911-23-08-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 179 du 01/10/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-179-1911-23-08-1911/>
 
 En vigueur : 1911-10-01 (date du Journal officiel qui le publie).
 

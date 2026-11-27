@@ -1,6 +1,6 @@
 # Décret n° 2000-0203/PR/MEFPP portant application de la loi n° 40/AN/99/4ème L du 08/06/1999 relative aux entreprises d’assurances.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0203-pr-mefpp-portant-application-de-la-loi-n40-an-99-4eme-l-du-08-06-1999-relative-aux-entreprises-dassurances/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0203-pr-mefpp-portant-application-de-la-loi-n40-an-99-4eme-l-du-08-06-1999-relative-aux-entreprises-dassurances/>
 
 En vigueur : 2000-07-31 (date du Journal officiel qui le publie).
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

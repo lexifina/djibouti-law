@@ -1,6 +1,6 @@
 # Loi n° 34/AN/09/6ème L portant organisation du Ministère de la Promotion de la Femme, du Bien-Être Familial et des Affaires Sociales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-09-6eme-l-portant-organisation-du-ministere-de-la-promotion-de-la-femme-du-bien-etre-familial-et-des-affaires-sociales/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-09-6eme-l-portant-organisation-du-ministere-de-la-promotion-de-la-femme-du-bien-etre-familial-et-des-affaires-sociales/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ Le Conseil des Ministres entendu en sa séance du 18 Novembre 2008.
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

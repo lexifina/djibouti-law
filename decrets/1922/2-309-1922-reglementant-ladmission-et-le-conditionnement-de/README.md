@@ -1,6 +1,6 @@
 # Décret n° 2-309-1922 réglementant l’admission et le conditionnement des plis en franchise soumis à la formalité du chargement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 309 du 31/08/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-309-1922-reglementant-ladmission-et-le-conditionnement-des-plis-en-franchise-soumis-a-la-formalite-du-chargement/>
+Décret · Journal officiel de la République de Djibouti, n° 309 du 31/08/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-309-1922-reglementant-ladmission-et-le-conditionnement-des-plis-en-franchise-soumis-a-la-formalite-du-chargement/>
 
 En vigueur : 1922-08-31 (date du Journal officiel qui le publie).
 

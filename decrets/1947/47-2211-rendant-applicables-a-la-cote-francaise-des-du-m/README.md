@@ -1,6 +1,6 @@
 # Décret n° 47-2211 rendant applicables à la Côte française des du ministère de la France d’outre-mer autres que Madagascar les dispositions du décret du 23 octobre 1935 portant réglementation des mesures relatives es à l’ordre publie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2211-rendant-applicables-a-la-cote-francaise-des-du-ministere-de-la-france-doutre-mer-autres-que-madagascar-les-dispositions-du-decret-du-23-octobre-1935-portant-reglementation-de/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2211-rendant-applicables-a-la-cote-francaise-des-du-ministere-de-la-france-doutre-mer-autres-que-madagascar-les-dispositions-du-decret-du-23-octobre-1935-portant-reglementation-de/>
 
 En vigueur : 1947-12-31 (date du Journal officiel qui le publie).
 

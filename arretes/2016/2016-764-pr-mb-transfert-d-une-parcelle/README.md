@@ -1,6 +1,6 @@
 # Arrêté n° 2016-764/PR/MB portant transfert d’une parcelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-764-pr-mb-portant-transfert-dune-parcelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-764-pr-mb-portant-transfert-dune-parcelle/>
 
 En vigueur : 2016-11-15 (date du Journal officiel qui le publie).
 

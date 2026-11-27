@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0018/PR/MEN portant création d’un Baccalauréat Technologique. Serie : Sciences et Technologies Industriels. Spécialité : Génie Électrotechnique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0018-pr-men-portant-creation-dun-baccalaureat-technologique-serie-sciences-et-technologies-industriels-specialite-genie-electrotechnique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0018-pr-men-portant-creation-dun-baccalaureat-technologique-serie-sciences-et-technologies-industriels-specialite-genie-electrotechnique/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

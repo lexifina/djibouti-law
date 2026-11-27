@@ -1,8 +1,8 @@
 # Décret n° 2003-0241/PR/MDN portant création d’une Unité de Sécurité Routière de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0241-pr-mdn-portant-creation-dune-unite-de-securite-routiere-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0241-pr-mdn-portant-creation-dune-unite-de-securite-routiere-de-la-gendarmerie-nationale/>
 
-En vigueur : 2003-12-21 (date fixÃ©e par le texte).
+En vigueur : 2003-12-21 (date fixée par le texte).
 
 ## Visas
 

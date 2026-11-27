@@ -1,6 +1,6 @@
 # Loi n° 107/AN/96/3e L Approuvant le compte financier de l’exercice 1994 de l’Etablissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-96-3e-l-approuvant-le-compte-financier-de-lexercice-1994-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-96-3e-l-approuvant-le-compte-financier-de-lexercice-1994-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1996-06-15 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

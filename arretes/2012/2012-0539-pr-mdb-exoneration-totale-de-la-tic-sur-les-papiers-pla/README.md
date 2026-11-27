@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0539/PR/MDB portant exonération totale de la TIC sur les papiers, plaques, encres, cartouches, produits, machines, sous-traitance pour l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0539-pr-mdb-portant-exoneration-totale-de-la-tic-sur-les-papiers-plaques-encres-cartouches-produits-machines-sous-traitance-pour-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0539-pr-mdb-portant-exoneration-totale-de-la-tic-sur-les-papiers-plaques-encres-cartouches-produits-machines-sous-traitance-pour-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2012-09-15 (date du Journal officiel qui le publie).
 

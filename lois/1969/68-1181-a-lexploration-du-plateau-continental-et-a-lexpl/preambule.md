@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art 1- La République Française exerce, coniormement Convention de Genève sur le plateau continental du 29 avril 1958, publiée par le décret n° 65-1049 du 29 novembre 1965, des droits souverains aux fins de l’exploration du plateau Continental adjacent à son territoire et de léxploitation de ses ressources naturelles.
 Le plateau continental sur lequel la République: Française les droits définis ci-dessus est, dans toute son étendue et quels que soient la situation géographique et le statut des M niores auxquels il est adjacent, soumis à un régime juridique unique fixé bar la présente loi sous réserve des dispositions des articles 35 et 36.

@@ -2,7 +2,7 @@
 sur l’Etablissement de la Force en Attente de l’Afrique Orientale et du Cadre Politique sur la mise en place
 de la Force.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-15-7eme-l-portant-ratification-de-laccord-sur-letablissement-de-la-force-en-attente-de-lafrique-orientale-et-du-cadre-politique-sur-la-mise-en-place-de-la-force/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-15-7eme-l-portant-ratification-de-laccord-sur-letablissement-de-la-force-en-attente-de-lafrique-orientale-et-du-cadre-politique-sur-la-mise-en-place-de-la-force/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 

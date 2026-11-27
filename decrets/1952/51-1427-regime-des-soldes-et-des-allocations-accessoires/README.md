@@ -1,6 +1,6 @@
 # Décret n° 51-1427 relatif au régime des soldes et des allocations accessoires des personnels des cadres généraux relevant du Ministère de la France d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1427-relatif-au-regime-des-soldes-et-des-allocations-accessoires-des-personnels-des-cadres-generaux-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1427-relatif-au-regime-des-soldes-et-des-allocations-accessoires-des-personnels-des-cadres-generaux-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1952-02-01 (date du Journal officiel qui le publie).
 

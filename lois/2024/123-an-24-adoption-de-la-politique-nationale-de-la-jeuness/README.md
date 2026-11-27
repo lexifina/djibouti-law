@@ -1,6 +1,6 @@
 # Loi n° 123/AN/24/9ème L portant adoption de la Politique Nationale de la Jeunesse et de la Culture.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 22/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-24-9eme-l-portant-adoption-de-la-politique-nationale-de-la-jeunesse-et-de-la-culture/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 22/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-24-9eme-l-portant-adoption-de-la-politique-nationale-de-la-jeunesse-et-de-la-culture/>
 
 En vigueur : 2024-12-23 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

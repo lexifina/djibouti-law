@@ -1,6 +1,6 @@
 # Décret n° 18-442-1933 Payement des primes d’engagement et de rengagement.,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-442-1933-payement-des-primes-dengagement-et-de-rengagement/>
+Décret · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-442-1933-payement-des-primes-dengagement-et-de-rengagement/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 

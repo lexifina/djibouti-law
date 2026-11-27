@@ -1,6 +1,6 @@
 # Décret n° 08-422-1932 Promulgation de l’arrangement commercial signé à Athènes, le 25 mai 1931, entre la France et I Grèce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 422 du 31/01/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-422-1932-promulgation-de-larrangement-commercial-signe-a-athenes-le-25-mai-1931-entre-la-france-et-i-grece/>
+Décret · Journal officiel de la République de Djibouti, n° 422 du 31/01/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-422-1932-promulgation-de-larrangement-commercial-signe-a-athenes-le-25-mai-1931-entre-la-france-et-i-grece/>
 
 En vigueur : 1932-01-31 (date du Journal officiel qui le publie).
 

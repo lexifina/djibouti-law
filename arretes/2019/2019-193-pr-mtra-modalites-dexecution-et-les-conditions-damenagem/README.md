@@ -1,6 +1,6 @@
 # Arrêté n° 2019-193/PR/MTRA fixant les modalités d’exécution et les conditions d’aménagement du repos hebdomadaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-193-pr-mtra-fixant-les-modalites-dexecution-et-les-conditions-damenagement-du-repos-hebdomadaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-193-pr-mtra-fixant-les-modalites-dexecution-et-les-conditions-damenagement-du-repos-hebdomadaire/>
 
 En vigueur : 2019-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

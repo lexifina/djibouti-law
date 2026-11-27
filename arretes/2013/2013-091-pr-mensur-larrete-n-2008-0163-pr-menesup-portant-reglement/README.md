@@ -1,6 +1,6 @@
 # Arrêté n° 2013-091/PR/MENSUR modifiant l’arrêté n° 2008-0163//PR/MENESUP portant réglementation propre au diplôme national menant au titre de Diplôme universitaire de technologie mention « Tourisme ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-091-pr-mensur-modifiant-larrete-n2008-0163-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-to/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-091-pr-mensur-modifiant-larrete-n2008-0163-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-to/>
 
 En vigueur : 2013-02-14 (date du Journal officiel qui le publie).
 

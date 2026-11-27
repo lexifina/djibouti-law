@@ -1,6 +1,6 @@
 # Décret n° 74-77 Nomenclature du matériel médical et pharmaceutique à embarquer sur les navires de commerce, de pêche et de plaisance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-77-nomenclature-du-materiel-medical-et-pharmaceutique-a-embarquer-sur-les-navires-de-commerce-de-peche-et-de-plaisance/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-77-nomenclature-du-materiel-medical-et-pharmaceutique-a-embarquer-sur-les-navires-de-commerce-de-peche-et-de-plaisance/>
 
 En vigueur : 1974-03-10 (date du Journal officiel qui le publie).
 

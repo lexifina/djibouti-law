@@ -1,6 +1,6 @@
 # Décret n° 61-392 portant extension aux territoires d’outre-mer du décret n° 60-847 du 6 août 1960 fixant les règles d’exploitation technique applicables aux aéronefs étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-392-portant-extension-aux-territoires-doutre-mer-du-decret-n-60-847-du-6-aout-1960-fixant-les-regles-dexploitation-technique-applicables-aux-aeronefs-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-392-portant-extension-aux-territoires-doutre-mer-du-decret-n-60-847-du-6-aout-1960-fixant-les-regles-dexploitation-technique-applicables-aux-aeronefs-etrangers/>
 
 En vigueur : 1961-05-31 (date du Journal officiel qui le publie).
 

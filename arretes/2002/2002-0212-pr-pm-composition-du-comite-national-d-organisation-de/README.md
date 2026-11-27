@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0212/PR/PM portant Composition du Comité National d’Organisation des Festivités du 25ème Anniversaire de l’Indépendance et des Commissions Techniques.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0212-pr-pm-portant-composition-du-comite-national-dorganisation-des-festivites-du-25eme-anniversaire-de-lindependance-et-des-commissions-techniques/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0212-pr-pm-portant-composition-du-comite-national-dorganisation-des-festivites-du-25eme-anniversaire-de-lindependance-et-des-commissions-techniques/>
 
 En vigueur : 2002-03-31 (date du Journal officiel qui le publie).
 

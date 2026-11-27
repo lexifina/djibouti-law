@@ -1,6 +1,6 @@
 # Décret n° 2016-023/PR/DEF portant création et revalorisation d’indices de solde spécifiques au profit des officiers généraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-023-pr-def-portant-creation-et-revalorisation-dindices-de-solde-specifiques-au-profit-des-officiers-generaux/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-023-pr-def-portant-creation-et-revalorisation-dindices-de-solde-specifiques-au-profit-des-officiers-generaux/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

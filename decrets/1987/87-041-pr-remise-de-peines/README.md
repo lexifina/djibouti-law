@@ -1,6 +1,6 @@
 # Décret n° 87-041/PR portant remise de peines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/07/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-041-pr-portant-remise-de-peines/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/07/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-041-pr-portant-remise-de-peines/>
 
 En vigueur : 1987-07-31 (date du Journal officiel qui le publie).
 

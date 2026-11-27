@@ -1,6 +1,6 @@
 # Décret n° 97-193/PR/MCT Portant approbation du Budget Prévisionnel de l’Exercice 1997 de l’Office National d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-193-pr-mct-portant-approbation-du-budget-previsionnel-de-lexercice-1997-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-193-pr-mct-portant-approbation-du-budget-previsionnel-de-lexercice-1997-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1997-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 158/AN/25/9ème L Portant approbation des comptes financiers du Palais du Peuple pour l’exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-25-9eme-l-portant-approbation-des-comptes-financiers-du-palais-du-peuple-pour-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-25-9eme-l-portant-approbation-des-comptes-financiers-du-palais-du-peuple-pour-lexercice-2023/>
 
 En vigueur : 2025-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

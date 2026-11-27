@@ -1,6 +1,6 @@
 # Décret n° 02-317-1923 10 mars 1923
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 317 du 30/04/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-317-1923-10-mars-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 317 du 30/04/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-317-1923-10-mars-1923/>
 
 En vigueur : 1923-04-30 (date du Journal officiel qui le publie).
 
@@ -53,4 +53,4 @@ Ch, De LASTEYMIE
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er — |
+| [art-001.md](art-001.md) | Art.1er |

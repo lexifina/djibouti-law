@@ -1,6 +1,6 @@
 # Décret n° 89-086/PR/MCTT approuvant le budget de la Chambre Internationale de Commerce et d’Industrie pour l’exercice 1989.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-086-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-pour-lexercice-1989/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-086-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-pour-lexercice-1989/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

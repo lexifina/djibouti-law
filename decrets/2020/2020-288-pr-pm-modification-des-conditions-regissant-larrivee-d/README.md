@@ -1,8 +1,8 @@
 # Décret n° 2020-288/PR/PM portant modification des conditions régissant l’arrivée des voyageurs sur le territoire national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-288-pr-pm-portant-modification-des-conditions-regissant-larrivee-des-voyageurs-sur-le-territoire-national/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-288-pr-pm-portant-modification-des-conditions-regissant-larrivee-des-voyageurs-sur-le-territoire-national/>
 
-En vigueur : 2020-11-11 (date fixÃ©e par le texte).
+En vigueur : 2020-11-11 (date fixée par le texte).
 
 ## Visas
 

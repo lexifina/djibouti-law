@@ -1,6 +1,6 @@
 # Décret n° 87-051/PR/FIN portant réglementation de l’ utilisation des véhicules de l’administration et des entreprises publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-051-pr-fin-portant-reglementation-de-l-utilisation-des-vehicules-de-ladministration-et-des-entreprises-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-051-pr-fin-portant-reglementation-de-l-utilisation-des-vehicules-de-ladministration-et-des-entreprises-publiques/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

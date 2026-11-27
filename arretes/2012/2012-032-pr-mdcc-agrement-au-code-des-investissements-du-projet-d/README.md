@@ -1,6 +1,6 @@
 # Arrêté n° 2012-032/PR/MDCC portant agrément au code des investissements du projet de transit et de transport de la socièté “MARITIME ATIKA & TRANSPORT”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-032-pr-mdcc-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-maritime-atika-transport/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-032-pr-mdcc-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-maritime-atika-transport/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

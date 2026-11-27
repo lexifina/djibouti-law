@@ -1,6 +1,6 @@
 # Loi n° 68/AN/00/4ème L portant ratification de l’Accord relatif au trafic aérien de lignes entre la République de Djibouti et la Suisse.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-00-4eme-l-portant-ratification-de-laccord-relatif-au-trafic-aerien-de-lignes-entre-la-republique-de-djibouti-et-la-suisse/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-00-4eme-l-portant-ratification-de-laccord-relatif-au-trafic-aerien-de-lignes-entre-la-republique-de-djibouti-et-la-suisse/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

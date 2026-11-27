@@ -1,6 +1,6 @@
 # Amendement n° 555 allouant une indemnité dite de « garde » au personnel indigène du Service de santé chargé de la surveillance nocturne des malades
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-555-allouant-une-indemnite-dite-de-garde-au-personnel-indigene-du-service-de-sante-charge-de-la-surveillance-nocturne-des-malades/>
+Amendement · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-555-allouant-une-indemnite-dite-de-garde-au-personnel-indigene-du-service-de-sante-charge-de-la-surveillance-nocturne-des-malades/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

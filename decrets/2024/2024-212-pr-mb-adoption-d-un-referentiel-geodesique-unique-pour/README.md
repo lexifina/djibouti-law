@@ -1,8 +1,8 @@
 # Décret n° 2024-212/PR/MB portant adoption d’un référentiel géodésique unique pour tous les travaux géodésiques, cartographiques sur l’ensemble du territoire national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-212-pr-mb-portant-adoption-dun-referentiel-geodesique-unique-pour-tous-les-travaux-geodesiques-cartographiques-sur-lensemble-du-territoire-national/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-212-pr-mb-portant-adoption-dun-referentiel-geodesique-unique-pour-tous-les-travaux-geodesiques-cartographiques-sur-lensemble-du-territoire-national/>
 
-En vigueur : 2024-08-11 (date fixÃ©e par le texte).
+En vigueur : 2024-08-11 (date fixée par le texte).
 
 ## Visas
 

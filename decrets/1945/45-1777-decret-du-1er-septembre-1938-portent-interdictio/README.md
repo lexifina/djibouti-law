@@ -1,6 +1,6 @@
 # Décret n° 45-1777 modifiant le décret du 1er septembre 1938 portent Interdiction aux fonctionnaires des cadres généraux des colonies de servir dans leur colonie d’origine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1777-modifiant-le-decret-du-1er-septembre-1938-portent-interdiction-aux-fonctionnaires-des-cadres-generaux-des-colonies-de-servir-dans-leur-colonie-dorigine/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1777-modifiant-le-decret-du-1er-septembre-1938-portent-interdiction-aux-fonctionnaires-des-cadres-generaux-des-colonies-de-servir-dans-leur-colonie-dorigine/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

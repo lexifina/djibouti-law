@@ -1,6 +1,6 @@
 # Loi n° 35/AN/83/lève L portant approbation d’un accord de garantie entre la République de Djibouti et le Fonds koweïtien pour le Développement économique arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-83-leve-l-portant-approbation-dun-accord-de-garantie-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-83-leve-l-portant-approbation-dun-accord-de-garantie-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

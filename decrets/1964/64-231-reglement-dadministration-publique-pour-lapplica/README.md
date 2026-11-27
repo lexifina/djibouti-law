@@ -1,6 +1,6 @@
 # Décret n° 64-231 portant règlement d’administration publique pour l’application de la loi n° 62-1292, relative à l’élection du Président de la République au suffrage universel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/05/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-231-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-62-1292-relative-a-lelection-du-president-de-la-republique-au-suffrage-universel/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/05/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-231-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-62-1292-relative-a-lelection-du-president-de-la-republique-au-suffrage-universel/>
 
 En vigueur : 1964-05-01 (date du Journal officiel qui le publie).
 

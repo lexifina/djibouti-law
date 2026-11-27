@@ -1,6 +1,6 @@
 # Décret n° 2023-315/PRE portant modification de l’organisation de l’inspection générale de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-315-pre-portant-modification-de-lorganisation-de-linspection-generale-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-315-pre-portant-modification-de-lorganisation-de-linspection-generale-de-letat/>
 
 En vigueur : 2023-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -63,4 +63,4 @@ ISMAÏL OMAR GUELLEH
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

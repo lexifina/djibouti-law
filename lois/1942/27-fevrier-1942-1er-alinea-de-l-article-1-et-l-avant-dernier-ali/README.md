@@ -1,6 +1,6 @@
 # Loi n° 27 février 1942 modifiant le 1er alinéa de l’article 1 et l’avant-dernier alinéa de l’article 5 de la loi du 13 août 1910 portant interdiction des associations secrètes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-27-fevrier-1942-modifiant-le-1er-alinea-de-larticle-1-et-lavant-dernier-alinea-de-larticle-5-de-la-loi-du-13-aout-1910-portant-interdiction-des-associations-sec/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-27-fevrier-1942-modifiant-le-1er-alinea-de-larticle-1-et-lavant-dernier-alinea-de-larticle-5-de-la-loi-du-13-aout-1910-portant-interdiction-des-associations-sec/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

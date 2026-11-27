@@ -1,6 +1,6 @@
 # Décret n° 2012-0117/PR/MDC portant constitution d’un Groupe National de Travail sur les Investissements Directs Etrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0117-pr-mdc-portant-constitution-dun-groupe-national-de-travail-sur-les-investissements-directs-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0117-pr-mdc-portant-constitution-dun-groupe-national-de-travail-sur-les-investissements-directs-etrangers/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

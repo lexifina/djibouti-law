@@ -1,6 +1,6 @@
 # Loi n° 114/AN/24/9ème L portant ratification de l’Accord portant création de l’Institution de la Mutuelle Panafricaine de Gestion des Risques (ARC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-114-an-24-9eme-l-portant-ratification-de-laccord-portant-creation-de-linstitution-de-la-mutuelle-panafricaine-de-gestion-des-risques-arc/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 13/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n-114-an-24-9eme-l-portant-ratification-de-laccord-portant-creation-de-linstitution-de-la-mutuelle-panafricaine-de-gestion-des-risques-arc/>
 
 En vigueur : 2024-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

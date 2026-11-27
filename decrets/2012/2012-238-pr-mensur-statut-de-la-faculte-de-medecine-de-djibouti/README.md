@@ -1,6 +1,6 @@
 # Décret n° 2012-238/PR/MENSUR fixant le statut de la Faculté de Médecine de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-238-pr-mensur-fixant-le-statut-de-la-faculte-de-medecine-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-238-pr-mensur-fixant-le-statut-de-la-faculte-de-medecine-de-djibouti/>
 
 En vigueur : 2012-11-15 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-051.md](art-051.md) | Article 51 |
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

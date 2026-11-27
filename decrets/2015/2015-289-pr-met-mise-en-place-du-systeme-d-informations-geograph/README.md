@@ -1,6 +1,6 @@
 # Décret n° 2015-289/PR/MET portant mise en place du Système d’Informations Géographiques de la Ville de Djibouti (SIGVD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-289-pr-met-portant-mise-en-place-du-systeme-dinformations-geographiques-de-la-ville-de-djibouti-sigvd/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-289-pr-met-portant-mise-en-place-du-systeme-dinformations-geographiques-de-la-ville-de-djibouti-sigvd/>
 
 En vigueur : 2015-10-31 (date du Journal officiel qui le publie).
 

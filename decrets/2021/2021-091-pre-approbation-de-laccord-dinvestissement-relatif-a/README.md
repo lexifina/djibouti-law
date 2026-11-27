@@ -1,8 +1,8 @@
 # Décret n° 2021-091/PRE portant approbation de l’Accord d’investissement relatif au Projet de redéveloppement du Vieux Port de Djibouti et son avenant n° 1.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 29/04/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-091-pre-portant-approbation-de-laccord-dinvestissement-relatif-au-projet-de-redeveloppement-du-vieux-port-de-djibouti-et-son-avenant-n1/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 29/04/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-091-pre-portant-approbation-de-laccord-dinvestissement-relatif-au-projet-de-redeveloppement-du-vieux-port-de-djibouti-et-son-avenant-n1/>
 
-En vigueur : 2021-04-29 (date fixÃ©e par le texte).
+En vigueur : 2021-04-29 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2008-0696/PR/MET instituant les redevances des passagers et complétant l’arrêté n° 2008-0171/PR/MET du 22 mars 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0696-pr-met-instituant-les-redevances-des-passagers-et-completant-larrete-n2008-0171-pr-met-du-22-mars-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0696-pr-met-instituant-les-redevances-des-passagers-et-completant-larrete-n2008-0171-pr-met-du-22-mars-2008/>
 
-En vigueur : 2008-10-02 (date fixÃ©e par le texte).
+En vigueur : 2008-10-02 (date fixée par le texte).
 
 ## Visas
 

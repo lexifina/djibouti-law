@@ -1,6 +1,6 @@
 # Décret n° 4-354-1926 approuvant l’avenant du 20 mars 1926 passé entre le Ministre des colonies et la Compagnie du chemin de fer franco-éthiopien de Djibouti à Addis-Abeba (arrêté de promulgation du 25 mai 1926).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 354 du 31/05/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-354-1926-approuvant-lavenant-du-20-mars-1926-passe-entre-le-ministre-des-colonies-et-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba-arrete-de-promulgatio/>
+Décret · Journal officiel de la République de Djibouti, n° 354 du 31/05/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-354-1926-approuvant-lavenant-du-20-mars-1926-passe-entre-le-ministre-des-colonies-et-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba-arrete-de-promulgatio/>
 
 En vigueur : 1926-05-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ RAOUL PÉRET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

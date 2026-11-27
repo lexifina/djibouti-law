@@ -1,8 +1,8 @@
 # Loi n° 221/AN/17/8ème L modifiant et complétant la loi n° 133/AN/05/5ème L du 28 janvier 2006 portant Code du Travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-17-8eme-l-modifiant-et-completant-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n221-an-17-8eme-l-modifiant-et-completant-la-loi-n133-an-05-5eme-l-du-28-janvier-2006-portant-code-du-travail/>
 
-En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

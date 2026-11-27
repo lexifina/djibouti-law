@@ -1,6 +1,6 @@
 # Décret n° 41-407-1930 Garde des valeurs appartenant aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-41-407-1930-garde-des-valeurs-appartenant-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-41-407-1930-garde-des-valeurs-appartenant-aux-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -26,6 +26,6 @@ francosi piétri
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1– |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

@@ -1,6 +1,6 @@
 # Décret n° 18 MAI 1940 portant application de la loi du 1er août 1905 sur la répression des fraudes à la Côte Francaise des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/11/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-mai-1940-portant-application-de-la-loi-du-1er-aout-1905-sur-la-repression-des-fraudes-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/11/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-mai-1940-portant-application-de-la-loi-du-1er-aout-1905-sur-la-repression-des-fraudes-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1953-11-01 (date du Journal officiel qui le publie).
 
@@ -33,10 +33,10 @@ Georges MANDEL.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [art-011.md](art-011.md) | Art. 11 — |
+| [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

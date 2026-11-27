@@ -1,6 +1,6 @@
 # Décret n° 4-346-1925 Organisation du travail à bord des navires affectés à la navigation maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-346-1925-organisation-du-travail-a-bord-des-navires-affectes-a-la-navigation-maritime/>
+Décret · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-346-1925-organisation-du-travail-a-bord-des-navires-affectes-a-la-navigation-maritime/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 
@@ -53,4 +53,4 @@ Victor PEYTRAL.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

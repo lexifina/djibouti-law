@@ -1,6 +1,6 @@
 # Arrêté n° 2017-166/PR/MEFCI portant aux états financiers complémentaires des sociétés d’assurance islamiques takaful.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-166-pr-mefci-portant-aux-etats-financiers-complementaires-des-societes-dassurance-islamiques-takaful/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-166-pr-mefci-portant-aux-etats-financiers-complementaires-des-societes-dassurance-islamiques-takaful/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

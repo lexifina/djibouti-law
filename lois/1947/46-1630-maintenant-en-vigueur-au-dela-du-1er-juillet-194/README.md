@@ -1,6 +1,6 @@
 # Loi n° 46-1630 maintenant en vigueur au delà du 1er juillet 1947, dans les territoires autres que l’Indochine relevant du ministère de la France d’outre-mer certaines dispositions prorogées par la loi du 28 février 1947
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-1630-maintenant-en-vigueur-au-dela-du-1er-juillet-1947-dans-les-territoires-autres-que-lindochine-relevant-du-ministere-de-la-france-doutre-mer-certaines-disposition/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-1630-maintenant-en-vigueur-au-dela-du-1er-juillet-1947-dans-les-territoires-autres-que-lindochine-relevant-du-ministere-de-la-france-doutre-mer-certaines-disposition/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

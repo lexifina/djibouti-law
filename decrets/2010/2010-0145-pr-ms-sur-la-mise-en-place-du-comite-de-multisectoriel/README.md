@@ -1,6 +1,6 @@
 # Décret n° 2010-0145/PR/MS portant sur la mise en place du Comité de Multisectoriel de Suivi du Plan National de Développement Sanitaire 2008-2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0145-pr-ms-portant-sur-la-mise-en-place-du-comite-de-multisectoriel-de-suivi-du-plan-national-de-developpement-sanitaire-2008-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0145-pr-ms-portant-sur-la-mise-en-place-du-comite-de-multisectoriel-de-suivi-du-plan-national-de-developpement-sanitaire-2008-2012/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

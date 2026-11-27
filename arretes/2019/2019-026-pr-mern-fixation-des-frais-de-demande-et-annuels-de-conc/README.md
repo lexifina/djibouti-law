@@ -1,8 +1,8 @@
 # Arrêté n° 2019-026/PR/MERN portant fixation des frais de demande et annuels de concession et licence des producteurs indépendants d’électricité.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-026-pr-mern-portant-fixation-des-frais-de-demande-et-annuels-de-concession-et-licence-des-producteurs-independants-delectricite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-026-pr-mern-portant-fixation-des-frais-de-demande-et-annuels-de-concession-et-licence-des-producteurs-independants-delectricite/>
 
-En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

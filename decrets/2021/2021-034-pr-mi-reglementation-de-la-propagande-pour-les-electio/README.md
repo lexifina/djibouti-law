@@ -1,6 +1,6 @@
 # Décret n° 2021-034/PR/MI portant réglementation de la propagande pour les élections présidentielles du 09 avril 2021.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 04/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-034-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-09-avril-2021/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 04/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-034-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-09-avril-2021/>
 
 En vigueur : 2021-03-05 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

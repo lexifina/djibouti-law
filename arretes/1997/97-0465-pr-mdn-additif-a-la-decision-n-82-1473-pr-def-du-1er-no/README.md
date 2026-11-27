@@ -1,6 +1,6 @@
 # Arrêté n° 97-0465/PR/MDN portant additif à la décision n° 82-1473/PR/DEF du 1er novembre 1982 portant création d’une indemnité mensuelle de responsabilité au profit d’un certain nombre de poste de l’AND.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0465-pr-mdn-portant-additif-a-la-decision-n82-1473-pr-def-du-1er-novembre-1982-portant-creation-dune-indemnite-mensuelle-de-responsabilite-au-profit-dun-certain-nombre-de-po/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0465-pr-mdn-portant-additif-a-la-decision-n82-1473-pr-def-du-1er-novembre-1982-portant-creation-dune-indemnite-mensuelle-de-responsabilite-au-profit-dun-certain-nombre-de-po/>
 
 En vigueur : 1997-07-15 (date du Journal officiel qui le publie).
 

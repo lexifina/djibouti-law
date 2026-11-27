@@ -1,6 +1,6 @@
 # Loi n° 111/AN/00/4ème L portant Règlement Définitif du Budget de l’Etat de l’exercice 1999.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-00-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-00-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1999/>
 
 En vigueur : 2000-12-31 (date du Journal officiel qui le publie).
 

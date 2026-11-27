@@ -1,6 +1,6 @@
 # Décret n° 2012-224/PR/MENSUR fixant le statut des Etudiants-Internes de la Faculté de Médecine de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-224-pr-mensur-fixant-le-statut-des-etudiants-internes-de-la-faculte-de-medecine-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-224-pr-mensur-fixant-le-statut-des-etudiants-internes-de-la-faculte-de-medecine-de-djibouti/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

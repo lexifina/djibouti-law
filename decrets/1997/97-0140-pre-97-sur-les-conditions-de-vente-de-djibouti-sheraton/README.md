@@ -1,8 +1,8 @@
 # Décret n° 97-0140/PRE/97 portant sur les conditions de vente de Djibouti Sheraton Hôtel
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0140-pre-97-portant-sur-les-conditions-de-vente-de-djibouti-sheraton-hotel/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0140-pre-97-portant-sur-les-conditions-de-vente-de-djibouti-sheraton-hotel/>
 
-En vigueur : 1997-10-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-10-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

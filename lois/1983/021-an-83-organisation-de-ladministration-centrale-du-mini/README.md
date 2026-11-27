@@ -1,6 +1,6 @@
 # Loi n° 21/AN/83/1ère L portant organisation de l’Administration Centrale du Ministère du Travail et de la Prévoyance Sociale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-83-1ere-l-portant-organisation-de-ladministration-centrale-du-ministere-du-travail-et-de-la-prevoyance-sociale/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-83-1ere-l-portant-organisation-de-ladministration-centrale-du-ministere-du-travail-et-de-la-prevoyance-sociale/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

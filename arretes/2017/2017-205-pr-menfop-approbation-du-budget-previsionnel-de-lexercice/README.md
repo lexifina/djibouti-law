@@ -1,6 +1,6 @@
 # Arrêté n° 2017-205/PR/MENFOP portant approbation du Budget prévisionnel, de l’exercice 2018 du CRIPEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-205-pr-menfop-portant-approbation-du-budget-previsionnel-de-lexercice-2018-du-cripen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-205-pr-menfop-portant-approbation-du-budget-previsionnel-de-lexercice-2018-du-cripen/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

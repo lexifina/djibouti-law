@@ -1,6 +1,6 @@
 # Loi n° 12/AN/13/7ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2010.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-13-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2010/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-13-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2010/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

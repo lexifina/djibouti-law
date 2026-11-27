@@ -1,8 +1,8 @@
 # Loi n° 68/AN/94/3ème L portant budget de l’état, exercice 1995.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-94-3eme-l-portant-budget-de-letat-exercice-1995/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-94-3eme-l-portant-budget-de-letat-exercice-1995/>
 
-En vigueur : 1995-01-01 (date fixÃ©e par le texte).
+En vigueur : 1995-01-01 (date fixée par le texte).
 
 ## Visas
 
@@ -27,4 +27,4 @@ HASSAN GOULED APTIDON
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

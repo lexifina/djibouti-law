@@ -1,6 +1,6 @@
 # Décret n° 73-93 portant convocation des collèges électoraux pour l’élection des députés représentant à l’Assemblée nationale la NouvelleCalédonie et dépendances et les ressortissants français des Nouvelles-Hébrides, Saint-Pierre et Miquelon, le Territoire Français des Afars et des Issas et le Territoire des Comores (J.O.R.F. n° 26 du 31 janvier 1973, p. 1196).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-93-portant-convocation-des-colleges-electoraux-pour-lelection-des-deputes-representant-a-lassemblee-nationale-la-nouvellecaledonie-et-dependances-et-les-ressortissants-francais/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/02/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-93-portant-convocation-des-colleges-electoraux-pour-lelection-des-deputes-representant-a-lassemblee-nationale-la-nouvellecaledonie-et-dependances-et-les-ressortissants-francais/>
 
 En vigueur : 1973-02-10 (date du Journal officiel qui le publie).
 

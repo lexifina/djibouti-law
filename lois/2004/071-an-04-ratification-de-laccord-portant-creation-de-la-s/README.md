@@ -1,6 +1,6 @@
 # Loi n° 71/AN/04/5ème L portant ratification de l’Accord portant création de la Société Islamique d’Assurance des Investissements et de Crédit à l’Exportation (SIAICE).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-04-5eme-l-portant-ratification-de-laccord-portant-creation-de-la-societe-islamique-dassurance-des-investissements-et-de-credit-a-lexportation-siaice/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-04-5eme-l-portant-ratification-de-laccord-portant-creation-de-la-societe-islamique-dassurance-des-investissements-et-de-credit-a-lexportation-siaice/>
 
 En vigueur : 2004-07-15 (date du Journal officiel qui le publie).
 

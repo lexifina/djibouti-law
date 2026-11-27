@@ -1,6 +1,6 @@
 # Loi n° 67/AN/19/8ème L modifiant et complétant la loi n° 61/AN/14/7ème L du 23 juin 2014 portant constitution et maintien des stocks d’urgence de produits pétroliers.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-19-8eme-l-modifiant-et-completant-la-loi-n61-an-14-7eme-l-du-23-juin-2014-portant-constitution-et-maintien-des-stocks-durgence-de-produits-petroliers/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-19-8eme-l-modifiant-et-completant-la-loi-n61-an-14-7eme-l-du-23-juin-2014-portant-constitution-et-maintien-des-stocks-durgence-de-produits-petroliers/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-057/PR/MENSUR approuvant et rendant exécutoire le Budget prévisionnel de l’exercice 2019 de l’Institut Supérieur des Sciences de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-057-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2019-de-linstitut-superieur-des-sciences-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-057-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2019-de-linstitut-superieur-des-sciences-de-la-sante/>
 
 En vigueur : 2019-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

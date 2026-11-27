@@ -1,8 +1,8 @@
 # Arrêté n° 91-0288/PR/EN Instituant une Caisse d’avance au Ministère de l’Éducation Nationale pour l’Organisation de la 43e CONFEMEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/03/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0288-pr-en-instituant-une-caisse-davance-au-ministere-de-leducation-nationale-pour-lorganisation-de-la-43e-confemen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 16/03/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0288-pr-en-instituant-une-caisse-davance-au-ministere-de-leducation-nationale-pour-lorganisation-de-la-43e-confemen/>
 
-En vigueur : 1991-03-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1991-03-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

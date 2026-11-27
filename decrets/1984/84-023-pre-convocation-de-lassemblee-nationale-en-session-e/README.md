@@ -1,6 +1,6 @@
 # Décret n° 84-023/PRE portant convocation de l’Assemblée nationale en session extraordinaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-023-pre-portant-convocation-de-lassemblee-nationale-en-session-extraordinaire/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-023-pre-portant-convocation-de-lassemblee-nationale-en-session-extraordinaire/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 

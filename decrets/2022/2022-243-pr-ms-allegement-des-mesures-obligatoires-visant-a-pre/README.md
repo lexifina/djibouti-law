@@ -1,6 +1,6 @@
 # Décret n° 2022-243/PR/MS portant allégement des mesures obligatoires visant à prévenir la propagation de la Covid-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-243-pr-ms-portant-allegement-des-mesures-obligatoires-visant-a-prevenir-la-propagation-de-la-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-243-pr-ms-portant-allegement-des-mesures-obligatoires-visant-a-prevenir-la-propagation-de-la-covid-19/>
 
 En vigueur : 2022-09-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

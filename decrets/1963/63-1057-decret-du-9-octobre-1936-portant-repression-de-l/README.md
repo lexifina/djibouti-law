@@ -1,6 +1,6 @@
 # Décret n° 63-1057 modifiant le décret du 9 octobre 1936 portant répression de l’usure dans les colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies autres que la Guadeloupe, la Martinique et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-1057-modifiant-le-decret-du-9-octobre-1936-portant-repression-de-lusure-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-1057-modifiant-le-decret-du-9-octobre-1936-portant-repression-de-lusure-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres/>
 
 En vigueur : 1963-10-31 (date du Journal officiel qui le publie).
 

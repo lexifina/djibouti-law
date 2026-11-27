@@ -1,6 +1,6 @@
 # Décret n° 2013-089/PRE Portant cession d’actions par le PAID.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-089-pre-portant-cession-dactions-par-le-paid/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-089-pre-portant-cession-dactions-par-le-paid/>
 
 En vigueur : 2013-05-30 (date du Journal officiel qui le publie).
 

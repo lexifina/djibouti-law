@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Chapitre préliminaire : Définitions
 – Startup labellisée : société ayant obtenu le label Startup conformément aux dispositions de l’article 3 de la présente loi.
 – Promoteur de Startup : personne physique, fondatrice ou cofondatrice d’une Startup labellisée ou visant à obtenir le label Startup.

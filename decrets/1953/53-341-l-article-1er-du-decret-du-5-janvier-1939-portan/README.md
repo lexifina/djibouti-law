@@ -1,6 +1,6 @@
 # Décret n° 53-341 modifiant l’article 1er du décret du 5 janvier 1939 portant règlement d’administration publique sur les recensements prévus par l’article 30 de la loi du 11 juillet 1938, relative à l’organisation générale de la nation pour le temps de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-341-modifiant-larticle-1er-du-decret-du-5-janvier-1939-portant-reglement-dadministration-publique-sur-les-recensements-prevus-par-larticle-30-de-la-loi-du-11-jui/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-341-modifiant-larticle-1er-du-decret-du-5-janvier-1939-portant-reglement-dadministration-publique-sur-les-recensements-prevus-par-larticle-30-de-la-loi-du-11-jui/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 03-334-1924 2° déterminant le régime des terres domaniales dans la même colonie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 334 du 30/09/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-334-1924-2-determinant-le-regime-des-terres-domaniales-dans-la-meme-colonie/>
+Décret · Journal officiel de la République de Djibouti, n° 334 du 30/09/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-334-1924-2-determinant-le-regime-des-terres-domaniales-dans-la-meme-colonie/>
 
 En vigueur : 1924-09-30 (date du Journal officiel qui le publie).
 
@@ -27,7 +27,7 @@ DALADIER.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

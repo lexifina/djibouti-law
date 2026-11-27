@@ -1,6 +1,6 @@
 # Amendement n° 69-170/SG/FP constatant la reprise de service d’un agent de contrôle du cadre territorial des contributions, à l’issue de son congé de longue durée.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1969 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-69-170-sg-fp-constatant-la-reprise-de-service-dun-agent-de-controle-du-cadre-territorial-des-contributions-a-lissue-de-son-conge-de-longue-duree/>
+Amendement · Journal officiel de la République de Djibouti, n° 3 du 10/02/1969 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-69-170-sg-fp-constatant-la-reprise-de-service-dun-agent-de-controle-du-cadre-territorial-des-contributions-a-lissue-de-son-conge-de-longue-duree/>
 
 En vigueur : 1969-02-10 (date du Journal officiel qui le publie).
 

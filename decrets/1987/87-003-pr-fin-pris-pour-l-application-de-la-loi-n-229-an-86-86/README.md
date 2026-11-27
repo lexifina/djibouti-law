@@ -1,6 +1,6 @@
 # Décret n° 87-003/PR/FIN pris pour l’application de la loi n° 229/AN/ 86/86/ ire L du 6 janvier 1987 portant création de certificats de dépôt au Trésor national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-003-pr-fin-pris-pour-lapplication-de-la-loi-n-229-an-86-86-ire-l-du-6-janvier-1987-portant-creation-de-certificats-de-depot-au-tresor-national/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-003-pr-fin-pris-pour-lapplication-de-la-loi-n-229-an-86-86-ire-l-du-6-janvier-1987-portant-creation-de-certificats-de-depot-au-tresor-national/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

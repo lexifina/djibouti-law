@@ -1,6 +1,6 @@
 # Décret n° 2017-193/PR/MDMHUEL portant définition des critères d’éligibilité et de cession des logements de la cité “540 logements” sise au nord de PK12.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-193-pr-mdmhuel-portant-definition-des-criteres-deligibilite-et-de-cession-des-logements-de-la-cite-540-logements-sise-au-nord-de-pk12/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-193-pr-mdmhuel-portant-definition-des-criteres-deligibilite-et-de-cession-des-logements-de-la-cite-540-logements-sise-au-nord-de-pk12/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

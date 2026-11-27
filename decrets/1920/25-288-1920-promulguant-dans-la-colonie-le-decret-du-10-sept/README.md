@@ -1,6 +1,6 @@
 # Décret n° 25-288-1920 promulguant dans la colonie le décret du 10 septembre 1920, portant rasement de la station thermale des Eaux-Bonnes Basses-Pyrénèes).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 288 du 31/10/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-288-1920-promulguant-dans-la-colonie-le-decret-du-10-septembre-1920-portant-rasement-de-la-station-thermale-des-eaux-bonnes-basses-pyrenees/>
+Décret · Journal officiel de la République de Djibouti, n° 288 du 31/10/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-288-1920-promulguant-dans-la-colonie-le-decret-du-10-septembre-1920-portant-rasement-de-la-station-thermale-des-eaux-bonnes-basses-pyrenees/>
 
 En vigueur : 1920-10-31 (date du Journal officiel qui le publie).
 

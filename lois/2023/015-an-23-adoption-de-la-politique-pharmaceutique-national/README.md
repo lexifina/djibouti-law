@@ -1,6 +1,6 @@
 # Loi n° 15/AN/23/9ème L portant adoption de la Politique Pharmaceutique Nationale 2023-2027.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 17/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-23-9eme-l-portant-adoption-de-la-politique-pharmaceutique-nationale-2023-2027/>
+Loi · Journal officiel de la République de Djibouti, n° 03 du 17/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-23-9eme-l-portant-adoption-de-la-politique-pharmaceutique-nationale-2023-2027/>
 
 En vigueur : 2024-03-18 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

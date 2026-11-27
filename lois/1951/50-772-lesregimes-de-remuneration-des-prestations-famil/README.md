@@ -1,6 +1,6 @@
 # Loi n° 50-772 lesrégimes de rémunération, des prestations familiales, des congés administratifs de certains cadres de fonctionnaires civils relevant du Ministère de la France d’Outre-Mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-772-lesregimes-de-remuneration-des-prestations-familiales-des-conges-administratifs-de-certains-cadres-de-fonctionnaires-civils-relevant-du-ministere-de-la-france-doutre-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-772-lesregimes-de-remuneration-des-prestations-familiales-des-conges-administratifs-de-certains-cadres-de-fonctionnaires-civils-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

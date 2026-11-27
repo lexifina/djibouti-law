@@ -1,6 +1,6 @@
 # Décret n° 88-043/PRE portant statut des militaires
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-043-pre-portant-statut-des-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-043-pre-portant-statut-des-militaires/>
 
 En vigueur : 1988-05-31 (date du Journal officiel qui le publie).
 
@@ -108,4 +108,4 @@ HASSAN GOULED APTIDON
 | [art-086.md](art-086.md) | Article 86 |
 | [art-087.md](art-087.md) | Article 87 |
 | [art-088.md](art-088.md) | Article 88 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

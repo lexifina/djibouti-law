@@ -1,6 +1,6 @@
 # Décret n° 29/11/1936 Application aux colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies, des décrets des 11 septembre et 14 novembre 1936 concernant la définition des appellations d’origine contrôlées de certains vins.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-11-1936-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-des-11-septembre-et-14-novembre-1936-concernant-la-d/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-11-1936-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-des-11-septembre-et-14-novembre-1936-concernant-la-d/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

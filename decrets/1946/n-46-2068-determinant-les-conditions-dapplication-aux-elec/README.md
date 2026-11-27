@@ -1,6 +1,6 @@
 # Décret n° n° 46-2068 déterminant les conditions d’application aux électeurs ressortissant des territoires relevant du ministère de la France d’outre-mer de la loi du 12 avril 1946, instituant une procédure exceptionnelle de vote par procuration en faveur de certaines catégories d’électeurs,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2068-determinant-les-conditions-dapplication-aux-electeurs-ressortissant-des-territoires-relevant-du-ministere-de-la-france-doutre-mer-de-la-loi-du-12-avril-1946-inst/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2068-determinant-les-conditions-dapplication-aux-electeurs-ressortissant-des-territoires-relevant-du-ministere-de-la-france-doutre-mer-de-la-loi-du-12-avril-1946-inst/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

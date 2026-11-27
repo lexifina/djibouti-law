@@ -1,6 +1,6 @@
 # Décret n° 33-426-1932 Application de la loi du 12 avril 1932 portant encouragement à l’industrie des grandes pêches maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-33-426-1932-application-de-la-loi-du-12-avril-1932-portant-encouragement-a-lindustrie-des-grandes-peches-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-33-426-1932-application-de-la-loi-du-12-avril-1932-portant-encouragement-a-lindustrie-des-grandes-peches-maritimes/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

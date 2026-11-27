@@ -1,8 +1,8 @@
 # Décret n° 2009-0218/PR/MERN portant création de la Commission Nationale de l’Energie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0218-pr-mern-portant-creation-de-la-commission-nationale-de-lenergie/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0218-pr-mern-portant-creation-de-la-commission-nationale-de-lenergie/>
 
-En vigueur : 2009-10-11 (date fixÃ©e par le texte).
+En vigueur : 2009-10-11 (date fixée par le texte).
 
 ## Visas
 

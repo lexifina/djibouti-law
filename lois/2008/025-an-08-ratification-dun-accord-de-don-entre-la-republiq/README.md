@@ -1,6 +1,6 @@
 # Loi n° 25/AN/08/6ème L portant ratification d’un Accord de Don entre la République de Djibouti et l’Association Internationale pour le Développement (IDA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-08-6eme-l-portant-ratification-dun-accord-de-don-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-developpement-ida/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-08-6eme-l-portant-ratification-dun-accord-de-don-entre-la-republique-de-djibouti-et-lassociation-internationale-pour-le-developpement-ida/>
 
 En vigueur : 2008-12-15 (date du Journal officiel qui le publie).
 

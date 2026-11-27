@@ -1,6 +1,6 @@
 # Décret n° 31-426-1932 Importation, la circulation et le contrôle des armes, munitions et matériel de guerre à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-426-1932-importation-la-circulation-et-le-controle-des-armes-munitions-et-materiel-de-guerre-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-426-1932-importation-la-circulation-et-le-controle-des-armes-munitions-et-materiel-de-guerre-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ DE CHAPPEDELAINE.
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

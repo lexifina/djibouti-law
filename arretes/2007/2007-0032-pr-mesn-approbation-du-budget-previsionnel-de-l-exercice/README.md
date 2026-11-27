@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0032/PR/MESN portant approbation du budget prévisionnel de l’Exercice 2007 de l’Organisme de Protection Sociale (OPS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0032-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2007-de-lorganisme-de-protection-sociale-ops/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0032-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2007-de-lorganisme-de-protection-sociale-ops/>
 
 En vigueur : 2007-01-15 (date du Journal officiel qui le publie).
 

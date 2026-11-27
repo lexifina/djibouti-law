@@ -1,6 +1,6 @@
 # Décret n° 2020-078/PRE prolongeant les mesures exceptionnelles de prévention contre la propagation du COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-078-pre-prolongeant-les-mesures-exceptionnelles-de-prevention-contre-la-propagation-du-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-078-pre-prolongeant-les-mesures-exceptionnelles-de-prevention-contre-la-propagation-du-covid-19/>
 
 En vigueur : 2020-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0240/PR/MPI portant Agrément au Code des Investissements de la Société “Djibouti Logistic and Trading Center”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0240-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-logistic-and-trading-center/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0240-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-logistic-and-trading-center/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 27 octobre 1946 DES INSTITUTIONS DE LA RÉPUBLIQUE.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-27-octobre-1946-des-institutions-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-27-octobre-1946-des-institutions-de-la-republique/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ André Colin.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

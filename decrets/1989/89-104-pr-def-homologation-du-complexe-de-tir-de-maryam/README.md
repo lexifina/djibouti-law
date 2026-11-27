@@ -1,6 +1,6 @@
 # Décret n° 89-104/PR/DEF portant homologation du complexe de tir de MARYAM.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-104-pr-def-portant-homologation-du-complexe-de-tir-de-maryam/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-104-pr-def-portant-homologation-du-complexe-de-tir-de-maryam/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

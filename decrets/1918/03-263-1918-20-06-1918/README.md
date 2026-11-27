@@ -1,6 +1,6 @@
 # Décret n° 03-263-1918 20/06/1918
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 263 du 30/09/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-263-1918-20-06-1918/>
+Décret · Journal officiel de la République de Djibouti, n° 263 du 30/09/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-263-1918-20-06-1918/>
 
 En vigueur : 1918-09-30 (date du Journal officiel qui le publie).
 

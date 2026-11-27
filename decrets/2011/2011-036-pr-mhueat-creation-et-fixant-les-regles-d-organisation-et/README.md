@@ -1,8 +1,8 @@
 # Décret n° 2011-036/PR/MHUEAT portant création et fixant les règles d’organisation et de fonctionnement du Bureau d’Exécution des Projets de la Grande Muraille Verte.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-036-pr-mhueat-portant-creation-et-fixant-les-regles-dorganisation-et-de-fonctionnement-du-bureau-dexecution-des-projets-de-la-grande-muraille-verte/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-036-pr-mhueat-portant-creation-et-fixant-les-regles-dorganisation-et-de-fonctionnement-du-bureau-dexecution-des-projets-de-la-grande-muraille-verte/>
 
-En vigueur : 2011-03-12 (date fixÃ©e par le texte).
+En vigueur : 2011-03-12 (date fixée par le texte).
 
 ## Visas
 

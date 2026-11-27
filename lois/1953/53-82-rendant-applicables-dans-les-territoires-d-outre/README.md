@@ -1,6 +1,6 @@
 # Loi n° 53-82 rendant applicables dans les territoires d’outre-mer, au Cameroun et au Togo, la loi du 23 novembre 1950 modifiant les articles 381 et 386 et abrogeant l’article 385 du Gode pénal et la loi du 24 mai 1951 modifiant les articles 383 et 384 du même code (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-82-rendant-applicables-dans-les-territoires-doutre-mer-au-cameroun-et-au-togo-la-loi-du-23-novembre-1950-modifiant-les-articles-381-et-386-et-abrogeant-larticle-385/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-82-rendant-applicables-dans-les-territoires-doutre-mer-au-cameroun-et-au-togo-la-loi-du-23-novembre-1950-modifiant-les-articles-381-et-386-et-abrogeant-larticle-385/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 

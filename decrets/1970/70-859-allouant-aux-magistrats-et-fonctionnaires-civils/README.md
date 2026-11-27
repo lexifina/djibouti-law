@@ -1,6 +1,6 @@
 # Décret n° 70-859 allouant aux magistrats et fonctionnaires civils de l’Etat en service dans le T.F.A.I. et dans le condominium des Nouvelles-Hébrides une indemnité spéciale temporaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 26/10/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-859-allouant-aux-magistrats-et-fonctionnaires-civils-de-letat-en-service-dans-le-t-f-a-i-et-dans-le-condominium-des-nouvelles-hebrides-une-indemnite-speciale-temporaire/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 26/10/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-859-allouant-aux-magistrats-et-fonctionnaires-civils-de-letat-en-service-dans-le-t-f-a-i-et-dans-le-condominium-des-nouvelles-hebrides-une-indemnite-speciale-temporaire/>
 
 En vigueur : 1970-10-26 (date du Journal officiel qui le publie).
 
@@ -20,8 +20,8 @@ Jacques CHABAN-DELMAS.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

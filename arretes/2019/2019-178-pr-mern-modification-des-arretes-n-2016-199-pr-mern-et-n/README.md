@@ -1,8 +1,8 @@
 # Arrêté n° 2019-178/PR/MERN portant modification des Arrêtés n° 2016-199/PR/MERN et n° 2016-455/PR/MERN relatifs aux Tarifs de vente d’Energie Electrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-178-pr-mern-portant-modification-des-arretes-n2016-199-pr-mern-et-n2016-455-pr-mern-relatifs-aux-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 14/11/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-178-pr-mern-portant-modification-des-arretes-n2016-199-pr-mern-et-n2016-455-pr-mern-relatifs-aux-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2019-11-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-11-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

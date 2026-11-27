@@ -1,6 +1,6 @@
 # Décret n° 84-018/PRE portant reconnaissance d’utilité publique de la fondation internationale « Centre International de Service Arbitraux – C.I.S.A »
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-018-pre-portant-reconnaissance-dutilite-publique-de-la-fondation-internationale-centre-international-de-service-arbitraux-c-i-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/03/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-018-pre-portant-reconnaissance-dutilite-publique-de-la-fondation-internationale-centre-international-de-service-arbitraux-c-i-s-a/>
 
 En vigueur : 1984-03-31 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Le Conseil des Ministres entendu en sa séance du 21 Février 1954.
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

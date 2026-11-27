@@ -1,8 +1,8 @@
 # Décret n° 2001-0236/PR/MESN relatif à la création et à l’organisation du Fichier Central informatisé et de l’identifiant unique du personnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0236-pr-mesn-relatif-a-la-creation-et-a-lorganisation-du-fichier-central-informatise-et-de-lidentifiant-unique-du-personnel/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0236-pr-mesn-relatif-a-la-creation-et-a-lorganisation-du-fichier-central-informatise-et-de-lidentifiant-unique-du-personnel/>
 
-En vigueur : 2001-12-13 (date fixÃ©e par le texte).
+En vigueur : 2001-12-13 (date fixée par le texte).
 
 ## Visas
 

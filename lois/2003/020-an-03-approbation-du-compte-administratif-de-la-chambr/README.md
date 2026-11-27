@@ -1,6 +1,6 @@
 # Loi n° 20/AN/03/5ème L portant approbation du Compte Administratif de la Chambre Internationale de Commerce et d’Industrie de Djibouti et des Magasins Généraux pour l’Exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-03-5eme-l-portant-approbation-du-compte-administratif-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-03-5eme-l-portant-approbation-du-compte-administratif-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-2001/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

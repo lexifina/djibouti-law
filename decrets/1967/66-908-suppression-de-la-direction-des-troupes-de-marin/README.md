@@ -1,6 +1,6 @@
 # Décret n° 66-908 portant suppression de la Direction des Troupes de Marine
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-908-portant-suppression-de-la-direction-des-troupes-de-marine/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-908-portant-suppression-de-la-direction-des-troupes-de-marine/>
 
 En vigueur : 1967-01-01 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ Vu le décret n° 62-811 du 18 juillet 1962 modifié fixant les attributions ‘
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

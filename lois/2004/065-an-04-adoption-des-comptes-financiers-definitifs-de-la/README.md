@@ -1,6 +1,6 @@
 # Loi n° 65/AN/04/5ème L portant adoption des comptes financiers définitifs de la RTD pour l’Exercice 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-04-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-04-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2002/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

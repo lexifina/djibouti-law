@@ -1,6 +1,6 @@
 # Décret n° 99-0199/PR/MCC portant création de la chaîne internationale satellitaire de la Radio et de la Télévision Djiboutienne (R.T.D.).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0199-pr-mcc-portant-creation-de-la-chaine-internationale-satellitaire-de-la-radio-et-de-la-television-djiboutienne-r-t-d/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0199-pr-mcc-portant-creation-de-la-chaine-internationale-satellitaire-de-la-radio-et-de-la-television-djiboutienne-r-t-d/>
 
 En vigueur : 1999-10-16 (date du Journal officiel qui le publie).
 

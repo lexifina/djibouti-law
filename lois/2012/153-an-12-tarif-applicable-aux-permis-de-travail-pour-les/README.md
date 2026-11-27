@@ -1,8 +1,8 @@
 # Loi n° 153/AN/12/6ème L instituant le tarif applicable aux permis de Travail pour les travailleurs étrangers en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-travail-pour-les-travailleurs-etrangers-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-travail-pour-les-travailleurs-etrangers-en-republique-de-djibouti/>
 
-En vigueur : 2012-03-01 (date fixÃ©e par le texte).
+En vigueur : 2012-03-01 (date fixée par le texte).
 
 ## Visas
 

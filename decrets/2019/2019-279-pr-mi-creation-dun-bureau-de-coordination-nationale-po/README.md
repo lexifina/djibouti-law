@@ -1,6 +1,6 @@
 # Décret n° 2019-279/PR/MI portant création d’un bureau de Coordination Nationale pour la Migration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-279-pr-mi-portant-creation-dun-bureau-de-coordination-nationale-pour-la-migration/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 14/11/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-279-pr-mi-portant-creation-dun-bureau-de-coordination-nationale-pour-la-migration/>
 
 En vigueur : 2019-11-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

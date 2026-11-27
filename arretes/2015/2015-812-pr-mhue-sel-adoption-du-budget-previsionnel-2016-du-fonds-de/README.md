@@ -1,6 +1,6 @@
 # Arrêté n° 2015-812/PR/MHUE/SEL portant adoption du Budget prévisionnel 2016 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-812-pr-mhue-sel-portant-adoption-du-budget-previsionnel-2016-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-812-pr-mhue-sel-portant-adoption-du-budget-previsionnel-2016-du-fonds-de-lhabitat/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

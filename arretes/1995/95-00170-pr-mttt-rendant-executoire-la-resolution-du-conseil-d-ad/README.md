@@ -1,6 +1,6 @@
 # Arrêté n° 95-00170/PR/MTTT Rendant exécutoire la résolution du Conseil d’Administration de l’Aéroport de Djibouti portant approbation du budget prévisionnel rectificatif.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n95-00170-pr-mttt-rendant-executoire-la-resolution-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-budget-previsionnel-rectificatif/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/arrete-n95-00170-pr-mttt-rendant-executoire-la-resolution-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-budget-previsionnel-rectificatif/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

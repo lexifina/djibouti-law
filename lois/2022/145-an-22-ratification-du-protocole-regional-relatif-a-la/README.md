@@ -1,6 +1,6 @@
 # Loi n° 145/AN/22/8ème L portant ratification du Protocole Régional relatif à la Coopération Technique sur l’Emprunt et le Transfert des Experts, des Techniciens, des Equipements et des Matériels en cas d’Urgence Maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-22-8eme-l-portant-ratification-du-protocole-regional-relatif-a-la-cooperation-technique-sur-lemprunt-et-le-transfert-des-experts-des-techniciens-des-equipements-et-des-materiels/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-22-8eme-l-portant-ratification-du-protocole-regional-relatif-a-la-cooperation-technique-sur-lemprunt-et-le-transfert-des-experts-des-techniciens-des-equipements-et-des-materiels/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

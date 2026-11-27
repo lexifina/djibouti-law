@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0814/PR/MEFPP portant réglementation des ventes par la Sous-Direction des Recettes Indirectes des marchandises confisquées ou abandonnées.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0814-pr-mefpp-portant-reglementation-des-ventes-par-la-sous-direction-des-recettes-indirectes-des-marchandises-confisquees-ou-abandonnees/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0814-pr-mefpp-portant-reglementation-des-ventes-par-la-sous-direction-des-recettes-indirectes-des-marchandises-confisquees-ou-abandonnees/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

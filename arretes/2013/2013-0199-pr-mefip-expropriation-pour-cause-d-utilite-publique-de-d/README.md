@@ -1,6 +1,6 @@
 # Arrêté n° 2013-0199/PR/MEFIP portant expropriation pour cause d’utilité publique de deux parcelles de terrain bâties sises dans le district de Tadjourah.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0199-pr-mefip-portant-expropriation-pour-cause-dutilite-publique-de-deux-parcelles-de-terrain-baties-sises-dans-le-district-de-tadjourah/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0199-pr-mefip-portant-expropriation-pour-cause-dutilite-publique-de-deux-parcelles-de-terrain-baties-sises-dans-le-district-de-tadjourah/>
 
 En vigueur : 2013-03-15 (date du Journal officiel qui le publie).
 

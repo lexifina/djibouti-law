@@ -1,6 +1,6 @@
 # Loi n° 54/AN/09/6ème L portant approbation des comptes financiers d’Electricité de Djibouti pour l’exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-09-6eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-09-6eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2007/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

@@ -1,7 +1,7 @@
 # Loi n° 90/AN/15/7ème L instituant le cadre législatif
 relatif à l’efficacité énergétique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-15-7eme-l-instituant-le-cadre-legislatif-relatif-a-lefficacite-energetique/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-15-7eme-l-instituant-le-cadre-legislatif-relatif-a-lefficacite-energetique/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ Le Conseil des Ministres entendu en sa séance du 03 Mars 2015.
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

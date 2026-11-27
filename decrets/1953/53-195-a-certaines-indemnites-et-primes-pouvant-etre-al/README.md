@@ -1,6 +1,6 @@
 # Décret n° 53-195 relatif à certaines indemnités et primes pouvant être allouées au personnel du cadre général des Transmissions de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-195-relatif-a-certaines-indemnites-et-primes-pouvant-etre-allouees-au-personnel-du-cadre-general-des-transmissions-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-195-relatif-a-certaines-indemnites-et-primes-pouvant-etre-allouees-au-personnel-du-cadre-general-des-transmissions-de-la-france-doutre-mer/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

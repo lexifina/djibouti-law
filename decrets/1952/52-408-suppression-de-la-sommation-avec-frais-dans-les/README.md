@@ -1,6 +1,6 @@
 # Décret n° 52-408 portant Suppression de la sommation avec frais dans les Territoires d’Outre-Mer et précisant certaines modalités de recouvrement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-408-portant-suppression-de-la-sommation-avec-frais-dans-les-territoires-doutre-mer-et-precisant-certaines-modalites-de-recouvrement/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-408-portant-suppression-de-la-sommation-avec-frais-dans-les-territoires-doutre-mer-et-precisant-certaines-modalites-de-recouvrement/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

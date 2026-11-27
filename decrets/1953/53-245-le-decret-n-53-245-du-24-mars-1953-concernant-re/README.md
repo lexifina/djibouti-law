@@ -1,6 +1,6 @@
 # Décret n° 53-245 le décret n° 53-245 du 24 mars 1953 concernant recensement et révision des ieunes gens de la classe 1954.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/06/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-245-le-decret-n-53-245-du-24-mars-1953-concernant-recensement-et-revision-des-ieunes-gens-de-la-classe-1954/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/06/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-245-le-decret-n-53-245-du-24-mars-1953-concernant-recensement-et-revision-des-ieunes-gens-de-la-classe-1954/>
 
 En vigueur : 1953-06-01 (date du Journal officiel qui le publie).
 

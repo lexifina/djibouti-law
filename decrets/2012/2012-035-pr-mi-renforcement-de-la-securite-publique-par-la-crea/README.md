@@ -1,6 +1,6 @@
 # Décret n° 2012-035/PR/MI portant renforcement de la sécurité publique par la création d’un commissariat central de police et des commissariats de zone pour la commune de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-035-pr-mi-portant-renforcement-de-la-securite-publique-par-la-creation-dun-commissariat-central-de-police-et-des-commissariats-de-zone-pour-la-commune-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 29/02/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-035-pr-mi-portant-renforcement-de-la-securite-publique-par-la-creation-dun-commissariat-central-de-police-et-des-commissariats-de-zone-pour-la-commune-de-balbala/>
 
 En vigueur : 2012-02-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 49-1613 modifiant et complétant le décret du 1er juillet 1930, portant règlement d’administration publique, en exécution de l’article 101 de la loi du 19 décembre 1926, et fixant les conditions d’attribution de la carte du combattant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 25/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1613-modifiant-et-completant-le-decret-du-1er-juillet-1930-portant-reglement-dadministration-publique-en-execution-de-larticle-101-de-la-loi-du-19-decembre-1926/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 25/07/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1613-modifiant-et-completant-le-decret-du-1er-juillet-1930-portant-reglement-dadministration-publique-en-execution-de-larticle-101-de-la-loi-du-19-decembre-1926/>
 
 En vigueur : 1953-07-25 (date du Journal officiel qui le publie).
 
@@ -32,7 +32,7 @@ EDGAR FAURE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

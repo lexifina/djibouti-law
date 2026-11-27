@@ -1,6 +1,6 @@
 # Loi n° 190/AN/02/4ème L portant organisation des transports publics urbains et interurbains de personnes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-02-4eme-l-portant-organisation-des-transports-publics-urbains-et-interurbains-de-personnes/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-02-4eme-l-portant-organisation-des-transports-publics-urbains-et-interurbains-de-personnes/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 
@@ -74,4 +74,4 @@ ISMAÏL OMAR GUELLEH
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
 | [art-049.md](art-049.md) | Article 49 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

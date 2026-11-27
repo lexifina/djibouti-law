@@ -1,6 +1,6 @@
 # Loi n° 62/AN/04/5ème L portant ratification d’une Convention d’adhésion de la République de Djibouti à la Société Islamique de Développement du Secteur Privé (SIDSP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-04-5eme-l-portant-ratification-dune-convention-dadhesion-de-la-republique-de-djibouti-a-la-societe-islamique-de-developpement-du-secteur-prive-sidsp/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-04-5eme-l-portant-ratification-dune-convention-dadhesion-de-la-republique-de-djibouti-a-la-societe-islamique-de-developpement-du-secteur-prive-sidsp/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

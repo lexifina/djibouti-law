@@ -1,6 +1,6 @@
 # Loi n° 208/AN/17/7ème L portant ratification de la convention de prêt conclue entre la République de Djibouti et le Fonds Saoudien pour le Développement, relative au financement du projet de réhabilitation de la route Djibouti/Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-17-7eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-saoudien-pour-le-developpement-relative-au-financement-du-projet-de-rehab/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-17-7eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-saoudien-pour-le-developpement-relative-au-financement-du-projet-de-rehab/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

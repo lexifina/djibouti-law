@@ -1,8 +1,8 @@
 # Loi n° 153/AN/02/4ème L fixant les droits à pensions des militaires et de leurs ayants droit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-02-4eme-l-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-02-4eme-l-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
 
-En vigueur : 2002-01-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-01-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -129,4 +129,4 @@ ISMAÏL OMAR GUELLEH
 | [art-098.md](art-098.md) | Article 98 |
 | [art-099.md](art-099.md) | Article 99 |
 | [art-100.md](art-100.md) | Article 100 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

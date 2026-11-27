@@ -1,8 +1,8 @@
 # Décret n° 03-373-1927 Comptabilité du service des mandats d’articles d’argent échangés entre la France et les colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 373 du 31/12/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-373-1927-comptabilite-du-service-des-mandats-darticles-dargent-echanges-entre-la-france-et-les-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 373 du 31/12/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-373-1927-comptabilite-du-service-des-mandats-darticles-dargent-echanges-entre-la-france-et-les-colonies/>
 
-En vigueur : 1928-01-01 (date fixÃ©e par le texte).
+En vigueur : 1928-01-01 (date fixée par le texte).
 
 ## Visas
 

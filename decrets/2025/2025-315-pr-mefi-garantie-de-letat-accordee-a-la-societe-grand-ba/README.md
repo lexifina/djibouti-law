@@ -1,8 +1,8 @@
 # Décret n° 2025-315/PR/MEFI portant Garantie de l’Etat accordée à la société GRAND BARA SOLAR SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-315-pr-mefi-portant-garantie-de-letat-accordee-a-la-societe-grand-bara-solar-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-315-pr-mefi-portant-garantie-de-letat-accordee-a-la-societe-grand-bara-solar-sas/>
 
-En vigueur : 2025-11-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-11-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

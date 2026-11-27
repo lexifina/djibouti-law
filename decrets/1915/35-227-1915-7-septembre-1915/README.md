@@ -1,6 +1,6 @@
 # Décret n° 35-227-1915 7 Septembre 1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 227 du 30/09/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-35-227-1915-7-septembre-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 227 du 30/09/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-35-227-1915-7-septembre-1915/>
 
 En vigueur : 1915-09-30 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Gaston DOUMERGUE
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Ordonnance n° 91-114/PR/MCTT portant modification des statuts de l’aeroport international de djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91-114-pr-mctt-portant-modification-des-statuts-de-laeroport-international-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91-114-pr-mctt-portant-modification-des-statuts-de-laeroport-international-de-djibouti/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 

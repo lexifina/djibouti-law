@@ -1,6 +1,6 @@
 # Décret n° 50-1162 instituant une indemnité de gérance en faveur des agents appelés à remplacer les trésoriers coloniaux ou proposés au Trésor absents.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1162-instituant-une-indemnite-de-gerance-en-faveur-des-agents-appeles-a-remplacer-les-tresoriers-coloniaux-ou-proposes-au-tresor-absents/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1162-instituant-une-indemnite-de-gerance-en-faveur-des-agents-appeles-a-remplacer-les-tresoriers-coloniaux-ou-proposes-au-tresor-absents/>
 
 En vigueur : 1950-11-30 (date du Journal officiel qui le publie).
 

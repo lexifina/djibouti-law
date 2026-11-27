@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0179/PR/MJSLT approuvant et rendant exécutoire le Budget prévisionnel 2006 du Stade Al Hadj Hassan Gouled Aptidon.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0179-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2006-du-stade-al-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 01/04/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0179-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2006-du-stade-al-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2006-04-01 (date du Journal officiel qui le publie).
 

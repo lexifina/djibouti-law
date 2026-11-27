@@ -1,6 +1,6 @@
 # Arrêté n° 99-0655/PRE/MJSLT fixant les règles particulières auxquelles sont soumises les associations des centres de développement communautaire de la République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0655-pre-mjslt-fixant-les-regles-particulieres-auxquelles-sont-soumises-les-associations-des-centres-de-developpement-communautaire-de-la-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0655-pre-mjslt-fixant-les-regles-particulieres-auxquelles-sont-soumises-les-associations-des-centres-de-developpement-communautaire-de-la-republique-de-djibouti/>
 
 En vigueur : 1999-10-31 (date du Journal officiel qui le publie).
 

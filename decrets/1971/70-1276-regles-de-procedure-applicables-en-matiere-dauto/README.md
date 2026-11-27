@@ -1,6 +1,6 @@
 # Décret n° 70-1276 relatif aux règles de procédure applicables en matière d’autorité pa- rentale (J.OR.F. du 30 décembre 1970, pages 12217 à 12219) Instruction relative à la lutte contre les pollutions accidentelles des côtes françaises par les hydroçcärbures (J.O.RK. du 12 janvier 1971. page 414)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1276-relatif-aux-regles-de-procedure-applicables-en-matiere-dautorite-pa-rentale-j-or-f-du-30-decembre-1970-pages-12217-a-12219-instruction-relative-a-la-lutte-contre-les-p/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1276-relatif-aux-regles-de-procedure-applicables-en-matiere-dautorite-pa-rentale-j-or-f-du-30-decembre-1970-pages-12217-a-12219-instruction-relative-a-la-lutte-contre-les-p/>
 
 En vigueur : 1971-01-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 90/AN/84/1ère L modifiant l’article 25.21.05 du code général des impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-84-1ere-l-modifiant-larticle-25-21-05-du-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-84-1ere-l-modifiant-larticle-25-21-05-du-code-general-des-impots/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2007-0014/PR/MAEM pris en application de la Loi n° 187/AN/02/4ème L du 09 septembre 2002 portant Code des Pêches.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0014-pr-maem-pris-en-application-de-la-loi-n187-an-02-4eme-l-du-09-septembre-2002-portant-code-des-peches/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0014-pr-maem-pris-en-application-de-la-loi-n187-an-02-4eme-l-du-09-septembre-2002-portant-code-des-peches/>
 
 En vigueur : 2007-01-31 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

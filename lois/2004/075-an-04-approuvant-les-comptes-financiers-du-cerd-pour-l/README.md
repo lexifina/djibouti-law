@@ -1,6 +1,6 @@
 # Loi n° 75/AN/04/5ème L approuvant les comptes financiers du CERD pour l’Exercice 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-04-5eme-l-approuvant-les-comptes-financiers-du-cerd-pour-lexercice-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-04-5eme-l-approuvant-les-comptes-financiers-du-cerd-pour-lexercice-2002/>
 
 En vigueur : 2004-09-15 (date du Journal officiel qui le publie).
 

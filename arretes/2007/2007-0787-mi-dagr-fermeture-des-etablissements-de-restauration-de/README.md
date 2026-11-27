@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0787/MI/DAGR portant fermeture des établissements de Restauration, de débits de boissons et spectacles pendant la période du Mois de Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0787-mi-dagr-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0787-mi-dagr-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
 
 En vigueur : 2007-09-30 (date du Journal officiel qui le publie).
 

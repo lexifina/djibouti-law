@@ -1,6 +1,6 @@
 # Amendement n° 28 DÉCEMBRE 1951 relatif à la carte du combattant
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 25/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-28-decembre-1951-relatif-a-la-carte-du-combattant/>
+Amendement · Journal officiel de la République de Djibouti, n° 9 du 25/07/1953 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-28-decembre-1951-relatif-a-la-carte-du-combattant/>
 
 En vigueur : 1953-07-25 (date du Journal officiel qui le publie).
 
@@ -24,6 +24,6 @@ Georges BIDAULT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

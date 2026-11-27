@@ -1,6 +1,6 @@
 # Arrêté n° 2018-091/PR/MERN portant création et composition du Comité d’Organisation de la Conférence Internationale sur les énergies renouvelables.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-091-pr-mern-portant-creation-et-composition-du-comite-dorganisation-de-la-conference-internationale-sur-les-energies-renouvelables/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-091-pr-mern-portant-creation-et-composition-du-comite-dorganisation-de-la-conference-internationale-sur-les-energies-renouvelables/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

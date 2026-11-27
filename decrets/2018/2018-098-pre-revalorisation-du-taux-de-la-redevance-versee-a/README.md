@@ -1,8 +1,8 @@
 # Décret n° 2018-098/PRE portant revalorisation du taux de la redevance versée à l’Etat et les exonérations fiscales de la Société de Gestion du Terminal a Conteneur de Doraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-098-pre-portant-revalorisation-du-taux-de-la-redevance-versee-a-letat-et-les-exonerations-fiscales-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-098-pre-portant-revalorisation-du-taux-de-la-redevance-versee-a-letat-et-les-exonerations-fiscales-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh/>
 
-En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

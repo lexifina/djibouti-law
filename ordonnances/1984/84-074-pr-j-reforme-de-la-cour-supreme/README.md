@@ -1,6 +1,6 @@
 # Ordonnance n° 84-074/PR/J portant réforme de la Cour Suprême.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-074-pr-j-portant-reforme-de-la-cour-supreme/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-074-pr-j-portant-reforme-de-la-cour-supreme/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Le Conseil des Ministres entendu en sa séance du 19 juin1984.
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

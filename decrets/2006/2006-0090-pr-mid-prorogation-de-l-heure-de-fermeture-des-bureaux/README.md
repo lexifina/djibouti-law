@@ -1,6 +1,6 @@
 # Décret n° 2006-0090/PR/MID portant prorogation de l’heure de fermeture des bureaux de vote.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0090-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0090-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote/>
 
 En vigueur : 2006-04-01 (date du Journal officiel qui le publie).
 

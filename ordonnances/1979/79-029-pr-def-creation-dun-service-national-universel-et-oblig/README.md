@@ -1,6 +1,6 @@
 # Ordonnance n° 79-029/PR/DEF portant création d’un service national universel et obligatoire.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-029-pr-def-portant-creation-dun-service-national-universel-et-obligatoire/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-029-pr-def-portant-creation-dun-service-national-universel-et-obligatoire/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

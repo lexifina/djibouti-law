@@ -1,6 +1,6 @@
 # Décret n° 2016-022/PRE portant modification du Décret n° 2015-287/PRE portant Organisation et Fonctionnement de l’Agence Nationale des Systèmes d’Information de l’Etat (ANSIE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-022-pre-portant-modification-du-decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-022-pre-portant-modification-du-decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

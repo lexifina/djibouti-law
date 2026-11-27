@@ -1,6 +1,6 @@
 # Loi de finances n° 89/AN/20/8ème L portant Budget Rectificatif de l’Etat pour l’exercice 2020.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 29/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n89-an-20-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2020/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 14 du 29/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n89-an-20-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2020/>
 
 En vigueur : 2020-07-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 58/AN/14/7ème L portant adoption de la “Vision Djibouti 2035” et ses Plans d’actions opérationnels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-14-7eme-l-portant-adoption-de-la-vision-djibouti-2035-et-ses-plans-dactions-operationnels/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-14-7eme-l-portant-adoption-de-la-vision-djibouti-2035-et-ses-plans-dactions-operationnels/>
 
 En vigueur : 2014-12-15 (date du Journal officiel qui le publie).
 

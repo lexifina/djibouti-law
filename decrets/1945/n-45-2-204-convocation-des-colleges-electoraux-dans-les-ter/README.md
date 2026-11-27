@@ -1,6 +1,6 @@
 # Décret n° n° 45-2.204 portant convocation des collèges électoraux dans les territoires d’outre-mer relevant du Ministre des Colonies en vue de procéder aux élections de l’Assemblée Nationale Constituante et au référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2-204-portant-convocation-des-colleges-electoraux-dans-les-territoires-doutre-mer-relevant-du-ministre-des-colonies-en-vue-de-proceder-aux-elections-de-lassemblee/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2-204-portant-convocation-des-colleges-electoraux-dans-les-territoires-doutre-mer-relevant-du-ministre-des-colonies-en-vue-de-proceder-aux-elections-de-lassemblee/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

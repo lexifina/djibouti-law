@@ -1,6 +1,6 @@
 # Loi n° 134/AN/06/5ème L portant Révision de la Constitution.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-06-5eme-l-portant-revision-de-la-constitution/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-06-5eme-l-portant-revision-de-la-constitution/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

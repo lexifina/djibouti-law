@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0053/PR/MJSLT portant approbation du Budget prévisionnel-excercice 2002-du Stade «El Hadj Hassan Gouled Aptidon».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0053-pr-mjslt-portant-approbation-du-budget-previsionnel-excercice-2002-du-stade-el-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0053-pr-mjslt-portant-approbation-du-budget-previsionnel-excercice-2002-du-stade-el-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

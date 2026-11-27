@@ -1,6 +1,6 @@
 # Arrêté n° 2015-121/PR/MAEPERH portant interdiction d’extraction des matériaux dans les zones de captages de la Nappe de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-121-pr-maeperh-portant-interdiction-dextraction-des-materiaux-dans-les-zones-de-captages-de-la-nappe-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-121-pr-maeperh-portant-interdiction-dextraction-des-materiaux-dans-les-zones-de-captages-de-la-nappe-de-djibouti/>
 
 En vigueur : 2015-02-15 (date du Journal officiel qui le publie).
 

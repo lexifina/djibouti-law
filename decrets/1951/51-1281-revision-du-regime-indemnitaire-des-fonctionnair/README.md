@@ -1,6 +1,6 @@
 # Décret n° 51-1281 portant révision du régime indemnitaire. des fonctionnaires et magistrats visés à l’article 1″ de la loi n » 48-48S du 21 mars 1948.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1281-portant-revision-du-regime-indemnitaire-des-fonctionnaires-et-magistrats-vises-a-larticle-1-de-la-loi-n-48-48s-du-21-mars-1948/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1281-portant-revision-du-regime-indemnitaire-des-fonctionnaires-et-magistrats-vises-a-larticle-1-de-la-loi-n-48-48s-du-21-mars-1948/>
 
 En vigueur : 1952-01-01 (date du Journal officiel qui le publie).
 
@@ -33,5 +33,5 @@ Le Secrétaire d'Etat à la Présidence du Conseil, Félix GAILLARD.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

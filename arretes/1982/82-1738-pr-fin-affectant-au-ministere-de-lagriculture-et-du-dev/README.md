@@ -1,6 +1,6 @@
 # Arrêté n° 82-1738/PR/FIN affectant au Ministère de l’Agriculture et du Développement rural une parcelle de terrain sise à la zone industrielle Sud.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/12/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1738-pr-fin-affectant-au-ministere-de-lagriculture-et-du-developpement-rural-une-parcelle-de-terrain-sise-a-la-zone-industrielle-sud/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 31/12/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1738-pr-fin-affectant-au-ministere-de-lagriculture-et-du-developpement-rural-une-parcelle-de-terrain-sise-a-la-zone-industrielle-sud/>
 
 En vigueur : 1982-12-31 (date du Journal officiel qui le publie).
 

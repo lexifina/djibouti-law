@@ -1,6 +1,6 @@
 # Rectificatif n° 336 16 MARS 1953
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-336-16-mars-1953/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-336-16-mars-1953/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 

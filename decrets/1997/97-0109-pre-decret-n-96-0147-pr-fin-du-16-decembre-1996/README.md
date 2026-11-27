@@ -1,8 +1,8 @@
 # Décret n° 97-0109/PRE modifiant le décret n° 96-0147/PR/FIN du 16 décembre 1996
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0109-pre-modifiant-le-decret-n96-0147-pr-fin-du-16-decembre-1996/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0109-pre-modifiant-le-decret-n96-0147-pr-fin-du-16-decembre-1996/>
 
-En vigueur : 1997-07-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-07-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

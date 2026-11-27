@@ -1,6 +1,6 @@
 # Loi n° 68-1035 modifiant les articles 132, 133 et 136 du Code pénal
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-68-1035-modifiant-les-articles-132-133-et-136-du-code-penal/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/loi-n-68-1035-modifiant-les-articles-132-133-et-136-du-code-penal/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 
@@ -20,6 +20,6 @@ François ORTOL
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

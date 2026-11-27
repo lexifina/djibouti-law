@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2685 du 2 novembre 1945 relative au maintien en fonctions au delà de la limite d’âge des fonctionnaires coloniaux relevant du département des colonies
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2685-du-2-novembre-1945-relative-au-maintien-en-fonctions-au-dela-de-la-limite-dage-des-fonctionnaires-coloniaux-relevant-du-departement-des-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2685-du-2-novembre-1945-relative-au-maintien-en-fonctions-au-dela-de-la-limite-dage-des-fonctionnaires-coloniaux-relevant-du-departement-des-colonies/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

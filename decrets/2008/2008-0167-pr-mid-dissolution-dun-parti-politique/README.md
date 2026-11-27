@@ -1,6 +1,6 @@
 # Décret n° 2008-0167/PR/MID portant dissolution d’un parti politique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0167-pr-mid-portant-dissolution-dun-parti-politique/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0167-pr-mid-portant-dissolution-dun-parti-politique/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

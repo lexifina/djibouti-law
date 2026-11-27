@@ -1,6 +1,6 @@
 # Décret n° 46-660 prescrivant en ce qui concerne les non-citoyens jouissant de l’électorat politique dans les territoires d‘outre-mer relevant du ministère de la France d’outre-mer une nouvelle révision ou l’établissement des listes électorale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-660-prescrivant-en-ce-qui-concerne-les-non-citoyens-jouissant-de-lelectorat-politique-dans-les-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-une/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-660-prescrivant-en-ce-qui-concerne-les-non-citoyens-jouissant-de-lelectorat-politique-dans-les-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-une/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

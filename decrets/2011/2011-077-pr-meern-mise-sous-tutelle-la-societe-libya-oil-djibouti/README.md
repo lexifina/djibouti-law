@@ -1,6 +1,6 @@
 # Décret n° 2011-077/PR/MEERN portant la mise sous tutelle la Société Libya Oil Djibouti par le Gouvernement de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-077-pr-meern-portant-la-mise-sous-tutelle-la-societe-libya-oil-djibouti-par-le-gouvernement-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-077-pr-meern-portant-la-mise-sous-tutelle-la-societe-libya-oil-djibouti-par-le-gouvernement-de-djibouti/>
 
 En vigueur : 2011-05-31 (date du Journal officiel qui le publie).
 

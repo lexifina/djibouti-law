@@ -1,6 +1,6 @@
 # Loi n° 163/AN/91/2ème L portant délégation d’une partie des pouvoirs de l’assemblée nationale à la commission permanente jusqu’à l’ouverture de la 2ème session ordinaire de 1991 dite » session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-91-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1991-dite-sessio/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-91-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1991-dite-sessio/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 

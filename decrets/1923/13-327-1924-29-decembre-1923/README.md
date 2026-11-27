@@ -1,6 +1,6 @@
 # Décret n° 13-327-1924 le 29 décembre 1923.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 327 du 29/02/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-327-1924-le-29-decembre-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 327 du 29/02/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-327-1924-le-29-decembre-1923/>
 
 En vigueur : 1924-02-29 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ A. SABRAUT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

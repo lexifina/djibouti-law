@@ -1,6 +1,6 @@
 # Loi n° 194/AN/13/6ème L portant ratification de l’Accord Intergouvernemental entre la République de Djibouti, la République Fédérale Démocratique d’Ethiopie et la République du Sud-Soudan relatif au projet de développement, de construction et d’exploitation du pipeline pétrolier
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-13-6eme-l-portant-ratification-de-laccord-intergouvernemental-entre-la-republique-de-djibouti-la-republique-federale-democratique-dethiopie-et-la-republique-du-sud-soudan-relati/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-13-6eme-l-portant-ratification-de-laccord-intergouvernemental-entre-la-republique-de-djibouti-la-republique-federale-democratique-dethiopie-et-la-republique-du-sud-soudan-relati/>
 
 En vigueur : 2013-02-28 (date du Journal officiel qui le publie).
 

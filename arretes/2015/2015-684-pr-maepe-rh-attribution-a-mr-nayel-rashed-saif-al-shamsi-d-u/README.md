@@ -1,6 +1,6 @@
 # Arrêté n° 2015-684/PR/MAEPE-RH portant attribution à Mr Nayel Rashed Saif Al Shamsi, d’une parcelle de terrain sise au petit bara.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-684-pr-maepe-rh-portant-attribution-a-mr-nayel-rashed-saif-al-shamsi-dune-parcelle-de-terrain-sise-au-petit-bara/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-684-pr-maepe-rh-portant-attribution-a-mr-nayel-rashed-saif-al-shamsi-dune-parcelle-de-terrain-sise-au-petit-bara/>
 
 En vigueur : 2015-11-15 (date du Journal officiel qui le publie).
 

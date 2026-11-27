@@ -1,6 +1,6 @@
 # Décret n° 2017-320/PR/MD portant revalorisation d’indices au profit de certains officiers généraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-320-pr-md-portant-revalorisation-dindices-au-profit-de-certains-officiers-generaux/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-320-pr-md-portant-revalorisation-dindices-au-profit-de-certains-officiers-generaux/>
 
 En vigueur : 2017-10-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2010-0042/PR/MEFPCP modifiant le Décret n° 99-0025/PR/MEFPP du 03 mars 1999 pris en application de la Loi n° 15/AN/98/4ème L du 1er avril 1998 et portant création au sein de la Direction du Trésor et de la Comptabilité Nationale, la Sous Direction d’Audit et de Suivi des compt
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0042-pr-mefpcp-modifiant-le-decret-n99-0025-pr-mefpp-du-03-mars-1999-pris-en-application-de-la-loi-n15-an-98-4eme-l-du-1er-avril-1998-et-portant-creation-au-sein-de-la-d/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0042-pr-mefpcp-modifiant-le-decret-n99-0025-pr-mefpp-du-03-mars-1999-pris-en-application-de-la-loi-n15-an-98-4eme-l-du-1er-avril-1998-et-portant-creation-au-sein-de-la-d/>
 
-En vigueur : 2010-03-24 (date fixÃ©e par le texte).
+En vigueur : 2010-03-24 (date fixée par le texte).
 
 ## Visas
 

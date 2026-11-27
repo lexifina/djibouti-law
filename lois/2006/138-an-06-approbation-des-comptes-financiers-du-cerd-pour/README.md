@@ -1,6 +1,6 @@
 # Loi n° 138/AN/06/5ème L portant approbation des comptes financiers du CERD pour l’Exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-06-5eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-06-5eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2003/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

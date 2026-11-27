@@ -1,6 +1,6 @@
 # Loi n° 68/AN/89/2ème L modifiant et complétant la délibération n° 68/AN/83 du 17 octobre 1983, portant création du cahier des charges applicables au lotissement « Hayabeley » (secteurs 1 et 2).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-89-2eme-l-modifiant-et-completant-la-deliberation-n68-an-83-du-17-octobre-1983-portant-creation-du-cahier-des-charges-applicables-au-lotissement-hayabeley-secteurs-1-et-2/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n68-an-89-2eme-l-modifiant-et-completant-la-deliberation-n68-an-83-du-17-octobre-1983-portant-creation-du-cahier-des-charges-applicables-au-lotissement-hayabeley-secteurs-1-et-2/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0298/PR/MEECRN portant exonération des taxes et des surtaxes des équipements de forages et des produits pétroliers.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0298-pr-meecrn-portant-exoneration-des-taxes-et-des-surtaxes-des-equipements-de-forages-et-des-produits-petroliers/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0298-pr-meecrn-portant-exoneration-des-taxes-et-des-surtaxes-des-equipements-de-forages-et-des-produits-petroliers/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

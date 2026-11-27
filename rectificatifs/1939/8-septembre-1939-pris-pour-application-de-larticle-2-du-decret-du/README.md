@@ -1,6 +1,6 @@
 # Rectificatif n° 8 septembre 1939 pris pour application de l’article 2 du décret du 1 septembre 1939 relatif aux actions en justice et aux prescriptions et délais de procédure intéressant les mobilises,
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-8-septembre-1939-pris-pour-application-de-larticle-2-du-decret-du-1-septembre-1939-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mo/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-8-septembre-1939-pris-pour-application-de-larticle-2-du-decret-du-1-septembre-1939-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mo/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 29 mars 1940 Le décret portant mise en application de l’accord de payement et de l’arrangement relatif aux échanges commerciaux conclus entre la France et l’Italie, le 6mais 1940
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-mars-1940-le-decret-portant-mise-en-application-de-laccord-de-payement-et-de-larrangement-relatif-aux-echanges-commerciaux-conclus-entre-la-france-et-litalie-le-6mais/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-mars-1940-le-decret-portant-mise-en-application-de-laccord-de-payement-et-de-larrangement-relatif-aux-echanges-commerciaux-conclus-entre-la-france-et-litalie-le-6mais/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 

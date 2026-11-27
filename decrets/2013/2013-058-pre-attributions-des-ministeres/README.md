@@ -1,6 +1,6 @@
 # Décret n° 2013-058/PRE fixant les attributions des Ministères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-058-pre-fixant-les-attributions-des-ministeres/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-058-pre-fixant-les-attributions-des-ministeres/>
 
 En vigueur : 2013-04-15 (date du Journal officiel qui le publie).
 

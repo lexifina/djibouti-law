@@ -1,6 +1,6 @@
 # Décret n° 46-2183 portant rétablissement de ‘indemnité de service temporaire en France au profit des fonctionnaires coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2183-portant-retablissement-de-indemnite-de-service-temporaire-en-france-au-profit-des-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2183-portant-retablissement-de-indemnite-de-service-temporaire-en-france-au-profit-des-fonctionnaires-coloniaux/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

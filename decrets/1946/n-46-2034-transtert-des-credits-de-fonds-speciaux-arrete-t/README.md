@@ -1,6 +1,6 @@
 # Décret n° n° 46-2034 portant transtert des crédits de fonds spéciaux, (Arrêté : Transfert de crédits).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2034-portant-transtert-des-credits-de-fonds-speciaux-arrete-transfert-de-credits/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2034-portant-transtert-des-credits-de-fonds-speciaux-arrete-transfert-de-credits/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 
@@ -32,7 +32,7 @@ marius moutet
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1— |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

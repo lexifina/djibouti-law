@@ -1,6 +1,6 @@
 # Décret n° 85-109/PRE définissant les conditions de vente des 298 logements de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-109-pre-definissant-les-conditions-de-vente-des-298-logements-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-109-pre-definissant-les-conditions-de-vente-des-298-logements-de-balbala/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

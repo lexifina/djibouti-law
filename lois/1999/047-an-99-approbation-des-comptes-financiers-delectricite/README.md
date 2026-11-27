@@ -1,6 +1,6 @@
 # Loi n° 47/AN/99/4ème L portant approbation des comptes financiers d’Électricité de Djibouti pour l’exercice 1996
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-99-4eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-1996/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-99-4eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-1996/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

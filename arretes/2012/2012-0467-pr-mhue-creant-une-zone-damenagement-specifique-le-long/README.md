@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0467/PR/MHUE créant une Zone d’Aménagement Spécifique le long de la Route de Doraleh et de la Voie 19 au PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0467-pr-mhue-creant-une-zone-damenagement-specifique-le-long-de-la-route-de-doraleh-et-de-la-voie-19-au-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0467-pr-mhue-creant-une-zone-damenagement-specifique-le-long-de-la-route-de-doraleh-et-de-la-voie-19-au-pk-12/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

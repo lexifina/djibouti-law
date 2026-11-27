@@ -1,6 +1,6 @@
 # Loi n° 92/AN/89/2ème L portant ratification de quatre accords de coopération entre le gouvernement d’Égypte et la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-89-2eme-l-portant-ratification-de-quatre-accords-de-cooperation-entre-le-gouvernement-degypte-et-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-89-2eme-l-portant-ratification-de-quatre-accords-de-cooperation-entre-le-gouvernement-degypte-et-la-republique-de-djibouti/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

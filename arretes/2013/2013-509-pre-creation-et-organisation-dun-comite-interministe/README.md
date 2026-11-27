@@ -1,6 +1,6 @@
 # Arrêté n° 2013-509/PRE portant création et organisation d’un Comité Interministériel, chargé de l’identification et du décasement des occupations illégales du domaine public.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-509-pre-portant-creation-et-organisation-dun-comite-interministeriel-charge-de-lidentification-et-du-decasement-des-occupations-illegales-du-domaine-public/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-509-pre-portant-creation-et-organisation-dun-comite-interministeriel-charge-de-lidentification-et-du-decasement-des-occupations-illegales-du-domaine-public/>
 
 En vigueur : 2013-08-15 (date du Journal officiel qui le publie).
 

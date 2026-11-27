@@ -1,6 +1,6 @@
 # 2023-136/PR/MD portant prolongation de mission en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti dans différents pays.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-136-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-dans-differents-pays/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-136-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-dans-differents-pays/>
 
 En vigueur : 2023-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 65-542 portant institution d’un code de justice militaire (J.O.R.F. du 9 juillet 1965, p. 5851 et suiv).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1966 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-65-542-portant-institution-dun-code-de-justice-militaire-j-o-r-f-du-9-juillet-1965-p-5851-et-suiv/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/03/1966 · <https://www.journalofficiel.dj/texte-juridique/loi-n-65-542-portant-institution-dun-code-de-justice-militaire-j-o-r-f-du-9-juillet-1965-p-5851-et-suiv/>
 
 En vigueur : 1966-03-31 (date du Journal officiel qui le publie).
 

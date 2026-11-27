@@ -1,6 +1,6 @@
 # Décret n° 93-0007/PRE portant organisation de la direction de la planification.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0007-pre-portant-organisation-de-la-direction-de-la-planification/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0007-pre-portant-organisation-de-la-direction-de-la-planification/>
 
 En vigueur : 1993-01-31 (date du Journal officiel qui le publie).
 

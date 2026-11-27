@@ -1,8 +1,8 @@
 # Décret n° 2022-047/PRE pris pour l’application de la Loi n° 74/AN/20/8ème L portant création de l’autorité de régulation multisectorielle de Djibouti (ARMD)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-047-pre-pris-pour-lapplication-de-la-loi-n74-an-20-8eme-l-portant-creation-de-lautorite-de-regulation-multisectorielle-de-djibouti-armd/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-047-pre-pris-pour-lapplication-de-la-loi-n74-an-20-8eme-l-portant-creation-de-lautorite-de-regulation-multisectorielle-de-djibouti-armd/>
 
-En vigueur : 2022-03-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-03-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -157,4 +157,4 @@ ISMAÏL OMAR GUELLEH
 | [art-106.md](art-106.md) | Article 106 |
 | [art-107.md](art-107.md) | Article 107 |
 | [art-108.md](art-108.md) | Article 108 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-459/PR/MENESUP modifiant l’Arrêté n° 2006-0516/PR/MENESUP portant réglementation propre au diplôme national menant au titre de diplôme universitaire technologie mention « Informatique ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-459-pr-menesup-modifiant-larrete-n2006-0516-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-technologie-mention-infor/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-459-pr-menesup-modifiant-larrete-n2006-0516-pr-menesup-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-technologie-mention-infor/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

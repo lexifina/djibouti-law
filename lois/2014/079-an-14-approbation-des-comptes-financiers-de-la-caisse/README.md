@@ -1,6 +1,6 @@
 # Loi n° 79/AN/14/7ème L portant approbation des comptes financiers de la Caisse Nationale de Sécurité Sociale pour l’exercice 2012.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-14-7eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2012/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-14-7eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2012/>
 
 En vigueur : 2015-02-28 (date du Journal officiel qui le publie).
 

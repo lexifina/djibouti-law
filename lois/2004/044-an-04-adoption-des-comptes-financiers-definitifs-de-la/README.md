@@ -1,6 +1,6 @@
 # Loi n° 44/AN/04/5ème L portant adoption des comptes financiers définitifs de la RTD pour l’Exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-04-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-04-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2001/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

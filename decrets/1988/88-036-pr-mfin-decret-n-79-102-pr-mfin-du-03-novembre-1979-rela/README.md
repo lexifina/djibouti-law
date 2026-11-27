@@ -1,6 +1,6 @@
 # Décret n° 88-036/PR/MFIN modifiant le décret n° 79-102/PR/MFIN du 03 novembre 1979 relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-036-pr-mfin-modifiant-le-decret-n79-102-pr-mfin-du-03-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-036-pr-mfin-modifiant-le-decret-n79-102-pr-mfin-du-03-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1988-05-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-002/PR/MI fixant les modalités de l’organisation des Elections Régionales et Communales du 20 janvier et 10 février 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-002-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-002-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

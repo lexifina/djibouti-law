@@ -1,6 +1,6 @@
 # Décret n° 10-464-1935 Organisation du contrôle des films cinématographiques, des disques phonographiques, des prises de vues et des enregistrements sonores dans les établissements Français de l’Océanie, en Nouvelle-Calédonie et dépendances et à la Côte française des Somalis,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-464-1935-organisation-du-controle-des-films-cinematographiques-des-disques-phonographiques-des-prises-de-vues-et-des-enregistrements-sonores-dans-les-etablissements-francais-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-464-1935-organisation-du-controle-des-films-cinematographiques-des-disques-phonographiques-des-prises-de-vues-et-des-enregistrements-sonores-dans-les-etablissements-francais-de-l/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Léon BÉRARD.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

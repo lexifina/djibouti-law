@@ -1,8 +1,8 @@
 # Arrêté n° 2019-070/PR/MJDH portant renouvellement du Comité Technique de Lutte contre le Terrorisme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-070-pr-mjdh-portant-renouvellement-du-comite-technique-de-lutte-contre-le-terrorisme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-070-pr-mjdh-portant-renouvellement-du-comite-technique-de-lutte-contre-le-terrorisme/>
 
-En vigueur : 2019-03-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-03-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

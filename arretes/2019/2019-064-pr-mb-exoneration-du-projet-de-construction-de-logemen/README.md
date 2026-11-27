@@ -1,6 +1,6 @@
 # Arrêté n° 2019-064/PR/MB portant exonération du projet de construction de logements sociaux financés par le FADES.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 14/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-064-pr-mb-portant-exoneration-du-projet-de-construction-de-logements-sociaux-finances-par-le-fades/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 14/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-064-pr-mb-portant-exoneration-du-projet-de-construction-de-logements-sociaux-finances-par-le-fades/>
 
 En vigueur : 2019-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2018-094/PRE portant Création de la Société de Gestion de la Jetée du Terminal Pétrolier de Doraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-094-pre-portant-creation-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-094-pre-portant-creation-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh/>
 
-En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 96-0047/PR/DEF approuvant le budget de la Chambre Internationale de Commerce et des Magasins Généraux, exercice 1996.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0047-pr-def-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1996/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0047-pr-def-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1996/>
 
 En vigueur : 1996-06-15 (date du Journal officiel qui le publie).
 

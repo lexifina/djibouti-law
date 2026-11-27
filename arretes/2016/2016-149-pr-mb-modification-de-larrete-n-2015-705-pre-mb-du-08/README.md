@@ -1,6 +1,6 @@
 # Arrêté n° 2016-149/PR/MB portant modification de l’arrêté n° 2015-705/PRE/MB du 08 novembre 2015.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-149-pr-mb-portant-modification-de-larrete-n2015-705-pre-mb-du-08-novembre-2015/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-149-pr-mb-portant-modification-de-larrete-n2015-705-pre-mb-du-08-novembre-2015/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

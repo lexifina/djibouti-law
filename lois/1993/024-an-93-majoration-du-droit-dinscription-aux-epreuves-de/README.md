@@ -1,6 +1,6 @@
 # Loi n° 24/AN/93/3ème L portant majoration du droit d’inscription aux épreuves de l’examen pour l’obtention du permis de conduire en mer les navires de plaisance à moteur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-93-3eme-l-portant-majoration-du-droit-dinscription-aux-epreuves-de-lexamen-pour-lobtention-du-permis-de-conduire-en-mer-les-navires-de-plaisance-a-moteur/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-93-3eme-l-portant-majoration-du-droit-dinscription-aux-epreuves-de-lexamen-pour-lobtention-du-permis-de-conduire-en-mer-les-navires-de-plaisance-a-moteur/>
 
 En vigueur : 1993-06-30 (date du Journal officiel qui le publie).
 

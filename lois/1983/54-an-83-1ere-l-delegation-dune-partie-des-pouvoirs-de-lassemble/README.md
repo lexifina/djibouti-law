@@ -1,6 +1,6 @@
 # Loi n° 54 /AN /83/1ére L Portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la session ordinaire de 1983 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-83-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-session-ordinaire-de-1983-dite-session-b/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-83-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-session-ordinaire-de-1983-dite-session-b/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

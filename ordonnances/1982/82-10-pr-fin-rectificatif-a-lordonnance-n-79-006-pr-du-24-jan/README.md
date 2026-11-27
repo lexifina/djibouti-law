@@ -1,6 +1,6 @@
 # Ordonnance n° 82-10/PR/FIN rectificatif à l’ordonnance n° 79-006/PR du 24 janvier 1979 portant réglementation des loyers des locaux « en durs ».
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-10-pr-fin-rectificatif-a-lordonnance-n79-006-pr-du-24-janvier-1979-portant-reglementation-des-loyers-des-locaux-en-durs/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-10-pr-fin-rectificatif-a-lordonnance-n79-006-pr-du-24-janvier-1979-portant-reglementation-des-loyers-des-locaux-en-durs/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 10-190-1912 relatif à La répression, par voie disciplinaire. des infractions commises nar Les indigènes non citoyens français.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 190 du 30/09/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-190-1912-relatif-a-la-repression-par-voie-disciplinaire-des-infractions-commises-nar-les-indigenes-non-citoyens-francais/>
+Décret · Journal officiel de la République de Djibouti, n° 190 du 30/09/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-190-1912-relatif-a-la-repression-par-voie-disciplinaire-des-infractions-commises-nar-les-indigenes-non-citoyens-francais/>
 
 En vigueur : 1912-09-30 (date du Journal officiel qui le publie).
 
@@ -25,6 +25,6 @@ C. MAZEAU.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

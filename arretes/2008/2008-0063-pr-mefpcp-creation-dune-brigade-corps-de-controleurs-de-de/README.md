@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0063/PR/MEFPCP portant création d’une brigade corps de contrôleurs de denrées et produits de première nécessité.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0063-pr-mefpcp-portant-creation-dune-brigade-corps-de-controleurs-de-denrees-et-produits-de-premiere-necessite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0063-pr-mefpcp-portant-creation-dune-brigade-corps-de-controleurs-de-denrees-et-produits-de-premiere-necessite/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

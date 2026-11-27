@@ -1,6 +1,6 @@
 # Décret n° 81-131/PR d’application des dispositions prévues par la loi n° 200/AN/81 du 24 Octobre 1981 portant Code de la Nationalité Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 27/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-131-pr-dapplication-des-dispositions-prevues-par-la-loi-n-200-an-81-du-24-octobre-1981-portant-code-de-la-nationalite-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 27/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-131-pr-dapplication-des-dispositions-prevues-par-la-loi-n-200-an-81-du-24-octobre-1981-portant-code-de-la-nationalite-djiboutienne/>
 
 En vigueur : 1981-12-27 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ HASSAN GOULED APTIDON
 | [art-007.md](art-007.md) | Article7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

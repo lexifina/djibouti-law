@@ -1,6 +1,6 @@
 # Décret n° 46-2272 portant création dans les territoires d’outre-mer de budgets spéciaux d’exécution des plans d’équipement et de développement de la loi n° 46-860 du 30 avril 1946.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2272-portant-creation-dans-les-territoires-doutre-mer-de-budgets-speciaux-dexecution-des-plans-dequipement-et-de-developpement-de-la-loi-n-46-860-d/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2272-portant-creation-dans-les-territoires-doutre-mer-de-budgets-speciaux-dexecution-des-plans-dequipement-et-de-developpement-de-la-loi-n-46-860-d/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

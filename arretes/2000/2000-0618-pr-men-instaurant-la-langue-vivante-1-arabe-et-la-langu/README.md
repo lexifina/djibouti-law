@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0618/PR/MEN instaurant la langue vivante 1 Arabe et la langue vivante 2 Anglais à l’écrit aux épreuves du Brevet d’Etudes Professionnelles et du Baccalauréat Professionnel.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0618-pr-men-instaurant-la-langue-vivante-1-arabe-et-la-langue-vivante-2-anglais-a-lecrit-aux-epreuves-du-brevet-detudes-professionnelles-et-du-baccalaureat-profess/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0618-pr-men-instaurant-la-langue-vivante-1-arabe-et-la-langue-vivante-2-anglais-a-lecrit-aux-epreuves-du-brevet-detudes-professionnelles-et-du-baccalaureat-profess/>
 
 En vigueur : 2000-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 84/AN/95/3ème L rendant exécutoire la délibération n° 1/95 du 31 décembre 1994 du Conseil d’administration de l’Office National d’Approvisionnement et de Commercialisation portant approbation du compte financier définitif de l’ONAC exercice 1993.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-95-3eme-l-rendant-executoire-la-deliberation-n1-95-du-31-decembre-1994-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-por/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-95-3eme-l-rendant-executoire-la-deliberation-n1-95-du-31-decembre-1994-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-por/>
 
 En vigueur : 1995-07-15 (date du Journal officiel qui le publie).
 

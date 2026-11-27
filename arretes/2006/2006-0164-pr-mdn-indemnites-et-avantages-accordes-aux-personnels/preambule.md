@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 I – STATUT DES PERSONNELS :

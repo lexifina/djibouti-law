@@ -1,6 +1,6 @@
 # Arrêté n° 2009-054/PR/MPICRP portant création d’un Comité National d’Organisation d’un Forum Economique Franco Djiboutien.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-054-pr-mpicrp-portant-creation-dun-comite-national-dorganisation-dun-forum-economique-franco-djiboutien/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-054-pr-mpicrp-portant-creation-dun-comite-national-dorganisation-dun-forum-economique-franco-djiboutien/>
 
 En vigueur : 2009-01-15 (date du Journal officiel qui le publie).
 

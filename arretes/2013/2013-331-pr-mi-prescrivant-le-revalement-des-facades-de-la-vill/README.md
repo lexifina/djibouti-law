@@ -1,6 +1,6 @@
 # Arrêté n° 2013-331/PR/MI prescrivant le Revalement des Façades de la ville de Djibouti à l’Occasion du 36ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-331-pr-mi-prescrivant-le-revalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-36eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-331-pr-mi-prescrivant-le-revalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-36eme-anniversaire-de-lindependance/>
 
 En vigueur : 2013-05-30 (date du Journal officiel qui le publie).
 

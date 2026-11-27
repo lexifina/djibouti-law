@@ -1,6 +1,6 @@
 # Loi n° 18/AN/98/4ème L portant adhésion à la Convention sur la Prévention et la Répression du Crime de Génocide.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-98-4eme-l-portant-adhesion-a-la-convention-sur-la-prevention-et-la-repression-du-crime-de-genocide/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-98-4eme-l-portant-adhesion-a-la-convention-sur-la-prevention-et-la-repression-du-crime-de-genocide/>
 
 En vigueur : 1998-05-31 (date du Journal officiel qui le publie).
 

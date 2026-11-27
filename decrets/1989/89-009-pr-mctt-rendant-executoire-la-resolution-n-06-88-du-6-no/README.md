@@ -1,6 +1,6 @@
 # Décret n° 89-009 /PR/MCTT rendant exécutoire la résolution n° 06 / 88 du 6 novembre 1988 du conseil d’administration d’Aéroport de Djibouti et portant approbation du budget prévisionnel de l’exercice 1989 d’Aéroport de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-009-pr-mctt-rendant-executoire-la-resolution-n-06-88-du-6-novembre-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-prevision/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-009-pr-mctt-rendant-executoire-la-resolution-n-06-88-du-6-novembre-1988-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-prevision/>
 
 En vigueur : 1989-01-15 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ __ HASSAN GOULED APTIDON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

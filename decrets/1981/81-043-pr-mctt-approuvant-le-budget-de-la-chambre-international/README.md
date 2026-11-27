@@ -1,6 +1,6 @@
 # Décret n° 81-043/PR/MCTT approuvant le budget de la chambre internationale de commerce et d’industrie, exercice 1981.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-043-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-exercice-1981/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-043-pr-mctt-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-exercice-1981/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°44 le décret du 29 mai 1921 qui modifie le tableau annexé au décret du 8 mars 1910 sur la solde et les allocations accessoires du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 295 du 30/06/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n44-le-decret-du-29-mai-1921-qui-modifie-le-tableau-annexe-au-decret-du-8-mars-1910-sur-la-solde-et-les-allocations-accessoires-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 295 du 30/06/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n44-le-decret-du-29-mai-1921-qui-modifie-le-tableau-annexe-au-decret-du-8-mars-1910-sur-la-solde-et-les-allocations-accessoires-du-personnel-colonial/>
 
 En vigueur : 1921-06-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ A.Sarrut
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art.3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

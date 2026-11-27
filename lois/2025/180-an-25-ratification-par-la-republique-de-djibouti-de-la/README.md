@@ -1,8 +1,8 @@
 # Loi n° 180/AN/25/9ème L portant ratification par la République de Djibouti de la Charte de l’Initiative pour le Moyen-Orient Vert.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-25-9eme-l-portant-ratification-par-la-republique-de-djibouti-de-la-charte-de-linitiative-pour-le-moyen-orient-vert/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-25-9eme-l-portant-ratification-par-la-republique-de-djibouti-de-la-charte-de-linitiative-pour-le-moyen-orient-vert/>
 
-En vigueur : 2025-12-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-12-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 93-0032/PR/FNS portant dispositions particulières au profit des personnels appelés du service national servant à la F.N.S.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0032-pr-fns-portant-dispositions-particulieres-au-profit-des-personnels-appeles-du-service-national-servant-a-la-f-n-s/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0032-pr-fns-portant-dispositions-particulieres-au-profit-des-personnels-appeles-du-service-national-servant-a-la-f-n-s/>
 
 En vigueur : 1993-04-15 (date du Journal officiel qui le publie).
 

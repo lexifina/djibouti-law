@@ -1,8 +1,8 @@
 # Arrêté n° 2010-0393/PR/MAEM-RH portant modification de certaines dispositions de l’arrêté n° 2009-0757PR/MAEM-RH, relatif aux tarifs des redevances applicables lors du contrôle vétérinaire et alimentaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0393-pr-maem-rh-portant-modification-de-certaines-dispositions-de-larrete-n2009-0757pr-maem-rh-relatif-aux-tarifs-des-redevances-applicables-lors-du-controle-veterinaire-et/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0393-pr-maem-rh-portant-modification-de-certaines-dispositions-de-larrete-n2009-0757pr-maem-rh-relatif-aux-tarifs-des-redevances-applicables-lors-du-controle-veterinaire-et/>
 
-En vigueur : 2010-06-01 (date fixÃ©e par le texte).
+En vigueur : 2010-06-01 (date fixée par le texte).
 
 ## Visas
 

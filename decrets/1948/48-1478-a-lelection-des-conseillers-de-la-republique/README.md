@@ -1,6 +1,6 @@
 # Décret n° 48-1478 relatif à l’élection des conseillers de la République .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1478-relatif-a-lelection-des-conseillers-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1478-relatif-a-lelection-des-conseillers-de-la-republique/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 
@@ -142,4 +142,4 @@ Alain POHER.
 | [art-101.md](art-101.md) | Art. 101 |
 | [art-102.md](art-102.md) | Art. 102 |
 | [art-103.md](art-103.md) | Art. 103 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

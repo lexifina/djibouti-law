@@ -1,6 +1,6 @@
 # Décret n° 2002-0247/PR/MID Portant convocation du collège électoral pour les prochaines échéances législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0247-pr-mid-portant-convocation-du-college-electoral-pour-les-prochaines-echeances-legislatives/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0247-pr-mid-portant-convocation-du-college-electoral-pour-les-prochaines-echeances-legislatives/>
 
 En vigueur : 2002-12-15 (date du Journal officiel qui le publie).
 

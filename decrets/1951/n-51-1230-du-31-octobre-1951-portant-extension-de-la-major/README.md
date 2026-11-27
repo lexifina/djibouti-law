@@ -1,6 +1,6 @@
 # Décret n° n° 51-1230 du 31 octobre 1951 portant extension de la majoration des traitements et soldes des personnels civils et militaires de l »État, à certaines catégories de personnel relevant de l’autorité du Ministre de la France d’Outre-Mer (JORF, du 1 novembre 1951, p. 10881)……….,,………..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1230-du-31-octobre-1951-portant-extension-de-la-majoration-des-traitements-et-soldes-des-personnels-civils-et-militaires-de-letat-a-certaines-categories-de-personnel/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1230-du-31-octobre-1951-portant-extension-de-la-majoration-des-traitements-et-soldes-des-personnels-civils-et-militaires-de-letat-a-certaines-categories-de-personnel/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 
@@ -45,5 +45,5 @@ Le Secretaire d'Etat
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

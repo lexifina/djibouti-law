@@ -1,6 +1,6 @@
 # Loi n° 20 février 1942 portant règlement d’administration publique pour l’application de l’article 7 « 5° » de la loi du 2 juin 1911 portant statut des Juifs, con cernant des fonctionnaires tributaires de la caisse intercoloniale des retraite
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-20-fevrier-1942-portant-reglement-dadministration-publique-pour-lapplication-de-larticle-7-5-de-la-loi-du-2-juin-1911-portant-statut-des-juifs-con/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-20-fevrier-1942-portant-reglement-dadministration-publique-pour-lapplication-de-larticle-7-5-de-la-loi-du-2-juin-1911-portant-statut-des-juifs-con/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ BERGERET.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

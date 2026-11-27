@@ -1,6 +1,6 @@
 # Loi n° 199/AN/81 portant sur la Mobilisation Nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 27/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-81-portant-sur-la-mobilisation-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 27/12/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-81-portant-sur-la-mobilisation-nationale/>
 
 En vigueur : 1981-12-27 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ VU le Décret n° 81-076/PR du 7 Juillet 1981 portant nomination des membres du 
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

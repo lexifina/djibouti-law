@@ -1,6 +1,6 @@
 # Décret n° 2006-0059/PR/MID instituant «des bureaux de régularisation» dans les centres d’Election de la ville de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 27/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0059-pr-mid-instituant-des-bureaux-de-regularisation-dans-les-centres-delection-de-la-ville-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 27/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0059-pr-mid-instituant-des-bureaux-de-regularisation-dans-les-centres-delection-de-la-ville-de-djibouti/>
 
 En vigueur : 2006-02-27 (date du Journal officiel qui le publie).
 

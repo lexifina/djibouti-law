@@ -1,6 +1,6 @@
 # Décret n° n°8 Le décret règlementant les loyers des locaux d’habitation à la Côte Française des Somalis;
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-le-decret-reglementant-les-loyers-des-locaux-dhabitation-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-le-decret-reglementant-les-loyers-des-locaux-dhabitation-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 

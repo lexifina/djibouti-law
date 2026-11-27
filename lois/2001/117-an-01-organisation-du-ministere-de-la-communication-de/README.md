@@ -1,6 +1,6 @@
 # Loi n° 117/AN/01/4ème L portant organisation du Ministère de la Communication, de la Culture, chargé des Postes et Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-01-4eme-l-portant-organisation-du-ministere-de-la-communication-de-la-culture-charge-des-postes-et-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-01-4eme-l-portant-organisation-du-ministere-de-la-communication-de-la-culture-charge-des-postes-et-telecommunications/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 

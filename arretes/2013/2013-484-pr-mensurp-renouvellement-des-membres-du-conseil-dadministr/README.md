@@ -1,6 +1,6 @@
 # Arrêté n° 2013-484/PR/MENSURP portant renouvellement des membres du Conseil d’Administration de la Faculté de Médecine de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-484-pr-mensurp-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-faculte-de-medecine-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-484-pr-mensurp-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-faculte-de-medecine-de-djibouti/>
 
 En vigueur : 2013-08-15 (date du Journal officiel qui le publie).
 

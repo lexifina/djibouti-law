@@ -1,6 +1,6 @@
 # Décret n° 72-38 relatif à l’organisation de la défense dans les domaines sanitaire et social.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-38-relatif-a-lorganisation-de-la-defense-dans-les-domaines-sanitaire-et-social/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-38-relatif-a-lorganisation-de-la-defense-dans-les-domaines-sanitaire-et-social/>
 
 En vigueur : 1972-03-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 326 portant dérogation provisoire à l’article 30 du décret du 6 mai 1930, régissant le personnel du cadre général des travaux publics et des mines des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-326-portant-derogation-provisoire-a-larticle-30-du-decret-du-6-mai-1930-regissant-le-personnel-du-cadre-general-des-travaux-publics-et-des-mines-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-326-portant-derogation-provisoire-a-larticle-30-du-decret-du-6-mai-1930-regissant-le-personnel-du-cadre-general-des-travaux-publics-et-des-mines-des-colonies/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

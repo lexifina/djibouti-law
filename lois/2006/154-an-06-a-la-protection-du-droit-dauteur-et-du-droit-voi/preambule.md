@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I
 LE DROIT D’AUTEUR
 CHAPITRE I : OBJET DU DROIT D’AUTEUR

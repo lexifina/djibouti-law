@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0642/PR/MCIA portant création d’un Comité Technique de Modernisation de la Législation Nationale en matière de Commerce.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0642-pr-mcia-portant-creation-dun-comite-technique-de-modernisation-de-la-legislation-nationale-en-matiere-de-commerce/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0642-pr-mcia-portant-creation-dun-comite-technique-de-modernisation-de-la-legislation-nationale-en-matiere-de-commerce/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

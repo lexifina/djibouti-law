@@ -1,6 +1,6 @@
 # Loi n° 220/AN92/1e L portant ratification de l’accord sur le transport aérien entre le Gouvernement de la République de Djibouti et le Gouvernement russe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n220-an92-1e-l-portant-ratification-de-laccord-sur-le-transport-aerien-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-russe/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n220-an92-1e-l-portant-ratification-de-laccord-sur-le-transport-aerien-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-russe/>
 
 En vigueur : 1992-09-15 (date du Journal officiel qui le publie).
 

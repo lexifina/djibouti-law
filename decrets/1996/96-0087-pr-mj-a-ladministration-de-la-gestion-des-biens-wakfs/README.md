@@ -1,6 +1,6 @@
 # Décret n° 96-0087/PR/MJ relatif à l’administration de la gestion des biens wakfs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0087-pr-mj-relatif-a-ladministration-de-la-gestion-des-biens-wakfs/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0087-pr-mj-relatif-a-ladministration-de-la-gestion-des-biens-wakfs/>
 
 En vigueur : 1996-08-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 149/AN/22/8ème L portant transformation de l’Office Djiboutien de Développement de l’Energie Géothermique (ODDEG) en Etablissement Public Industriel et Commercial.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-22-8eme-l-portant-transformation-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg-en-etablissement-public-industriel-et-commercial/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-22-8eme-l-portant-transformation-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg-en-etablissement-public-industriel-et-commercial/>
 
-En vigueur : 2022-05-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-05-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

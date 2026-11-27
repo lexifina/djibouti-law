@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0060/PR/MJSLT approuvant et rendant exécutoire le Budget prévisionnel 2010 de l’Office National du Tourisme de Djibouti
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0060-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2010-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0060-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2010-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

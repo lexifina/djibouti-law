@@ -1,6 +1,6 @@
 # Loi n° 21/AN/03/5ème L approuvant le Compte Financier de l’Exercice 2000 de la Société Internationale des Hydrocarbures de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-03-5eme-l-approuvant-le-compte-financier-de-lexercice-2000-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-03-5eme-l-approuvant-le-compte-financier-de-lexercice-2000-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

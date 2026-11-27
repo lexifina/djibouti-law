@@ -1,6 +1,6 @@
 # Décret n° 10-105-1905 portant réorganisation du service de la Justice à la Côte Française des Somalis (suite).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 105 du 01/08/1905 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-105-1905-portant-reorganisation-du-service-de-la-justice-a-la-cote-francaise-des-somalis-suite/>
+Décret · Journal officiel de la République de Djibouti, n° 105 du 01/08/1905 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-105-1905-portant-reorganisation-du-service-de-la-justice-a-la-cote-francaise-des-somalis-suite/>
 
 En vigueur : 1905-08-01 (date du Journal officiel qui le publie).
 

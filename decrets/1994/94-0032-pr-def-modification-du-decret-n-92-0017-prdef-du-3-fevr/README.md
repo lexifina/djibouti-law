@@ -1,6 +1,6 @@
 # Décret n° 94-0032/PR/DEF portant modification du décret n° 92-0017/PRDEF du 3 février 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0032-pr-def-portant-modification-du-decret-n-92-0017-prdef-du-3-fevrier-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0032-pr-def-portant-modification-du-decret-n-92-0017-prdef-du-3-fevrier-1992/>
 
 En vigueur : 1994-03-15 (date du Journal officiel qui le publie).
 
@@ -14,5 +14,5 @@ vu le décret n° 94-147/PR/DEF du 2 janvier 1994 portant dispositions particuli
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | article premier — |
-| [art-002.md](art-002.md) | article 2 – |
+| [art-001.md](art-001.md) | article premier |
+| [art-002.md](art-002.md) | article 2 |

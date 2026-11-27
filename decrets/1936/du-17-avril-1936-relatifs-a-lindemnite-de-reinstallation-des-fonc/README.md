@@ -1,6 +1,6 @@
 # Décret n° du 17 avril 1936. relatifs à l’indemnité de réinstallation des fonctionnaires coloniaux et aux conditions d’attribution des remises à certains personnels (arrêt de promulgation du 15 mai 1936).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 474 du 31/05/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-17-avril-1936-relatifs-a-lindemnite-de-reinstallation-des-fonctionnaires-coloniaux-et-aux-conditions-dattribution-des-remises-a-certains-personnels-arret-de-promulgation-du-15/>
+Décret · Journal officiel de la République de Djibouti, n° 474 du 31/05/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-17-avril-1936-relatifs-a-lindemnite-de-reinstallation-des-fonctionnaires-coloniaux-et-aux-conditions-dattribution-des-remises-a-certains-personnels-arret-de-promulgation-du-15/>
 
 En vigueur : 1936-05-31 (date du Journal officiel qui le publie).
 

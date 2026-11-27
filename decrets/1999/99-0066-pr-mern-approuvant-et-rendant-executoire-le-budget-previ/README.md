@@ -1,6 +1,6 @@
 # Décret n° 99-0066/PR/MERN approuvant et rendant exécutoire le budget prévisionnel 1999 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0066-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-1999-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0066-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-1999-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1999-05-31 (date du Journal officiel qui le publie).
 

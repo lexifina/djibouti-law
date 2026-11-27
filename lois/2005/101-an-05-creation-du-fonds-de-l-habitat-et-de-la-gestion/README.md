@@ -1,8 +1,8 @@
 # Loi n° 101/AN/05/5ème L portant création du Fonds de l’Habitat et de la gestion des Établissements humains.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-05-5eme-l-portant-creation-du-fonds-de-lhabitat-et-de-la-gestion-des-etablissements-humains/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-05-5eme-l-portant-creation-du-fonds-de-lhabitat-et-de-la-gestion-des-etablissements-humains/>
 
-En vigueur : 2005-04-10 (date fixÃ©e par le texte).
+En vigueur : 2005-04-10 (date fixée par le texte).
 
 ## Visas
 

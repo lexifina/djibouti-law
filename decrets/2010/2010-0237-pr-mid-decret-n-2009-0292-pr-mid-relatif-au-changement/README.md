@@ -1,6 +1,6 @@
 # Décret n° 2010-0237/PR/MID modifiant le décret n° 2009-0292/PR/MID relatif au changement de la Carte Nationale d’Identité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0237-pr-mid-modifiant-le-decret-n2009-0292-pr-mid-relatif-au-changement-de-la-carte-nationale-didentite/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0237-pr-mid-modifiant-le-decret-n2009-0292-pr-mid-relatif-au-changement-de-la-carte-nationale-didentite/>
 
 En vigueur : 2010-12-15 (date du Journal officiel qui le publie).
 

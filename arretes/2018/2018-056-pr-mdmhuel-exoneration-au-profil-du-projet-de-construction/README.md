@@ -1,6 +1,6 @@
 # Arrêté n° 2018-056/PR/MDMHUEL portant exonération au profil du projet de construction de logements sociaux financés par le Fonds Saoudien de Développement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 29/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-056-pr-mdmhuel-portant-exoneration-au-profil-du-projet-de-construction-de-logements-sociaux-finances-par-le-fonds-saoudien-de-developpement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 29/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-056-pr-mdmhuel-portant-exoneration-au-profil-du-projet-de-construction-de-logements-sociaux-finances-par-le-fonds-saoudien-de-developpement/>
 
 En vigueur : 2018-03-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 81-0646/PR/PM DU 30 MAI 1981 portant liste nominative des membres du conseil d’administration du Port autonome international de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-0646-pr-pm-du-30-mai-1981-portant-liste-nominative-des-membres-du-conseil-dadministration-du-port-autonome-international-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/06/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-0646-pr-pm-du-30-mai-1981-portant-liste-nominative-des-membres-du-conseil-dadministration-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1981-06-01 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Le Conseil des Ministres entendu en sa séance du 27 janvier 1981;
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

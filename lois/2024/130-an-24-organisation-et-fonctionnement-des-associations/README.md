@@ -1,6 +1,6 @@
 # Loi n° 130/AN/24/9ème L portant organisation et fonctionnement des associations en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 19/11/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-24-9eme-l-portant-organisation-et-fonctionnement-des-associations-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 19/11/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-24-9eme-l-portant-organisation-et-fonctionnement-des-associations-en-republique-de-djibouti/>
 
 En vigueur : 2026-11-20 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -143,4 +143,4 @@ ISMAÏL OMAR GUELLEH
 | [art-057.md](art-057.md) | Article 57 |
 | [art-058.md](art-058.md) | Article 58 |
 | [art-059.md](art-059.md) | Article 59 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

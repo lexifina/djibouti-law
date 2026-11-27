@@ -1,6 +1,6 @@
 # Décret n° 2013-245/PR/MET portant réglementation de la protection du patrimoine routier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-245-pr-met-portant-reglementation-de-la-protection-du-patrimoine-routier/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-245-pr-met-portant-reglementation-de-la-protection-du-patrimoine-routier/>
 
 En vigueur : 2013-09-15 (date du Journal officiel qui le publie).
 

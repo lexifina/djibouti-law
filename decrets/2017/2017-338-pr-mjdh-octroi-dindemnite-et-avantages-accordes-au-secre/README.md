@@ -1,6 +1,6 @@
 # Décret n° 2017-338/PR/MJDH portant octroi d’indemnité et avantages accordés au Secrétaire Général de la Cour des Comptes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-338-pr-mjdh-portant-octroi-dindemnite-et-avantages-accordes-au-secretaire-general-de-la-cour-des-comptes/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-338-pr-mjdh-portant-octroi-dindemnite-et-avantages-accordes-au-secretaire-general-de-la-cour-des-comptes/>
 
 En vigueur : 2017-10-31 (date du Journal officiel qui le publie).
 

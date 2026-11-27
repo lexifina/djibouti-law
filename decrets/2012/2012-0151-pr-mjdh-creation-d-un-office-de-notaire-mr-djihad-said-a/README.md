@@ -1,6 +1,6 @@
 # Décret n° 2012-0151/PR/MJDH portant création d’un office de notaire, Mr Djihad Said Ali.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0151-pr-mjdh-portant-creation-dun-office-de-notaire-mr-djihad-said-ali/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0151-pr-mjdh-portant-creation-dun-office-de-notaire-mr-djihad-said-ali/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

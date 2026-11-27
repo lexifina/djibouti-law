@@ -1,6 +1,6 @@
 # Décret n° 65-726 modifiant, en ce qui concerne l’exercice et l’organisation de là profession de médecin, les articles.8 et 9 du décret n° 52-964 du 28 juillet 1952 rendant applicable aux Territoires d’Outre-Mer ordonnance n° 45-2184 du 24 septembre 1945 modifiée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-726-modifiant-en-ce-qui-concerne-lexercice-et-lorganisation-de-la-profession-de-medecin-les-articles-8-et-9-du-decret-n-52-964-du-28-juillet-1952-rendant-applicable-aux/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-726-modifiant-en-ce-qui-concerne-lexercice-et-lorganisation-de-la-profession-de-medecin-les-articles-8-et-9-du-decret-n-52-964-du-28-juillet-1952-rendant-applicable-aux/>
 
 En vigueur : 1965-10-01 (date du Journal officiel qui le publie).
 

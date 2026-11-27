@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0255/PR/MENESUP portant modification de l’organisation de la série STT «Sciences et Technologies Tertiaires» des lycées d’enseignement général et technologique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0255-pr-menesup-portant-modification-de-lorganisation-de-la-serie-stt-sciences-et-technologies-tertiaires-des-lycees-denseignement-general-et-technologique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0255-pr-menesup-portant-modification-de-lorganisation-de-la-serie-stt-sciences-et-technologies-tertiaires-des-lycees-denseignement-general-et-technologique/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1663 modifiant les articles 134 et 135 du décret du 2 mars 1910 portant réglementation et allocations accessoires des fonctionnaires et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1663-modifiant-les-articles-134-et-135-du-decret-du-2-mars-1910-portant-reglementation-et-allocations-accessoires-des-fonctionnaires-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1663-modifiant-les-articles-134-et-135-du-decret-du-2-mars-1910-portant-reglementation-et-allocations-accessoires-des-fonctionnaires-et-agents-des-services-coloniaux/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

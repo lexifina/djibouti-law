@@ -1,6 +1,6 @@
 # Décret n° 93-0008/PRE Approuvant et rendant exécutoire le Budget Primitif 1993 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0008-pre-approuvant-et-rendant-executoire-le-budget-primitif-1993-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0008-pre-approuvant-et-rendant-executoire-le-budget-primitif-1993-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1993-01-31 (date du Journal officiel qui le publie).
 

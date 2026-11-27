@@ -1,6 +1,6 @@
 # Décret n° 2017-409/PR/MI fixant les règles de procédure, les modalités d’organisation et de fonctionnement des organes chargés de la gestion du statut des réfugiés en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-409-pr-mi-fixant-les-regles-de-procedure-les-modalites-dorganisation-et-de-fonctionnement-des-organes-charges-de-la-gestion-du-statut-des-refugies-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-409-pr-mi-fixant-les-regles-de-procedure-les-modalites-dorganisation-et-de-fonctionnement-des-organes-charges-de-la-gestion-du-statut-des-refugies-en-republique-de-djibouti/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 107/AN/10/6ème L portant organisation du Ministère de l’Emploi, de l’Insertion et de la Formation Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-10-6eme-l-portant-organisation-du-ministere-de-lemploi-de-linsertion-et-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-10-6eme-l-portant-organisation-du-ministere-de-lemploi-de-linsertion-et-de-la-formation-professionnelle/>
 
 En vigueur : 2011-02-28 (date du Journal officiel qui le publie).
 
@@ -66,4 +66,4 @@ ISMAÏL OMAR GUELLEH
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

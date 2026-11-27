@@ -1,8 +1,8 @@
 # Arrêté n° 2007-0432/PR/MID portant création d’un Comité de suivi des conditions et modalités de transfert de compétence entre l’Etat et les Collectivités Territoriales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0432-pr-mid-portant-creation-dun-comite-de-suivi-des-conditions-et-modalites-de-transfert-de-competence-entre-letat-et-les-collectivites-territoriales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0432-pr-mid-portant-creation-dun-comite-de-suivi-des-conditions-et-modalites-de-transfert-de-competence-entre-letat-et-les-collectivites-territoriales/>
 
-En vigueur : 2007-05-03 (date fixÃ©e par le texte).
+En vigueur : 2007-05-03 (date fixée par le texte).
 
 ## Visas
 

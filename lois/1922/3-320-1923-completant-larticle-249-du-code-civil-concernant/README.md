@@ -1,6 +1,6 @@
 # Loi n° 3-320-1923 complétant l’article 249 du code civil concernant le divorce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-3-320-1923-completant-larticle-249-du-code-civil-concernant-le-divorce/>
+Loi · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/loi-n-3-320-1923-completant-larticle-249-du-code-civil-concernant-le-divorce/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

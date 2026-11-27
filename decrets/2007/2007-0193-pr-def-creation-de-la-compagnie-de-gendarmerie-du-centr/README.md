@@ -1,6 +1,6 @@
 # Décret n° 2007-0193/PR/DEF portant création de la Compagnie de Gendarmerie du Centre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0193-pr-def-portant-creation-de-la-compagnie-de-gendarmerie-du-centre/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0193-pr-def-portant-creation-de-la-compagnie-de-gendarmerie-du-centre/>
 
 En vigueur : 2007-09-30 (date du Journal officiel qui le publie).
 

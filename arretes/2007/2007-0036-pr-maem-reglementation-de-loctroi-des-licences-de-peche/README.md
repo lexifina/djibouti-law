@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0036/PR/MAEM portant réglementation de l’octroi des licences de pêche.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0036-pr-maem-portant-reglementation-de-loctroi-des-licences-de-peche/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0036-pr-maem-portant-reglementation-de-loctroi-des-licences-de-peche/>
 
 En vigueur : 2007-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 4-451-1934 Application aux colonies, possessions et pays sous mandat français de la loi du 11 mai 1933, fusionnant l’Office du combattant avec l’Office national des mutilés et réformés de la guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 451 du 30/06/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-451-1934-application-aux-colonies-possessions-et-pays-sous-mandat-francais-de-la-loi-du-11-mai-1933-fusionnant-loffice-du-combattant-avec-loffice-national-des-mutiles-et-reform/>
+Décret · Journal officiel de la République de Djibouti, n° 451 du 30/06/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-451-1934-application-aux-colonies-possessions-et-pays-sous-mandat-francais-de-la-loi-du-11-mai-1933-fusionnant-loffice-du-combattant-avec-loffice-national-des-mutiles-et-reform/>
 
 En vigueur : 1934-06-30 (date du Journal officiel qui le publie).
 
@@ -39,6 +39,6 @@ Pierre Laval.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

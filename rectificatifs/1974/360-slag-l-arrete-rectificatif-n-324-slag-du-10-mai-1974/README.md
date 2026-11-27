@@ -1,6 +1,6 @@
 # Rectificatif n° 360/SLAG modifiant l’arrêté rectificatif n° 324/SLAG du 10 mai 1974 ainsi que l’arrêté n° 264/SLAG du 22 avril 1974 portant nomination des présidents de bureaux de vote à l’occasion des élections présidentielles des 5 mai et éventuellement 19 mai 1974.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1974 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-360-slag-modifiant-larrete-rectificatif-n-324-slag-du-10-mai-1974-ainsi-que-larrete-n-264-slag-du-22-avril-1974-portant-nomination-des-presidents-de-bureau/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 25/05/1974 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-360-slag-modifiant-larrete-rectificatif-n-324-slag-du-10-mai-1974-ainsi-que-larrete-n-264-slag-du-22-avril-1974-portant-nomination-des-presidents-de-bureau/>
 
 En vigueur : 1974-05-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 61-1408 complétant et. modifiant le code de la nationalité française et relative à diverses dispositions concernant la nationalité française (J.O.R.F. du 23 décembre 1961, p. 11819).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-1408-completant-et-modifiant-le-code-de-la-nationalite-francaise-et-relative-a-diverses-dispositions-concernant-la-nationalite-francaise-j-o-r-f-du-23-decembre-1961-p-11819/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-1408-completant-et-modifiant-le-code-de-la-nationalite-francaise-et-relative-a-diverses-dispositions-concernant-la-nationalite-francaise-j-o-r-f-du-23-decembre-1961-p-11819/>
 
 En vigueur : 1961-12-31 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ J. FONTANET.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

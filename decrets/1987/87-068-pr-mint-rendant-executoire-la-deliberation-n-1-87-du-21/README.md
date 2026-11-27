@@ -1,6 +1,6 @@
 # Décret n° 87-068/PR/MINT rendant exécutoire la délibération n° 1/87 du 21 Juin 1987 du conseil d’administration de l’Office des Postes et Télécommunications, portant approbation du compte financier de l’office pour l’exercice 1986.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-068-pr-mint-rendant-executoire-la-deliberation-n1-87-du-21-juin-1987-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte-fi/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-068-pr-mint-rendant-executoire-la-deliberation-n1-87-du-21-juin-1987-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-compte-fi/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

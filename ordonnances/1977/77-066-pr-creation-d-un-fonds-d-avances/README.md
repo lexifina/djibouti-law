@@ -1,6 +1,6 @@
 # Ordonnance n° 77-066/PR portant création d’un fonds d’Avances.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-066-pr-portant-creation-dun-fonds-davances/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-066-pr-portant-creation-dun-fonds-davances/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 

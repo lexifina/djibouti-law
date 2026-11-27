@@ -1,6 +1,6 @@
 # Loi n° 120/AN/80 portant Code de la Route en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-80-portant-code-de-la-route-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-80-portant-code-de-la-route-en-republique-de-djibouti/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 

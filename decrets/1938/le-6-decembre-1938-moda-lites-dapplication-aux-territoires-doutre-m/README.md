@@ -1,6 +1,6 @@
 # Décret n° le 6 décembre 1938. fixant les moda- lités d’application aux territoires d’outre- mer de certaines dispositions de la loi du 3 juillet 1877 sur les réquisitions militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-decembre-1938-fixant-les-moda-lites-dapplication-aux-territoires-doutre-mer-de-certaines-dispositions-de-la-loi-du-3-juillet-1877-sur-les-requisitions-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-decembre-1938-fixant-les-moda-lites-dapplication-aux-territoires-doutre-mer-de-certaines-dispositions-de-la-loi-du-3-juillet-1877-sur-les-requisitions-militaires/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 

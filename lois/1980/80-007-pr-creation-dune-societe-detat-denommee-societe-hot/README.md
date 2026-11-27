@@ -1,6 +1,6 @@
 # Loi n° 80-007/PR portant création d’une société d’État dénommée Société hôtelière d’État de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-007-pr-portant-creation-dune-societe-detat-denommee-societe-hoteliere-detat-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-007-pr-portant-creation-dune-societe-detat-denommee-societe-hoteliere-detat-de-djibouti/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

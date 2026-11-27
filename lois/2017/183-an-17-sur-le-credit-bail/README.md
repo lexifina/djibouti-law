@@ -1,6 +1,6 @@
 # Loi n° 183/AN/17/7ème L portant sur le crédit bail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-17-7eme-l-portant-sur-le-credit-bail/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-17-7eme-l-portant-sur-le-credit-bail/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 
@@ -102,4 +102,4 @@ ISMAÏL OMAR GUELLEH
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

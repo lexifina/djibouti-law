@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0592/PR/MET rendant exécutoire la résolution n° 01 du 14 décembre 1999 du Conseil d’Administration de l’Aéroport de Djibouti, portant approbation des Comptes Prévisionnels de l’exercice 2000.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0592-pr-met-rendant-executoire-la-resolution-n01-du-14-decembre-1999-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-des-comptes-pre/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0592-pr-met-rendant-executoire-la-resolution-n01-du-14-decembre-1999-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-des-comptes-pre/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

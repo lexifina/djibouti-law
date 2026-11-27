@@ -1,8 +1,8 @@
 # Décret n° 2006-0106/PRE portant création d’une Unité de Coordination du projet e-gouvernement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0106-pre-portant-creation-dune-unite-de-coordination-du-projet-e-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0106-pre-portant-creation-dune-unite-de-coordination-du-projet-e-gouvernement/>
 
-En vigueur : 2006-04-13 (date fixÃ©e par le texte).
+En vigueur : 2006-04-13 (date fixée par le texte).
 
 ## Visas
 

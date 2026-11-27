@@ -1,6 +1,6 @@
 # Loi n° 29/AN/08/6ème L portant approbation du Compte Administratif de la Chambre de Commerce de Djibouti pour l’Exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-08-6eme-l-portant-approbation-du-compte-administratif-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-08-6eme-l-portant-approbation-du-compte-administratif-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2007/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

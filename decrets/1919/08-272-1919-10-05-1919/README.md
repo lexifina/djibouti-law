@@ -1,6 +1,6 @@
 # Décret n° 08-272-1919 10/05/1919
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 272 du 30/06/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-272-1919-10-05-1919/>
+Décret · Journal officiel de la République de Djibouti, n° 272 du 30/06/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-272-1919-10-05-1919/>
 
 En vigueur : 1919-06-30 (date du Journal officiel qui le publie).
 

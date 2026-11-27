@@ -1,8 +1,8 @@
 # Arrêté n° 2011-0340/PRE portant création du comité d’organisation de la cérémonie d’Investiture du Président de la République.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0340-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0340-pre-portant-creation-du-comite-dorganisation-de-la-ceremonie-dinvestiture-du-president-de-la-republique/>
 
-En vigueur : 2011-04-30 (date fixÃ©e par le texte).
+En vigueur : 2011-04-30 (date fixée par le texte).
 
 ## Visas
 

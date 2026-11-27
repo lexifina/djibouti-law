@@ -1,6 +1,6 @@
 # Rectificatif n° 95-0612/PR/EN concernant M. Hassan Aden Lodon
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1995 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n95-0612-pr-en-concernant-m-hassan-aden-lodon/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 11 du 15/06/1995 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n95-0612-pr-en-concernant-m-hassan-aden-lodon/>
 
 En vigueur : 1995-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 44 relative aux mesures à prendre contre les individus dangereux pour la Défense nationale ou la sécurité publique dans les territoires relevant du Haut-Commissiriat de F rance dans l’Océan indien.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 30/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-44-relative-aux-mesures-a-prendre-contre-les-individus-dangereux-pour-la-defense-nationale-ou-la-securite-publique-dans-les-territoires-relevant-du-haut-commissiriat-de-f-rance-dan/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 30/07/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-44-relative-aux-mesures-a-prendre-contre-les-individus-dangereux-pour-la-defense-nationale-ou-la-securite-publique-dans-les-territoires-relevant-du-haut-commissiriat-de-f-rance-dan/>
 
 En vigueur : 1943-07-30 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ R. CASSIN.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

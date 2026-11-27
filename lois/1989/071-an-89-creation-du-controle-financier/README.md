@@ -1,6 +1,6 @@
 # Loi n° 71/AN/89/2ème L portant création du contrôle financier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-89-2eme-l-portant-creation-du-controle-financier/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-89-2eme-l-portant-creation-du-controle-financier/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

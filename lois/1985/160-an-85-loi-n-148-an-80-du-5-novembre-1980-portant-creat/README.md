@@ -1,6 +1,6 @@
 # Loi n° 160/AN/85/1ère modifiant la loi n° 148/AN/80 du 5 novembre 1980 portant création et statuts du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-85-1ere-modifiant-la-loi-n-148-an-80-du-5-novembre-1980-portant-creation-et-statuts-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-85-1ere-modifiant-la-loi-n-148-an-80-du-5-novembre-1980-portant-creation-et-statuts-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

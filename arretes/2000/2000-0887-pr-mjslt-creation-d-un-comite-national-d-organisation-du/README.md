@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0887/PR/MJSLT portant création d’un Comité national d’Organisation du Cinquième Semi-Marathon de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0887-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-cinquieme-semi-marathon-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0887-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-cinquieme-semi-marathon-de-djibouti/>
 
 En vigueur : 2000-11-30 (date du Journal officiel qui le publie).
 

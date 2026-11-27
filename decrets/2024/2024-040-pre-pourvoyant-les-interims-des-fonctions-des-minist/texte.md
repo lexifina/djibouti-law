@@ -1,2 +1,0 @@
-Par décret n°2024-040/PRE, du Président de la République, chef du Gouvernement, en date du 25 février 2024, pendant la durée de l’absence de S.E.M. RADWAN ABDILLAHI BAHDON, l’intérim des fonctions du Ministre de la Communication, chargé des Postes et des Télécommunications sera assuré par S.E.Mme. AMINA ABDI ADEN, Ministre de la Ville, de l’Urbanisme et de l’Habitat cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

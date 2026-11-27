@@ -1,6 +1,6 @@
 # Décret n° 89-101/PR/J relatif aux syndics-administrateurs judiciaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-101-pr-j-relatif-aux-syndics-administrateurs-judiciaires/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-101-pr-j-relatif-aux-syndics-administrateurs-judiciaires/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

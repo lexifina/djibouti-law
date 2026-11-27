@@ -1,6 +1,6 @@
 # Arrêté n° 2019-005/PR/MDMHUEL portant approbation du budget prévisionnel 2019 de l’Agence de Réhabilitation Urbaine et du Logement Social (ARULOS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-005-pr-mdmhuel-portant-approbation-du-budget-previsionnel-2019-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-005-pr-mdmhuel-portant-approbation-du-budget-previsionnel-2019-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

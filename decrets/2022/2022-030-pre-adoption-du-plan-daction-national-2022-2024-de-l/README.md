@@ -1,6 +1,6 @@
 # Décret n° 2022-030/PRE portant adoption du Plan d’Action National 2022-2024 de la Stratégie Nationale du Handicap 2021-2025
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-030-pre-portant-adoption-du-plan-daction-national-2022-2024-de-la-strategie-nationale-du-handicap-2021-2025/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-030-pre-portant-adoption-du-plan-daction-national-2022-2024-de-la-strategie-nationale-du-handicap-2021-2025/>
 
 En vigueur : 2022-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

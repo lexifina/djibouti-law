@@ -1,6 +1,6 @@
 # Décret n° 16 juillet 1947 plaçant en position de mission à l’étranger et en France un adminstrateur des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-juillet-1947-placant-en-position-de-mission-a-letranger-et-en-france-un-adminstrateur-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-juillet-1947-placant-en-position-de-mission-a-letranger-et-en-france-un-adminstrateur-des-colonies/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

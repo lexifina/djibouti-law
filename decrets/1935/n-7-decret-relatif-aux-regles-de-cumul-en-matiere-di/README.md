@@ -1,6 +1,6 @@
 # Décret n° n°7 Décret relatif aux règles de cumul en matière d’indemnités,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 459 du 28/02/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-decret-relatif-aux-regles-de-cumul-en-matiere-dindemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 459 du 28/02/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-decret-relatif-aux-regles-de-cumul-en-matiere-dindemnites/>
 
 En vigueur : 1935-02-28 (date du Journal officiel qui le publie).
 

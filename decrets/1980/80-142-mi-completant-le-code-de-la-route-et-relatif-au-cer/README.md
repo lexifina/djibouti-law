@@ -1,6 +1,6 @@
 # Décret n° 80-142/MI complétant le Code de la Route et relatif au certificat d’aptitude professionnelle et pédagogique à l’emploi de moniteur d’enseignement de conduite de véhicules à moteur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-142-mi-completant-le-code-de-la-route-et-relatif-au-certificat-daptitude-professionnelle-et-pedagogique-a-lemploi-de-moniteur-denseignement-de-conduite-de/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-142-mi-completant-le-code-de-la-route-et-relatif-au-certificat-daptitude-professionnelle-et-pedagogique-a-lemploi-de-moniteur-denseignement-de-conduite-de/>
 
 En vigueur : 1981-07-15 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres entendu en sa séance du 28 DECEMBRE 1980.
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

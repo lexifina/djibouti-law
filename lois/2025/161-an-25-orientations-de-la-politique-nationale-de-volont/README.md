@@ -1,6 +1,6 @@
 # Loi n° 161/AN/25/9ème L fixant les orientations de la politique nationale de Volontariat et instituant le Corps National des Volontaires Djiboutiens.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-25-9eme-l-fixant-les-orientations-de-la-politique-nationale-de-volontariat-et-instituant-le-corps-national-des-volontaires-djiboutiens/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/05/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-25-9eme-l-fixant-les-orientations-de-la-politique-nationale-de-volontariat-et-instituant-le-corps-national-des-volontaires-djiboutiens/>
 
 En vigueur : 2025-05-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

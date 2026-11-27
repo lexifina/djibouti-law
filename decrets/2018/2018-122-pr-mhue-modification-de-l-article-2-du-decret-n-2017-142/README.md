@@ -1,8 +1,8 @@
 # Décret n° 2018-122/PR/MHUE portant modification de l’Article 2 du Décret n° 2017-142/PR/MHUE du 16 avril 2017 définissant les compétences et expériences requises pour la conception des plans architecturaux, la réalisation des plans de structure et la supervision des travaux de c
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 29/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-122-pr-mhue-portant-modification-de-larticle-2-du-decret-n2017-142-pr-mhue-du-16-avril-2017-definissant-les-competences-et-experiences-requises-pour-la-conception/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 29/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-122-pr-mhue-portant-modification-de-larticle-2-du-decret-n2017-142-pr-mhue-du-16-avril-2017-definissant-les-competences-et-experiences-requises-pour-la-conception/>
 
-En vigueur : 2018-03-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-03-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

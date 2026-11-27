@@ -1,6 +1,6 @@
 # Erratum n° n° 771 au 28 juillet 1950-accordant un congé de neuf mois à M. Rabary….
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/erratum-n-n-771-au-28-juillet-1950-accordant-un-conge-de-neuf-mois-a-m-rabary/>
+Erratum · Journal officiel de la République de Djibouti, n° 8 du 30/08/1950 · <https://www.journalofficiel.dj/texte-juridique/erratum-n-n-771-au-28-juillet-1950-accordant-un-conge-de-neuf-mois-a-m-rabary/>
 
 En vigueur : 1950-08-30 (date du Journal officiel qui le publie).
 

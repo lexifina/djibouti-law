@@ -1,6 +1,6 @@
 # Décret n° n° 362 Le décret réglementant la situation du personnel contractuel de l’administration coloniale en temps de guerre,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-362-le-decret-reglementant-la-situation-du-personnel-contractuel-de-ladministration-coloniale-en-temps-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-362-le-decret-reglementant-la-situation-du-personnel-contractuel-de-ladministration-coloniale-en-temps-de-guerre/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 
@@ -22,8 +22,8 @@ georges mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

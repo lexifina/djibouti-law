@@ -1,6 +1,6 @@
 # Décret n° 14-248-1917 Ministère des Travaux Public et des Transports.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 248 du 30/06/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-248-1917-ministere-des-travaux-public-et-des-transports/>
+Décret · Journal officiel de la République de Djibouti, n° 248 du 30/06/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-248-1917-ministere-des-travaux-public-et-des-transports/>
 
 En vigueur : 1917-06-30 (date du Journal officiel qui le publie).
 

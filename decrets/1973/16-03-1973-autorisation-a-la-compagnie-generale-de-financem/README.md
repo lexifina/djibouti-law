@@ -1,6 +1,6 @@
 # Décret n° 16/03/1973 portant autorisation à la Compagnie générale de financement immobilier d’exercer son activité dans tous les territoires d’outremer (JORF n° 79 des 2 et 3 avril 1973, page 3716).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-03-1973-portant-autorisation-a-la-compagnie-generale-de-financement-immobilier-dexercer-son-activite-dans-tous-les-territoires-doutremer-jorf-n-79-des-2-et-3-avril/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-03-1973-portant-autorisation-a-la-compagnie-generale-de-financement-immobilier-dexercer-son-activite-dans-tous-les-territoires-doutremer-jorf-n-79-des-2-et-3-avril/>
 
 En vigueur : 1973-04-10 (date du Journal officiel qui le publie).
 

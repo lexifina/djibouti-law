@@ -1,6 +1,6 @@
 # Arrêté n° 82-1591/PR/SP portant modification de l’arrêté n° 77-468/SG/CG du 24 mars 1977 portant réorganisation du centre d’Enseignement Professionnel Hospitalier (modifié par l’arrêté 77-592/PR/S du 10-12-1977).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1591-pr-sp-portant-modification-de-larrete-n77-468-sg-cg-du-24-mars-1977-portant-reorganisation-du-centre-denseignement-professionnel-hospitalier-modifie-par-larrete-77-5/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/11/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1591-pr-sp-portant-modification-de-larrete-n77-468-sg-cg-du-24-mars-1977-portant-reorganisation-du-centre-denseignement-professionnel-hospitalier-modifie-par-larrete-77-5/>
 
 En vigueur : 1982-11-30 (date du Journal officiel qui le publie).
 

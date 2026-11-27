@@ -1,6 +1,6 @@
 # Décret n° 19 juin 1938 modifiant le décret du 7 août 1934 sur le contrôle des subventions accordées aux sociétés privées sur les fonds des budgets généraux locaux et an nexes des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-juin-1938-modifiant-le-decret-du-7-aout-1934-sur-le-controle-des-subventions-accordees-aux-societes-privees-sur-les-fonds-des-budgets-generaux-locaux-et-an-nexes-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-juin-1938-modifiant-le-decret-du-7-aout-1934-sur-le-controle-des-subventions-accordees-aux-societes-privees-sur-les-fonds-des-budgets-generaux-locaux-et-an-nexes-des-colonies/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

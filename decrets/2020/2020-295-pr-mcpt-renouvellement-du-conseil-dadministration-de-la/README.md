@@ -1,6 +1,6 @@
 # Décret n° 2020-295/PR/MCPT portant renouvellement du conseil d’administration de la RTD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-295-pr-mcpt-portant-renouvellement-du-conseil-dadministration-de-la-rtd/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-295-pr-mcpt-portant-renouvellement-du-conseil-dadministration-de-la-rtd/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

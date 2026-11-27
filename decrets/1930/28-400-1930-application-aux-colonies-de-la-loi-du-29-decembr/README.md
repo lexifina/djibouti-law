@@ -1,6 +1,6 @@
 # Décret n° 28-400-1930 Application aux colonies de la loi du 29 décembre 1928.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 400 du 31/03/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-400-1930-application-aux-colonies-de-la-loi-du-29-decembre-1928/>
+Décret · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-400-1930-application-aux-colonies-de-la-loi-du-29-decembre-1928/>
 
 En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Lucien HUBERT.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

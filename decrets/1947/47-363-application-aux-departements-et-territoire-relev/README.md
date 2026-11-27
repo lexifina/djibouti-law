@@ -1,6 +1,6 @@
 # Décret n° 47-363 portant application aux départements et territoire» relevant du ministère de la France d’outre-mer, autres que l’Indochine, des dispositions de l’article 178 de la loi n° 46-2154- du 7 octobre 1916.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-363-portant-application-aux-departements-et-territoire-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine-des-dispositions-de-lar/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/03/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-363-portant-application-aux-departements-et-territoire-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine-des-dispositions-de-lar/>
 
 En vigueur : 1947-03-30 (date du Journal officiel qui le publie).
 

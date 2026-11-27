@@ -1,6 +1,6 @@
 # Ordonnance n° 06 juillet 1943 portant dissolution du Parti populaire français.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-06-juillet-1943-portant-dissolution-du-parti-populaire-francais/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-06-juillet-1943-portant-dissolution-du-parti-populaire-francais/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 

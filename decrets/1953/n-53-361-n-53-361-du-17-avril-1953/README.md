@@ -1,6 +1,6 @@
 # Décret n° n° 53-361 n° 53-361 du 17 avril 1953.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/06/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-53-361-n-53-361-du-17-avril-1953/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/06/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-53-361-n-53-361-du-17-avril-1953/>
 
 En vigueur : 1953-06-01 (date du Journal officiel qui le publie).
 

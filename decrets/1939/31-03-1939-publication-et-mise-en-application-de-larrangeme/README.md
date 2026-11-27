@@ -1,6 +1,6 @@
 # Décret n° 31/03/1939 portant publication et mise en application de l’arrangement commercial conclu entre la France et la Yougoslavie, le 10 février 1939.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 509 du 30/04/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-03-1939-portant-publication-et-mise-en-application-de-larrangement-commercial-conclu-entre-la-france-et-la-yougoslavie-le-10-fevrier-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 509 du 30/04/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-03-1939-portant-publication-et-mise-en-application-de-larrangement-commercial-conclu-entre-la-france-et-la-yougoslavie-le-10-fevrier-1939/>
 
 En vigueur : 1939-04-30 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ Georges MANDEL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

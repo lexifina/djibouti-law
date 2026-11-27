@@ -1,6 +1,6 @@
 # Décret n° 2008-0078/PR/MS portant adoption du plan national de développement sanitaire de Djibouti 2008-2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/03/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0078-pr-ms-portant-adoption-du-plan-national-de-developpement-sanitaire-de-djibouti-2008-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 31/03/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0078-pr-ms-portant-adoption-du-plan-national-de-developpement-sanitaire-de-djibouti-2008-2012/>
 
 En vigueur : 2008-03-31 (date du Journal officiel qui le publie).
 

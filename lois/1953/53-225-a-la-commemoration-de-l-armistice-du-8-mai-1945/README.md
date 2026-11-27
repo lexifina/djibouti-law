@@ -1,6 +1,6 @@
 # Loi n° 53-225 relative à la commémoration de l’Armistice du 8 mai 1945 (1)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-225-relative-a-la-commemoration-de-larmistice-du-8-mai-1945-1/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-225-relative-a-la-commemoration-de-larmistice-du-8-mai-1945-1/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-051/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel Consolidé 2018de l’HGP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-051-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2018de-lhgp/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-051-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2018de-lhgp/>
 
 En vigueur : 2018-03-15 (date du Journal officiel qui le publie).
 

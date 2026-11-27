@@ -1,6 +1,6 @@
 # Arrêté n° 2014-030/PR/SEJS portant approbation du budget prévisionnel 2014 du Fonds de la Jeunesse et des Sports.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-030-pr-sejs-portant-approbation-du-budget-previsionnel-2014-du-fonds-de-la-jeunesse-et-des-sports/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-030-pr-sejs-portant-approbation-du-budget-previsionnel-2014-du-fonds-de-la-jeunesse-et-des-sports/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

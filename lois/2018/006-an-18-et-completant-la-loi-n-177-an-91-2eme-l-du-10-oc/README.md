@@ -1,8 +1,8 @@
 # Loi n° 006/AN/18/8ème L modifiant et complétant la Loi n° 177/AN/91/2ème L du 10 octobre 1991 portant organisation de la propriété foncière.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n006-an-18-8eme-l-modifiant-et-completant-la-loi-n177-an-91-2eme-l-du-10-octobre-1991-portant-organisation-de-la-propriete-fonciere/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n006-an-18-8eme-l-modifiant-et-completant-la-loi-n177-an-91-2eme-l-du-10-octobre-1991-portant-organisation-de-la-propriete-fonciere/>
 
-En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 7 avril 1940 relatif aux marchés passés par les territoires d’outre-mer relevant du Ministère.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1940-relatif-aux-marches-passes-par-les-territoires-doutre-mer-relevant-du-ministere/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1940-relatif-aux-marches-passes-par-les-territoires-doutre-mer-relevant-du-ministere/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 

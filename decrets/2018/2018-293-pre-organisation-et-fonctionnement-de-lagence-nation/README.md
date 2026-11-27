@@ -1,6 +1,6 @@
 # Décret n° 2018-293/PRE portant organisation et fonctionnement de l’Agence Nationale des Personnes Handicapées (ANPH)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-293-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-personnes-handicapees-anph/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-293-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-personnes-handicapees-anph/>
 
 En vigueur : 2018-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

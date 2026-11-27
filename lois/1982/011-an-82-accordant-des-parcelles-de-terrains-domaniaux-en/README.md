@@ -1,6 +1,6 @@
 # Loi n° 11/AN/82 accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 
@@ -14,5 +14,5 @@ Vu le décret du 29 juillet 1924 fixant et organisant le domaine privé dans le 
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

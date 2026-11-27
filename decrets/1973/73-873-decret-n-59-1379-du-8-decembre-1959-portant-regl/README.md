@@ -1,6 +1,6 @@
 # Décret n° 73-873 modifiant le décret n° 59-1379 du 8 décembre 1959 portant règlement d’administration publique pour l’application de l’ordonnance n° 58-1036 du 29 octobre 1958 relative à la Situation de certains personnels relevant du ministre de la France d’outre-mer (JORF n° 211 des 10 et 11 septembre 1973, page 9876) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 25/09/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-873-modifiant-le-decret-n-59-1379-du-8-decembre-1959-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance-n-58-1036-du-29-octo/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 25/09/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-873-modifiant-le-decret-n-59-1379-du-8-decembre-1959-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance-n-58-1036-du-29-octo/>
 
 En vigueur : 1973-09-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 14/AN/18/8ème L portant ratification de la convention de prêt conclue entre la République de Djibouti et le Fonds de l’OPEC pour le Développement International et portant sur le financement du projet de route d’accès au Port de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-18-8eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-de-lopec-pour-le-developpement-international-et-portant-sur-le-financem/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-18-8eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-de-lopec-pour-le-developpement-international-et-portant-sur-le-financem/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

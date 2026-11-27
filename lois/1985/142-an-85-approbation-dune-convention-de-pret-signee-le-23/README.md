@@ -1,6 +1,6 @@
 # Loi n° 142/AN/85/1ere L Portant approbation d’une convention de prêt signée le 23 juin 1984 pour le financement du projet de laiterie en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-85-1ere-l-portant-approbation-dune-convention-de-pret-signee-le-23-juin-1984-pour-le-financement-du-projet-de-laiterie-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-85-1ere-l-portant-approbation-dune-convention-de-pret-signee-le-23-juin-1984-pour-le-financement-du-projet-de-laiterie-en-republique-de-djibouti/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

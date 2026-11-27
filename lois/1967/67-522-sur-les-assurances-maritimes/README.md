@@ -1,6 +1,6 @@
 # Loi n° 67-522 sur les assurances maritimes
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/08/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-67-522-sur-les-assurances-maritimes/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 10/08/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-67-522-sur-les-assurances-maritimes/>
 
 En vigueur : 1967-08-10 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ Jean CHAMANT.
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

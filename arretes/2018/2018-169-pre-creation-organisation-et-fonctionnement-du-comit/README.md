@@ -1,8 +1,8 @@
 # Arrêté n° 2018-169/PRE portant création, organisation et fonctionnement du comité national pour la mise en place du système d’identification unique des personnes physiques.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-169-pre-portant-creation-organisation-et-fonctionnement-du-comite-national-pour-la-mise-en-place-du-systeme-didentification-unique-des-personnes-physiques/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-169-pre-portant-creation-organisation-et-fonctionnement-du-comite-national-pour-la-mise-en-place-du-systeme-didentification-unique-des-personnes-physiques/>
 
-En vigueur : 2018-11-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-11-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-094/PR/MI prescrivant le Ravalement des Façades de la Ville de Djibouti à l’Occasion du 41ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-094-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-41eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-094-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-41eme-anniversaire-de-lindependance/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

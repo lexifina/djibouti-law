@@ -1,6 +1,6 @@
 # Loi n° 46-2385 sur la composition et l’élection de l’Assemblée de l’Union française.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2385-sur-la-composition-et-lelection-de-lassemblee-de-lunion-francaise/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2385-sur-la-composition-et-lelection-de-lassemblee-de-lunion-francaise/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Marins MOUTET.
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

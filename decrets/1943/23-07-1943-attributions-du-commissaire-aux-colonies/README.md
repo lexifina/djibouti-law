@@ -1,6 +1,6 @@
 # Décret n° 23/07/1943 fixant les attributions du Commissaire aux Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1943-fixant-les-attributions-du-commissaire-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-07-1943-fixant-les-attributions-du-commissaire-aux-colonies/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

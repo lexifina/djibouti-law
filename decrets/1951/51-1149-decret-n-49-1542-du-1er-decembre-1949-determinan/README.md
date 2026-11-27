@@ -1,6 +1,6 @@
 # Décret n° 51-1149 modifiant le décret n° 49-1542 du 1er décembre 1949 déterminant les indemnités diverses susceptibles d’être payées au titre de la solde aux militaires de l’armée de terre en service dans les territoires et départements d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1149-modifiant-le-decret-n-49-1542-du-1er-decembre-1949-determinant-les-indemnites-diverses-susceptibles-detre-payees-au-titre-de-la-solde-aux-militaires-de-larmee-de-terr/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1149-modifiant-le-decret-n-49-1542-du-1er-decembre-1949-determinant-les-indemnites-diverses-susceptibles-detre-payees-au-titre-de-la-solde-aux-militaires-de-larmee-de-terr/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

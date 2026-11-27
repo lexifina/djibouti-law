@@ -1,6 +1,6 @@
 # Décret n° 87-106/PRE portant modification du décret n° 79-102 du 3 novembre 1979 relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-106-pre-portant-modification-du-decret-n79-102-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-106-pre-portant-modification-du-decret-n79-102-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 30 novembre 1941 réglant les droits à pensions des fonctionnaires et agents ci vils victimes de faits de guerre et modifiant l’article 23 (2e paragraphe) de la loi du 14 avril 1924.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-30-novembre-1941-reglant-les-droits-a-pensions-des-fonctionnaires-et-agents-ci-vils-victimes-de-faits-de-guerre-et-modifiant-larticle-23-2e-paragraphe-de-la-loi-du-14-avril-192/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-30-novembre-1941-reglant-les-droits-a-pensions-des-fonctionnaires-et-agents-ci-vils-victimes-de-faits-de-guerre-et-modifiant-larticle-23-2e-paragraphe-de-la-loi-du-14-avril-192/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

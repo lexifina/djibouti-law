@@ -1,6 +1,6 @@
 # Décret n° 23-467-1935 Réduction de 10 p. 100 du montant des intérêts de certaines créances privilégiées dans les colonies, protectorats et territoires sous mandat relevant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-467-1935-reduction-de-10-p-100-du-montant-des-interets-de-certaines-creances-privilegiees-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du-ministere-des-colon/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-467-1935-reduction-de-10-p-100-du-montant-des-interets-de-certaines-creances-privilegiees-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du-ministere-des-colon/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 

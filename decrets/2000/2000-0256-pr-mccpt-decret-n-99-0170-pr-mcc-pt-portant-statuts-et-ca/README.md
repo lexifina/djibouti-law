@@ -1,6 +1,6 @@
 # Décret n° 2000-0256/PR/MCCPT modifiant le décret n° 99-0170/PR/MCC.PT portant statuts et cahier des charges de la Radiodiffusion Télévision de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0256-pr-mccpt-modifiant-le-decret-n99-0170-pr-mcc-pt-portant-statuts-et-cahier-des-charges-de-la-radiodiffusion-television-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0256-pr-mccpt-modifiant-le-decret-n99-0170-pr-mcc-pt-portant-statuts-et-cahier-des-charges-de-la-radiodiffusion-television-de-djibouti/>
 
 En vigueur : 2000-10-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 141/AN/06/5ème L portant mise en oeuvre de la Convention d’Ottawa sur l’interdiction de l’emploi, du stockage, de la production et du transfert des mines anti-personnel et sur leur destruction.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-06-5eme-l-portant-mise-en-oeuvre-de-la-convention-dottawa-sur-linterdiction-de-lemploi-du-stockage-de-la-production-et-du-transfert-des-mines-anti-person/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-06-5eme-l-portant-mise-en-oeuvre-de-la-convention-dottawa-sur-linterdiction-de-lemploi-du-stockage-de-la-production-et-du-transfert-des-mines-anti-person/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

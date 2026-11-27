@@ -1,6 +1,6 @@
 # Loi n° 163/AN/25/9ème L Portant modification partielle des dispositions de l’article 81 de la Loi n° 154/AN/02/4ème L portant codification du fonctionnement de l’OPS et du régime général de retraite des travailleurs salariés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-25-9eme-l-portant-modification-partielle-des-dispositions-de-larticle-81-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 30/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-25-9eme-l-portant-modification-partielle-des-dispositions-de-larticle-81-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de/>
 
 En vigueur : 2025-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

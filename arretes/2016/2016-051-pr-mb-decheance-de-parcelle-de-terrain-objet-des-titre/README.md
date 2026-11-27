@@ -1,6 +1,6 @@
 # Arrêté n° 2016-051/PR/MB portant la déchéance de parcelle de terrain objet des Titres Fonciers n° 18902 et 19156.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-051-pr-mb-portant-la-decheance-de-parcelle-de-terrain-objet-des-titres-fonciers-n18902-et-19156/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-051-pr-mb-portant-la-decheance-de-parcelle-de-terrain-objet-des-titres-fonciers-n18902-et-19156/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

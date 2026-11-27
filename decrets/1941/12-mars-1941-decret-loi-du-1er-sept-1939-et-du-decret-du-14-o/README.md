@@ -1,6 +1,6 @@
 # Décret n° 12 mars 1941 du décret-loi du 1er Sept. 1939 et du décret du 14 octobre 1939 en laveur du personnel étranger à l’Administration coloniale axant rallie un territoire soumis a l’autorité du Chef des Français Libres et du Conseil de Défense de l’Empire Français.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-du-decret-loi-du-1er-sept-1939-et-du-decret-du-14-octobre-1939-en-laveur-du-personnel-etranger-a-ladministration-coloniale-axant-rallie-un-territoire-soumis-a-l/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-du-decret-loi-du-1er-sept-1939-et-du-decret-du-14-octobre-1939-en-laveur-du-personnel-etranger-a-ladministration-coloniale-axant-rallie-un-territoire-soumis-a-l/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ C. DE GAULLE.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

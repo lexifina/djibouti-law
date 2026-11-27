@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0097/PR/MEFPCP portant transfert des droits du Titre Foncier N°587.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0097-pr-mefpcp-portant-transfert-des-droits-du-titre-foncier-n587/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0097-pr-mefpcp-portant-transfert-des-droits-du-titre-foncier-n587/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2013-315/PRE portant approbation du Protocole d’Accord relatif au projet immobilier Guelleh Batal II.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-315-pre-portant-approbation-du-protocole-daccord-relatif-au-projet-immobilier-guelleh-batal-ii/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-315-pre-portant-approbation-du-protocole-daccord-relatif-au-projet-immobilier-guelleh-batal-ii/>
 
 En vigueur : 2013-11-30 (date du Journal officiel qui le publie).
 

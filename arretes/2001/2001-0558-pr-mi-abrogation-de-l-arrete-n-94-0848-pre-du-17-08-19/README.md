@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0558/PR/MI portant abrogation de l’Arrêté n° 94-0848/PRE du 17/08/1994 relatif au déclassement de partie Nord de l’Avenue Bir-Hakeim.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0558-pr-mi-portant-abrogation-de-larrete-n94-0848-pre-du-17-08-1994-relatif-au-declassement-de-partie-nord-de-lavenue-bir-hakeim/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0558-pr-mi-portant-abrogation-de-larrete-n94-0848-pre-du-17-08-1994-relatif-au-declassement-de-partie-nord-de-lavenue-bir-hakeim/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

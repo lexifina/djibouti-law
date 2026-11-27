@@ -1,6 +1,6 @@
 # Loi n° 19/AN/18/8ème L portant approbation des comptes financiers de Djibouti Télécom S.A pour l’exercice 2014.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-18-8eme-l-portant-approbation-des-comptes-financiers-de-djibouti-telecom-s-a-pour-lexercice-2014/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-18-8eme-l-portant-approbation-des-comptes-financiers-de-djibouti-telecom-s-a-pour-lexercice-2014/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

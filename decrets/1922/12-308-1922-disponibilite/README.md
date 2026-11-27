@@ -1,6 +1,6 @@
 # Décret n° 12-308-1922 DISPONIBILITE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 308 du 31/07/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-308-1922-disponibilite/>
+Décret · Journal officiel de la République de Djibouti, n° 308 du 31/07/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-308-1922-disponibilite/>
 
 En vigueur : 1922-07-31 (date du Journal officiel qui le publie).
 

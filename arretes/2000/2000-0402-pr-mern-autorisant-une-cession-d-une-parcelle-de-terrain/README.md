@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0402/PR/MERN autorisant une cession d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0402-pr-mern-autorisant-une-cession-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0402-pr-mern-autorisant-une-cession-dune-parcelle-de-terrain/>
 
 En vigueur : 2000-05-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

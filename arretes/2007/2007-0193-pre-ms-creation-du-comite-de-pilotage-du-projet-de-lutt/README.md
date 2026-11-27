@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0193/PRE/MS portant création du comité de pilotage du projet de lutte contre la grippe aviaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0193-pre-ms-portant-creation-du-comite-de-pilotage-du-projet-de-lutte-contre-la-grippe-aviaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0193-pre-ms-portant-creation-du-comite-de-pilotage-du-projet-de-lutte-contre-la-grippe-aviaire/>
 
 En vigueur : 2007-02-28 (date du Journal officiel qui le publie).
 

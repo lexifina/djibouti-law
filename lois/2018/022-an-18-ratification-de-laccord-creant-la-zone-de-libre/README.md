@@ -1,6 +1,6 @@
 # Loi n° 22/AN/18/8ème L portant ratification de l’Accord créant la Zone de Libre-échange Continentale Africaine (ZLECAF).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-18-8eme-l-portant-ratification-de-laccord-creant-la-zone-de-libre-echange-continentale-africaine-zlecaf/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-18-8eme-l-portant-ratification-de-laccord-creant-la-zone-de-libre-echange-continentale-africaine-zlecaf/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

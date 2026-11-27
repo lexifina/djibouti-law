@@ -1,6 +1,6 @@
 # Décret n° 51-510 à l’application du règlement d’administration publique n° 51-509 du 5 mai 1951.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-510-a-lapplication-du-reglement-dadministration-publique-n-51-509-du-5-mai-1951/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-510-a-lapplication-du-reglement-dadministration-publique-n-51-509-du-5-mai-1951/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

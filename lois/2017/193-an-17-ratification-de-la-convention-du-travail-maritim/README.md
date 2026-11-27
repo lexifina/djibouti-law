@@ -1,6 +1,6 @@
 # Loi n° 193/AN/17/7ème L portant ratification de la Convention du Travail Maritime, MLC, 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-17-7eme-l-portant-ratification-de-la-convention-du-travail-maritime-mlc-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-17-7eme-l-portant-ratification-de-la-convention-du-travail-maritime-mlc-2006/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

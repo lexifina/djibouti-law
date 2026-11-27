@@ -1,8 +1,8 @@
 # Loi n° 92/AN/00/4ème L relative aux Statuts de la Banque Centrale de Djibouti (B.C.D).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-00-4eme-l-relative-aux-statuts-de-la-banque-centrale-de-djibouti-b-c-d/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-00-4eme-l-relative-aux-statuts-de-la-banque-centrale-de-djibouti-b-c-d/>
 
-En vigueur : 2000-07-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-07-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -84,4 +84,4 @@ ISMAÏL OMAR GUELLEH
 | [art-065.md](art-065.md) | Article 65 |
 | [art-066.md](art-066.md) | Article 66 |
 | [art-067.md](art-067.md) | Article 67 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

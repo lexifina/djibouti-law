@@ -1,6 +1,6 @@
 # Décret n° 08/02/1941 rendant applicable à l’Algérie et aux territoires relevant de l’autorité du Secrétaire d’Etat aux colonies l’accord franco-hollandais du 1er février 1941.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-02-1941-rendant-applicable-a-lalgerie-et-aux-territoires-relevant-de-lautorite-du-secretaire-detat-aux-colonies-laccord-franco-hollandais-du-1er-fevrier-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-02-1941-rendant-applicable-a-lalgerie-et-aux-territoires-relevant-de-lautorite-du-secretaire-detat-aux-colonies-laccord-franco-hollandais-du-1er-fevrier-1941/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ PLATON.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

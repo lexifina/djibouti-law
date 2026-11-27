@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0842/PR/MEFPP affectant au Ministère Délégué auprès du Ministère de la Justice, chargé des Biens Wakfs et des Affaires Musulmanes une parcelle de terrain sise à Gabode IV.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0842-pr-mefpp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-sise-a-gabode-iv/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0842-pr-mefpp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-sise-a-gabode-iv/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 

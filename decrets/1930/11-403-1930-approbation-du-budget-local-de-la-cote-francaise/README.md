@@ -1,6 +1,6 @@
 # Décret n° 11-403-1930 Approbation du budget local de la Côte française des Somalis pour l’exercice 1930.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 403 du 30/06/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-403-1930-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1930/>
+Décret · Journal officiel de la République de Djibouti, n° 403 du 30/06/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-403-1930-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1930/>
 
 En vigueur : 1930-06-30 (date du Journal officiel qui le publie).
 

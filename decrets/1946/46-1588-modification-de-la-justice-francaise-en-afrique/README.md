@@ -1,6 +1,6 @@
 # Décret n° 46-1588 portant modification de la justice française en Afrique Occidentale française en Afrique-Equatoriale française, à Madagascar et dépendances, au Cameroun, au Togo et à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1588-portant-modification-de-la-justice-francaise-en-afrique-occidentale-francaise-en-afrique-equatoriale-francaise-a-madagascar-et-dependances-au-cameroun-au-togo-et-a-la-cote-f/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1588-portant-modification-de-la-justice-francaise-en-afrique-occidentale-francaise-en-afrique-equatoriale-francaise-a-madagascar-et-dependances-au-cameroun-au-togo-et-a-la-cote-f/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

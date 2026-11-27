@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0410/PR/MEFPP déclarant un concessionnaire de terrain déchu de son droit de concession provisoire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0410-pr-mefpp-declarant-un-concessionnaire-de-terrain-dechu-de-son-droit-de-concession-provisoire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0410-pr-mefpp-declarant-un-concessionnaire-de-terrain-dechu-de-son-droit-de-concession-provisoire/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

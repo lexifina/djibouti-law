@@ -1,6 +1,6 @@
 # Décret n° le 12 octobre 1938 modifiant le décret mai 1938 qui a accordé des avantages aux militaires ou anciens militaires indigènes de l’Afrique-Occidentale française, de l’Afrique-Equatoriale française, de Madagascar et dépendances et de la Côte française des Somalis,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-octobre-1938-modifiant-le-decret-mai-1938-qui-a-accorde-des-avantages-aux-militaires-ou-anciens-militaires-indigenes-de-lafrique-occidentale-francaise-de-lafrique-equatoria/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-octobre-1938-modifiant-le-decret-mai-1938-qui-a-accorde-des-avantages-aux-militaires-ou-anciens-militaires-indigenes-de-lafrique-occidentale-francaise-de-lafrique-equatoria/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Georges MANDEl.
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

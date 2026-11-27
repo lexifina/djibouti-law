@@ -1,6 +1,6 @@
 # Ordonnance n° 80-089/PR portant création d’un établissement public des hydrocarbures.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-089-pr-portant-creation-dun-etablissement-public-des-hydrocarbures/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 01/03/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-089-pr-portant-creation-dun-etablissement-public-des-hydrocarbures/>
 
 En vigueur : 1981-03-01 (date du Journal officiel qui le publie).
 

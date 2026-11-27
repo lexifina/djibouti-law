@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Le président de la République,
 une erreur ayant été commise dans la rédaction des article
 6 et 7 de cette ordonnance, fe Conseil des Ministres a approuvé

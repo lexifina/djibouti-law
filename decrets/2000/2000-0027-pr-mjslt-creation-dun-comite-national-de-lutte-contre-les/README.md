@@ -1,6 +1,6 @@
 # Décret n° 2000-0027/PR/MJSLT portant création d’un Comité national de lutte contre les drogues.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0027-pr-mjslt-portant-creation-dun-comite-national-de-lutte-contre-les-drogues/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0027-pr-mjslt-portant-creation-dun-comite-national-de-lutte-contre-les-drogues/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

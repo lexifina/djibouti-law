@@ -1,6 +1,6 @@
 # Décret n° 16 décembre 1939 relatif au mode d’inscription et de versement des sommes dues par des importateurs Français a des exportateurs allemands.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-decembre-1939-relatif-au-mode-dinscription-et-de-versement-des-sommes-dues-par-des-importateurs-francais-a-des-exportateurs-allemands/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-decembre-1939-relatif-au-mode-dinscription-et-de-versement-des-sommes-dues-par-des-importateurs-francais-a-des-exportateurs-allemands/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -37,5 +37,5 @@ Goorges MANDEL
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

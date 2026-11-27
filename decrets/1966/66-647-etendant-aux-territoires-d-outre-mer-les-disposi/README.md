@@ -1,6 +1,6 @@
 # Décret n° 66-647 étendant aux territoires d’outre-mer les dispositions des décrets n° 66-81 et 66-82 du 25 janvier 1966 portant modificatfon de la réglementation bancaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-647-etendant-aux-territoires-doutre-mer-les-dispositions-des-decrets-n-66-81-et-66-82-du-25-janvier-1966-portant-modificatfon-de-la-reglementation-bancaire/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-647-etendant-aux-territoires-doutre-mer-les-dispositions-des-decrets-n-66-81-et-66-82-du-25-janvier-1966-portant-modificatfon-de-la-reglementation-bancaire/>
 
 En vigueur : 1966-10-01 (date du Journal officiel qui le publie).
 

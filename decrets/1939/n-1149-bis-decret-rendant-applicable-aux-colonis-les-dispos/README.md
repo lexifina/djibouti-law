@@ -1,6 +1,6 @@
 # Décret n° n° 1149 bis Le décret rendant applicable aux colonis les dispositions du décret du 1 septembre 1939 réprimant les publications et les informations susceptibles d’exercer une influence sur l’esprit de l’armée et de la population……
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1149-bis-le-decret-rendant-applicable-aux-colonis-les-dispositions-du-decret-du-1-septembre-1939-reprimant-les-publications-et-les-informations-susceptibles-dexercer-une-infl/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1149-bis-le-decret-rendant-applicable-aux-colonis-les-dispositions-du-decret-du-1-septembre-1939-reprimant-les-publications-et-les-informations-susceptibles-dexercer-une-infl/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 

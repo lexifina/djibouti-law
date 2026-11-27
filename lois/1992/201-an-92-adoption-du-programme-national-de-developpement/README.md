@@ -1,6 +1,6 @@
 # Loi n° 201/AN/92/2e L Portant adoption du Programme national de Développement industriel pour la décennie 1991-2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-92-2e-l-portant-adoption-du-programme-national-de-developpement-industriel-pour-la-decennie-1991-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-92-2e-l-portant-adoption-du-programme-national-de-developpement-industriel-pour-la-decennie-1991-2000/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 
@@ -19,6 +19,6 @@ vu la proclamation par la 42 Assemblée générale des Nations unies de le Déce
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | art. 3 |

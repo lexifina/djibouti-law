@@ -1,6 +1,6 @@
 # Décret n° 61-391 portant application dans les territoires d’outre-mer du décret n° 60-748 du 25 juillet 1960 et du décret n° 60-1303 du 3 décembre 1960 modifiant le décret n° 57-598 du 13 mai 1957 fixant les règles de l’air, les attributions et le rôle des services civils de la circulation aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-391-portant-application-dans-les-territoires-doutre-mer-du-decret-n-60-748-du-25-juillet-1960-et-du-decret-n-60-1303-du-3-decembre-1960-modifiant-le-decret-n/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-391-portant-application-dans-les-territoires-doutre-mer-du-decret-n-60-748-du-25-juillet-1960-et-du-decret-n-60-1303-du-3-decembre-1960-modifiant-le-decret-n/>
 
 En vigueur : 1961-05-31 (date du Journal officiel qui le publie).
 
@@ -31,5 +31,5 @@ Robert BURoON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Décret n° 13-437-1933 INDEMNITÉS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 437 du 30/04/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-437-1933-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 437 du 30/04/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-437-1933-indemnites/>
 
 En vigueur : 1933-04-30 (date du Journal officiel qui le publie).
 

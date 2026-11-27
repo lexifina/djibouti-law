@@ -1,6 +1,6 @@
 # Loi n° 52/AN/04/5ème L portant sur l’Inspection Générale d’État.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-04-5eme-l-portant-sur-linspection-generale-detat/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-04-5eme-l-portant-sur-linspection-generale-detat/>
 
 En vigueur : 2004-05-15 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

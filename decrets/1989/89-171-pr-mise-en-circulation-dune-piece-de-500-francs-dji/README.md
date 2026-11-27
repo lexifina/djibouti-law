@@ -1,6 +1,6 @@
 # Décret n° 89-171/PR portant mise en circulation d’une pièce de 500 Francs Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-171-pr-portant-mise-en-circulation-dune-piece-de-500-francs-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-171-pr-portant-mise-en-circulation-dune-piece-de-500-francs-djibouti/>
 
 En vigueur : 1989-12-31 (date du Journal officiel qui le publie).
 

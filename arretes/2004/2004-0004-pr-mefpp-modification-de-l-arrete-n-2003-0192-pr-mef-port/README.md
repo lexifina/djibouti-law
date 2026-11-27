@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0004/PR/MEFPP portant modification de l’arrêté n° 2003-0192/PR/MEF portant attribution en concession provisoire d’une parcelle de terrain sise à Balbala PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0004-pr-mefpp-portant-modification-de-larrete-n2003-0192-pr-mef-portant-attribution-en-concession-provisoire-dune-parcelle-de-terrain-sise-a-balbala-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0004-pr-mefpp-portant-modification-de-larrete-n2003-0192-pr-mef-portant-attribution-en-concession-provisoire-dune-parcelle-de-terrain-sise-a-balbala-pk-12/>
 
 En vigueur : 2004-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2014-28/PR/MI portant création d’une brigade nautique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-28-pr-mi-portant-creation-dune-brigade-nautique/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 27/02/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-28-pr-mi-portant-creation-dune-brigade-nautique/>
 
 En vigueur : 2014-02-27 (date du Journal officiel qui le publie).
 

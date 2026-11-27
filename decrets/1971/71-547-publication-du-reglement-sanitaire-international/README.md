@@ -1,6 +1,6 @@
 # Décret n° 71-547 portant publication du règlement sanitaire international, adopté le 15 juillet 1969 par la XXII° Assemblée mondiale de la Santé (J.O.R.F. du 9 jüillet 1969, p. 6762).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-547-portant-publication-du-reglement-sanitaire-international-adopte-le-15-juillet-1969-par-la-xxii-assemblee-mondiale-de-la-sante-j-o-r-f-du-9-juillet-1969-p-6762/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-547-portant-publication-du-reglement-sanitaire-international-adopte-le-15-juillet-1969-par-la-xxii-assemblee-mondiale-de-la-sante-j-o-r-f-du-9-juillet-1969-p-6762/>
 
 En vigueur : 1971-08-10 (date du Journal officiel qui le publie).
 

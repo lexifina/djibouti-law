@@ -1,6 +1,6 @@
 # Décret n° 67-226 SUR LES SOCIÉTÉS COMMERCIALES
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-226-sur-les-societes-commerciales/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-226-sur-les-societes-commerciales/>
 
 En vigueur : 1967-06-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Le Conseil d’Etat entendu,
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

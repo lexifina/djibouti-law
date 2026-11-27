@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0851/PR/SESN portant approbation et rendant exécutoire le budget prévisionnel de l’exercice 2012 de l’Agence Djiboutienne de Développemnt Social (ADDS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0851-pr-sesn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-de-lagence-djiboutienne-de-developpemnt-social-adds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0851-pr-sesn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-de-lagence-djiboutienne-de-developpemnt-social-adds/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

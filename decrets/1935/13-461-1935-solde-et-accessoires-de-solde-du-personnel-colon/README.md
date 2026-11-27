@@ -1,6 +1,6 @@
 # Décret n° 13-461-1935 Solde et accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 461 du 30/04/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-461-1935-solde-et-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 461 du 30/04/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-461-1935-solde-et-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1935-04-30 (date du Journal officiel qui le publie).
 
@@ -33,5 +33,5 @@ Louis ROLLIN
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

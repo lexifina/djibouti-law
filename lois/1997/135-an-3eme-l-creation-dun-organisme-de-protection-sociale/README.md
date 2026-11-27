@@ -1,6 +1,6 @@
 # Loi n° 135/AN/3ème L portant création d’un Organisme de Protection Sociale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-3eme-l-portant-creation-dun-organisme-de-protection-sociale/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-3eme-l-portant-creation-dun-organisme-de-protection-sociale/>
 
 En vigueur : 1997-05-15 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ HASSAN GOULED APTIDON
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

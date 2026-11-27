@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1°. — les dispositions de la convention, signée à Londres, le 2 février 1922, entre la France et la Grande-Bretagne, pour faciliter l’accomplissement des actes de procédure entre personnes résidant dans leurs ter-
 ritoires respectifs, telles qu’elles figurent au décret du 16 juin 1922, portant promulgation de ladite convention, publié au Journal officiel de la République francaise du 20 juin 1922, sont rendues applicables aux colonies de l’Indochine, de l’Afrique occidentale française, de Afrique équatoriale francaise, de Madagascar et dépendances, de la Guadeloupe, de a Martinique, de la Réunion, de la Cote francaise des Somalis, de la Nouvelle-Calédonie, Ges îles Saint-Pierre et Miquelon, ainsi qu’aux territoires sous mandat francais au Togo et du Cameroun

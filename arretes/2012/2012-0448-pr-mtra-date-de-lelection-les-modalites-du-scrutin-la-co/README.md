@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0448/PR/MTRA fixant la date de l’élection, les modalités du Scrutin, la composition de la commission Electorale pour la désignation des représentants de la commission administrative paritaire des différents cadre de la catégorie A1.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0448-pr-mtra-fixant-la-date-de-lelection-les-modalites-du-scrutin-la-composition-de-la-commission-electorale-pour-la-designation-des-representants-de-la-commission-administrativ/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0448-pr-mtra-fixant-la-date-de-lelection-les-modalites-du-scrutin-la-composition-de-la-commission-electorale-pour-la-designation-des-representants-de-la-commission-administrativ/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

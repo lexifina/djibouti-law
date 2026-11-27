@@ -3,7 +3,7 @@ codification du fonctionnement de l’OPS et du régime
 général de retraire des travailleurs salariés modifiée
 par la Loi n° 121/AN/11/6ème L.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-13-6eme-l-portant-modification-et-ajout-dun-article-72-bis-dans-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retrair/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-13-6eme-l-portant-modification-et-ajout-dun-article-72-bis-dans-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retrair/>
 
 En vigueur : 2013-02-28 (date du Journal officiel qui le publie).
 

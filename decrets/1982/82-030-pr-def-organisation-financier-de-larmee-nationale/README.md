@@ -1,6 +1,6 @@
 # Décret n° 82-030/PR/DEF portant organisation financier de l’Armée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-030-pr-def-portant-organisation-financier-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-030-pr-def-portant-organisation-financier-de-larmee-nationale/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 

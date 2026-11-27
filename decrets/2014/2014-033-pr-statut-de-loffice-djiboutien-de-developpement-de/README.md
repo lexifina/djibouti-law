@@ -1,8 +1,8 @@
 # Décret n° 2014-033/PR portant Statut de l’Office Djiboutien de Développement de l’Energie Géothermique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-033-pr-portant-statut-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 27/02/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-033-pr-portant-statut-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique/>
 
-En vigueur : 2014-02-20 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-02-20 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -77,4 +77,4 @@ ISMAÏL OMAR GUELLEH
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

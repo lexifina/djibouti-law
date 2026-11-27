@@ -1,6 +1,6 @@
 # Décret n° 30 novembre 1937 modifiant le décret du 9 mai 1936 portant organisation générale des services des travaux publics et des mines des colonies et du statut du personnel
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 506 du 31/01/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-novembre-1937-modifiant-le-decret-du-9-mai-1936-portant-organisation-generale-des-services-des-travaux-publics-et-des-mines-des-colonies-et-du-statut-du-personnel/>
+Décret · Journal officiel de la République de Djibouti, n° 506 du 31/01/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-novembre-1937-modifiant-le-decret-du-9-mai-1936-portant-organisation-generale-des-services-des-travaux-publics-et-des-mines-des-colonies-et-du-statut-du-personnel/>
 
 En vigueur : 1938-01-31 (date du Journal officiel qui le publie).
 

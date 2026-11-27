@@ -1,6 +1,6 @@
 # Loi n° 104/AN/10/6ème L /AN/10/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Koweïtien pour le Développement Economique Arabe (KFAED).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-10-6eme-l-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe-kfaed/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-10-6eme-l-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe-kfaed/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

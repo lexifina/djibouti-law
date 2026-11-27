@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0899/PR/MID portant démolition de l’immeuble dénommé «Case de Passage».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0899-pr-mid-portant-demolition-de-limmeuble-denomme-case-de-passage/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0899-pr-mid-portant-demolition-de-limmeuble-denomme-case-de-passage/>
 
 En vigueur : 2003-12-15 (date du Journal officiel qui le publie).
 

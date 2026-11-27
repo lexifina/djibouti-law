@@ -1,6 +1,6 @@
 # Loi n° 114/AN/96/3e L relatif à la protection du droit d’auteur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-96-3e-l-relatif-a-la-protection-du-droit-dauteur/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n114-an-96-3e-l-relatif-a-la-protection-du-droit-dauteur/>
 
 En vigueur : 1996-09-15 (date du Journal officiel qui le publie).
 
@@ -19,7 +19,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -38,4 +38,4 @@ HASSAN GOULED APTIDON
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art.19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

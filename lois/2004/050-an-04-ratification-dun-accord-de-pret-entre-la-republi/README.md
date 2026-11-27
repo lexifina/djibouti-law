@@ -1,6 +1,6 @@
 # Loi n° 50/AN/04/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Iranienne pour le Développement des Exportations (EDBI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-iranienne-pour-le-developpement-des-exportations-edbi/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-iranienne-pour-le-developpement-des-exportations-edbi/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

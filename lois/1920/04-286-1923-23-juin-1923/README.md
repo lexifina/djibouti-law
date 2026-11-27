@@ -1,6 +1,6 @@
 # Loi n° 04-286-1923 23 juin 1923
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 286 du 30/08/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-04-286-1923-23-juin-1923/>
+Loi · Journal officiel de la République de Djibouti, n° 286 du 30/08/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-04-286-1923-23-juin-1923/>
 
 En vigueur : 1920-08-30 (date du Journal officiel qui le publie).
 

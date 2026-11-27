@@ -1,6 +1,6 @@
 # Décret n° 02-270-1919 09/03/1919
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 270 du 30/04/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-270-1919-09-03-1919/>
+Décret · Journal officiel de la République de Djibouti, n° 270 du 30/04/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-270-1919-09-03-1919/>
 
 En vigueur : 1919-04-30 (date du Journal officiel qui le publie).
 

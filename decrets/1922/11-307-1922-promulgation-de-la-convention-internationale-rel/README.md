@@ -1,6 +1,6 @@
 # Décret n° 11-307-1922 portant promulgation de la convention internationale relative à la répression de la traite des blanches, signée à Paris, le 4 mai 1910.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 307 du 30/06/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-307-1922-portant-promulgation-de-la-convention-internationale-relative-a-la-repression-de-la-traite-des-blanches-signee-a-paris-le-4-mai-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 307 du 30/06/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-307-1922-portant-promulgation-de-la-convention-internationale-relative-a-la-repression-de-la-traite-des-blanches-signee-a-paris-le-4-mai-1910/>
 
 En vigueur : 1922-06-30 (date du Journal officiel qui le publie).
 

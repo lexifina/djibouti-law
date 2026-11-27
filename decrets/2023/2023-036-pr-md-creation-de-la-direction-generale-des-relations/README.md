@@ -1,6 +1,6 @@
 # Décret n° 2023-036/PR/MD portant création de la Direction Générale des Relations Internationales de l’Armée Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-036-pr-md-portant-creation-de-la-direction-generale-des-relations-internationales-de-larmee-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-036-pr-md-portant-creation-de-la-direction-generale-des-relations-internationales-de-larmee-djiboutienne/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -42,4 +42,4 @@ Parlement et du Chef d’Etat-major Général des Armées.
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2015-296/PR/MB portant attribution d’une parcelle de terrain de 3ha au PK 12 zone de concassage.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-296-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-3ha-au-pk-12-zone-de-concassage/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-296-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-3ha-au-pk-12-zone-de-concassage/>
 
 En vigueur : 2015-04-30 (date du Journal officiel qui le publie).
 

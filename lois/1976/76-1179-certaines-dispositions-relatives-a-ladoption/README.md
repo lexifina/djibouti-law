@@ -1,6 +1,6 @@
 # Loi n° 76-1179 modifiant certaines dispositions relatives à l’adoption.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1977 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-76-1179-modifiant-certaines-dispositions-relatives-a-ladoption/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1977 · <https://www.journalofficiel.dj/texte-juridique/loi-n-76-1179-modifiant-certaines-dispositions-relatives-a-ladoption/>
 
 En vigueur : 1977-02-10 (date du Journal officiel qui le publie).
 

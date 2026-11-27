@@ -1,6 +1,6 @@
 # Décret n° 2019-003/PR/MI portant modification de l’Article 3 du Décret n° 2017-054/PR/MI du 02 février 2017 portant sur la mise en circulation des vignettes des visas biométriques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-003-pr-mi-portant-modification-de-larticle-3-du-decret-n2017-054-pr-mi-du-02-fevrier-2017-portant-sur-la-mise-en-circulation-des-vignettes-des-visas-biometriques/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-003-pr-mi-portant-modification-de-larticle-3-du-decret-n2017-054-pr-mi-du-02-fevrier-2017-portant-sur-la-mise-en-circulation-des-vignettes-des-visas-biometriques/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

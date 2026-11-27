@@ -1,6 +1,6 @@
 # Décret n° 89-025/PR/INT portant recensement de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-025-pr-int-portant-recensement-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-025-pr-int-portant-recensement-de-balbala/>
 
 En vigueur : 1989-02-28 (date du Journal officiel qui le publie).
 

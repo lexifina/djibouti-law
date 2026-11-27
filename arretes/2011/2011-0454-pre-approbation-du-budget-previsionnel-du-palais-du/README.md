@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0454/PRE portant approbation du Budget prévisionnel du Palais du Peuple pour l’Exercice 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0454-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0454-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2011/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

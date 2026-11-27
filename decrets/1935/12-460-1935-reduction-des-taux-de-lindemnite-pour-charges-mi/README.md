@@ -1,8 +1,8 @@
 # Décret n° 12-460-1935 Réduction des taux de l’indemnité pour charges militaires alloué e au personnel miliaire aux colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 460 du 31/03/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-460-1935-reduction-des-taux-de-lindemnite-pour-charges-militaires-alloue-e-au-personnel-miliaire-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 460 du 31/03/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-460-1935-reduction-des-taux-de-lindemnite-pour-charges-militaires-alloue-e-au-personnel-miliaire-aux-colonies/>
 
-En vigueur : 1954-08-01 (date fixÃ©e par le texte).
+En vigueur : 1954-08-01 (date fixée par le texte).
 
 ## Visas
 

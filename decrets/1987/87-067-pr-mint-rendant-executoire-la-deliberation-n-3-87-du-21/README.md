@@ -1,6 +1,6 @@
 # Décret n° 87-067/PR/MINT rendant exécutoire la délibération n° 3/87 du 21 Juin 1987 du Conseil d’Administration de l’Office des Postes et Télécommunications portant approbation de la première décision modificative du budget prévisionnel de l’Office pour 1987.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-067-pr-mint-rendant-executoire-la-deliberation-n3-87-du-21-juin-1987-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premier/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-067-pr-mint-rendant-executoire-la-deliberation-n3-87-du-21-juin-1987-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premier/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

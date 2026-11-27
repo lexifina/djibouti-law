@@ -1,6 +1,6 @@
 # Décret n° 2009-0192/PR/MID portant transfert de la propriété des bouches et poteaux incendie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0192-pr-mid-portant-transfert-de-la-propriete-des-bouches-et-poteaux-incendie/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0192-pr-mid-portant-transfert-de-la-propriete-des-bouches-et-poteaux-incendie/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

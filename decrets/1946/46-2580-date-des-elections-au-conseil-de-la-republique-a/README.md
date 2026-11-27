@@ -1,6 +1,6 @@
 # Décret n° 46-2580 fixant la date des élections au Conseil de la République à la Côte française des Somalis et dans les Établissements français de l’Océanie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2580-fixant-la-date-des-elections-au-conseil-de-la-republique-a-la-cote-francaise-des-somalis-et-dans-les-etablissements-francais-de-loceanie/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2580-fixant-la-date-des-elections-au-conseil-de-la-republique-a-la-cote-francaise-des-somalis-et-dans-les-etablissements-francais-de-loceanie/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

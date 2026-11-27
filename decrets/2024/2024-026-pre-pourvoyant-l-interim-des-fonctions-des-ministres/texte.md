@@ -1,2 +1,0 @@
-Par décret n°2024-026/PRE, du Président de la République, chef du Gouvernement, en date du 12 février 2024, pendant la durée de l’absence de S.E.Dr. HIBO MOUMIN ASSOWEH, l’intérim des fonctions de la Ministre de la Jeunesse et de la Culture sera assuré par S.E.Mme. MARIAM HAMADOU ALI, Ministre Déléguée chargé de l’Economie Numérique et de l’Innovation cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

@@ -1,6 +1,6 @@
 # Loi n° 46-560 tendant à la fixation des droits d’expédition des actes de l’état civil et de légalisation des pièces
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-560-tendant-a-la-fixation-des-droits-dexpedition-des-actes-de-letat-civil-et-de-legalisation-des-pieces/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-560-tendant-a-la-fixation-des-droits-dexpedition-des-actes-de-letat-civil-et-de-legalisation-des-pieces/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

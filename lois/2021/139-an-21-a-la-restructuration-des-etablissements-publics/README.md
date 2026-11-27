@@ -1,6 +1,6 @@
 # Loi n° 139/AN/21/8ème L relative à la restructuration des Établissements Publics Administratifs (EPA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-21-8eme-l-relative-a-la-restructuration-des-etablissements-publics-administratifs-epa/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-21-8eme-l-relative-a-la-restructuration-des-etablissements-publics-administratifs-epa/>
 
 En vigueur : 2022-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

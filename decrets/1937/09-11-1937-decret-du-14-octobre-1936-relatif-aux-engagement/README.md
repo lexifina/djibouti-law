@@ -1,6 +1,6 @@
 # Décret n° 09/11/1937 modifiant le décret du 14 octobre 1936 relatif aux engagements par contrat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 493 du 31/12/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-11-1937-modifiant-le-decret-du-14-octobre-1936-relatif-aux-engagements-par-contrat/>
+Décret · Journal officiel de la République de Djibouti, n° 493 du 31/12/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-11-1937-modifiant-le-decret-du-14-octobre-1936-relatif-aux-engagements-par-contrat/>
 
 En vigueur : 1937-12-31 (date du Journal officiel qui le publie).
 

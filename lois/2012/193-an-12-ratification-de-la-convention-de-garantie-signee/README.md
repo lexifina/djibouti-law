@@ -1,6 +1,6 @@
 # Loi n° 193/AN/12/6ème L portant ratification de la convention de garantie signée entre la République de Djibouti et le FADES.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-12-6eme-l-portant-ratification-de-la-convention-de-garantie-signee-entre-la-republique-de-djibouti-et-le-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-12-6eme-l-portant-ratification-de-la-convention-de-garantie-signee-entre-la-republique-de-djibouti-et-le-fades/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

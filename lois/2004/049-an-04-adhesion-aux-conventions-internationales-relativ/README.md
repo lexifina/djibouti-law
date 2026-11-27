@@ -1,6 +1,6 @@
 # Loi n° 49/AN/04/5ème L Portant adhésion aux Conventions internationales relatives à la lutte contre le terrorisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-04-5eme-l-portant-adhesion-aux-conventions-internationales-relatives-a-la-lutte-contre-le-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-04-5eme-l-portant-adhesion-aux-conventions-internationales-relatives-a-la-lutte-contre-le-terrorisme/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

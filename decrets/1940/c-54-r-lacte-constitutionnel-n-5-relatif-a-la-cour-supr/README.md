@@ -1,6 +1,6 @@
 # Décret n° C. 54 R. L’acte constitutionnel n° 5 relatif à la Cour suprême de justice.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 527 du 31/10/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-c-54-r-lacte-constitutionnel-n-5-relatif-a-la-cour-supreme-de-justice/>
+Décret · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-c-54-r-lacte-constitutionnel-n-5-relatif-a-la-cour-supreme-de-justice/>
 
 En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
 

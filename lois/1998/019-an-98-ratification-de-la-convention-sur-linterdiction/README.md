@@ -1,6 +1,6 @@
 # Loi n° 19/AN/98/4ème L portant ratification de la Convention sur l’interdiction de l’emploi, du stockage, de la production et du transfert des mines antipersonnel et sur leur destruction.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 16/05/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-98-4eme-l-portant-ratification-de-la-convention-sur-linterdiction-de-lemploi-du-stockage-de-la-production-et-du-transfert-des-mines-antipersonnel-et-sur-leur-destruction/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 16/05/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-98-4eme-l-portant-ratification-de-la-convention-sur-linterdiction-de-lemploi-du-stockage-de-la-production-et-du-transfert-des-mines-antipersonnel-et-sur-leur-destruction/>
 
 En vigueur : 1998-05-16 (date du Journal officiel qui le publie).
 

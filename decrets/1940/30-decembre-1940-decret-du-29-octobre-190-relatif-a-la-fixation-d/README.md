@@ -1,6 +1,6 @@
 # Décret n° 30 décembre 1940 modifiant le décret du 29 octobre 190, relatif à la fixation d’une solde coloniale globale pour les militaires européens en activité de service en Afrique Française Libre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-decembre-1940-modifiant-le-decret-du-29-octobre-190-relatif-a-la-fixation-dune-solde-coloniale-globale-pour-les-militaires-europeens-en-activite-de-service-en-afrique-fran/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-decembre-1940-modifiant-le-decret-du-29-octobre-190-relatif-a-la-fixation-dune-solde-coloniale-globale-pour-les-militaires-europeens-en-activite-de-service-en-afrique-fran/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

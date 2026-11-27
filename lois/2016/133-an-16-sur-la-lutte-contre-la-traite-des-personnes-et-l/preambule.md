@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 I.DISPOSITION GENERALES
 Chapitre I: DÉFINITION DES TERMES

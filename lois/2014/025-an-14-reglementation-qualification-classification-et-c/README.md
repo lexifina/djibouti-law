@@ -1,6 +1,6 @@
 # Loi n° 25/AN/14/7ème L portant réglementation, qualification, classification et certification des entreprises du secteur du bâtiment et de l’équipement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-14-7eme-l-portant-reglementation-qualification-classification-et-certification-des-entreprises-du-secteur-du-batiment-et-de-lequipement/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-14-7eme-l-portant-reglementation-qualification-classification-et-certification-des-entreprises-du-secteur-du-batiment-et-de-lequipement/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 

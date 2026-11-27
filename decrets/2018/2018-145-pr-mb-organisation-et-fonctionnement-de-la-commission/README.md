@@ -1,8 +1,8 @@
 # Décret n° 2018-145/PR/MB portant organisation et fonctionnement de la Commission Nationale de Conciliation Fiscale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-145-pr-mb-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-conciliation-fiscale/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-145-pr-mb-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-conciliation-fiscale/>
 
-En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

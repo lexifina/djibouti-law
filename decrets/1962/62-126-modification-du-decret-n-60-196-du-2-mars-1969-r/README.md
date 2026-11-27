@@ -1,6 +1,6 @@
 # Décret n° 62-126 portant modification du décret n° 60-196 du 2 mars 1969 relatif au conseil d’administration de l’institut des hautes études d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-126-portant-modification-du-decret-n-60-196-du-2-mars-1969-relatif-au-conseil-dadministration-de-linstitut-des-hautes-etudes-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-126-portant-modification-du-decret-n-60-196-du-2-mars-1969-relatif-au-conseil-dadministration-de-linstitut-des-hautes-etudes-doutre-mer/>
 
 En vigueur : 1962-02-28 (date du Journal officiel qui le publie).
 

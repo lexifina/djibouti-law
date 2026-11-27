@@ -1,6 +1,6 @@
 # Décret n° 2017-383/PR/MI fixant les modalités d’organisation du scrutin du 23 février 2018 pour les élections des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 29/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-383-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-23-fevrier-2018-pour-les-elections-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 29/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-383-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-23-fevrier-2018-pour-les-elections-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 2017-11-29 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

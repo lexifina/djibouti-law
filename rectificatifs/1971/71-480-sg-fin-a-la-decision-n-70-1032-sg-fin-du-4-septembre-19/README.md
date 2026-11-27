@@ -1,6 +1,6 @@
 # Rectificatif n° 71-480/SG/FIN à la décision n° 70-1032/SG/FIN du 4 septembre 1970, autorisant la Société Rica Automobile Djibouti, S.A.R.L. à acauérir un terrain non bâti sis à Djibouti
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 26/04/1971 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-71-480-sg-fin-a-la-decision-n-70-1032-sg-fin-du-4-septembre-1970-autorisant-la-societe-rica-automobile-djibouti-s-a-r-l-a-acauerir-un-terrain-non-bati-sis-a-djibouti/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 8 du 26/04/1971 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-71-480-sg-fin-a-la-decision-n-70-1032-sg-fin-du-4-septembre-1970-autorisant-la-societe-rica-automobile-djibouti-s-a-r-l-a-acauerir-un-terrain-non-bati-sis-a-djibouti/>
 
 En vigueur : 1971-04-26 (date du Journal officiel qui le publie).
 

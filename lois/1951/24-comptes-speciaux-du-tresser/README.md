@@ -1,6 +1,6 @@
 # Loi n° 24 relative aux comptes spéciaux du Tresser
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-24-relative-aux-comptes-speciaux-du-tresser/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/loi-n-24-relative-aux-comptes-speciaux-du-tresser/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

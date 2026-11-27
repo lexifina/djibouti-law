@@ -1,6 +1,6 @@
 # Loi n° 41/AN/14/7ème L portant approbation de l’accord de prêt pour le financement de l’achat de matériels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-14-7eme-l-portant-approbation-de-laccord-de-pret-pour-le-financement-de-lachat-de-materiels/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-14-7eme-l-portant-approbation-de-laccord-de-pret-pour-le-financement-de-lachat-de-materiels/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 62/AN/94/3e L portant approbation d’un prêt de 8.500.000 riyals Saoudiens pour la construction du grand marché central « EL Riyadh » entre le Royaume d’Arabie Saoudite et la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 30/11/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-94-3e-l-portant-approbation-dun-pret-de-8-500-000-riyals-saoudiens-pour-la-construction-du-grand-marche-central-el-riyadh-entre-le-royaume-darabie-saoudite-et-la-republique-de/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 30/11/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-94-3e-l-portant-approbation-dun-pret-de-8-500-000-riyals-saoudiens-pour-la-construction-du-grand-marche-central-el-riyadh-entre-le-royaume-darabie-saoudite-et-la-republique-de/>
 
 En vigueur : 1994-11-30 (date du Journal officiel qui le publie).
 

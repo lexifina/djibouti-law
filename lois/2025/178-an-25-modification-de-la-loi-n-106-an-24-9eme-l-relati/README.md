@@ -1,6 +1,6 @@
 # Loi n° 178/AN/25/9ème L portant modification de la Loi n° 106/AN/24/9ème L relative à la Lutte contre le Blanchiment des Capitaux, le Financement du Terrorisme et la Prolifération des Armes de destruction massive.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 04/06/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-25-9eme-l-portant-modification-de-la-loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes-de/>
+Loi · Journal officiel de la République de Djibouti, n° 06 du 04/06/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-25-9eme-l-portant-modification-de-la-loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes-de/>
 
 En vigueur : 2025-06-05 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

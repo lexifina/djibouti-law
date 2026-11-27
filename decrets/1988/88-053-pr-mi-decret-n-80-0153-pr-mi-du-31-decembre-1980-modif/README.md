@@ -1,6 +1,6 @@
 # Décret n° 88-053/PR/MI modifiant le décret n° 80-0153/PR/MI du 31 décembre 1980, modifié, complétant le code de la route et relatif à la mise en circulation et à l’immatriculation des véhicules
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-053-pr-mi-modifiant-le-decret-n80-0153-pr-mi-du-31-decembre-1980-modifie-completant-le-code-de-la-route-et-relatif-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicul/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-053-pr-mi-modifiant-le-decret-n80-0153-pr-mi-du-31-decembre-1980-modifie-completant-le-code-de-la-route-et-relatif-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicul/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

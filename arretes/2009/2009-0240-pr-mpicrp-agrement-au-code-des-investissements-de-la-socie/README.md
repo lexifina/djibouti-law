@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0240/PR/MPICRP portant Agrément au Code des Investissements de la Société “Abou Yaser International S.A.R.L.”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0240-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-abou-yaser-international-s-a-r-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0240-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-abou-yaser-international-s-a-r-l/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

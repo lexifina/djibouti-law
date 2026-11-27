@@ -1,6 +1,6 @@
 # Décret n° 2015-287/PRE portant Organisation et fonctionnement de l’Agence Nationale des Systèmes d’Information de l’Etat (ANSIE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-systemes-dinformation-de-letat-ansie/>
 
 En vigueur : 2015-10-31 (date du Journal officiel qui le publie).
 
@@ -74,4 +74,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0812/PR/MID Portant fermeture des établissements de boissons et spéciales pendant la période de Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 16/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0812-pr-mid-portant-fermeture-des-etablissements-de-boissons-et-speciales-pendant-la-periode-de-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 16/11/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0812-pr-mid-portant-fermeture-des-etablissements-de-boissons-et-speciales-pendant-la-periode-de-ramadan/>
 
 En vigueur : 2002-11-16 (date du Journal officiel qui le publie).
 

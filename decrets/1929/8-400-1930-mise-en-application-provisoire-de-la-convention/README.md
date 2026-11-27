@@ -1,6 +1,6 @@
 # Décret n° 8-400-1930 Mise en application provisoire de la convention commerciale franco-suisse, signée à Berne, Le 8 juillet 1929.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 400 du 31/03/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-400-1930-mise-en-application-provisoire-de-la-convention-commerciale-franco-suisse-signee-a-berne-le-8-juillet-1929/>
+Décret · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-400-1930-mise-en-application-provisoire-de-la-convention-commerciale-franco-suisse-signee-a-berne-le-8-juillet-1929/>
 
 En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
 

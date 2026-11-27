@@ -1,6 +1,6 @@
 # Décret n° 2006-0009/PR/MENESUP portant création de l’Université de Djibouti (U.D).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0009-pr-menesup-portant-creation-de-luniversite-de-djibouti-u-d/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0009-pr-menesup-portant-creation-de-luniversite-de-djibouti-u-d/>
 
 En vigueur : 2006-01-15 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ Le Président de la République,chef du GouvernementISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

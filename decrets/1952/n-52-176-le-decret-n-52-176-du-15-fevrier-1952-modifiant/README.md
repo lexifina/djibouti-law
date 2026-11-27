@@ -1,6 +1,6 @@
 # Décret n° n° 52-176 le décret n° 52-176 du 15 février 1952 modifiant je décret n° 51-620 du 24 mai 1951 relatif à la majoration provisoire des prestations familiales allouées à certains personnels eivils relevant du Ministère de la France d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-176-le-decret-n-52-176-du-15-fevrier-1952-modifiant-je-decret-n-51-620-du-24-mai-1951-relatif-a-la-majoration-provisoire-des-prestations-familiales-allouees-a/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-176-le-decret-n-52-176-du-15-fevrier-1952-modifiant-je-decret-n-51-620-du-24-mai-1951-relatif-a-la-majoration-provisoire-des-prestations-familiales-allouees-a/>
 
 En vigueur : 1952-04-01 (date du Journal officiel qui le publie).
 

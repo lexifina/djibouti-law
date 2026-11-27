@@ -1,8 +1,8 @@
 # Loi n° 105/AN/20/8ème L relative à l’assurance volontaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-20-8eme-l-relative-a-lassurance-volontaire/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-20-8eme-l-relative-a-lassurance-volontaire/>
 
-En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

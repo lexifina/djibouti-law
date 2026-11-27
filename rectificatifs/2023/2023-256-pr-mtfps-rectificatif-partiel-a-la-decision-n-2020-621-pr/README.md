@@ -1,6 +1,6 @@
 # 2023-256/PR/MTFPS portant rectificatif partiel à la décision n° 2020- 621/PR/MTRA du 28 décembre 2020 portant admission à la retraite.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-256-pr-mtfps-portant-rectificatif-partiel-a-la-decision-n-2020-621-pr-mtra-du-28-decembre-2020-portant-admission-a-la-retraite/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-256-pr-mtfps-portant-rectificatif-partiel-a-la-decision-n-2020-621-pr-mtra-du-28-decembre-2020-portant-admission-a-la-retraite/>
 
 En vigueur : 2023-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

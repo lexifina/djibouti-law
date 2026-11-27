@@ -1,6 +1,6 @@
 # Décret n° 97-0166/PRE Portant modification de certaines dispositions du décret n°97-0163/PR/MI
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-97-0166-pre-portant-modification-de-certaines-dispositions-du-decret-n97-0163-pr-mi/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 17/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n-97-0166-pre-portant-modification-de-certaines-dispositions-du-decret-n97-0163-pr-mi/>
 
 En vigueur : 1997-11-17 (date du Journal officiel qui le publie).
 

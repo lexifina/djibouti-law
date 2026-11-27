@@ -1,6 +1,6 @@
 # Décret n° 15-467-1935 Cumul d’une fonction publique et d’un emploi privé (gouverneurs des colonies),
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-gouverneurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-gouverneurs-des-colonies/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Louis ROLLIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001-bis.md](art-001-bis.md) | Art.1er bis |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

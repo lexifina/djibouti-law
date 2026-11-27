@@ -1,6 +1,6 @@
 # Loi n° 72-662 portant statut général des militaires
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-662-portant-statut-general-des-militaires/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-662-portant-statut-general-des-militaires/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

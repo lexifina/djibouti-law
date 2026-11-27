@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0036/PR/MENESUP approuvant et rendant exécutoire le Budget prévisionnel de l’Exercice 2010 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0036-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2010-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0036-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2010-de-luniversite-de-djibouti/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

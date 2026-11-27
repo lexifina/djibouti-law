@@ -1,6 +1,6 @@
 # Décret n° 51-1006 portant réglement d’administration publique fixant les conditions d’accès des capitaines de port du cadre général du personnel des ports et rades de la France d’Outre-Mer et des adjoints techniques principaux du cadre général des Travaux publics, des Mines et des Techniques industrielles de la France d’Outre-Mer aux classes exceptionnelles créées par le décret n° 49-508 du 14 avril 1949.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1006-portant-reglement-dadministration-publique-fixant-les-conditions-dacces-des-capitaines-de-port-du-cadre-general-du-personnel-des-ports-et-rades-de-la-france-doutre-mer-et/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1006-portant-reglement-dadministration-publique-fixant-les-conditions-dacces-des-capitaines-de-port-du-cadre-general-du-personnel-des-ports-et-rades-de-la-france-doutre-mer-et/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

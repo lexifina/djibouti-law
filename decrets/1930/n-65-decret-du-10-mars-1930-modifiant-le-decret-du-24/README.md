@@ -1,6 +1,6 @@
 # Décret n° n°65 Décret du 10 mars 1930 modifiant le décret du 24 novembre 1912 relatif à la réorganisation du personnel des bureaux des secrétariats généraux des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 401 du 30/04/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n65-decret-du-10-mars-1930-modifiant-le-decret-du-24-novembre-1912-relatif-a-la-reorganisation-du-personnel-des-bureaux-des-secretariats-generaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 401 du 30/04/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n65-decret-du-10-mars-1930-modifiant-le-decret-du-24-novembre-1912-relatif-a-la-reorganisation-du-personnel-des-bureaux-des-secretariats-generaux-des-colonies/>
 
 En vigueur : 1930-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 6-441-1933 Dépôts de produits de pétrole, dérives et résidus.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 441 du 31/08/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-441-1933-depots-de-produits-de-petrole-derives-et-residus/>
+Décret · Journal officiel de la République de Djibouti, n° 441 du 31/08/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-441-1933-depots-de-produits-de-petrole-derives-et-residus/>
 
 En vigueur : 1933-08-31 (date du Journal officiel qui le publie).
 

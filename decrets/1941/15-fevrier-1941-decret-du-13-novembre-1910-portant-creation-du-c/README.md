@@ -1,6 +1,6 @@
 # Décret n° 15 février 1941 modifiant le décret du 13 novembre 1910, portant création du compte hors budget « Financement des mesures économique de guerre »
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-fevrier-1941-modifiant-le-decret-du-13-novembre-1910-portant-creation-du-compte-hors-budget-financement-des-mesures-economique-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-fevrier-1941-modifiant-le-decret-du-13-novembre-1910-portant-creation-du-compte-hors-budget-financement-des-mesures-economique-de-guerre/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

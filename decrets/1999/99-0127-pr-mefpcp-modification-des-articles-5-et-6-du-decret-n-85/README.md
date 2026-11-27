@@ -1,6 +1,6 @@
 # Décret n° 99-0127/PR/MEFPCP portant modification des articles 5 et 6 du décret n° 85-109/PRE du 19 novembre 1985 définissant les conditions des ventes des 298 logements de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0127-pr-mefpcp-portant-modification-des-articles-5-et-6-du-decret-n85-109-pre-du-19-novembre-1985-definissant-les-conditions-des-ventes-des-298-logements-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0127-pr-mefpcp-portant-modification-des-articles-5-et-6-du-decret-n85-109-pre-du-19-novembre-1985-definissant-les-conditions-des-ventes-des-298-logements-de-balbala/>
 
 En vigueur : 1999-08-15 (date du Journal officiel qui le publie).
 

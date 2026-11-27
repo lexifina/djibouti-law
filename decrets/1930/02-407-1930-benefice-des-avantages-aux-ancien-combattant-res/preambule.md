@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE 1er
 COMITÉS COLONIAUX.
 Art, 1°, —— Dans les colonies, possessions et Days sous mandat francais, il pourra étre institué des comités coloniaux d’anciens combattants par décrets contresignés par le Ministredes colonies € st par le Ministre des pensions,

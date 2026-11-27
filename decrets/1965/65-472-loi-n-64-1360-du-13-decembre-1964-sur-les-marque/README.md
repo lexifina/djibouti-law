@@ -1,6 +1,6 @@
 # Décret n° 65-472 modifiant la loi n° 64-1360 du 13 décembre 1964 sur les marques de fabrique de commerce ou de service
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-472-modifiant-la-loi-n-64-1360-du-13-decembre-1964-sur-les-marques-de-fabrique-de-commerce-ou-de-service/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-472-modifiant-la-loi-n-64-1360-du-13-decembre-1964-sur-les-marques-de-fabrique-de-commerce-ou-de-service/>
 
 En vigueur : 1965-08-01 (date du Journal officiel qui le publie).
 

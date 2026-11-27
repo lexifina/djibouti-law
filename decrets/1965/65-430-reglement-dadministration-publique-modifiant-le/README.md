@@ -1,6 +1,6 @@
 # Décret n° 65-430 portant règlement d’administration publique modifiant le tableau II annexé au décret n° 59- 1379 du 8 décembre 1959 modifié portant règlement d’administration publique pour l’application de lordonnance du 29 octobre 1958 relative à la situation de certains personnels relevant de la France d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-430-portant-reglement-dadministration-publique-modifiant-le-tableau-ii-annexe-au-decret-n-59-1379-du-8-decembre-1959-modifie-portant-reglement-dadministration-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-430-portant-reglement-dadministration-publique-modifiant-le-tableau-ii-annexe-au-decret-n-59-1379-du-8-decembre-1959-modifie-portant-reglement-dadministration-publique/>
 
 En vigueur : 1965-08-01 (date du Journal officiel qui le publie).
 

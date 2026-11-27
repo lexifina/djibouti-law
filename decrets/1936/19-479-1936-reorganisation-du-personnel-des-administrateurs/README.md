@@ -1,6 +1,6 @@
 # Décret n° 19-479-1936 Réorganisation du personnel des administrateurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-479-1936-reorganisation-du-personnel-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-479-1936-reorganisation-du-personnel-des-administrateurs-des-colonies/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ Maurice VIOLLETTE.
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

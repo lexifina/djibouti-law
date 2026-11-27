@@ -1,6 +1,6 @@
 # Loi Organique n° 9/AN/01/4ème L portant Statut de la Magistrature.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n9-an-01-4eme-l-portant-statut-de-la-magistrature/>
+Loi organique · Journal officiel de la République de Djibouti, n° 4 du 28/02/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n9-an-01-4eme-l-portant-statut-de-la-magistrature/>
 
 En vigueur : 2001-02-28 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ ISMAÏL OMAR GUELLEH
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
 | [art-049.md](art-049.md) | Article 49 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 201/AN/81 | portant modification de la Cour judiciaire en matiere socidie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-81-portant-modification-de-la-cour-judiciaire-en-matiere-socidie/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-81-portant-modification-de-la-cour-judiciaire-en-matiere-socidie/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 

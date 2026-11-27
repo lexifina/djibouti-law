@@ -1,8 +1,8 @@
 # Arrêté n° 2019-027/PR/MEFI portant création du Comité de Cadrage Macroéconomique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-027-pr-mefi-portant-creation-du-comite-de-cadrage-macroeconomique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-027-pr-mefi-portant-creation-du-comite-de-cadrage-macroeconomique/>
 
-En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

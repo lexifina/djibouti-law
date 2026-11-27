@@ -1,6 +1,6 @@
 # Décret n° 2017-350/PR/MENFOP portant sur les conditions d’accès au Cadre Unique des professeurs de l’Education Nationale et de la Formation Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-350-pr-menfop-portant-sur-les-conditions-dacces-au-cadre-unique-des-professeurs-de-leducation-nationale-et-de-la-formation-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-350-pr-menfop-portant-sur-les-conditions-dacces-au-cadre-unique-des-professeurs-de-leducation-nationale-et-de-la-formation-professionnelle/>
 
 En vigueur : 2017-10-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

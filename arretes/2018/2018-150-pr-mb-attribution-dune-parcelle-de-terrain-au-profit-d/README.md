@@ -1,6 +1,6 @@
 # Arrêté n° 2018-150/PR/MB portant attribution d’une parcelle de terrain au profit de la société JEELY RESOURCE TECHNOLOGY S.A.S.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-150-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-jeely-resource-technology-s-a-s/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-150-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-jeely-resource-technology-s-a-s/>
 
 En vigueur : 2018-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 191/AN/25/9ème L portant adoption des comptes financiers de l’ANPH, arrêtés au 31/12/2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-25-9eme-l-portant-adoption-des-comptes-financiers-de-lanph-arretes-au-31-12-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-25-9eme-l-portant-adoption-des-comptes-financiers-de-lanph-arretes-au-31-12-2024/>
 
 En vigueur : 2026-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

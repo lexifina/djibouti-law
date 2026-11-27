@@ -1,6 +1,6 @@
 # Loi n° 25/AN/23/9ème L portant adoption des Comptes Financiers de l’Agence Nationale des Personnes Handicapées (ANPH) arrêté au 31/12/2022.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-23-9eme-l-portant-adoption-des-comptes-financiers-de-lagence-nationale-des-personnes-handicapees-anph-arrete-au-31-12-2022/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-23-9eme-l-portant-adoption-des-comptes-financiers-de-lagence-nationale-des-personnes-handicapees-anph-arrete-au-31-12-2022/>
 
 En vigueur : 2024-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

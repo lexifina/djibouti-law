@@ -1,6 +1,6 @@
 # Décret n° 3-326-1924 relatif à l’échange de mandats de posté entre là Côte française des Somalis, d’une part, et certains pays étrangers, d’autre part.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 326 du 31/01/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-326-1924-relatif-a-lechange-de-mandats-de-poste-entre-la-cote-francaise-des-somalis-dune-part-et-certains-pays-etrangers-dautre-part/>
+Décret · Journal officiel de la République de Djibouti, n° 326 du 31/01/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-326-1924-relatif-a-lechange-de-mandats-de-poste-entre-la-cote-francaise-des-somalis-dune-part-et-certains-pays-etrangers-dautre-part/>
 
 En vigueur : 1924-01-31 (date du Journal officiel qui le publie).
 

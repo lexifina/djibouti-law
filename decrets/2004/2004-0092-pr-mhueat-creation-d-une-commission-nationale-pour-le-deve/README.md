@@ -1,6 +1,6 @@
 # Décret n° 2004-0092/PR/MHUEAT portant création d’une Commission Nationale pour le Développement Durable (CNDD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0092-pr-mhueat-portant-creation-dune-commission-nationale-pour-le-developpement-durable-cndd/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0092-pr-mhueat-portant-creation-dune-commission-nationale-pour-le-developpement-durable-cndd/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

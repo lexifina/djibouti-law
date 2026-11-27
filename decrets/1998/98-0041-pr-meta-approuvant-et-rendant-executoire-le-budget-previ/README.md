@@ -1,6 +1,6 @@
 # Décret n° 98-0041/PR/META approuvant et rendant exécutoire le Budget Prévisionnel 1998 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0041-pr-meta-approuvant-et-rendant-executoire-le-budget-previsionnel-1998-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0041-pr-meta-approuvant-et-rendant-executoire-le-budget-previsionnel-1998-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1998-04-30 (date du Journal officiel qui le publie).
 

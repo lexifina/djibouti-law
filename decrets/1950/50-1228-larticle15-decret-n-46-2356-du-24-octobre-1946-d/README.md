@@ -1,6 +1,6 @@
 # Décret n° 50-1228 modifiant l’article15 décret n°46-2356 du 24 octobre 1946 déterminant les conditions dans les quelles la Caisse centrale de la France d’outre-mer effectue les opérations autorisées par la loi du 30 avril 1946.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1228-modifiant-larticle15-decret-n46-2356-du-24-octobre-1946-determinant-les-conditions-dans-les-quelles-la-caisse-centrale-de-la-france-doutre-mer-effectue-les-operati/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1228-modifiant-larticle15-decret-n46-2356-du-24-octobre-1946-determinant-les-conditions-dans-les-quelles-la-caisse-centrale-de-la-france-doutre-mer-effectue-les-operati/>
 
 En vigueur : 1950-12-31 (date du Journal officiel qui le publie).
 
@@ -29,5 +29,5 @@ Edgar FAURE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

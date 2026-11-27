@@ -1,6 +1,6 @@
 # Loi n° 126/AN/11/6ème L portant ratification de la Convention de l’IGAD sur l’entraide judiciaire en matière pénale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-11-6eme-l-portant-ratification-de-la-convention-de-ligad-sur-lentraide-judiciaire-en-matiere-penale/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-11-6eme-l-portant-ratification-de-la-convention-de-ligad-sur-lentraide-judiciaire-en-matiere-penale/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

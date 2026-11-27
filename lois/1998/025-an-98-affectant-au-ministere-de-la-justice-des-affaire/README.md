@@ -1,6 +1,6 @@
 # Loi n° 25/AN/98/4ème L affectant au Ministère de la Justice des Affaires Pénitentiaires et Musulmanes, une parcelle de terrain sise aux Salines Ouest.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-98-4eme-l-affectant-au-ministere-de-la-justice-des-affaires-penitentiaires-et-musulmanes-une-parcelle-de-terrain-sise-aux-salines-ouest/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-98-4eme-l-affectant-au-ministere-de-la-justice-des-affaires-penitentiaires-et-musulmanes-une-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 1998-11-15 (date du Journal officiel qui le publie).
 

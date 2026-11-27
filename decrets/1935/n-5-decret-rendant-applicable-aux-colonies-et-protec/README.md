@@ -1,6 +1,6 @@
 # Décret n° n°5 Décret rendant applicable aux colonies et protectorats relevant du ministère des colonies et aux territoires du Cameroun et du Togo, la loi du 2 janvier 1955 tendant à la répression des fraudes sur le guignolet.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n5-decret-rendant-applicable-aux-colonies-et-protectorats-relevant-du-ministere-des-colonies-et-aux-territoires-du-cameroun-et-du-togo-la-loi-du-2-janvier-1955-tendant-a-la-repr/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n5-decret-rendant-applicable-aux-colonies-et-protectorats-relevant-du-ministere-des-colonies-et-aux-territoires-du-cameroun-et-du-togo-la-loi-du-2-janvier-1955-tendant-a-la-repr/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 02-455-1934 Promulgation de la convention de commerce signée à Berne le 29 mars 1934 entre la France et la Suisse.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 455 du 31/10/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-455-1934-promulgation-de-la-convention-de-commerce-signee-a-berne-le-29-mars-1934-entre-la-france-et-la-suisse/>
+Décret · Journal officiel de la République de Djibouti, n° 455 du 31/10/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-455-1934-promulgation-de-la-convention-de-commerce-signee-a-berne-le-29-mars-1934-entre-la-france-et-la-suisse/>
 
-En vigueur : 1934-08-27 (date fixÃ©e par le texte).
+En vigueur : 1934-08-27 (date fixée par le texte).
 
 ## Signature
 

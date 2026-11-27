@@ -1,6 +1,6 @@
 # Décret n° 47-1730 tendant à réprimer dans les territoires d’outre-mer et les territoires sous tutelle relevant du ministère de la France d’outre-mer les provocations à résister à l’application des lois décrets et règle ments ou ordres de l’autorité publique ainsi que les aile nies au respect dû à l’autorité française lorsque l’état de siège a été proclamé sur une partie , de l’un de ces territoires
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1730-tendant-a-reprimer-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelle-relevant-du-ministere-de-la-france-doutre-mer-les-provocations-a-resister-a-l/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1730-tendant-a-reprimer-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelle-relevant-du-ministere-de-la-france-doutre-mer-les-provocations-a-resister-a-l/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 133/AN/97/3ème L portant création d’un Office Central de Lutte Anti-Drogue
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-97-3eme-l-portant-creation-dun-office-central-de-lutte-anti-drogue/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-97-3eme-l-portant-creation-dun-office-central-de-lutte-anti-drogue/>
 
 En vigueur : 1997-05-15 (date du Journal officiel qui le publie).
 

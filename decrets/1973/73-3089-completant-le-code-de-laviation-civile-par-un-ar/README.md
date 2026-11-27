@@ -1,6 +1,6 @@
 # Décret n° 73-3089 complétant le code de laviation civile par Un article D-242-13 nouveau relatif aux servitudes ‘aéronautiques de dégagement (JORF n° 67 des 19 et 20 mars 1973, p. 3006).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/05/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-3089-completant-le-code-de-laviation-civile-par-un-article-d-242-13-nouveau-relatif-aux-servitudes-aeronautiques-de-degagement-jorf-n-67-des-19-et-20-mars-1973-p-3/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 10/05/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-3089-completant-le-code-de-laviation-civile-par-un-article-d-242-13-nouveau-relatif-aux-servitudes-aeronautiques-de-degagement-jorf-n-67-des-19-et-20-mars-1973-p-3/>
 
 En vigueur : 1973-05-10 (date du Journal officiel qui le publie).
 

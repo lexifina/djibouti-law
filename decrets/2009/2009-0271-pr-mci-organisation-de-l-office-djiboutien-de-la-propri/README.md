@@ -1,6 +1,6 @@
 # Décret n° 2009-0271/PR/MCI portant organisation de l’Office Djiboutien de la Propriété Industrielle et Commerciale (ODPIC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0271-pr-mci-portant-organisation-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0271-pr-mci-portant-organisation-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
 
 En vigueur : 2009-12-15 (date du Journal officiel qui le publie).
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

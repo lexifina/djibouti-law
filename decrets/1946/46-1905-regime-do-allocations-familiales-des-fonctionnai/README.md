@@ -1,6 +1,6 @@
 # Décret n° 46-1905 relatif au régime do allocations familiales des fonctionnaires, employés et agents coloniaux appelés à résider temporairement en France ou dans un territoire soumis aux dispositions du Code de la famille.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1905-relatif-au-regime-do-allocations-familiales-des-fonctionnaires-employes-et-agents-coloniaux-appeles-a-resider-temporairement-en-france-ou-dans-un-territoire-soumis-aux-disposi/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1905-relatif-au-regime-do-allocations-familiales-des-fonctionnaires-employes-et-agents-coloniaux-appeles-a-resider-temporairement-en-france-ou-dans-un-territoire-soumis-aux-disposi/>
 
 En vigueur : 1946-09-30 (date du Journal officiel qui le publie).
 

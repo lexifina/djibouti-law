@@ -1,6 +1,6 @@
 # Arrêté n° 2016-153/PR/MI portant modification de l’arrêté n° 2016-099/PR/MI du 09 février 2016 fixant le nombre et l’implantation des bureaux de vote pour les Elections Présidentielles du vendredi 08 avril 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-153-pr-mi-portant-modification-de-larrete-n-2016-099-pr-mi-du-09-fevrier-2016-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-presidentielles-du/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-153-pr-mi-portant-modification-de-larrete-n-2016-099-pr-mi-du-09-fevrier-2016-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-presidentielles-du/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

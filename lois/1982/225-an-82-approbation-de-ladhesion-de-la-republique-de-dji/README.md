@@ -1,6 +1,6 @@
 # Loi n° 225/AN/82 portant approbation de l’adhésion de la République de Djibouti à l’Organisation de l’Aviation civile internationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n225-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-de-laviation-civile-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n225-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-de-laviation-civile-internationale/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

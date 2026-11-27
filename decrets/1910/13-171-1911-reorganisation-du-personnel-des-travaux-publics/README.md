@@ -1,6 +1,6 @@
 # Décret n° 13-171-1911 portant réorganisation du personnel des Travaux publics et des mines des Colonies autres que l’Indo-Chine, la Martinique, la Guadeloupe et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 171 du 01/02/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-171-1911-portant-reorganisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies-autres-que-lindo-chine-la-martinique-la-guadeloupe-et-la-reunion/>
+Décret · Journal officiel de la République de Djibouti, n° 171 du 01/02/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-171-1911-portant-reorganisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies-autres-que-lindo-chine-la-martinique-la-guadeloupe-et-la-reunion/>
 
 En vigueur : 1911-02-01 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ Georges TROUILLOT.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

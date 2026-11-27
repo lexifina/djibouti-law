@@ -1,6 +1,6 @@
 # Arrêté n° 2020-013/PR/MET portant approbation du budget prévisionnel 2020 de l’Agence Nationale de la Météorologie de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-013-pr-met-portant-approbation-du-budget-previsionnel-2020-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-013-pr-met-portant-approbation-du-budget-previsionnel-2020-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

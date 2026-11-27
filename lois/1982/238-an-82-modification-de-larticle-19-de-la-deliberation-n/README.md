@@ -1,6 +1,6 @@
 # Loi n° 238/AN/82 portant modification de l’article 19 de la délibération n° 308/7ème L.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n238-an-82-portant-modification-de-larticle-19-de-la-deliberation-n308-7eme-l/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n238-an-82-portant-modification-de-larticle-19-de-la-deliberation-n308-7eme-l/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

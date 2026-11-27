@@ -1,6 +1,6 @@
 # Décret n° 2010-0230/PR/MID relatif aux nouvelles dispositions Réglementaires du Code de la Route
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0230-pr-mid-relatif-aux-nouvelles-dispositions-reglementaires-du-code-de-la-route/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/12/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0230-pr-mid-relatif-aux-nouvelles-dispositions-reglementaires-du-code-de-la-route/>
 
 En vigueur : 2010-12-15 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

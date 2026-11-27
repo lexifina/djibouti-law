@@ -1,6 +1,6 @@
 # Décret n° 72-303 portant extension aux territoires d’outre-mer du décret n° 65-961 du 5 novembre 1965 pris pour l’application de certains articles du code civil et relatif au dépôt et à la gestion des fonds et des valeurs mobilières des mineurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-303-portant-extension-aux-territoires-doutre-mer-du-decret-n-65-961-du-5-novembre-1965-pris-pour-lapplication-de-certains-articles-du-code-civil-et-relatif-au-depot-et-a-l/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-303-portant-extension-aux-territoires-doutre-mer-du-decret-n-65-961-du-5-novembre-1965-pris-pour-lapplication-de-certains-articles-du-code-civil-et-relatif-au-depot-et-a-l/>
 
 En vigueur : 1972-05-25 (date du Journal officiel qui le publie).
 

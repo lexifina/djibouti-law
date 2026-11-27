@@ -2,7 +2,7 @@
 au Code des Investissements de la Société
 « RESIDENCE LE LAGON BLEU ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0043-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-residence-le-lagon-bleu/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0043-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-residence-le-lagon-bleu/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

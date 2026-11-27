@@ -1,8 +1,8 @@
 # Loi n° 119/AN/15/7ème L portant création d’un système d’information sur le crédit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-15-7eme-l-portant-creation-dun-systeme-dinformation-sur-le-credit/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-15-7eme-l-portant-creation-dun-systeme-dinformation-sur-le-credit/>
 
-En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-07-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

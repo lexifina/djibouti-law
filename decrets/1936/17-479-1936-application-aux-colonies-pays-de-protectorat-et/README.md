@@ -1,6 +1,6 @@
 # Décret n° 17-479-1936 Application aux colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies. des décrets des 15, 29, 31 mai et 6 août 1936. concernant la définition des appellations d’origine contrôlées de certains vins, vins mousseux ou eaux-de-vie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-479-1936-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-des-15-29-31-mai-et-6-aout-1936-concernant-la-de/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-479-1936-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-des-15-29-31-mai-et-6-aout-1936-concernant-la-de/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

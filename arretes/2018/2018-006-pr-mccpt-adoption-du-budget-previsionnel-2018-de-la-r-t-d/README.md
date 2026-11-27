@@ -1,6 +1,6 @@
 # Arrêté n° 2018-006/PR/MCCPT portant adoption du Budget Prévisionnel 2018 de la R.T.D.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-006-pr-mccpt-portant-adoption-du-budget-previsionnel-2018-de-la-r-t-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-006-pr-mccpt-portant-adoption-du-budget-previsionnel-2018-de-la-r-t-d/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 

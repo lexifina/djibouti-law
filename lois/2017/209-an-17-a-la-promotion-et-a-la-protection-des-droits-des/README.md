@@ -1,8 +1,8 @@
 # Loi n° 209/AN/17/7ème L relative à la promotion et à la protection des droits des personnes âgées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-agees/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-agees/>
 
-En vigueur : 2018-02-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-02-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -93,4 +93,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

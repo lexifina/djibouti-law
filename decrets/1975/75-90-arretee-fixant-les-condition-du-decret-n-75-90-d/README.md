@@ -1,6 +1,6 @@
 # Décret n° 75-90 Arrêtée fixant les condition du décret n° 75-90 du 10 février 1975 instituant une indemnité spéciale temporaire en faveur des magistrats et fonctionnaires civils de l’Etats en service dans le Territoire français des Afars et des Issas (JORF n° 37 du 13 février1975, page 1968)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-90-arretee-fixant-les-condition-du-decret-n-75-90-du-10-fevrier-1975-instituant-une-indemnite-speciale-temporaire-en-faveur-des-magistrats-et-fonctionnaires-civils-de-le/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-90-arretee-fixant-les-condition-du-decret-n-75-90-du-10-fevrier-1975-instituant-une-indemnite-speciale-temporaire-en-faveur-des-magistrats-et-fonctionnaires-civils-de-le/>
 
 En vigueur : 1975-04-10 (date du Journal officiel qui le publie).
 
@@ -31,5 +31,5 @@ ROBERT LESCURE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er— |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art. 2 |

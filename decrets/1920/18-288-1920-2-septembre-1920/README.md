@@ -1,6 +1,6 @@
 # Décret n° 18-288-1920 le 2 septembre 1920.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 288 du 31/10/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-288-1920-le-2-septembre-1920/>
+Décret · Journal officiel de la République de Djibouti, n° 288 du 31/10/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-288-1920-le-2-septembre-1920/>
 
 En vigueur : 1920-10-31 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ F. Francois-Mansal.
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

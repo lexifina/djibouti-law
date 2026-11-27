@@ -1,6 +1,6 @@
 # Loi n° 184/AN/25/9ème L portant approbation des comptes financiers de la CMR pour l’exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-la-cmr-pour-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 30/10/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-la-cmr-pour-lexercice-2024/>
 
 En vigueur : 2025-10-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

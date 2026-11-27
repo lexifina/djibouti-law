@@ -1,6 +1,6 @@
 # Loi n° 139/AN/97/3ème L Relative aux modalités d’octroi d’une pension aux anciens Présidents de la République.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-97-3eme-l-relative-aux-modalites-doctroi-dune-pension-aux-anciens-presidents-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 30/09/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-97-3eme-l-relative-aux-modalites-doctroi-dune-pension-aux-anciens-presidents-de-la-republique/>
 
 En vigueur : 1997-09-30 (date du Journal officiel qui le publie).
 

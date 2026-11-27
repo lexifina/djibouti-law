@@ -1,6 +1,6 @@
 # Loi n° 122/AN/10/6ème L modifiant la Loi n° 155/AN/02/4ème L et certaines dispositions de la Loi n° 3/AN/92/2ème L du 28 octobre 1992 portant réorganisation de la Caisse Nationale de Retraites.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-10-6eme-l-modifiant-la-loi-n155-an-02-4eme-l-et-certaines-dispositions-de-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retr/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-10-6eme-l-modifiant-la-loi-n155-an-02-4eme-l-et-certaines-dispositions-de-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retr/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

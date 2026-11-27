@@ -1,6 +1,6 @@
 # Loi n° 019/AN/23/9ème L Portant Code Numérique
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 06/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n019-an-23-9eme-l-portant-code-numerique/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 06/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n019-an-23-9eme-l-portant-code-numerique/>
 
 En vigueur : 2025-07-07 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

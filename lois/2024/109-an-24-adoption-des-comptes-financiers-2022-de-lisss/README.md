@@ -1,6 +1,6 @@
 # Loi n° 109/AN/24/9ème L portant adoption des comptes financiers 2022 de l’ISSS.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-24-9eme-l-portant-adoption-des-comptes-financiers-2022-de-lisss/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-24-9eme-l-portant-adoption-des-comptes-financiers-2022-de-lisss/>
 
 En vigueur : 2024-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

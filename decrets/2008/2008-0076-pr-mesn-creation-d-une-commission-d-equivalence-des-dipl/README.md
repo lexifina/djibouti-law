@@ -1,6 +1,6 @@
 # Décret n° 2008-0076/PR/MESN portant création d’une commission d’équivalence des diplômes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0076-pr-mesn-portant-creation-dune-commission-dequivalence-des-diplomes/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0076-pr-mesn-portant-creation-dune-commission-dequivalence-des-diplomes/>
 
 En vigueur : 2008-03-31 (date du Journal officiel qui le publie).
 

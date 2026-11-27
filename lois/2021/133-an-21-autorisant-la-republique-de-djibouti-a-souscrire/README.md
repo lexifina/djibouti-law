@@ -1,6 +1,6 @@
 # Loi n° 133/AN/21/8ème L autorisant la République de Djibouti à souscrire à l’augmentation générale et sélective du capital de la Société Financière Internationale
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-21-8eme-l-autorisant-la-republique-de-djibouti-a-souscrire-a-laugmentation-generale-et-selective-du-capital-de-la-societe-financiere-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 30/12/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-21-8eme-l-autorisant-la-republique-de-djibouti-a-souscrire-a-laugmentation-generale-et-selective-du-capital-de-la-societe-financiere-internationale/>
 
 En vigueur : 2021-12-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

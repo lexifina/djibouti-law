@@ -1,6 +1,6 @@
 # Loi n° 99/AN/84/1re L portant organisation du Ministère de la Fonction publique et des Réformes administratives.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-84-1re-l-portant-organisation-du-ministere-de-la-fonction-publique-et-des-reformes-administratives/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/05/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-84-1re-l-portant-organisation-du-ministere-de-la-fonction-publique-et-des-reformes-administratives/>
 
 En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
 

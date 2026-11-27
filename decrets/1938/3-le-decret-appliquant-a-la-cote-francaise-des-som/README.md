@@ -1,6 +1,6 @@
 # Décret n° 3° Le décret appliquant à la Côte française des Somalis Ja loi du 25 juillet 1891 ga a étendu à tous les travaux ayant le caractère de travaux publics l’interdiction de faire des saisies-arrêts ou des oppositions sur les fonds destinés aux entrepreneurs de travaux nationaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-appliquant-a-la-cote-francaise-des-somalis-ja-loi-du-25-juillet-1891-ga-a-etendu-a-tous-les-travaux-ayant-le-caractere-de-travaux-publics-linterdiction-de-faire-d/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-appliquant-a-la-cote-francaise-des-somalis-ja-loi-du-25-juillet-1891-ga-a-etendu-a-tous-les-travaux-ayant-le-caractere-de-travaux-publics-linterdiction-de-faire-d/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

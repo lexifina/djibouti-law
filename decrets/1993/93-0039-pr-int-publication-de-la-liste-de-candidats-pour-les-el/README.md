@@ -1,6 +1,6 @@
 # Décret n° 93‑0039/PR/INT portant publication de la liste de candidats pour les élections présidentielles du 7 MAI 1993 et portant ouverture de la campagne électorale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910039-pr-int-portant-publication-de-la-liste-de-candidats-pour-les-elections-presidentielles-du-7-mai-1993-et-portant-ouverture-de-la-campagne-electorale/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910039-pr-int-portant-publication-de-la-liste-de-candidats-pour-les-elections-presidentielles-du-7-mai-1993-et-portant-ouverture-de-la-campagne-electorale/>
 
 En vigueur : 1993-04-15 (date du Journal officiel qui le publie).
 

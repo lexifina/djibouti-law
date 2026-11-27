@@ -1,6 +1,6 @@
 # Loi n° 87/AN/15/7ème L portant ratification de l’Accord de Garantie et de son Protocole additionnel entre la République de Djibouti et l’Agence Internationale de l’Energie Atomique (AIEA) relatif à l’application de garantie dans le cadre du Traité de Non Prolifération des armes
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-15-7eme-l-portant-ratification-de-laccord-de-garantie-et-de-son-protocole-additionnel-entre-la-republique-de-djibouti-et-lagence-internationale-de-lenergie-atomique-aiea-relat/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-15-7eme-l-portant-ratification-de-laccord-de-garantie-et-de-son-protocole-additionnel-entre-la-republique-de-djibouti-et-lagence-internationale-de-lenergie-atomique-aiea-relat/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

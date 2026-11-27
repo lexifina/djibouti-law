@@ -1,6 +1,6 @@
 # Loi n° 12/AN/98/4ème L portant réforme des Sociétés d’État, des Sociétés d’Économie Mixte et des Établissements Publics à caractère Industriel et Commercial.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-98-4eme-l-portant-reforme-des-societes-detat-des-societes-deconomie-mixte-et-des-etablissements-publics-a-caractere-industriel-et-commercial/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-98-4eme-l-portant-reforme-des-societes-detat-des-societes-deconomie-mixte-et-des-etablissements-publics-a-caractere-industriel-et-commercial/>
 
 En vigueur : 1998-03-15 (date du Journal officiel qui le publie).
 

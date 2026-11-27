@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0577/PR/MJAPM portant constitution d’une commission ad-hoc chargée de la sélection des cadres à affecter à la Chambre des Comptes et de Discipline Budgétaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0577-pr-mjapm-portant-constitution-dune-commission-ad-hoc-chargee-de-la-selection-des-cadres-a-affecter-a-la-chambre-des-comptes-et-de-discipline-budgetaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0577-pr-mjapm-portant-constitution-dune-commission-ad-hoc-chargee-de-la-selection-des-cadres-a-affecter-a-la-chambre-des-comptes-et-de-discipline-budgetaire/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

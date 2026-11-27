@@ -1,6 +1,6 @@
 # Décret n° 49-407-1930 Modification de l’article 474 du code de procédure civile applicable à certaines colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-407-1930-modification-de-larticle-474-du-code-de-procedure-civile-applicable-a-certaines-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-407-1930-modification-de-larticle-474-du-code-de-procedure-civile-applicable-a-certaines-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Raoul peret
 | Fichier | Disposition |
 | --- | --- |
 | [art-049.md](art-049.md) | Article 49 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

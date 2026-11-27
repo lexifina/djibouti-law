@@ -1,6 +1,6 @@
 # Rectificatif n° 346/SLAG modifiant l’arrêté n° 264/SLAG du 22 avril 1974 portant nomination des présidents de bureaux de vote à l’occasion des élections présidentielles des 5 mai et éventuellement 19 mai 1974.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1974 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-346-slag-modifiant-larrete-n-264-slag-du-22-avril-1974-portant-nomination-des-presidents-de-bureaux-de-vote-a-loccasion-des-elections-presidentielles-des-5-mai-e/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 25/05/1974 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-346-slag-modifiant-larrete-n-264-slag-du-22-avril-1974-portant-nomination-des-presidents-de-bureaux-de-vote-a-loccasion-des-elections-presidentielles-des-5-mai-e/>
 
 En vigueur : 1974-05-25 (date du Journal officiel qui le publie).
 

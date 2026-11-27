@@ -1,6 +1,6 @@
 # Décret n° 2005-0037/PR/MDN Modifiant le Décret portant création d’un nouveau barème pour les Gendarmes, Militaires et Policiers engagés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0037-pr-mdn-modifiant-le-decret-portant-creation-dun-nouveau-bareme-pour-les-gendarmes-militaires-et-policiers-engages/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0037-pr-mdn-modifiant-le-decret-portant-creation-dun-nouveau-bareme-pour-les-gendarmes-militaires-et-policiers-engages/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

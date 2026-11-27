@@ -1,6 +1,6 @@
 # Décret n° 2007-0230/PR/MS portant interdiction de fumer dans les lieux publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0230-pr-ms-portant-interdiction-de-fumer-dans-les-lieux-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0230-pr-ms-portant-interdiction-de-fumer-dans-les-lieux-publics/>
 
 En vigueur : 2007-12-15 (date du Journal officiel qui le publie).
 

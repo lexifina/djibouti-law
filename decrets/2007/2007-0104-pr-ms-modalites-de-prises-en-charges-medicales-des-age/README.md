@@ -1,8 +1,8 @@
 # Décret n° 2007-0104/PR/MS portant modalités de prises en charges médicales des agents de la police nationale et leurs familles dans les structures sanitaires du Ministère de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0104-pr-ms-portant-modalites-de-prises-en-charges-medicales-des-agents-de-la-police-nationale-et-leurs-familles-dans-les-structures-sanitaires-du-ministere-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0104-pr-ms-portant-modalites-de-prises-en-charges-medicales-des-agents-de-la-police-nationale-et-leurs-familles-dans-les-structures-sanitaires-du-ministere-de-la-sante/>
 
-En vigueur : 2007-05-08 (date fixÃ©e par le texte).
+En vigueur : 2007-05-08 (date fixée par le texte).
 
 ## Visas
 

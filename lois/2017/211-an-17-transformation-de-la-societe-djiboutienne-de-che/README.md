@@ -1,8 +1,8 @@
 # Loi n° 211/AN/17/7ême L portant transformation de la Société Djiboutienne de chemin de fer en Société Anonyme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-17-7eme-l-portant-transformation-de-la-societe-djiboutienne-de-chemin-de-fer-en-societe-anonyme/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-17-7eme-l-portant-transformation-de-la-societe-djiboutienne-de-chemin-de-fer-en-societe-anonyme/>
 
-En vigueur : 2017-12-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-12-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

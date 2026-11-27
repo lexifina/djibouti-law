@@ -1,6 +1,6 @@
 # Loi n° 148/AN/80 portant création et statuts du Port autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-80-portant-creation-et-statuts-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-80-portant-creation-et-statuts-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Vu l'arrêté n° 916/SG/CG du 12 juin 1968 fixant la composition et le fonction
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

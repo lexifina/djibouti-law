@@ -1,6 +1,6 @@
 # Décret n° n°63 Décret du 27 juillet 1930 rendant applicable aux colonies, pars de protectorat et territoires sous mandat relevant du ministère des colonies, Ia loi du 4 janvier 1930 modifiant l’article 295 du Code civil (époux divorcés)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n63-decret-du-27-juillet-1930-rendant-applicable-aux-colonies-pars-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-ia-loi-du-4-janvier-1930-modifia/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n63-decret-du-27-juillet-1930-rendant-applicable-aux-colonies-pars-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-ia-loi-du-4-janvier-1930-modifia/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

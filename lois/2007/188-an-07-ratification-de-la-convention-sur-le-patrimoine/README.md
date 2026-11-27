@@ -1,6 +1,6 @@
 # Loi n° 188/AN/07/5ème L portant ratification de la Convention sur le patrimoine mondial culturel et naturel 1972 de l’UNESCO.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-07-5eme-l-portant-ratification-de-la-convention-sur-le-patrimoine-mondial-culturel-et-naturel-1972-de-lunesco/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-07-5eme-l-portant-ratification-de-la-convention-sur-le-patrimoine-mondial-culturel-et-naturel-1972-de-lunesco/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

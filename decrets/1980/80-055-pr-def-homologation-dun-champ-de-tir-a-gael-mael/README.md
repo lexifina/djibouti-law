@@ -1,6 +1,6 @@
 # Décret n° 80-055/PR/DEF portant homologation d’un champ de tir à GAEL-MAEL.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-055-pr-def-portant-homologation-dun-champ-de-tir-a-gael-mael/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-055-pr-def-portant-homologation-dun-champ-de-tir-a-gael-mael/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

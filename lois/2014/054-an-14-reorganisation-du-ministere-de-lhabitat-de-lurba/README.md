@@ -1,6 +1,6 @@
 # Loi n° 54/AN/14/7ème L portant réorganisation du ministère de l’Habitat, de l’Urbanisme et de l’Environnement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-14-7eme-l-portant-reorganisation-du-ministere-de-lhabitat-de-lurbanisme-et-de-lenvironnement/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-14-7eme-l-portant-reorganisation-du-ministere-de-lhabitat-de-lurbanisme-et-de-lenvironnement/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 
@@ -58,4 +58,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

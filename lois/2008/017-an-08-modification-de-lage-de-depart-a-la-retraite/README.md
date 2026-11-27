@@ -1,8 +1,8 @@
 # Loi n° 17/AN/08/6ème L portant modification de l’âge de départ à la retraite.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-08-6eme-l-portant-modification-de-lage-de-depart-a-la-retraite/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 15/10/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-08-6eme-l-portant-modification-de-lage-de-depart-a-la-retraite/>
 
-En vigueur : 2008-10-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2008-10-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

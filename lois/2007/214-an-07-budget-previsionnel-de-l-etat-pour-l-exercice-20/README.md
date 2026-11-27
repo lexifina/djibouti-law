@@ -1,6 +1,6 @@
 # Loi de finances n° 214/AN/07/5ème L portant Budget prévisionnel de l’Etat pour l’Exercice 2008.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n214-an-07-5eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2008/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n214-an-07-5eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2008/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

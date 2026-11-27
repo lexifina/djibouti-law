@@ -1,8 +1,8 @@
 # Loi n° 170/AN/22/8ème L portant qualification d’un mouvement de groupe terroriste.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 13/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-22-8eme-l-portant-qualification-dun-mouvement-de-groupe-terroriste/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 13/10/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-22-8eme-l-portant-qualification-dun-mouvement-de-groupe-terroriste/>
 
-En vigueur : 2022-10-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-10-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

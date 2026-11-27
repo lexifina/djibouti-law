@@ -1,6 +1,6 @@
 # Arrêté n° 93-0008/PR/MCTT rendant exécution la résolution n° 3/91 du 29 décembre 1991 du Conseil d’Administration d’Aéroport de Djibouti et portant approbation du Budget Prévisionnel de l’exercice 1992 d’Aéroport de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0008-pr-mctt-rendant-execution-la-resolution-n3-91-du-29-decembre-1991-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-previs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 16/01/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0008-pr-mctt-rendant-execution-la-resolution-n3-91-du-29-decembre-1991-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-previs/>
 
 En vigueur : 1993-01-16 (date du Journal officiel qui le publie).
 

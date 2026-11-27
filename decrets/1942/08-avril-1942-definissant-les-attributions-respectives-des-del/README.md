@@ -1,6 +1,6 @@
 # Décret n° 08 avril 1942 définissant les attributions respectives des Délégations du Comité National Français à l’étranger, d’une part, et des Comités de la France Libre, d’autre part.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-avril-1942-definissant-les-attributions-respectives-des-delegations-du-comite-national-francais-a-letranger-dune-part-et-des-comites-de-la-france-libre-dautre-part/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-avril-1942-definissant-les-attributions-respectives-des-delegations-du-comite-national-francais-a-letranger-dune-part-et-des-comites-de-la-france-libre-dautre-part/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

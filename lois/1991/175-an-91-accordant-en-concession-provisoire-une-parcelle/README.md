@@ -1,6 +1,6 @@
 # Loi n° 175/AN/91/2e L Accordant en concession provisoire une parcelle de terrain sise aux ancienne saline-est à la societe djibouti-arta plage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 31/10/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-91-2e-l-accordant-en-concession-provisoire-une-parcelle-de-terrain-sise-aux-ancienne-saline-est-a-la-societe-djibouti-arta-plage/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 31/10/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-91-2e-l-accordant-en-concession-provisoire-une-parcelle-de-terrain-sise-aux-ancienne-saline-est-a-la-societe-djibouti-arta-plage/>
 
 En vigueur : 1991-10-31 (date du Journal officiel qui le publie).
 

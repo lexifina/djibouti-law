@@ -1,6 +1,6 @@
 # Décret n° 73-966 relatif à la rémunération des personnels civils et militaires de l’Etat. (JO n° 242 dn 17 octobre 1973. n. 11179 à 11 1285)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 26/11/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-966-relatif-a-la-remuneration-des-personnels-civils-et-militaires-de-letat-jo-n-242-dn-17-octobre-1973-n-11179-a-11-1285/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 26/11/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-966-relatif-a-la-remuneration-des-personnels-civils-et-militaires-de-letat-jo-n-242-dn-17-octobre-1973-n-11179-a-11-1285/>
 
 En vigueur : 1973-11-26 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ JEAN-PHILIPPE LECAT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er– |
+| [art-001.md](art-001.md) | Art.1er |

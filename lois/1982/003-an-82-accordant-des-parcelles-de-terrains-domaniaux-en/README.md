@@ -1,6 +1,6 @@
 # Loi n° 3/AN/82 accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

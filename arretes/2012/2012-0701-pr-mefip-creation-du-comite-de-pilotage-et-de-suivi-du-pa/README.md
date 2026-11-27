@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0701/PR/MEFIP portant création du Comité de Pilotage et de Suivi du Partenariat Sino-Djiboutien.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0701-pr-mefip-portant-creation-du-comite-de-pilotage-et-de-suivi-du-partenariat-sino-djiboutien/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0701-pr-mefip-portant-creation-du-comite-de-pilotage-et-de-suivi-du-partenariat-sino-djiboutien/>
 
 En vigueur : 2012-11-29 (date du Journal officiel qui le publie).
 

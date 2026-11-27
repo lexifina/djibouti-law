@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Article ler : Les articles ler et 5 du décret n° 80-008 du 16 janvier 1980 portant statuts de la « Société hôtelière d’État de Djibouti» reçoivent les nouvelles rédactions suivantes:
 « Article ler : « La Société hôtelière d’État de Djibouti » dénommée ci-après « la Société » est une société d’État régie par les présents statuts ainsi que par les lois et règlements applicables
 aux sociétés commerciales et à la participation des collectivités publiques à des sociétés.

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE
 Définitions
 CHAPITRE

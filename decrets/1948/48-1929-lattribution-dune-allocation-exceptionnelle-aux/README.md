@@ -1,6 +1,6 @@
 # Décret n° 48-1929 portant l’attribution d’une allocation exceptionnelle aux personnels civils relevant des ministères métropolitains en service dans les territoires administrés par le Département de la France d’outre-mer et appartenant à la zone du franc C. F. A.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1929-portant-lattribution-dune-allocation-exceptionnelle-aux-personnels-civils-relevant-des-ministeres-metropolitains-en-service-dans-les-territoires-administres-par-le-departem/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1929-portant-lattribution-dune-allocation-exceptionnelle-aux-personnels-civils-relevant-des-ministeres-metropolitains-en-service-dans-les-territoires-administres-par-le-departem/>
 
 En vigueur : 1949-01-31 (date du Journal officiel qui le publie).
 

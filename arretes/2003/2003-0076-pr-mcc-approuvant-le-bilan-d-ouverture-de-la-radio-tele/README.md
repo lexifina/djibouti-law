@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0076/PR/MCC approuvant le bilan d’ouverture de la Radio-Télévision de Djibouti (RTD) arrêté à la date du 1er janvier 2000.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0076-pr-mcc-approuvant-le-bilan-douverture-de-la-radio-television-de-djibouti-rtd-arrete-a-la-date-du-1er-janvier-2000/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0076-pr-mcc-approuvant-le-bilan-douverture-de-la-radio-television-de-djibouti-rtd-arrete-a-la-date-du-1er-janvier-2000/>
 
 En vigueur : 2003-02-15 (date du Journal officiel qui le publie).
 

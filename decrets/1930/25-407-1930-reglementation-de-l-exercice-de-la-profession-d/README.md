@@ -1,6 +1,6 @@
 # Décret n° 25-407-1930 Réglementation de l’exercice de la profession d’avocat défenseur dans les colonies autres que les Antilles, la Réunion, à l’Indochine, ainsi que dans les territoires sous mandat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-407-1930-reglementation-de-lexercice-de-la-profession-davocat-defenseur-dans-les-colonies-autres-que-les-antilles-la-reunion-a-lindochine-ainsi-que-dans-les-t/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-407-1930-reglementation-de-lexercice-de-la-profession-davocat-defenseur-dans-les-colonies-autres-que-les-antilles-la-reunion-a-lindochine-ainsi-que-dans-les-t/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 62-367 portant règlement d’administration publique pour l’application de l’ordonnance n° 59-63 du 6 janvier 1959 relative aux réquisitions de biens et de services.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-367-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance-n-59-63-du-6-janvier-1959-relative-aux-requisitions-de-biens-et-de-services/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-367-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance-n-59-63-du-6-janvier-1959-relative-aux-requisitions-de-biens-et-de-services/>
 
 En vigueur : 1962-04-30 (date du Journal officiel qui le publie).
 
@@ -105,4 +105,4 @@ JEAN DE BROGLIE.
 | [art-031.md](art-031.md) | Art. 31 |
 | [art-032.md](art-032.md) | Art. 32 |
 | [art-033.md](art-033.md) | Art. 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

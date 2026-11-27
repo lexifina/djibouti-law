@@ -1,8 +1,8 @@
 # Décret n° 2014-130/PR/MENFOP portant modification du décret n° 89-063/PRE fixant les bonifications indiciaires de cadre ou de fonctions, les indemnités de déplacement et les repos compensateurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-130-pr-menfop-portant-modification-du-decret-n89-063-pre-fixant-les-bonifications-indiciaires-de-cadre-ou-de-fonctions-les-indemnites-de-deplacement-et-les-repos-compensateu/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-130-pr-menfop-portant-modification-du-decret-n89-063-pre-fixant-les-bonifications-indiciaires-de-cadre-ou-de-fonctions-les-indemnites-de-deplacement-et-les-repos-compensateu/>
 
-En vigueur : 2014-09-01 (date fixÃ©e par le texte).
+En vigueur : 2014-09-01 (date fixée par le texte).
 
 ## Visas
 

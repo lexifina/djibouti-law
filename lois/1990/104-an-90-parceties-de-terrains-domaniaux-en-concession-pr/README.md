@@ -1,6 +1,6 @@
 # Loi n° 104/AN/90/2e L parceties de terrains domaniaux en concession provisoir.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-90-2e-l-parceties-de-terrains-domaniaux-en-concession-provisoir/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-90-2e-l-parceties-de-terrains-domaniaux-en-concession-provisoir/>
 
 En vigueur : 1990-02-28 (date du Journal officiel qui le publie).
 

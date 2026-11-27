@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0247/PR/MHUEAT portant adoption du projet du budget Prévisionnel 2004 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0247-pr-mhueat-portant-adoption-du-projet-du-budget-previsionnel-2004-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0247-pr-mhueat-portant-adoption-du-projet-du-budget-previsionnel-2004-du-fonds-de-lhabitat/>
 
 En vigueur : 2004-04-15 (date du Journal officiel qui le publie).
 

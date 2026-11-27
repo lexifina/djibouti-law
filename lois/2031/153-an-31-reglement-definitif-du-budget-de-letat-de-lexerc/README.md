@@ -1,6 +1,6 @@
 # Loi n° 153/AN/31 Portant règlement définitif du budget de l’Etat de l’exercice 1978.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 12/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-31-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1978/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 12/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-31-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1978/>
 
 En vigueur : 1981-02-12 (date du Journal officiel qui le publie).
 
@@ -17,4 +17,4 @@ Vu l'arrêté n° 20-0165 du 2 février 1980 portant report sur l'exercice 1980 
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

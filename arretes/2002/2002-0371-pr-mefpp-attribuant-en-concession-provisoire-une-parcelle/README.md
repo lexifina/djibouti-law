@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0371/PR/MEFPP attribuant en concession provisoire une parcelle de terrain sise à Obock.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0371-pr-mefpp-attribuant-en-concession-provisoire-une-parcelle-de-terrain-sise-a-obock/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0371-pr-mefpp-attribuant-en-concession-provisoire-une-parcelle-de-terrain-sise-a-obock/>
 
 En vigueur : 2002-05-30 (date du Journal officiel qui le publie).
 

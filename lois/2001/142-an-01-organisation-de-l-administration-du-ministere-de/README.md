@@ -1,6 +1,6 @@
 # Loi n° 142/AN/01/4ème L portant organisation de l’Administration du Ministère de l’Agriculture, de l’Élevage et de la Mer, chargé des Ressources Hydrauliques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-01-4eme-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hydrauliques/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-01-4eme-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hydrauliques/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 

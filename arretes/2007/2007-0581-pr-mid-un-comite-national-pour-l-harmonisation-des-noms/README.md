@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0581/PR/MID instituant un comité national pour l’harmonisation des noms de personnes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0581-pr-mid-instituant-un-comite-national-pour-lharmonisation-des-noms-de-personnes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0581-pr-mid-instituant-un-comite-national-pour-lharmonisation-des-noms-de-personnes/>
 
 En vigueur : 2007-07-15 (date du Journal officiel qui le publie).
 

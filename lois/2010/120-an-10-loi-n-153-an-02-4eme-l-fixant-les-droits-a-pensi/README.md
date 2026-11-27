@@ -1,6 +1,6 @@
 # Loi n° 120/AN/10/6ème L modifiant la Loi n° 153/AN/02/4ème L fixant les droits à pensions des militaires et de leurs ayants droit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-10-6eme-l-modifiant-la-loi-n153-an-02-4eme-l-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-10-6eme-l-modifiant-la-loi-n153-an-02-4eme-l-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

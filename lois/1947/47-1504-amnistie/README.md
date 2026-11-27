@@ -1,6 +1,6 @@
 # Loi n° 47-1504 portant amnistie
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-47-1504-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/loi-n-47-1504-portant-amnistie/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 
@@ -84,4 +84,4 @@ Paul BÉCHARD
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

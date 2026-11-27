@@ -1,6 +1,6 @@
 # Décret n° le 13 février 1940 relatif à la solde et accessoires de solde des troupes coloniales et métropolitaines à la charge du département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-fevrier-1940-relatif-a-la-solde-et-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-fevrier-1940-relatif-a-la-solde-et-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

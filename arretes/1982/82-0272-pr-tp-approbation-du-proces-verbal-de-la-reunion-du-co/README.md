@@ -1,6 +1,6 @@
 # Arrêté n° 82-0272/PR/TP portant approbation du procès-verbal de la réunion du comité de gestion du Fonds d’Investissement Routier, en date du 14 novembre 1981 et approbation du projet de budget du Fonds d’Investissement Routier pour l’exercice 1982.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0272-pr-tp-portant-approbation-du-proces-verbal-de-la-reunion-du-comite-de-gestion-du-fonds-dinvestissement-routier-en-date-du-14-novembre-1981-et-approbation-du-projet-de-budget-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0272-pr-tp-portant-approbation-du-proces-verbal-de-la-reunion-du-comite-de-gestion-du-fonds-dinvestissement-routier-en-date-du-14-novembre-1981-et-approbation-du-projet-de-budget-d/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 157/AN/06/5ème L portant ratification du Protocole d’Accord du Centre Régional de gestion des catastrophes des pays du Golden Spear.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-06-5eme-l-portant-ratification-du-protocole-daccord-du-centre-regional-de-gestion-des-catastrophes-des-pays-du-golden-spear/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-06-5eme-l-portant-ratification-du-protocole-daccord-du-centre-regional-de-gestion-des-catastrophes-des-pays-du-golden-spear/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

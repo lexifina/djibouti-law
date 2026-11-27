@@ -1,6 +1,6 @@
 # Loi n° 53/AN/83/ 1ère L portant réglementation des professions d’Architecte ou d’Agrée en Architecture.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-83-1ere-l-portant-reglementation-des-professions-darchitecte-ou-dagree-en-architecture/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-83-1ere-l-portant-reglementation-des-professions-darchitecte-ou-dagree-en-architecture/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ HASSAN GOULED APTIDON
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

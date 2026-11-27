@@ -1,6 +1,6 @@
 # Décret n° 51-1188 fixant le nouveau régime de l’indemnité résidentielle de cherté de vie applicable à compter du 25 décembre 1950 aux personnels militaires en service dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1188-fixant-le-nouveau-regime-de-lindemnite-residentielle-de-cherte-de-vie-applicable-a-compter-du-25-decembre-1950-aux-personnels-militaires-en-service-dans-les-territoires-dou/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1188-fixant-le-nouveau-regime-de-lindemnite-residentielle-de-cherte-de-vie-applicable-a-compter-du-25-decembre-1950-aux-personnels-militaires-en-service-dans-les-territoires-dou/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

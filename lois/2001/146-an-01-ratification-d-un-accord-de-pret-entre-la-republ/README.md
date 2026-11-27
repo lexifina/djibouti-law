@@ -1,6 +1,6 @@
 # Loi n° 146/AN/01/4ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds d’Abu-dhabi de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-01-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-dabu-dhabi-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-01-4eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-dabu-dhabi-de-developpement/>
 
 En vigueur : 2001-12-31 (date du Journal officiel qui le publie).
 

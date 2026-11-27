@@ -1,6 +1,6 @@
 # Décret n° 95-0063/PRE relatif aux conditions de rémunération et avantages accordés aux contrôleurs financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0063-pre-relatif-aux-conditions-de-remuneration-et-avantages-accordes-aux-controleurs-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0063-pre-relatif-aux-conditions-de-remuneration-et-avantages-accordes-aux-controleurs-financiers/>
 
 En vigueur : 1995-06-15 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |

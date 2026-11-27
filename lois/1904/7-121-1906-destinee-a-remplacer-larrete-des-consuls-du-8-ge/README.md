@@ -1,6 +1,6 @@
 # Loi n° 7-121-1906 destinée à remplacer l’arrêté des Consuls du 8 germinal an IX, relatif à la détention d’appareils susceptibles d’être utilisés dans la fabrication des monnaies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 121 du 01/12/1906 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-7-121-1906-destinee-a-remplacer-larrete-des-consuls-du-8-germinal-an-ix-relatif-a-la-detention-dappareils-susceptibles-detre-utilises-dans-la-fabrication-des-monnaies/>
+Loi · Journal officiel de la République de Djibouti, n° 121 du 01/12/1906 · <https://www.journalofficiel.dj/texte-juridique/loi-n-7-121-1906-destinee-a-remplacer-larrete-des-consuls-du-8-germinal-an-ix-relatif-a-la-detention-dappareils-susceptibles-detre-utilises-dans-la-fabrication-des-monnaies/>
 
 En vigueur : 1906-12-01 (date du Journal officiel qui le publie).
 

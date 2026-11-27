@@ -1,6 +1,6 @@
 # Décret n° 2009-0194/PR/MID portant organisation et fonctionnement de l’Ecole de la Protection Civile dans le cadre de la création de la Direction Nationale de la Protection Civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0194-pr-mid-portant-organisation-et-fonctionnement-de-lecole-de-la-protection-civile-dans-le-cadre-de-la-creation-de-la-direction-nationale-de-la-protection-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0194-pr-mid-portant-organisation-et-fonctionnement-de-lecole-de-la-protection-civile-dans-le-cadre-de-la-creation-de-la-direction-nationale-de-la-protection-civile/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

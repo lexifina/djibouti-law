@@ -1,6 +1,6 @@
 # Décret n° 2021-143/PRE rendant obligatoire la vaccination contre la Covid-19 pour tout individu âgé de plus de 25 ans ressortissant djiboutien et étranger résidant sur le territoire national avant tout déplacement international.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-143-pre-rendant-obligatoire-la-vaccination-contre-la-covid-19-pour-tout-individu-age-de-plus-de-25-ans-ressortissant-djiboutien-et-etranger-residant-sur-le-territoire-national-avant/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-143-pre-rendant-obligatoire-la-vaccination-contre-la-covid-19-pour-tout-individu-age-de-plus-de-25-ans-ressortissant-djiboutien-et-etranger-residant-sur-le-territoire-national-avant/>
 
 En vigueur : 2021-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 203/AN/81 accordant une parcelle de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-81-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-81-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Vu le décret n° 81-076/PR du 7 jueillet 1981 portant nominnation des nembres d
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

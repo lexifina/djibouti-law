@@ -1,6 +1,6 @@
 # Décret n° 29 janvier 1916 maintenant en vigueur le décret du 14 août 1945 ayant prescrit l’établissement des listes électora les en A. E. F., au Cameroun et à la Côte française des Somalis et le décret du «30 août 1945 ayant prescrit en ce qui con cerne les non-citoyens jouissant de l’élec torat politique l’établissement des listes électorales en A. <1. F., au Togo, en A. E. F.. au Cameroun et à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-janvier-1916-maintenant-en-vigueur-le-decret-du-14-aout-1945-ayant-prescrit-letablissement-des-listes-electora-les-en-a-e-f-au-cameroun-et-a-la-cote-francaise-des-somal/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-janvier-1916-maintenant-en-vigueur-le-decret-du-14-aout-1945-ayant-prescrit-letablissement-des-listes-electora-les-en-a-e-f-au-cameroun-et-a-la-cote-francaise-des-somal/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

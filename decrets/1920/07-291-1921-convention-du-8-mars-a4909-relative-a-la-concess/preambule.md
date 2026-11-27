@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 L’an 1920. le 12 novembre, entre :
 Le Ministre des colonies, agissant au nom de l’Etat ot sous réserve de lapprobalion des présentes par un décret, en application de la loi du 7 janvier 1920,
 D’une part;

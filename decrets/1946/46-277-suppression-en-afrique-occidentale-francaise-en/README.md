@@ -1,6 +1,6 @@
 # Décret n° 46-277 portant suppression en Afrique occidentale française, en Afrique équatoriale française, au Cameroun, au Togo, à la Côte française des Somalis, à Madagascar et dépendances et en Nouvelle-Calédonie et dépendances des peines de l’indigénat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-277-portant-suppression-en-afrique-occidentale-francaise-en-afrique-equatoriale-francaise-au-cameroun-au-togo-a-la-cote-francaise-des-somalis-a-madagascar-et-dependances-et-en/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-277-portant-suppression-en-afrique-occidentale-francaise-en-afrique-equatoriale-francaise-au-cameroun-au-togo-a-la-cote-francaise-des-somalis-a-madagascar-et-dependances-et-en/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

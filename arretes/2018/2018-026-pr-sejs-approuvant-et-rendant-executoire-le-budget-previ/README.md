@@ -1,6 +1,6 @@
 # Arrêté n° 2018-026/PR/SEJS approuvant et rendant exécutoire le Budget Prévisionnel 2018 du Stade “Hadj Hassan Gouled Aptidon”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-026-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2018-du-stade-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-026-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2018-du-stade-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

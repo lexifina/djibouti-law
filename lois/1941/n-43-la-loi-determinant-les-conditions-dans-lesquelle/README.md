@@ -1,6 +1,6 @@
 # Loi n° n° 43 La loi déterminant les conditions dans lesquelles pourront être légitimés les enfants dont les parents se sont trouvés par la mobilisation du père et le décès de ce dernier dans l’impossibilité de contracter mariage. . …..,….
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n-43-la-loi-determinant-les-conditions-dans-lesquelles-pourront-etre-legitimes-les-enfants-dont-les-parents-se-sont-trouves-par-la-mobilisation-du-pere-et-le-deces-de-ce-dernier/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n-43-la-loi-determinant-les-conditions-dans-lesquelles-pourront-etre-legitimes-les-enfants-dont-les-parents-se-sont-trouves-par-la-mobilisation-du-pere-et-le-deces-de-ce-dernier/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ platon
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 – |
+| [art-004.md](art-004.md) | Art. 4 |

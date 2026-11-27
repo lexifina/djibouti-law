@@ -1,6 +1,6 @@
 # Décret n° 23 décembre 1939 modifiant le décret du 12 septembre 1939 prohibant la sortie de certaines marchandises,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-decembre-1939-modifiant-le-decret-du-12-septembre-1939-prohibant-la-sortie-de-certaines-marchandises/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-decembre-1939-modifiant-le-decret-du-12-septembre-1939-prohibant-la-sortie-de-certaines-marchandises/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ Henri QUEUILLE,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

@@ -1,6 +1,6 @@
 # Loi n° 126/AN/01/4ème L relative aux modalités d’octroi d’une pension à certains anciens Premiers Ministres.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-01-4eme-l-relative-aux-modalites-doctroi-dune-pension-a-certains-anciens-premiers-ministres/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-01-4eme-l-relative-aux-modalites-doctroi-dune-pension-a-certains-anciens-premiers-ministres/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

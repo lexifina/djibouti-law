@@ -1,6 +1,6 @@
 # Décret n° 73-235 relatif à la défense opérationnelle du Territoire (JORF du 7 mars 1973, n° 56, page 2508).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-235-relatif-a-la-defense-operationnelle-du-territoire-jorf-du-7-mars-1973-n-56-page-2508/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-235-relatif-a-la-defense-operationnelle-du-territoire-jorf-du-7-mars-1973-n-56-page-2508/>
 
 En vigueur : 1973-04-10 (date du Journal officiel qui le publie).
 

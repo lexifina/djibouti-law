@@ -1,6 +1,6 @@
 # Arrêté n° 2018-194/PR/MENSUR portant approbation du budget prévisionnel du CERD pour l’exercice 2019.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-194-pr-mensur-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2019/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-194-pr-mensur-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2019/>
 
 En vigueur : 2019-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

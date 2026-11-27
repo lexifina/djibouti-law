@@ -1,6 +1,6 @@
 # Ordonnance n° 82-001/PR/MCTT portant autorisation pour la Société hôtellère de passer des contrats de concession administrative au sein du Djibouti Sheraton Hôtel.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-001-pr-mctt-portant-autorisation-pour-la-societe-hotellere-de-passer-des-contrats-de-concession-administrative-au-sein-du-djibouti-sheraton-hotel/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-001-pr-mctt-portant-autorisation-pour-la-societe-hotellere-de-passer-des-contrats-de-concession-administrative-au-sein-du-djibouti-sheraton-hotel/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

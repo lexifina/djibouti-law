@@ -1,6 +1,6 @@
 # Décret n° 2004-0126/PRE portant création de la Fondation DIWAN AZ ZAKAT.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0126-pre-portant-creation-de-la-fondation-diwan-az-zakat/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0126-pre-portant-creation-de-la-fondation-diwan-az-zakat/>
 
 En vigueur : 2004-07-15 (date du Journal officiel qui le publie).
 

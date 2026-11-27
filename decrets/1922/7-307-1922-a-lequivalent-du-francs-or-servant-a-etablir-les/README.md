@@ -1,6 +1,6 @@
 # Décret n° 7-307-1922 relatif à l’équivalent du francs or servant à établir les tares télégraphiques internationales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 307 du 30/06/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-307-1922-relatif-a-lequivalent-du-francs-or-servant-a-etablir-les-tares-telegraphiques-internationales/>
+Décret · Journal officiel de la République de Djibouti, n° 307 du 30/06/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-307-1922-relatif-a-lequivalent-du-francs-or-servant-a-etablir-les-tares-telegraphiques-internationales/>
 
 En vigueur : 1922-06-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ CH. DE LASTEYRIE.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

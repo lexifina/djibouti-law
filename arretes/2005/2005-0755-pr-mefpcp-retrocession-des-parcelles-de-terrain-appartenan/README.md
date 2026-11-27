@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0755/PR/MEFPCP portant rétrocession des parcelles de terrain appartenant à la S.I.D au profit de l’État Djiboutien.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0755-pr-mefpcp-portant-retrocession-des-parcelles-de-terrain-appartenant-a-la-s-i-d-au-profit-de-letat-djiboutien/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0755-pr-mefpcp-portant-retrocession-des-parcelles-de-terrain-appartenant-a-la-s-i-d-au-profit-de-letat-djiboutien/>
 
 En vigueur : 2005-11-30 (date du Journal officiel qui le publie).
 

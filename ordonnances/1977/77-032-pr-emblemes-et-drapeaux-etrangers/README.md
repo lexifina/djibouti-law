@@ -1,6 +1,6 @@
 # Ordonnance n° 77-032/PR relative aux emblèmes et drapeaux étrangers.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/10/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-032-pr-relative-aux-emblemes-et-drapeaux-etrangers/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 10/10/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-032-pr-relative-aux-emblemes-et-drapeaux-etrangers/>
 
 En vigueur : 1977-10-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 96/AN/10/6ème L portant création de l’Entreprise publique dénommée “Société Djiboutienne de Chemin de Fer”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-10-6eme-l-portant-creation-de-lentreprise-publique-denommee-societe-djiboutienne-de-chemin-de-fer/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-10-6eme-l-portant-creation-de-lentreprise-publique-denommee-societe-djiboutienne-de-chemin-de-fer/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

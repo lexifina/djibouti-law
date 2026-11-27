@@ -1,6 +1,6 @@
 # Loi n° 155/AN/85/1ère L portant rectificative du budget ordinaire de l’exercice 1984.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-85-1ere-l-portant-rectificative-du-budget-ordinaire-de-lexercice-1984/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-85-1ere-l-portant-rectificative-du-budget-ordinaire-de-lexercice-1984/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

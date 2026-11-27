@@ -1,6 +1,6 @@
 # Décret n° 2007-0203/PRE modifiant le Décret n° 2007-0197/PRE fixant les membres du Conseil d’Administration de l’Autorité des Ports et des Zones Franches.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0203-pre-modifiant-le-decret-n2007-0197-pre-fixant-les-membres-du-conseil-dadministration-de-lautorite-des-ports-et-des-zones-franches/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0203-pre-modifiant-le-decret-n2007-0197-pre-fixant-les-membres-du-conseil-dadministration-de-lautorite-des-ports-et-des-zones-franches/>
 
 En vigueur : 2007-10-31 (date du Journal officiel qui le publie).
 

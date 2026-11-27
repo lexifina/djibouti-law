@@ -1,6 +1,6 @@
 # Loi n° 44/AN/94/3e L relative aux attributions du ministre de la Justice et à l’organisation du Ministère de la Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-94-3e-l-relative-aux-attributions-du-ministre-de-la-justice-et-a-lorganisation-du-ministere-de-la-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-94-3e-l-relative-aux-attributions-du-ministre-de-la-justice-et-a-lorganisation-du-ministere-de-la-justice/>
 
 En vigueur : 1994-03-15 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ HASSAN GOULED APTIDON.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 82-0468/PR/FIN portant virement de crédits au budget de l’Etat de l’exercice 1981.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0468-pr-fin-portant-virement-de-credits-au-budget-de-letat-de-lexercice-1981/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0468-pr-fin-portant-virement-de-credits-au-budget-de-letat-de-lexercice-1981/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

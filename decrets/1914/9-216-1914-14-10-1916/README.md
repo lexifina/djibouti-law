@@ -1,6 +1,6 @@
 # Décret n° 9-216-1914 14/10/1916
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 216 du 31/10/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-216-1914-14-10-1916/>
+Décret · Journal officiel de la République de Djibouti, n° 216 du 31/10/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-216-1914-14-10-1916/>
 
 En vigueur : 1914-10-31 (date du Journal officiel qui le publie).
 

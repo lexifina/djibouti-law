@@ -1,6 +1,6 @@
 # Arrêté n° 2018-115/PR/MB portant attribution d’une parcelle de terrain dans la ville de Tajourah à la Société S.O.C.O.P.I.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-115-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-de-tajourah-a-la-societe-s-o-c-o-p-i/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-115-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-de-tajourah-a-la-societe-s-o-c-o-p-i/>
 
 En vigueur : 2018-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

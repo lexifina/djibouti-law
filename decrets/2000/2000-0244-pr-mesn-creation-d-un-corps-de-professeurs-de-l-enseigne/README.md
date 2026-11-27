@@ -1,8 +1,8 @@
 # Décret n° 2000-0244/PR/MESN portant création d’un corps de Professeurs de l’Enseignement Supérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 16/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0244-pr-mesn-portant-creation-dun-corps-de-professeurs-de-lenseignement-superieur/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 16/09/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0244-pr-mesn-portant-creation-dun-corps-de-professeurs-de-lenseignement-superieur/>
 
-En vigueur : 2000-09-03 (date fixÃ©e par le texte).
+En vigueur : 2000-09-03 (date fixée par le texte).
 
 ## Visas
 

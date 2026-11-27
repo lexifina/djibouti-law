@@ -1,6 +1,6 @@
 # Loi n° 108/AN/05/5ème L portant ratification du Protocole de Nairobi pour la Prévention, le Contrôle et la réduction des armes légères et de petit calibre dans la région des Grands Lacs et la Corne de l’Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-05-5eme-l-portant-ratification-du-protocole-de-nairobi-pour-la-prevention-le-controle-et-la-reduction-des-armes-legeres-et-de-petit-calibre-dans-la-region-des-grands-lacs-et-la-cor/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-05-5eme-l-portant-ratification-du-protocole-de-nairobi-pour-la-prevention-le-controle-et-la-reduction-des-armes-legeres-et-de-petit-calibre-dans-la-region-des-grands-lacs-et-la-cor/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2000-0147/PR/MET portant approbation du Contrat de Concession du Terminal Vraquier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0147-pr-met-portant-approbation-du-contrat-de-concession-du-terminal-vraquier/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0147-pr-met-portant-approbation-du-contrat-de-concession-du-terminal-vraquier/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2019-342/PR/MERN modifiant le Décret n° 2009- 0218/PR/MERN portant création de la Commission Nationale de l’Énergie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-342-pr-mern-modifiant-le-decret-n2009-0218-pr-mern-portant-creation-de-la-commission-nationale-de-lenergie/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-342-pr-mern-modifiant-le-decret-n2009-0218-pr-mern-portant-creation-de-la-commission-nationale-de-lenergie/>
 
-En vigueur : 2019-12-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-12-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

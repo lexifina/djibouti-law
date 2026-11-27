@@ -1,6 +1,6 @@
 # Loi n° 9/AN/18/8ème L portant création de l’Agence de Réhabilitation Urbaine et du Logement Social (ARULOS).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-18-8eme-l-portant-creation-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-18-8eme-l-portant-creation-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -74,4 +74,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

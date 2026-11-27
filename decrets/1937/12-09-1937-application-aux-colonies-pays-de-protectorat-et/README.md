@@ -1,6 +1,6 @@
 # Décret n° 12/09/1937 portant application aux colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies des décrets du 31 juillet 1937 concernant la définition des appellations d’origine contrôlées de certains vins
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 491 du 31/10/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1937-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-du-31-juillet-1937-concernant-la-definition-d-2/>
+Décret · Journal officiel de la République de Djibouti, n° 491 du 31/10/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-09-1937-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-decrets-du-31-juillet-1937-concernant-la-definition-d-2/>
 
 En vigueur : 1937-10-31 (date du Journal officiel qui le publie).
 

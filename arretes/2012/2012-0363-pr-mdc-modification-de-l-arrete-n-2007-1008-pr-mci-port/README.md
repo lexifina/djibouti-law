@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0363/PR/MDC portant modification de l’arrêté n° 2007-1008/PR/MCI portant création du Comité National Directeur.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0363-pr-mdc-portant-modification-de-larrete-n2007-1008-pr-mci-portant-creation-du-comite-national-directeur/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0363-pr-mdc-portant-modification-de-larrete-n2007-1008-pr-mci-portant-creation-du-comite-national-directeur/>
 
 En vigueur : 2012-06-14 (date du Journal officiel qui le publie).
 

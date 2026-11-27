@@ -1,6 +1,6 @@
 # Ordonnance n° 86-089/PR/J relative à la discipline des huissiers de justice, des commissaires-priseurs et des notaires.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/09/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-089-pr-j-relative-a-la-discipline-des-huissiers-de-justice-des-commissaires-priseurs-et-des-notaires/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 16 du 30/09/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-089-pr-j-relative-a-la-discipline-des-huissiers-de-justice-des-commissaires-priseurs-et-des-notaires/>
 
 En vigueur : 1986-09-30 (date du Journal officiel qui le publie).
 

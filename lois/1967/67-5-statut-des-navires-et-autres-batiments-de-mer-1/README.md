@@ -1,6 +1,6 @@
 # Loi n° 67-5 portant statut des navires et autres bâtiments de mer (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-67-5-portant-statut-des-navires-et-autres-batiments-de-mer-1-2/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 01/03/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-67-5-portant-statut-des-navires-et-autres-batiments-de-mer-1-2/>
 
 En vigueur : 1967-03-01 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Le ministre d’Etat chargé des départements et territoires d’outre-mer, PIE
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Décret n° 2014-309/PR/MENSUR portant modification du Décret n° 2014/122/PR/MENSUR Fixant les conditions et la procédure d’octroi des équivalences/reconnaissances des diplômes de l’enseignement supérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-309-pr-mensur-portant-modification-du-decret-n2014-122-pr-mensur-fixant-les-conditions-et-la-procedure-doctroi-des-equivalences-reconnaissances-des-diplomes-de-lenseignem/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-309-pr-mensur-portant-modification-du-decret-n2014-122-pr-mensur-fixant-les-conditions-et-la-procedure-doctroi-des-equivalences-reconnaissances-des-diplomes-de-lenseignem/>
 
-En vigueur : 2014-11-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-11-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

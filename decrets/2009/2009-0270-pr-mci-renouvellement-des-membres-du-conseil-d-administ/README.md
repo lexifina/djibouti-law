@@ -1,8 +1,8 @@
 # Décret n° 2009-0270/PR/MCI portant renouvellement des membres du Conseil d’Administration de la Société de production d’Eau Minérale d’Ali-Sabieh (SIEMAS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0270-pr-mci-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-societe-de-production-deau-minerale-dali-sabieh-siemas/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0270-pr-mci-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-societe-de-production-deau-minerale-dali-sabieh-siemas/>
 
-En vigueur : 2009-12-05 (date fixÃ©e par le texte).
+En vigueur : 2009-12-05 (date fixée par le texte).
 
 ## Visas
 

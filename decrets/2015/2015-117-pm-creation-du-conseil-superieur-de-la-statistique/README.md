@@ -1,6 +1,6 @@
 # Décret n° 2015-117/PM portant création du Conseil Supérieur de la Statistique et du Comité des Programmes Statistiques et de Méthodologies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-117-pm-portant-creation-du-conseil-superieur-de-la-statistique-et-du-comite-des-programmes-statistiques-et-de-methodologies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-117-pm-portant-creation-du-conseil-superieur-de-la-statistique-et-du-comite-des-programmes-statistiques-et-de-methodologies/>
 
 En vigueur : 2015-04-30 (date du Journal officiel qui le publie).
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

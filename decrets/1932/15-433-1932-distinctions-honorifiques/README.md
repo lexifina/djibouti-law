@@ -1,6 +1,6 @@
 # Décret n° 15-433-1932 Distinctions honorifiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 433 du 31/12/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-433-1932-distinctions-honorifiques/>
+Décret · Journal officiel de la République de Djibouti, n° 433 du 31/12/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-433-1932-distinctions-honorifiques/>
 
 En vigueur : 1932-12-31 (date du Journal officiel qui le publie).
 

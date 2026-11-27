@@ -1,6 +1,6 @@
 # Décret n° le 15 décembre 1952. approuvant deux délibérations du Conseil Représentatif de la Côte Française des Somalis : abrogation de la taxe sur les- transactions et institution d’une taxe intérieure de consommation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 22/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-decembre-1952-approuvant-deux-deliberations-du-conseil-representatif-de-la-cote-francaise-des-somalis-abrogation-de-la-taxe-sur-les-transactions-et-institution-dune-taxe-in/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 22/12/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-decembre-1952-approuvant-deux-deliberations-du-conseil-representatif-de-la-cote-francaise-des-somalis-abrogation-de-la-taxe-sur-les-transactions-et-institution-dune-taxe-in/>
 
 En vigueur : 1952-12-22 (date du Journal officiel qui le publie).
 

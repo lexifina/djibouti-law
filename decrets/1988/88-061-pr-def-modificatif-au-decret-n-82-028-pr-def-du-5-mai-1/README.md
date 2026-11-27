@@ -1,6 +1,6 @@
 # Décret n° 88-061/PR/DEF portant modificatif au décret n° 82-028/PR/DEF du 5 mai 1982.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-061-pr-def-portant-modificatif-au-decret-n82-028-pr-def-du-5-mai-1982/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-061-pr-def-portant-modificatif-au-decret-n82-028-pr-def-du-5-mai-1982/>
 
 En vigueur : 1988-07-31 (date du Journal officiel qui le publie).
 

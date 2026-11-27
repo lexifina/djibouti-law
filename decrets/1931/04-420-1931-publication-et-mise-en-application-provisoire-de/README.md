@@ -1,6 +1,6 @@
 # Décret n° 04-420-1931 Publication et mise en application provisoire de dispositions complémentaires à l’arrangement commercial franco égyptien du 19 mars 1930.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 420 du 30/11/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-420-1931-publication-et-mise-en-application-provisoire-de-dispositions-complementaires-a-larrangement-commercial-franco-egyptien-du-19-mars-1930/>
+Décret · Journal officiel de la République de Djibouti, n° 420 du 30/11/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-420-1931-publication-et-mise-en-application-provisoire-de-dispositions-complementaires-a-larrangement-commercial-franco-egyptien-du-19-mars-1930/>
 
 En vigueur : 1931-11-30 (date du Journal officiel qui le publie).
 
@@ -33,5 +33,5 @@ Adolphe Lanbry.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art.2 |

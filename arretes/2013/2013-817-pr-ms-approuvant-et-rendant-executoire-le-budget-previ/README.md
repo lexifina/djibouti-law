@@ -1,6 +1,6 @@
 # Arrêté n° 2013-817/PR/MS approuvant et rendant exécutoire le budget prévisionnel 2014 de L’Hôpital Dr Chakib Saad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-817-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2014-de-lhopital-dr-chakib-saad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-817-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2014-de-lhopital-dr-chakib-saad/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

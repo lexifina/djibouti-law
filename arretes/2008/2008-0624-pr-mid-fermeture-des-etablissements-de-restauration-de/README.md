@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0624/PR/MID portant fermeture des établissements de restauration, de débits de boissons et spectacles pendant la période du Mois de Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0624-pr-mid-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0624-pr-mid-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
 
 En vigueur : 2008-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 14 mars 1941 relatif au personnel des juridictions militaires des Forces Francaises Libres dans le Ktoyaume-Uni.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-14-mars-1941-relatif-au-personnel-des-juridictions-militaires-des-forces-francaises-libres-dans-le-ktoyaume-uni/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-14-mars-1941-relatif-au-personnel-des-juridictions-militaires-des-forces-francaises-libres-dans-le-ktoyaume-uni/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

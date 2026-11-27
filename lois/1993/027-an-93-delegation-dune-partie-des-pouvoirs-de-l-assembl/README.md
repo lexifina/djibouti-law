@@ -1,6 +1,6 @@
 # Loi n° 27/AN/93/3e L portant délégation d’une partie des pouvoirs de l’assemblée nationale a la commission permanente jusqu’a l’ouverture de la 2eme session ordinaire de 1993 dite « session budgétaire « .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-93-3e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1993-dite-ses/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-93-3e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1993-dite-ses/>
 
 En vigueur : 1993-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 91‑055/PR/FP portant additif à l’article 15 du décret n° 89-062/PRE relatif aux dispositions transitoires des statuts particuliers des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91055-pr-fp-portant-additif-a-larticle-15-du-decret-n89-062-pre-relatif-aux-dispositions-transitoires-des-statuts-particuliers-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91055-pr-fp-portant-additif-a-larticle-15-du-decret-n89-062-pre-relatif-aux-dispositions-transitoires-des-statuts-particuliers-des-fonctionnaires/>
 
 En vigueur : 1991-05-15 (date du Journal officiel qui le publie).
 

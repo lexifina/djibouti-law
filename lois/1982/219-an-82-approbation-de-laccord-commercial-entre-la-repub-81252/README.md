@@ -1,6 +1,6 @@
 # Loi n° 219/AN/82 portant approbation de l’Accord commercial entre la République de Djibouti et le Gouvernement Militaire Provisoire de l’Éthiopie socialiste.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-82-portant-approbation-de-laccord-commercial-entre-la-republique-de-djibouti-et-le-gouvernement-militaire-provisoire-de-lethiopie-socialiste/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n219-an-82-portant-approbation-de-laccord-commercial-entre-la-republique-de-djibouti-et-le-gouvernement-militaire-provisoire-de-lethiopie-socialiste/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 12/AN/87/2e L portant approbation des comptes administratifs de la Chambre Internationale de Commerce et d’Industrie de Djibouti et des Magasins Généraux pour l’exercice 1986.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-87-2e-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1986/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-87-2e-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1986/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

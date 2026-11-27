@@ -1,6 +1,6 @@
 # Décret n° 13-368-1927 Ouverture de crédits supplémentaires au budget local de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 368 du 31/07/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-368-1927-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 368 du 31/07/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-368-1927-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1927-07-31 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ Léon PERRIER.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

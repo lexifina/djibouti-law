@@ -1,6 +1,6 @@
 # Décret n° 36-261-1918 le 12 novembre 1917.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-36-261-1918-le-12-novembre-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-36-261-1918-le-12-novembre-1917/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ CHARLES CHAUMET.
 | --- | --- |
 | [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

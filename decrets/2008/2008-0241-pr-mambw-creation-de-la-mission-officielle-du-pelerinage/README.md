@@ -1,6 +1,6 @@
 # Décret n° 2008-0241/PR/MAMBW portant création de la mission officielle du Pèlerinage pour l’Année 2008.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0241-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2008/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0241-pr-mambw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2008/>
 
 En vigueur : 2008-10-15 (date du Journal officiel qui le publie).
 

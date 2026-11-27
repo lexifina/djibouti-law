@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0479/PR/MCCPT fixant les modalités de paiement d’une redevance des fréquences pour attribution d’une licence d’exploitation audiovisuelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0479-pr-mccpt-fixant-les-modalites-de-paiement-dune-redevance-des-frequences-pour-attribution-dune-licence-dexploitation-audiovisuelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0479-pr-mccpt-fixant-les-modalites-de-paiement-dune-redevance-des-frequences-pour-attribution-dune-licence-dexploitation-audiovisuelle/>
 
 En vigueur : 2001-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 92‑0020/ PRE / MI Rendant exécutoire la délibération 03/91 du 28 octobre 1991 du conseil d’administration de l’Office des Postes et Télécommuni­cations, portant approbation du budget prévisionnel de l’Office pour l’exercice 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910020-pre-mi-rendant-executoire-la-deliberation-03-91-du-28-octobre-1991-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbatio/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910020-pre-mi-rendant-executoire-la-deliberation-03-91-du-28-octobre-1991-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbatio/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Aprés avis du Conseil d’Etat (section des Finances), Art. 1°. — Les dispositions des articles 1°, 2 et 3 du décret susvisé n° 67-27 du 9 janvier 1967 sont modifiées et complétées comme suit :
 & Art. 1° ». — Les établissements énumérés à l’article 2 ci-après sont tenus de conserver à la Banque dé France, sous forme de dépôts non rémunérés ou éventuellement sous d’autres formes d’actifs liquides, un montant minimum de réserves déterminé dans les conditions visées aux articles 3 et 4 ci-après par référence à tout ou partie des certains éléments de leurs situations comptables concernant leurs exigibilités à vue ou à terme ainsi que les concours qu’ils ont consentis.
 «Art. 2. — Les dispositions du présent décret sont applicables :

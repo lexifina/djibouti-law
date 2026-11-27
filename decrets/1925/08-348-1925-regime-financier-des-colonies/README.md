@@ -1,6 +1,6 @@
 # Décret n° 08-348-1925 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 348 du 30/11/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-348-1925-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 348 du 30/11/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-348-1925-regime-financier-des-colonies/>
 
 En vigueur : 1925-11-30 (date du Journal officiel qui le publie).
 

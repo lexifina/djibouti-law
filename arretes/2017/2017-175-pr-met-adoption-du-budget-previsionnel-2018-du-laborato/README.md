@@ -1,6 +1,6 @@
 # Arrêté n° 2017-175/PR/MET portant adoption du budget prévisionnel 2018 du Laboratoire Central du Bâtiment et de l’Equipement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-175-pr-met-portant-adoption-du-budget-previsionnel-2018-du-laboratoire-central-du-batiment-et-de-lequipement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-175-pr-met-portant-adoption-du-budget-previsionnel-2018-du-laboratoire-central-du-batiment-et-de-lequipement/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

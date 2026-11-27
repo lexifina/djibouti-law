@@ -1,6 +1,6 @@
 # Décret n° 2024-335/PR/MENSUR portant création du diplôme national menant au grade de “Docteur” et organisant les conditions et modalités d’accès et de délivrance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-335-pr-mensur-portant-creation-du-diplome-national-menant-au-grade-de-docteur-et-organisant-les-conditions-et-modalites-dacces-et-de-delivrance/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-335-pr-mensur-portant-creation-du-diplome-national-menant-au-grade-de-docteur-et-organisant-les-conditions-et-modalites-dacces-et-de-delivrance/>
 
 En vigueur : 2025-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

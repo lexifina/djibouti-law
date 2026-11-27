@@ -1,6 +1,6 @@
 # Décret n° 90-129/PR/DEF portant création du peloton de surveillance de la Gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-129-pr-def-portant-creation-du-peloton-de-surveillance-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-129-pr-def-portant-creation-du-peloton-de-surveillance-de-la-gendarmerie-nationale/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

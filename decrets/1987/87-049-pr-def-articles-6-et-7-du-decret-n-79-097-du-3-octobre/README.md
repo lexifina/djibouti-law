@@ -1,6 +1,6 @@
 # Décret n° 87-049/PR/DEF modifiant les articles 6 et 7 du décret n° 79-097 du 3 octobre 1979 portant création et attributions de la commission des marchés de l’armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-049-pr-def-modifiant-les-articles-6-et-7-du-decret-n-79-097-du-3-octobre-1979-portant-creation-et-attributions-de-la-commission-des-marches-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-049-pr-def-modifiant-les-articles-6-et-7-du-decret-n-79-097-du-3-octobre-1979-portant-creation-et-attributions-de-la-commission-des-marches-de-larmee-nationale/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

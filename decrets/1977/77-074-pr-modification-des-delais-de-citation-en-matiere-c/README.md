@@ -1,6 +1,6 @@
 # Décret n° 77-074/PR Portant modification des délais de citation en matière civile et commerciale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-074-pr-portant-modification-des-delais-de-citation-en-matiere-civile-et-commerciale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-074-pr-portant-modification-des-delais-de-citation-en-matiere-civile-et-commerciale/>
 
 En vigueur : 1978-01-09 (date du Journal officiel qui le publie).
 

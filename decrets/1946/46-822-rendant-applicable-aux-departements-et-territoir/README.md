@@ -1,6 +1,6 @@
 # Décret n° 46-822 rendant applicable aux départements et territoires relevant du ministère de la France d’outre-mer le décret du 20 avril 1946 fixant les conditions dans lesquelles les partis politiques et groupements pourront effectuer leur propagande à l’occasion du référendum sur la Constitution
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-822-rendant-applicable-aux-departements-et-territoires-relevant-du-ministere-de-la-france-doutre-mer-le-decret-du-20-avril-1946-fixant-les-conditions-dans-lesquelles-les-p/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-822-rendant-applicable-aux-departements-et-territoires-relevant-du-ministere-de-la-france-doutre-mer-le-decret-du-20-avril-1946-fixant-les-conditions-dans-lesquelles-les-p/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 
@@ -23,7 +23,7 @@ Marins MOUTET
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

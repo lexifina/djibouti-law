@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 A) De la définition

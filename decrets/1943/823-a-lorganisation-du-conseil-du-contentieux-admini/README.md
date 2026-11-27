@@ -1,6 +1,6 @@
 # Décret n° 823 relatif à l’organisation du Conseil du Contentieux Administratif de la Côte Française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 30/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-823-relatif-a-lorganisation-du-conseil-du-contentieux-administratif-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 30/07/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-823-relatif-a-lorganisation-du-conseil-du-contentieux-administratif-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1943-07-30 (date du Journal officiel qui le publie).
 

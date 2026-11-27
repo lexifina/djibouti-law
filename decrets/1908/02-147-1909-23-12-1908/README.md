@@ -1,6 +1,6 @@
 # Décret n° 02-147-1909 23/12/1908
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 147 du 01/02/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-147-1909-23-12-1908/>
+Décret · Journal officiel de la République de Djibouti, n° 147 du 01/02/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-147-1909-23-12-1908/>
 
 En vigueur : 1909-02-01 (date du Journal officiel qui le publie).
 

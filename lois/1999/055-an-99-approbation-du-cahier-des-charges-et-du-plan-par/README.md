@@ -1,6 +1,6 @@
 # Loi n° 55/AN/99/4ème L portant approbation du cahier des charges et du plan parcelle du lotissement Hodane (3600 parcelles) à Balbala.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-99-4eme-l-portant-approbation-du-cahier-des-charges-et-du-plan-parcelle-du-lotissement-hodane-3600-parcelles-a-balbala/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-99-4eme-l-portant-approbation-du-cahier-des-charges-et-du-plan-parcelle-du-lotissement-hodane-3600-parcelles-a-balbala/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 

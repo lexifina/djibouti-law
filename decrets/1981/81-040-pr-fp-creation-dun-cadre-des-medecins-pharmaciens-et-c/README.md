@@ -1,6 +1,6 @@
 # Décret n° 81-040/PR/FP portant création d’un cadre des Médecins, Pharmaciens et Chirurgiens Dentistes de la Santé Publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-040-pr-fp-portant-creation-dun-cadre-des-medecins-pharmaciens-et-chirurgiens-dentistes-de-la-sante-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-040-pr-fp-portant-creation-dun-cadre-des-medecins-pharmaciens-et-chirurgiens-dentistes-de-la-sante-publique/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Le Conseil des Ministres entendu en sa séance du 3 MARS 1981.
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

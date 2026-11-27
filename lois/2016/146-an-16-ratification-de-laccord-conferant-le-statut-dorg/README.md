@@ -1,6 +1,6 @@
 # Loi n° 146/AN/16/7ème L portant ratification de l’accord conférant le statut d’organisation internationale de lutte contre la corruption.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-16-7eme-l-portant-ratification-de-laccord-conferant-le-statut-dorganisation-internationale-de-lutte-contre-la-corruption/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-16-7eme-l-portant-ratification-de-laccord-conferant-le-statut-dorganisation-internationale-de-lutte-contre-la-corruption/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

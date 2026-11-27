@@ -1,6 +1,6 @@
 # Décret n° 2018-170//PRE/MET portant création du Groupe d’Intervention Rapide de la Garde-Côtes Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-170-pre-met-portant-creation-du-groupe-dintervention-rapide-de-la-garde-cotes-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-170-pre-met-portant-creation-du-groupe-dintervention-rapide-de-la-garde-cotes-djiboutienne/>
 
 En vigueur : 2018-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

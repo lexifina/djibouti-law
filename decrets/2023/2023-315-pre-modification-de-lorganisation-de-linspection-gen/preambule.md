@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE 1 :
 MISSIONS ET ATTRIBUTIONS

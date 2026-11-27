@@ -1,6 +1,6 @@
 # Décret n° 2007-0119/PR/MAEM portant statuts de l’Office National de l’Eau et de l’Assainissement de Djibouti – ONEAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0119-pr-maem-portant-statuts-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-onead/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0119-pr-maem-portant-statuts-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-onead/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

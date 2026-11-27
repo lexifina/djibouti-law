@@ -1,8 +1,8 @@
 # Loi n° 174/AN/22/8ème L portant adoption de la Politique Nationale de l’Enfant (2022-2032).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-22-8eme-l-portant-adoption-de-la-politique-nationale-de-lenfant-2022-2032/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-22-8eme-l-portant-adoption-de-la-politique-nationale-de-lenfant-2022-2032/>
 
-En vigueur : 2023-01-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-01-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

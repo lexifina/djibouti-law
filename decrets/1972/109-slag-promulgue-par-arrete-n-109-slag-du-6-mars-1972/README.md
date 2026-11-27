@@ -1,6 +1,6 @@
 # Décret n° 109/SLAG promulgué par arrêté n° 109/SLAG du 6 mars 1972.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-109-slag-promulgue-par-arrete-n-109-slag-du-6-mars-1972/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-109-slag-promulgue-par-arrete-n-109-slag-du-6-mars-1972/>
 
 En vigueur : 1972-03-25 (date du Journal officiel qui le publie).
 

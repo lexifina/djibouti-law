@@ -1,6 +1,6 @@
 # Décret n° 2012-277/PR/MI portant modification du décret n° 2009-0292/PR/MID du 28 décembre 2009, relatif au changement de la CNI ; modifié par le décret n° 2010-0237/PR/MID du 08 décembre 2010.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-277-pr-mi-portant-modification-du-decret-n2009-0292-pr-mid-du-28-decembre-2009-relatif-au-changement-de-la-cni-modifie-par-le-decret-n2010-0237-pr-mid-du-08-decembre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-277-pr-mi-portant-modification-du-decret-n2009-0292-pr-mid-du-28-decembre-2009-relatif-au-changement-de-la-cni-modifie-par-le-decret-n2010-0237-pr-mid-du-08-decembre/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 82-016/PR accordant un délai supplémentaire pour les inscriptions sur les listes électorales.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-016-pr-accordant-un-delai-supplementaire-pour-les-inscriptions-sur-les-listes-electorales/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n82-016-pr-accordant-un-delai-supplementaire-pour-les-inscriptions-sur-les-listes-electorales/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

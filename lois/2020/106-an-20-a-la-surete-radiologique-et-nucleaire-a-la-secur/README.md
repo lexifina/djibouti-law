@@ -1,8 +1,8 @@
 # Loi n° 106/AN/20/8ème L relative à la sûreté radiologique et nucléaire, à la sécurité nucléaire et à l’application des garanties.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-20-8eme-l-relative-a-la-surete-radiologique-et-nucleaire-a-la-securite-nucleaire-et-a-lapplication-des-garanties/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-20-8eme-l-relative-a-la-surete-radiologique-et-nucleaire-a-la-securite-nucleaire-et-a-lapplication-des-garanties/>
 
-En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -169,4 +169,4 @@ ISMAÏL OMAR GUELLEH
 | [art-119.md](art-119.md) | Article 119 |
 | [art-120.md](art-120.md) | Article 120 |
 | [art-121.md](art-121.md) | Article 121 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

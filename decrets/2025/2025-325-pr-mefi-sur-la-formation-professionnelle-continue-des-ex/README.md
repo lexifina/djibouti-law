@@ -1,8 +1,8 @@
 # Décret n° 2025-325/PR/MEFI portant sur la formation professionnelle Continue des Experts-Comptables.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-325-pr-mefi-portant-sur-la-formation-professionnelle-continue-des-experts-comptables/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-325-pr-mefi-portant-sur-la-formation-professionnelle-continue-des-experts-comptables/>
 
-En vigueur : 2025-11-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-11-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

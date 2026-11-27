@@ -1,6 +1,6 @@
 # Décret n° 2005-0065/PRE Déclarant la journée du 07 mai 2005, Fériée, chômée et payée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0065-pre-declarant-la-journee-du-07-mai-2005-feriee-chomee-et-payee/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0065-pre-declarant-la-journee-du-07-mai-2005-feriee-chomee-et-payee/>
 
 En vigueur : 2005-05-15 (date du Journal officiel qui le publie).
 

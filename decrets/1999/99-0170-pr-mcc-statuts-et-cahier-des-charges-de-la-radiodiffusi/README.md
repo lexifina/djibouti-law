@@ -1,6 +1,6 @@
 # Décret n° 99-0170/PR/MCC portant statuts et cahier des charges de la Radiodiffusion Télévision de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0170-pr-mcc-portant-statuts-et-cahier-des-charges-de-la-radiodiffusion-television-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0170-pr-mcc-portant-statuts-et-cahier-des-charges-de-la-radiodiffusion-television-de-djibouti/>
 
 En vigueur : 1999-09-30 (date du Journal officiel qui le publie).
 
@@ -67,4 +67,4 @@ et le Ministre des Finances,
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
 | [art-045.md](art-045.md) | Article 45 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

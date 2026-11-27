@@ -1,6 +1,6 @@
 # Loi n° 31/AN/99/4ème L approuvant le compte financier de l’exercice 1995 de l’Établissement public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-99-4eme-l-approuvant-le-compte-financier-de-lexercice-1995-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-99-4eme-l-approuvant-le-compte-financier-de-lexercice-1995-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1999-01-31 (date du Journal officiel qui le publie).
 

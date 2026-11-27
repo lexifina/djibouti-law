@@ -1,6 +1,6 @@
 # Décret n° 2000-0207/PR/MESN portant additif au décret n° 99-018/PR/MEFCP relatif au droit et aux avantages en nature inhérents aux anciens Présidents de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0207-pr-mesn-portant-additif-au-decret-n99-018-pr-mefcp-relatif-au-droit-et-aux-avantages-en-nature-inherents-aux-anciens-presidents-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0207-pr-mesn-portant-additif-au-decret-n99-018-pr-mefcp-relatif-au-droit-et-aux-avantages-en-nature-inherents-aux-anciens-presidents-de-la-republique/>
 
 En vigueur : 2000-07-31 (date du Journal officiel qui le publie).
 

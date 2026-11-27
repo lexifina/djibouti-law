@@ -1,6 +1,6 @@
 # Loi n° 62-1292 relative à l’élection du Président de la République au suffrage universel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1962 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-62-1292-relative-a-lelection-du-president-de-la-republique-au-suffrage-universel/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1962 · <https://www.journalofficiel.dj/texte-juridique/loi-n-62-1292-relative-a-lelection-du-president-de-la-republique-au-suffrage-universel/>
 
 En vigueur : 1962-11-30 (date du Journal officiel qui le publie).
 

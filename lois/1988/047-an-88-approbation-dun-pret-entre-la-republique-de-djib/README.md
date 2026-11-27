@@ -1,6 +1,6 @@
 # Loi n° 47/AN/88/2ème L portant approbation d’un prêt entre la République de Djibouti et le Fond Africain de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-88-2eme-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fond-africain-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-88-2eme-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fond-africain-de-developpement/>
 
 En vigueur : 1988-12-15 (date du Journal officiel qui le publie).
 

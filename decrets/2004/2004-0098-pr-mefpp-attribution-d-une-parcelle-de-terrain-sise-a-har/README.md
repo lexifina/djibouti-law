@@ -1,6 +1,6 @@
 # Décret n° 2004-0098/PR/MEFPP portant attribution d’une parcelle de terrain sise à Haramous aux États Unis d’Amérique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0098-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-sise-a-haramous-aux-etats-unis-damerique/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0098-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-sise-a-haramous-aux-etats-unis-damerique/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

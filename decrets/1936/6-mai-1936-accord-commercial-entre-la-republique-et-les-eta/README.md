@@ -1,6 +1,6 @@
 # Décret n° 6 mai 1936 Accord commercial entre la République et les Etats-Unis d’Amérique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-mai-1936-accord-commercial-entre-la-republique-et-les-etats-unis-damerique/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-mai-1936-accord-commercial-entre-la-republique-et-les-etats-unis-damerique/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ secrétaire d'Etat.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er — |
+| [art-001.md](art-001.md) | Art.1er |

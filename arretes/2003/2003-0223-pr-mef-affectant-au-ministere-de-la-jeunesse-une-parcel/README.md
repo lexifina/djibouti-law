@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0223/PR/MEF affectant au Ministère de la Jeunesse une parcelle de terrain sise au quartier 5.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0223-pr-mef-affectant-au-ministere-de-la-jeunesse-une-parcelle-de-terrain-sise-au-quartier-5/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0223-pr-mef-affectant-au-ministere-de-la-jeunesse-une-parcelle-de-terrain-sise-au-quartier-5/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

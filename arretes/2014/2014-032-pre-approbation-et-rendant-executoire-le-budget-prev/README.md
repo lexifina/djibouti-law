@@ -1,6 +1,6 @@
 # Arrêté n° 2014-032/PRE portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2014 du Fonds de Développement Économique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-032-pre-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-032-pre-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

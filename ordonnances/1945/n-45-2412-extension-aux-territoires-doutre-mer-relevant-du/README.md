@@ -1,6 +1,6 @@
 # Ordonnance n° n° 45-2412 portant extension aux territoires d’outre-mer relevant du Ministre des Colonies des dispositions de l’ordonnance du , août 1945 relative à l’électorat et à l’éligibilité des militaires
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2412-portant-extension-aux-territoires-doutre-mer-relevant-du-ministre-des-colonies-des-dispositions-de-lordonnance-du-aout-1945-relative-a-lelectorat-et-a-le/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2412-portant-extension-aux-territoires-doutre-mer-relevant-du-ministre-des-colonies-des-dispositions-de-lordonnance-du-aout-1945-relative-a-lelectorat-et-a-le/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

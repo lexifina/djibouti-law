@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0015/PR/MEFPP portant attribution d’une parcelle de terrain à la Chambre de Commerce de Djibouti «Projet d’un Centre Régional d’Exportation de Bétail».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0015-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-a-la-chambre-de-commerce-de-djibouti-projet-dun-centre-regional-dexportation-de-betail/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0015-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-a-la-chambre-de-commerce-de-djibouti-projet-dun-centre-regional-dexportation-de-betail/>
 
 En vigueur : 2004-01-15 (date du Journal officiel qui le publie).
 

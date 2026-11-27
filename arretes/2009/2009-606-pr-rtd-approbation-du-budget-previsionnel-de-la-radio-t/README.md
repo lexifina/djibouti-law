@@ -1,6 +1,6 @@
 # Arrêté n° 2009-606/PR/RTD portant approbation du budget prévisionnel de la Radio-Télévision de Djibouti pour l’exercice 2009.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-606-pr-rtd-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2009/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-606-pr-rtd-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2009/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

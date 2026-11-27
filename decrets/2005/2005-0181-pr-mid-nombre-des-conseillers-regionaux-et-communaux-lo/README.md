@@ -1,6 +1,6 @@
 # Décret n° 2005-0181/PR/MID Fixant le nombre des conseillers régionaux et communaux lors des élections régionales du 30 décembre 2005 et 20 janvier 2006.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0181-pr-mid-fixant-le-nombre-des-conseillers-regionaux-et-communaux-lors-des-elections-regionales-du-30-decembre-2005-et-20-janvier-2006/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0181-pr-mid-fixant-le-nombre-des-conseillers-regionaux-et-communaux-lors-des-elections-regionales-du-30-decembre-2005-et-20-janvier-2006/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

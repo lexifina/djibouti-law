@@ -1,6 +1,6 @@
 # Décret n° 2006-0127/PR/MEFPCP portant attribution d’une parcelle de terrain sise à Doraleh à Mr. Ibrahim Said Lootah.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0127-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-a-doraleh-a-mr-ibrahim-said-lootah/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0127-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-a-doraleh-a-mr-ibrahim-said-lootah/>
 
 En vigueur : 2006-05-31 (date du Journal officiel qui le publie).
 

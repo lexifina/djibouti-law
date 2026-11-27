@@ -1,6 +1,6 @@
 # Décret n° 94-0118/PRE portant dispositions particulières aux officiers généraux de la FNS
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0118-pre-portant-dispositions-particulieres-aux-officiers-generaux-de-la-fns/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0118-pre-portant-dispositions-particulieres-aux-officiers-generaux-de-la-fns/>
 
 En vigueur : 1994-09-15 (date du Journal officiel qui le publie).
 

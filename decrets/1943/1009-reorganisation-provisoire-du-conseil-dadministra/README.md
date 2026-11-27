@@ -1,6 +1,6 @@
 # Décret n° 1009 portant réorganisation provisoire du Conseil d’Administration de la Côte Française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1009-portant-reorganisation-provisoire-du-conseil-dadministration-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1009-portant-reorganisation-provisoire-du-conseil-dadministration-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ R. Pleven.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

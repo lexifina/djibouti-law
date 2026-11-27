@@ -1,6 +1,6 @@
 # Décret n° 11-467-1935 Application aux colonies, pays de protectorat et territoires sous mandat des dispositions de l’article 3 du décret du 20 juillet 1934, se relatif au protêt des chèques,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-467-1935-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-des-dispositions-de-larticle-3-du-decret-du-20-juillet-1934-se-relatif-au-protet-des-cheq/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-467-1935-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-des-dispositions-de-larticle-3-du-decret-du-20-juillet-1934-se-relatif-au-protet-des-cheq/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Léon BÉRARD.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 76/AN/14/7ème L portant budget rectificatif de l’Etat pour l’exercice 2014.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-14-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2014/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-14-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2014/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

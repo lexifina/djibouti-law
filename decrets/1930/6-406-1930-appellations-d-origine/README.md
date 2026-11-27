@@ -1,6 +1,6 @@
 # Décret n° 6-406-1930 Appellations d’origine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 406 du 30/09/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-406-1930-appellations-dorigine/>
+Décret · Journal officiel de la République de Djibouti, n° 406 du 30/09/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-406-1930-appellations-dorigine/>
 
 En vigueur : 1930-09-30 (date du Journal officiel qui le publie).
 

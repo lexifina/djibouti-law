@@ -1,6 +1,6 @@
 # Décret n° 83-058/PR modifiant le décret n° 80-153/PR/MI du 31 décembre 1980 relatifs à la mise en circulation et à l’immatriculation des véhicules.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-058-pr-modifiant-le-decret-n-80-153-pr-mi-du-31-decembre-1980-relatifs-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicules/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-058-pr-modifiant-le-decret-n-80-153-pr-mi-du-31-decembre-1980-relatifs-a-la-mise-en-circulation-et-a-limmatriculation-des-vehicules/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ HASSAN GOULED APTIDON
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

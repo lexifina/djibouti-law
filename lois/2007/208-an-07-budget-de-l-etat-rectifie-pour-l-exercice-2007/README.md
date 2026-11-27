@@ -1,6 +1,6 @@
 # Loi n° 208/AN/07/5ème L portant Budget de l’Etat rectifié pour l’Exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-07-5eme-l-portant-budget-de-letat-rectifie-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-07-5eme-l-portant-budget-de-letat-rectifie-pour-lexercice-2007/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

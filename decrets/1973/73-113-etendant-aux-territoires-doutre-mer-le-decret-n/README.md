@@ -1,6 +1,6 @@
 # Décret n° 73-113 étendant aux territoires d’outre-mer le décret n° 61-370 du 13 avril 1961 modifiant l’article 17 du décret n° 52-1326 du 15 décembre 1952 relatif aux contrats de crédits différé (J.O.R.F. n° 31 des 5 et 6 février 1973, p. 1419).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-113-etendant-aux-territoires-doutre-mer-le-decret-n-61-370-du-13-avril-1961-modifiant-larticle-17-du-decret-n-52-1326-du-15-decembre-1952-relatif-aux-contrats/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-113-etendant-aux-territoires-doutre-mer-le-decret-n-61-370-du-13-avril-1961-modifiant-larticle-17-du-decret-n-52-1326-du-15-decembre-1952-relatif-aux-contrats/>
 
 En vigueur : 1973-03-10 (date du Journal officiel qui le publie).
 

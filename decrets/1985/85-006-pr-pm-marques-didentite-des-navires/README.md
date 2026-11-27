@@ -1,6 +1,6 @@
 # Décret n° 85-006/PR/PM Fixant les marques d’identité des navires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-006-pr-pm-fixant-les-marques-didentite-des-navires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-006-pr-pm-fixant-les-marques-didentite-des-navires/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

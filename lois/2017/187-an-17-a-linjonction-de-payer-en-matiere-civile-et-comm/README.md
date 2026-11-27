@@ -1,8 +1,8 @@
 # Loi n° 187/AN/17/7ème L relative à l’injonction de payer en matière civile et commerciale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-17-7eme-l-relative-a-linjonction-de-payer-en-matiere-civile-et-commerciale/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-17-7eme-l-relative-a-linjonction-de-payer-en-matiere-civile-et-commerciale/>
 
-En vigueur : 2017-05-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-05-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2017-005/PR/MI portant convocation du corps électoral et fixant la date des élections régionales et communales ainsi que les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-005-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-ainsi-que-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-005-pr-mi-portant-convocation-du-corps-electoral-et-fixant-la-date-des-elections-regionales-et-communales-ainsi-que-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 

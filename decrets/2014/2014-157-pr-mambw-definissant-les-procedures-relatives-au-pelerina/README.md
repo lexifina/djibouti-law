@@ -1,6 +1,6 @@
 # Décret n° 2014-157/PR/MAMBW définissant les procèdures relatives au Pélerinage saison 2014/1435H.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-157-pr-mambw-definissant-les-procedures-relatives-au-pelerinage-saison-2014-1435h/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-157-pr-mambw-definissant-les-procedures-relatives-au-pelerinage-saison-2014-1435h/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 

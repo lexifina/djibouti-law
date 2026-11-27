@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0411/PR/MEFPP portant attribution d’une parcelle de terrain sise au lotissement de la Zone Industrielle Sud.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0411-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-de-la-zone-industrielle-sud/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0411-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-de-la-zone-industrielle-sud/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

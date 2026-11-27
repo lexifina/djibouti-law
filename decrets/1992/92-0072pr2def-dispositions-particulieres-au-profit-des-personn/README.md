@@ -1,6 +1,6 @@
 # Décret n° 92-0072PR2DEF portant dispositions particulières au profit des personnels d’actives ou rappelés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0072pr2def-portant-dispositions-particulieres-au-profit-des-personnels-dactives-ou-rappeles/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0072pr2def-portant-dispositions-particulieres-au-profit-des-personnels-dactives-ou-rappeles/>
 
 En vigueur : 1992-06-30 (date du Journal officiel qui le publie).
 
@@ -15,6 +15,6 @@ Sur proposition conjointe du ministre de la Défense nationale, et du chef d'ét
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

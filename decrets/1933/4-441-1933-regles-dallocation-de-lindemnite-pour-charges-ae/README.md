@@ -1,6 +1,6 @@
 # Décret n° 4-441-1933 Règles d’allocation de l’indemnité pour charges aéronautiques et au fonctionnement des cercles d’officiers et de sous-officiers dans les formations d’aéronautique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 441 du 31/08/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-441-1933-regles-dallocation-de-lindemnite-pour-charges-aeronautiques-et-au-fonctionnement-des-cercles-dofficiers-et-de-sous-officiers-dans-les-formations-daeronautique/>
+Décret · Journal officiel de la République de Djibouti, n° 441 du 31/08/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-441-1933-regles-dallocation-de-lindemnite-pour-charges-aeronautiques-et-au-fonctionnement-des-cercles-dofficiers-et-de-sous-officiers-dans-les-formations-daeronautique/>
 
 En vigueur : 1933-08-31 (date du Journal officiel qui le publie).
 

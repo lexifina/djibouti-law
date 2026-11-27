@@ -1,6 +1,6 @@
 # Décret n° 2017-025/PRE portant constitution du Conseil d’Administration la Société International Djibouti Industrial Parks Operation FZCO.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-025-pre-portant-constitution-du-conseil-dadministration-la-societe-international-djibouti-industrial-parks-operation-fzco/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-025-pre-portant-constitution-du-conseil-dadministration-la-societe-international-djibouti-industrial-parks-operation-fzco/>
 
 En vigueur : 2017-01-31 (date du Journal officiel qui le publie).
 

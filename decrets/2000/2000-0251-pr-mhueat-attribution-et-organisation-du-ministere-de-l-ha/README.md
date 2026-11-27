@@ -1,6 +1,6 @@
 # Décret n° 2000-0251/PR/MHUEAT portant attribution et organisation du Ministère de l’Habitat, de l’Urbanisme, de l’Environnement et de l’Aménagement du Territoire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0251-pr-mhueat-portant-attribution-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0251-pr-mhueat-portant-attribution-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 
@@ -77,4 +77,4 @@ ISMAÏL OMAR GUELLEH
 | [art-054.md](art-054.md) | Article 54 |
 | [art-055.md](art-055.md) | Article 55 |
 | [art-056.md](art-056.md) | Article 56 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

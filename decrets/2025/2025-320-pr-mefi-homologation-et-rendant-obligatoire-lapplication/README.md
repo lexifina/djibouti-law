@@ -1,8 +1,8 @@
 # Décret n° 2025-320/PR/MEFI portant homologation et rendant obligatoire l’application des normes internationales édictées par l’IFAC et applicable à l’Ordre des Experts-Comptables de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-320-pr-mefi-portant-homologation-et-rendant-obligatoire-lapplication-des-normes-internationales-edictees-par-lifac-et-applicable-a-lordre-des-experts-comptable/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-320-pr-mefi-portant-homologation-et-rendant-obligatoire-lapplication-des-normes-internationales-edictees-par-lifac-et-applicable-a-lordre-des-experts-comptable/>
 
-En vigueur : 2025-11-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-11-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 51-1187 portant extension du complément provisoire de solde aux personnels militaires en service dans les territoires relevant de l’autorité du Ministère de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1187-portant-extension-du-complement-provisoire-de-solde-aux-personnels-militaires-en-service-dans-les-territoires-relevant-de-lautorite-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1187-portant-extension-du-complement-provisoire-de-solde-aux-personnels-militaires-en-service-dans-les-territoires-relevant-de-lautorite-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

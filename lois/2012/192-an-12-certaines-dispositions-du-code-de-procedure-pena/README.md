@@ -1,6 +1,6 @@
 # Loi n° 192/AN/12/6ème L modifiant certaines dispositions du Code de Procédure Pénale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-12-6eme-l-modifiant-certaines-dispositions-du-code-de-procedure-penale/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-12-6eme-l-modifiant-certaines-dispositions-du-code-de-procedure-penale/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

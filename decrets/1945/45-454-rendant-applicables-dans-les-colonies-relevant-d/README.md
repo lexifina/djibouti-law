@@ -1,6 +1,6 @@
 # Décret n° 45-454 rendant applicables dans les colonies relevant du Ministère des Colonies autres que la Martinique, la Guadeloupe et la Réunion, les dispositions de l’article 2 de l’ordonnance du 4 décembre 1944 réprimant la destruction de certains documents.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-454-rendant-applicables-dans-les-colonies-relevant-du-ministere-des-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-les-dispositions-de-larticle-2-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-454-rendant-applicables-dans-les-colonies-relevant-du-ministere-des-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-les-dispositions-de-larticle-2-de-l/>
 
 En vigueur : 1945-04-01 (date du Journal officiel qui le publie).
 

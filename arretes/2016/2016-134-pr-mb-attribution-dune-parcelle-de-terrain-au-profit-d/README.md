@@ -1,6 +1,6 @@
 # Arrêté n° 2016-134/PR/MB portant attribution d’une parcelle de terrain au profit de la Société SOMCABLE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-134-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-somcable/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-134-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-somcable/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 0075-2000/PR/MEFP portant création d’un comité technique chargé d’élaborer un barème et un plafonnement et l’indemnisation des victimes d’accidents corporels de la circulation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n0075-2000-pr-mefp-portant-creation-dun-comite-technique-charge-delaborer-un-bareme-et-un-plafonnement-et-lindemnisation-des-victimes-daccidents-corporels-de-la-circulation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n0075-2000-pr-mefp-portant-creation-dun-comite-technique-charge-delaborer-un-bareme-et-un-plafonnement-et-lindemnisation-des-victimes-daccidents-corporels-de-la-circulation/>
 
-En vigueur : 2000-01-29 (date fixÃ©e par le texte).
+En vigueur : 2000-01-29 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 77-053/PR/AE portant statut des réfugiés sur le sol de la République de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-053-pr-ae-portant-statut-des-refugies-sur-le-sol-de-la-republique-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-053-pr-ae-portant-statut-des-refugies-sur-le-sol-de-la-republique-de-djibouti/>
 
 En vigueur : 1977-11-28 (date du Journal officiel qui le publie).
 

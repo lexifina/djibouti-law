@@ -1,6 +1,6 @@
 # Loi Organique n° 6/AN/93/3ème L fixant la composition et les règles de fonctionnement de la Haute Cour de Justice.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n6-an-93-3eme-l-fixant-la-composition-et-les-regles-de-fonctionnement-de-la-haute-cour-de-justice/>
+Loi organique · Journal officiel de la République de Djibouti, n° 10 du 31/05/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n6-an-93-3eme-l-fixant-la-composition-et-les-regles-de-fonctionnement-de-la-haute-cour-de-justice/>
 
 En vigueur : 1993-05-31 (date du Journal officiel qui le publie).
 
@@ -16,7 +16,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -54,4 +54,4 @@ HASSAN GOULED APTIDON
 | [art-036.md](art-036.md) | Art. 36 |
 | [art-037.md](art-037.md) | Art. 37 |
 | [art-038.md](art-038.md) | Art. 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 38/AN/09/6ème L portant adoption des comptes financiers de la SIEMAS pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-09-6eme-l-portant-adoption-des-comptes-financiers-de-la-siemas-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-09-6eme-l-portant-adoption-des-comptes-financiers-de-la-siemas-pour-lexercice-2004/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 

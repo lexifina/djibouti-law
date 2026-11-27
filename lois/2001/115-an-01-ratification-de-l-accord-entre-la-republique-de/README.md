@@ -1,6 +1,6 @@
 # Loi n° 115/AN/01/4ème L portant ratification de l’Accord entre la République de Djibouti et la Confédération Suisse relatif à la promotion et à la protection des investissements.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-01-4eme-l-portant-ratification-de-laccord-entre-la-republique-de-djibouti-et-la-confederation-suisse-relatif-a-la-promotion-et-a-la-protection-des-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-01-4eme-l-portant-ratification-de-laccord-entre-la-republique-de-djibouti-et-la-confederation-suisse-relatif-a-la-promotion-et-a-la-protection-des-investissements/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0957/PR/MET portant adoption du Budget prévisionnel de l’Exercice 2010 du Fonds d’Entretien Routier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0957-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2010-du-fonds-dentretien-routier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0957-pr-met-portant-adoption-du-budget-previsionnel-de-lexercice-2010-du-fonds-dentretien-routier/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

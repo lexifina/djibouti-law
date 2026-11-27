@@ -1,6 +1,6 @@
 # Loi n° 34/AN/83/1ère L portant approbation d’un prêt entre la République de Djibouti et le Fonds arabe de Développement économique et social.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-83-1ere-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n34-an-83-1ere-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-de-developpement-economique-et-social/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

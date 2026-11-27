@@ -1,6 +1,6 @@
 # Décret n° le 11 mai 1939 relatif à l’indication d’origine de certains produits étrangers (papiers peints),
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-11-mai-1939-relatif-a-lindication-dorigine-de-certains-produits-etrangers-papiers-peints/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-11-mai-1939-relatif-a-lindication-dorigine-de-certains-produits-etrangers-papiers-peints/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 

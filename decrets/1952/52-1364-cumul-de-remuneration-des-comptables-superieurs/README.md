@@ -1,8 +1,8 @@
 # Décret n° 52-1364 relatif au cumul de rémunération des comptables supérieurs et du personnel du cadre des trésoreries des Territoires d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1364-relatif-au-cumul-de-remuneration-des-comptables-superieurs-et-du-personnel-du-cadre-des-tresoreries-des-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1364-relatif-au-cumul-de-remuneration-des-comptables-superieurs-et-du-personnel-du-cadre-des-tresoreries-des-territoires-doutre-mer/>
 
-En vigueur : 1953-01-01 (date fixÃ©e par le texte).
+En vigueur : 1953-01-01 (date fixée par le texte).
 
 ## Visas
 

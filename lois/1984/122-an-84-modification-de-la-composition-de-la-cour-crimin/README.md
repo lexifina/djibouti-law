@@ -1,6 +1,6 @@
 # Loi n° 122/AN/84/1ère L portant modification de la composition de la Cour Criminelle et Sanction contre les Assesseurs et témoins défaillants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-84-1ere-l-portant-modification-de-la-composition-de-la-cour-criminelle-et-sanction-contre-les-assesseurs-et-temoins-defaillants/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-84-1ere-l-portant-modification-de-la-composition-de-la-cour-criminelle-et-sanction-contre-les-assesseurs-et-temoins-defaillants/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

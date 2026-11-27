@@ -1,6 +1,6 @@
 # Décret n° 25 avril 1941 portant rétablissement de l’emploi de secrétaire général à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 534 du 31/05/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-avril-1941-portant-retablissement-de-lemploi-de-secretaire-general-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 534 du 31/05/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-avril-1941-portant-retablissement-de-lemploi-de-secretaire-general-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1941-05-31 (date du Journal officiel qui le publie).
 

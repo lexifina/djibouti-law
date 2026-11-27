@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0183/PR/MEFPCP transférant au Ministère de l’Éducation Nationale et de l’Enseignement Supérieur, la propriétaire du Camp Barkat Siraj.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0183-pr-mefpcp-transferant-au-ministere-de-leducation-nationale-et-de-lenseignement-superieur-la-proprietaire-du-camp-barkat-siraj/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0183-pr-mefpcp-transferant-au-ministere-de-leducation-nationale-et-de-lenseignement-superieur-la-proprietaire-du-camp-barkat-siraj/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 82-092/PR/DEF modifiant le décret n° 82-037/PR/DEF du 11 mai 1982 portant règlement sur le logement des militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/10/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-092-pr-def-modifiant-le-decret-n82-037-pr-def-du-11-mai-1982-portant-reglement-sur-le-logement-des-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/10/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-092-pr-def-modifiant-le-decret-n82-037-pr-def-du-11-mai-1982-portant-reglement-sur-le-logement-des-militaires/>
 
 En vigueur : 1982-10-30 (date du Journal officiel qui le publie).
 

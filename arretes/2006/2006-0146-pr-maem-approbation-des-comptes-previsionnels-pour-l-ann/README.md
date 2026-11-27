@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0146/PR/MAEM portant approbation des comptes prévisionnels pour l’année 2006 de l’Office National des Eaux de Djibouti (ONED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0146-pr-maem-portant-approbation-des-comptes-previsionnels-pour-lannee-2006-de-loffice-national-des-eaux-de-djibouti-oned/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0146-pr-maem-portant-approbation-des-comptes-previsionnels-pour-lannee-2006-de-loffice-national-des-eaux-de-djibouti-oned/>
 
 En vigueur : 2006-02-28 (date du Journal officiel qui le publie).
 

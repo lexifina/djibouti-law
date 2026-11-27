@@ -1,8 +1,8 @@
 # Loi n° 191/AN/86/1ère L sur les Sociétés Commerciales en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 31/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-86-1ere-l-sur-les-societes-commerciales-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 31/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-86-1ere-l-sur-les-societes-commerciales-en-republique-de-djibouti/>
 
-En vigueur : 1986-02-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1986-02-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

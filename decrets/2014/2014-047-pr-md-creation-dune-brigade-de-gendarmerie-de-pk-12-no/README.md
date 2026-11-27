@@ -1,6 +1,6 @@
 # Décret n° 2014-047/PR/MD portant création d’une Brigade de Gendarmerie de PK 12 Nord.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-047-pr-md-portant-creation-dune-brigade-de-gendarmerie-de-pk-12-nord/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-047-pr-md-portant-creation-dune-brigade-de-gendarmerie-de-pk-12-nord/>
 
 En vigueur : 2014-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 52-939 du 5 août 1952 étendant aux territoires relevant du Ministère de là France -d’Outre-Mer la loi n° 49-1476 du 17 novembre 1949 complétant la loi du 29 décembre 1934 facilitant l’acquisition de véhicules ou tracteurs automobiles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-939-du-5-aout-1952-etendant-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-la-loi-n-49-1476-du-17-novembre-1949-completant-la-loi-du-29-decembre-193/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-939-du-5-aout-1952-etendant-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-la-loi-n-49-1476-du-17-novembre-1949-completant-la-loi-du-29-decembre-193/>
 
 En vigueur : 1952-10-01 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Pierre PFLIMLIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

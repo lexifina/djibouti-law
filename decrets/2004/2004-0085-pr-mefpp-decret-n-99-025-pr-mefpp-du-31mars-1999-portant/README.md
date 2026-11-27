@@ -1,8 +1,8 @@
 # Décret n° 2004-0085/PR/MEFPP modifiant le Décret n° 99/025/PR/MEFPP du 31mars 1999 portant organisation du Ministère de l’Économie, des Finances et de la Planification, chargé de la Privatisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0085-pr-mefpp-modifiant-le-decret-n99-025-pr-mefpp-du-31mars-1999-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-pr/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0085-pr-mefpp-modifiant-le-decret-n99-025-pr-mefpp-du-31mars-1999-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-pr/>
 
-En vigueur : 2004-05-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2004-05-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

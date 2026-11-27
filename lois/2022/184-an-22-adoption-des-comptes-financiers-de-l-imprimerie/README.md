@@ -1,6 +1,6 @@
 # Loi n° 184/AN/22/8ème L portant adoption des Comptes Financiers de l’Imprimerie Nationale de Djibouti pour l’exercice 2020.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-22-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2020/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-22-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2020/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

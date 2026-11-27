@@ -1,6 +1,6 @@
 # Décret n° 2013-356/PR/MI portant modification du décret n° 2010-0237/PR/MI du 08 Décembre 2010 relatif au changement de la Carte Nationale d’Identité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-356-pr-mi-portant-modification-du-decret-n2010-0237-pr-mi-du-08-decembre-2010-relatif-au-changement-de-la-carte-nationale-didentite/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-356-pr-mi-portant-modification-du-decret-n2010-0237-pr-mi-du-08-decembre-2010-relatif-au-changement-de-la-carte-nationale-didentite/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

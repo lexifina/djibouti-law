@@ -1,6 +1,6 @@
 # Décret n° 2000-0029/PR/MERN portant statuts constitutifs de la « Société Internationale des Hydrocarbures de Djibouti ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0029-pr-mern-portant-statuts-constitutifs-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0029-pr-mern-portant-statuts-constitutifs-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

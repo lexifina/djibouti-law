@@ -1,6 +1,6 @@
 # Décret n° 888 relatif aux indemnités de spécialité et primes de technicité du personnel militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 30/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-888-relatif-aux-indemnites-de-specialite-et-primes-de-technicite-du-personnel-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 30/07/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-888-relatif-aux-indemnites-de-specialite-et-primes-de-technicite-du-personnel-militaire/>
 
 En vigueur : 1943-07-30 (date du Journal officiel qui le publie).
 

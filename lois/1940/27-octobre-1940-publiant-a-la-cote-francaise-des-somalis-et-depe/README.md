@@ -1,6 +1,6 @@
 # Loi n° 27 octobre 1940 Publiant à la Côte française des Somalis et dépendances
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-27-octobre-1940-publiant-a-la-cote-francaise-des-somalis-et-dependances/>
+Loi · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-27-octobre-1940-publiant-a-la-cote-francaise-des-somalis-et-dependances/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

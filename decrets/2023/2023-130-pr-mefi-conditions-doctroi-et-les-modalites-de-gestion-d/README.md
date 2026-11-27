@@ -1,6 +1,6 @@
 # Décret n° 2023-130/PR/MEFI fixant les conditions d’octroi et les modalités de gestion des garanties et avals de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 25/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-130-pr-mefi-fixant-les-conditions-doctroi-et-les-modalites-de-gestion-des-garanties-et-avals-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 25/05/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-130-pr-mefi-fixant-les-conditions-doctroi-et-les-modalites-de-gestion-des-garanties-et-avals-de-letat/>
 
 En vigueur : 2023-05-26 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -53,4 +53,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

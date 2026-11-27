@@ -1,6 +1,6 @@
 # Décret n° 2010-0229/PR/MET portant création d’une institution civile des Gardes-Côtes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0229-pr-met-portant-creation-dune-institution-civile-des-gardes-cotes/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0229-pr-met-portant-creation-dune-institution-civile-des-gardes-cotes/>
 
 En vigueur : 2010-12-15 (date du Journal officiel qui le publie).
 

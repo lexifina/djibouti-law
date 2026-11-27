@@ -1,8 +1,8 @@
 # Décret n° 2010-0209/PR/MCI créant la Journée Nationale de l’Innovation et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0209-pr-mci-creant-la-journee-nationale-de-linnovation-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0209-pr-mci-creant-la-journee-nationale-de-linnovation-et-de-lartisanat/>
 
-En vigueur : 2010-11-08 (date fixÃ©e par le texte).
+En vigueur : 2010-11-08 (date fixée par le texte).
 
 ## Visas
 

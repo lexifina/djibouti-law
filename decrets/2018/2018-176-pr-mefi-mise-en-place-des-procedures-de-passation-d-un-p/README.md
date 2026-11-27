@@ -1,8 +1,8 @@
 # Décret n° 2018-176/PR/MEFI portant mise en place des procédures de passation d’un PPP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-176-pr-mefi-portant-mise-en-place-des-procedures-de-passation-dun-ppp/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-176-pr-mefi-portant-mise-en-place-des-procedures-de-passation-dun-ppp/>
 
-En vigueur : 2018-05-14 (date fixÃ©e par le texte).
+En vigueur : 2018-05-14 (date fixée par le texte).
 
 ## Visas
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

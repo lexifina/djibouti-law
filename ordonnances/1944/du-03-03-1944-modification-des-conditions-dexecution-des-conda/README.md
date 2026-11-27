@@ -1,6 +1,6 @@
 # Ordonnance n° du 03/03/1944 portant modification des conditions d’exécution des condamnés à la peine de mort.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1947 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-du-03-03-1944-portant-modification-des-conditions-dexecution-des-condamnes-a-la-peine-de-mort/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 31/01/1947 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-du-03-03-1944-portant-modification-des-conditions-dexecution-des-condamnes-a-la-peine-de-mort/>
 
 En vigueur : 1947-01-31 (date du Journal officiel qui le publie).
 

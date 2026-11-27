@@ -1,6 +1,6 @@
 # Décret n° 2000-0084/PR/MESN portant application des dispositions prévues à l’article 39 de la loi n° 140/AN/97/3ème L « portant aménagement du Code du Travail de 1952.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0084-pr-mesn-portant-application-des-dispositions-prevues-a-larticle-39-de-la-loi-n140-an-97-3eme-l-portant-amenagement-du-code-du-travail-de-1952/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0084-pr-mesn-portant-application-des-dispositions-prevues-a-larticle-39-de-la-loi-n140-an-97-3eme-l-portant-amenagement-du-code-du-travail-de-1952/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

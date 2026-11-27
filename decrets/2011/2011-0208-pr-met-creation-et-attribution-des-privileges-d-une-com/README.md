@@ -1,6 +1,6 @@
 # Décret n° 2011-0208/PR/MET portant création et attribution des privilèges d’une compagnie aérienne nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0208-pr-met-portant-creation-et-attribution-des-privileges-dune-compagnie-aerienne-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0208-pr-met-portant-creation-et-attribution-des-privileges-dune-compagnie-aerienne-nationale/>
 
 En vigueur : 2011-10-31 (date du Journal officiel qui le publie).
 

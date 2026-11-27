@@ -1,6 +1,6 @@
 # Décret n° 25 avril 1938 modifiant le décret du 25 août 1937 tendant à prévenir et à réprimer toute augmentation illégitime des prix dans les colonies, pays de protectorat et territoires sous mandat dépendant du Ministère des colonies autres que la Marti nique, la Guadeloupeet la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-avril-1938-modifiant-le-decret-du-25-aout-1937-tendant-a-prevenir-et-a-reprimer-toute-augmentation-illegitime-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-avril-1938-modifiant-le-decret-du-25-aout-1937-tendant-a-prevenir-et-a-reprimer-toute-augmentation-illegitime-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 
@@ -14,7 +14,7 @@ Vu le décret du 25 août 1937 tendant à pré venir et à réprimer toute augme
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

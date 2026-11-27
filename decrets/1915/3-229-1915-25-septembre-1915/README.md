@@ -1,6 +1,6 @@
 # Décret n° 3-229-1915 le 25 Septembre 1915.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 229 du 30/11/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-229-1915-le-25-septembre-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 229 du 30/11/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-229-1915-le-25-septembre-1915/>
 
 En vigueur : 1915-11-30 (date du Journal officiel qui le publie).
 

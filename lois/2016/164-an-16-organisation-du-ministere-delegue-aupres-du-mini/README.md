@@ -1,6 +1,6 @@
 # Loi n° 164/AN/16/7ème L portant organisation du Ministère Délégué auprès du Ministre de l’Intérieur chargé de la Décentralisation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-16-7eme-l-portant-organisation-du-ministere-delegue-aupres-du-ministre-de-linterieur-charge-de-la-decentralisation/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-16-7eme-l-portant-organisation-du-ministere-delegue-aupres-du-ministre-de-linterieur-charge-de-la-decentralisation/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 
@@ -85,4 +85,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | ARTICLE 20 |
 | [art-021.md](art-021.md) | ARTICLE 21 |
 | [art-022.md](art-022.md) | ARTICLE 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 19-437-1933 MASSE D’ENTRETIEN DES CORPS DE TROUPE STATIONNÉS AUX COLONIES.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 437 du 30/04/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-437-1933-masse-dentretien-des-corps-de-troupe-stationnes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 437 du 30/04/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-437-1933-masse-dentretien-des-corps-de-troupe-stationnes-aux-colonies/>
 
 En vigueur : 1933-04-30 (date du Journal officiel qui le publie).
 

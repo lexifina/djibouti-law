@@ -1,6 +1,6 @@
 # Décret n° 1-464-1935 Indemnités de déplacement à l’étranger du personnel du chemin de fer franco-éthiopien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-464-1935-indemnites-de-deplacement-a-letranger-du-personnel-du-chemin-de-fer-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-464-1935-indemnites-de-deplacement-a-letranger-du-personnel-du-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 

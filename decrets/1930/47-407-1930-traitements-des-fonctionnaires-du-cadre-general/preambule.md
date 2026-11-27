@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1 — Les traitements de présence des fonctionnaires du cadre général des bureaux et secrétarinats généraux des colonies sont fixés ainsi qu’il suit:
 Chef de bureau hers classe:
 Aprés 8 ans 44000 50000

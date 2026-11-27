@@ -1,6 +1,6 @@
 # Loi n° 43/AN/88/2e L portant modification de l’article 86 de la loi n° 21/AN/78 portant Statut de la Force nationale de Sécurité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-88-2e-l-portant-modification-de-larticle-86-de-la-loi-n21-an-78-portant-statut-de-la-force-nationale-de-securite/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-88-2e-l-portant-modification-de-larticle-86-de-la-loi-n21-an-78-portant-statut-de-la-force-nationale-de-securite/>
 
 En vigueur : 1989-01-31 (date du Journal officiel qui le publie).
 

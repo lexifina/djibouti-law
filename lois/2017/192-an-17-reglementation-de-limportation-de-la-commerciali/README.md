@@ -1,6 +1,6 @@
 # Loi n° 192/AN/17/7ème L portant réglementation de l’importation, de la commercialisation, et de l’utilisation des aéronefs circulant sans personne à bord.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-17-7eme-l-portant-reglementation-de-limportation-de-la-commercialisation-et-de-lutilisation-des-aeronefs-circulant-sans-personne-a-bord/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-17-7eme-l-portant-reglementation-de-limportation-de-la-commercialisation-et-de-lutilisation-des-aeronefs-circulant-sans-personne-a-bord/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 
@@ -70,4 +70,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

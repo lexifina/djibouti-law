@@ -1,6 +1,6 @@
 # Arrêté n° 2017-139/PRE portant exonération de droits d’enregistrement et de timbre.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 28/09/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-139-pre-portant-exoneration-de-droits-denregistrement-et-de-timbre/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 28/09/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-139-pre-portant-exoneration-de-droits-denregistrement-et-de-timbre/>
 
 En vigueur : 2017-09-28 (date du Journal officiel qui le publie).
 

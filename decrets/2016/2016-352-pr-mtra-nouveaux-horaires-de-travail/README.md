@@ -1,6 +1,6 @@
 # Décret n° 2016-352/PR/MTRA fixant les nouveaux horaires de travail.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-352-pr-mtra-fixant-les-nouveaux-horaires-de-travail/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-352-pr-mtra-fixant-les-nouveaux-horaires-de-travail/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

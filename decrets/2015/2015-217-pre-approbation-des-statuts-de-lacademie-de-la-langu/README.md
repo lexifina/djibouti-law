@@ -1,6 +1,6 @@
 # Décret n° 2015-217/PRE portant approbation des statuts de l’académie de la langue somalie dénommée “Akademeeye-Goboleedka Af Soomaaliga”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-217-pre-portant-approbation-des-statuts-de-lacademie-de-la-langue-somalie-denommee-akademeeye-goboleedka-af-soomaaliga/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 30/07/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-217-pre-portant-approbation-des-statuts-de-lacademie-de-la-langue-somalie-denommee-akademeeye-goboleedka-af-soomaaliga/>
 
 En vigueur : 2015-07-30 (date du Journal officiel qui le publie).
 

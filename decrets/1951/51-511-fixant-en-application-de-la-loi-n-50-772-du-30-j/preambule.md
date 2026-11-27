@@ -1,2 +1,0 @@
-# PrÃ©ambule
-Généralités

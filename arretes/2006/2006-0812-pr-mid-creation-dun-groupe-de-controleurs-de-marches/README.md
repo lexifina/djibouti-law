@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0812/PR/MID portant création d’un groupe de contrôleurs de marchés.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0812-pr-mid-portant-creation-dun-groupe-de-controleurs-de-marches/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0812-pr-mid-portant-creation-dun-groupe-de-controleurs-de-marches/>
 
 En vigueur : 2006-11-30 (date du Journal officiel qui le publie).
 

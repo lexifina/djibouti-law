@@ -1,6 +1,6 @@
 # Arrêté n° 2017-026/PR/MI fixant le nombre et l’implantation des bureaux de vote pour les Elections Régionales et Communales du 24 février 2017 et le 17 mars 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-026-pr-mi-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-regionales-et-communales-du-24-fevrier-2017-et-le-17-mars-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-026-pr-mi-fixant-le-nombre-et-limplantation-des-bureaux-de-vote-pour-les-elections-regionales-et-communales-du-24-fevrier-2017-et-le-17-mars-2017/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 

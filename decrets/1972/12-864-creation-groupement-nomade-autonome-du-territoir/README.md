@@ -1,6 +1,6 @@
 # Décret n° 12-864 Portant création Groupement nomade autonome du Territoire français les Afars et des Issas.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 10/11/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-864-portant-creation-groupement-nomade-autonome-du-territoire-francais-les-afars-et-des-issas/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 10/11/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-864-portant-creation-groupement-nomade-autonome-du-territoire-francais-les-afars-et-des-issas/>
 
 En vigueur : 1972-11-10 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ JEAN TAITTINGER.
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

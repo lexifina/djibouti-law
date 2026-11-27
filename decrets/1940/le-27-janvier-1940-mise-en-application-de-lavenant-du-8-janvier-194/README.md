@@ -1,8 +1,8 @@
 # Décret n° le 27 janvier 1940 portant mise en application de l’avenant du 8 janvier 1940 à l’accord de payement franco-ture du 23 aout 1939,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-27-janvier-1940-portant-mise-en-application-de-lavenant-du-8-janvier-1940-a-laccord-de-payement-franco-ture-du-23-aout-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-27-janvier-1940-portant-mise-en-application-de-lavenant-du-8-janvier-1940-a-laccord-de-payement-franco-ture-du-23-aout-1939/>
 
-En vigueur : 1940-01-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1940-01-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -35,6 +35,6 @@ Paul REYNAUD.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

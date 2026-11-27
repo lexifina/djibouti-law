@@ -1,6 +1,6 @@
 # Arrêté n° 2016-618/PR/MENSUR portant dérogation des dispositions de l’arrêté modificatif n° 2004-610/MENESUP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-618-pr-mensur-portant-derogation-des-dispositions-de-larrete-modificatif-n2004-610-menesup/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-618-pr-mensur-portant-derogation-des-dispositions-de-larrete-modificatif-n2004-610-menesup/>
 
 En vigueur : 2016-08-31 (date du Journal officiel qui le publie).
 

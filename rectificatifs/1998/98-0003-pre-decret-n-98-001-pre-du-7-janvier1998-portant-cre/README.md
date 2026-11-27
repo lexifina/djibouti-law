@@ -1,6 +1,6 @@
 # Rectificatif n° 98-0003/PRE au décret n° 98-001/PRE du 7 janvier1998- Portant création d’une Commission Nationale de Réhabilitation, de Reconstruction et du Développement Régional des Zones touchées par le conflit, de Réinstallation et de Réinsertion des populations réfugiées et déplacées et nommant ses membres.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n98-0003-pre-au-decret-n98-001-pre-du-7-janvier1998-portant-creation-dune-commission-nationale-de-rehabilitation-de-reconstruction-et-du-developpement-regional-des-zones-t/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 1 du 15/01/1998 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n98-0003-pre-au-decret-n98-001-pre-du-7-janvier1998-portant-creation-dune-commission-nationale-de-rehabilitation-de-reconstruction-et-du-developpement-regional-des-zones-t/>
 
 En vigueur : 1998-01-15 (date du Journal officiel qui le publie).
 

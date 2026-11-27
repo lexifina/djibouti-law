@@ -1,6 +1,6 @@
 # Loi n° 30/AN/93/3eme L portant modification de l’article 19 de la loi n° 148/AN/80 portant création et statut du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-93-3eme-l-portant-modification-de-larticle-19-de-la-loi-n148-an-80-portant-creation-et-statut-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-93-3eme-l-portant-modification-de-larticle-19-de-la-loi-n148-an-80-portant-creation-et-statut-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1993-08-31 (date du Journal officiel qui le publie).
 

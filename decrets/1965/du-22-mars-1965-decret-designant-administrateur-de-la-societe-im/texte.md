@@ -1,1 +1,0 @@
-M. Roger Balussou, trésorier-payeur à Djibouti, est désigné en qualité d’administrateur de la Société Immobilière de la Côte Française des Somalis, au titre de représentant du Ministre d’Etat, chargé des départements et territoires d’Outre-Mer et en remplacement de M. Chauvin.

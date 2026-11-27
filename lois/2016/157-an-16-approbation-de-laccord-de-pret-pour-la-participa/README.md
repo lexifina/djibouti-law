@@ -1,6 +1,6 @@
 # Loi n° 157/AN/16/7ème L portant approbation de l’Accord de prêt pour la Participation au financement de la construction du Port de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-16-7eme-l-portant-approbation-de-laccord-de-pret-pour-la-participation-au-financement-de-la-construction-du-port-de-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n157-an-16-7eme-l-portant-approbation-de-laccord-de-pret-pour-la-participation-au-financement-de-la-construction-du-port-de-tadjourah/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

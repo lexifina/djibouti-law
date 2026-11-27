@@ -1,6 +1,6 @@
 # Décret n° 86-026/CAB déclaration la journée du 14 avril 1982, journée de deuil national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-026-cab-declaration-la-journee-du-14-avril-1982-journee-de-deuil-national/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-026-cab-declaration-la-journee-du-14-avril-1982-journee-de-deuil-national/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

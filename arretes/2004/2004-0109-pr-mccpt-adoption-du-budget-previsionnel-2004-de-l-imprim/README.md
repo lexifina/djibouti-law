@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0109/PR/MCCPT portant adoption du Budget Prévisionnel 2004 de l’Imprimerie Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0109-pr-mccpt-portant-adoption-du-budget-previsionnel-2004-de-limprimerie-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0109-pr-mccpt-portant-adoption-du-budget-previsionnel-2004-de-limprimerie-nationale/>
 
 En vigueur : 2004-02-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2008-0097/PR/MS relatif au Code de déontologie des chirurgiens dentistes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/04/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0097-pr-ms-relatif-au-code-de-deontologie-des-chirurgiens-dentistes/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/04/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0097-pr-ms-relatif-au-code-de-deontologie-des-chirurgiens-dentistes/>
 
 En vigueur : 2008-04-15 (date du Journal officiel qui le publie).
 

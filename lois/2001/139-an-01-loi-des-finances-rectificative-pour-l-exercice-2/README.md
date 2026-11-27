@@ -1,6 +1,6 @@
 # Loi n° 139/AN/01/4ème L portant Loi des Finances rectificative pour l’exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-01-4eme-l-portant-loi-des-finances-rectificative-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-01-4eme-l-portant-loi-des-finances-rectificative-pour-lexercice-2001/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

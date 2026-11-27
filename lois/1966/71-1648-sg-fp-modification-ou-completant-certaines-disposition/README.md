@@ -1,6 +1,6 @@
 # Loi n° 71-1648/SG/FP Modification ou complétant certaines dispositions du code de justice militaire institué par la loi n° 65-542 du 8 juillet 1965, du code de procédure pénale et du code pénal.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 10/06/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1648-sg-fp-modification-ou-completant-certaines-dispositions-du-code-de-justice-militaire-institue-par-la-loi-n-65-542-du-8-juillet-1965-du-code-de-procedure-penale-et-du-code-p/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 10/06/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1648-sg-fp-modification-ou-completant-certaines-dispositions-du-code-de-justice-militaire-institue-par-la-loi-n-65-542-du-8-juillet-1965-du-code-de-procedure-penale-et-du-code-p/>
 
 En vigueur : 1972-06-10 (date du Journal officiel qui le publie).
 

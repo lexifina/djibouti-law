@@ -1,6 +1,6 @@
 # Loi n° 83/AN/84/1re L portant approbation du compte financier 1981 de l’établissement public Aéroport de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-84-1re-l-portant-approbation-du-compte-financier-1981-de-letablissement-public-aeroport-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-84-1re-l-portant-approbation-du-compte-financier-1981-de-letablissement-public-aeroport-de-djibouti/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

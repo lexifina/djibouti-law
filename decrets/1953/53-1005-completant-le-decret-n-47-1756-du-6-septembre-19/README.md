@@ -1,6 +1,6 @@
 # Décret n° 53-1005 complétant le décret n° 47-1756 du 6 septembre 1947, déterminant les modalités d’application, dans les Territoires d’Outre-Mer, de la loi n° 46-2385 du 27 octobre 1946 sur la composition et l’élection de l’Assemblée de l’Union Française.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-1005-completant-le-decret-n-47-1756-du-6-septembre-1947-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-de-la-loi-n-46-2385-du-27-octobre-1/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-1005-completant-le-decret-n-47-1756-du-6-septembre-1947-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-de-la-loi-n-46-2385-du-27-octobre-1/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

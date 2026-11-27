@@ -1,6 +1,6 @@
 # Décret n° 2013-196/PR/MDN portant création d’une Brigade d’Identification Criminelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-196-pr-mdn-portant-creation-dune-brigade-didentification-criminelle/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-196-pr-mdn-portant-creation-dune-brigade-didentification-criminelle/>
 
 En vigueur : 2013-08-15 (date du Journal officiel qui le publie).
 

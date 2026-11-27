@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0776/PRE approuvant le projet de budget prévisionnel de l’exercice 2009 du Palais du Peuple.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0776-pre-approuvant-le-projet-de-budget-previsionnel-de-lexercice-2009-du-palais-du-peuple/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0776-pre-approuvant-le-projet-de-budget-previsionnel-de-lexercice-2009-du-palais-du-peuple/>
 
 En vigueur : 2009-10-31 (date du Journal officiel qui le publie).
 

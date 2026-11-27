@@ -1,6 +1,6 @@
 # Décret n° 7 février 1941 Le décret relatif à la prime spéciale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-fevrier-1941-le-decret-relatif-a-la-prime-speciale/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-fevrier-1941-le-decret-relatif-a-la-prime-speciale/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 137/AN/97/3ème L portant ratification de l’Accord de Crédit entre la République de Djibouti et la Banque Mondiale/IDA relatif au Projet Assistance Technique à la Réforme Économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-97-3eme-l-portant-ratification-de-laccord-de-credit-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida-relatif-au-projet-assistance-technique-a-la-reforme-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-97-3eme-l-portant-ratification-de-laccord-de-credit-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida-relatif-au-projet-assistance-technique-a-la-reforme-economique/>
 
-En vigueur : 1997-07-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-07-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

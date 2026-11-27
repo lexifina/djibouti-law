@@ -1,6 +1,6 @@
 # Arrêté n° 2019-072/PR/MERN portant application de l’article 15 de la loi 90/AN/15/7ème L sur l’efficacité énergétique de l’éclairage public.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-072-pr-mern-portant-application-de-larticle-15-de-la-loi-90-an-15-7eme-l-sur-lefficacite-energetique-de-leclairage-public/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-072-pr-mern-portant-application-de-larticle-15-de-la-loi-90-an-15-7eme-l-sur-lefficacite-energetique-de-leclairage-public/>
 
 En vigueur : 2019-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

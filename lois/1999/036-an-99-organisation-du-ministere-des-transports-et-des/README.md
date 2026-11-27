@@ -1,8 +1,8 @@
 # Loi n° 36/AN/99/4ème L portant organisation du Ministère des Transports et des Télécommunications et fixant ses attributions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-99-4eme-l-portant-organisation-du-ministere-des-transports-et-des-telecommunications-et-fixant-ses-attributions/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-99-4eme-l-portant-organisation-du-ministere-des-transports-et-des-telecommunications-et-fixant-ses-attributions/>
 
-En vigueur : 1999-05-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-05-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

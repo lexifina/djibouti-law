@@ -1,6 +1,6 @@
 # Décret n° 6-415-1931 Organisation du personnel des travaux publics et des mines des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 415 du 30/06/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-415-1931-organisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 415 du 30/06/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-415-1931-organisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies/>
 
 En vigueur : 1931-06-30 (date du Journal officiel qui le publie).
 

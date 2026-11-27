@@ -1,6 +1,6 @@
 # Décret n° le 5 octobre 1941. Le décret relatif à l’éloignement des individus dangereux pour la défense nationale ou la sécurité publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 539 du 31/10/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-5-octobre-1941-le-decret-relatif-a-leloignement-des-individus-dangereux-pour-la-defense-nationale-ou-la-securite-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 539 du 31/10/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-5-octobre-1941-le-decret-relatif-a-leloignement-des-individus-dangereux-pour-la-defense-nationale-ou-la-securite-publique/>
 
 En vigueur : 1941-10-31 (date du Journal officiel qui le publie).
 

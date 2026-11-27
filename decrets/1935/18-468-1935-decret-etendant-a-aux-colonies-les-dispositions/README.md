@@ -1,6 +1,6 @@
 # Décret n° 18-468-1935 Décret étendant a aux colonies les dispositions du décret du 8 août 1935 instituant une taxe sur les marchés passés avec diverses collectivités publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-468-1935-decret-etendant-a-aux-colonies-les-dispositions-du-decret-du-8-aout-1935-instituant-une-taxe-sur-les-marches-passes-avec-diverses-collectivites-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-468-1935-decret-etendant-a-aux-colonies-les-dispositions-du-decret-du-8-aout-1935-instituant-une-taxe-sur-les-marches-passes-avec-diverses-collectivites-publiques/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 12-232-1926 LOI relative à l’appel sous les drapeaux de la classe 1917.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-12-232-1926-loi-relative-a-lappel-sous-les-drapeaux-de-la-classe-1917/>
+Loi · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/loi-n-12-232-1926-loi-relative-a-lappel-sous-les-drapeaux-de-la-classe-1917/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 

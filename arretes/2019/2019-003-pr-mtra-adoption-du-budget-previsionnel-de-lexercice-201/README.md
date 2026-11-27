@@ -1,6 +1,6 @@
 # Arrêté n° 2019-003/PR/MTRA portant adoption du budget prévisionnel de l’exercice 2019 de la Caisse Nationale de Sécurité Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-003-pr-mtra-portant-adoption-du-budget-previsionnel-de-lexercice-2019-de-la-caisse-nationale-de-securite-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-003-pr-mtra-portant-adoption-du-budget-previsionnel-de-lexercice-2019-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

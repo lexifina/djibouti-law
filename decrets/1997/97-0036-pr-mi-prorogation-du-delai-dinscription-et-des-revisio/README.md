@@ -1,6 +1,6 @@
 # Décret n° 97-0036/PR/MI portant prorogation du délai d’inscription et des révisions des listes électorales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0036-pr-mi-portant-prorogation-du-delai-dinscription-et-des-revisions-des-listes-electorales/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0036-pr-mi-portant-prorogation-du-delai-dinscription-et-des-revisions-des-listes-electorales/>
 
 En vigueur : 1997-03-31 (date du Journal officiel qui le publie).
 

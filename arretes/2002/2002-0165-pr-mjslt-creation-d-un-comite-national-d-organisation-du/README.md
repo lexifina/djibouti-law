@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0165/PR/MJSLT portant création d’un Comité National d’Organisation du Sixième Semi-Marathon de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0165-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-sixieme-semi-marathon-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0165-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-sixieme-semi-marathon-de-djibouti/>
 
 En vigueur : 2002-02-28 (date du Journal officiel qui le publie).
 

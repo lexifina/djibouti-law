@@ -1,6 +1,6 @@
 # Décret n° 2009-0196/PR/MID portant approbation de la convention instituant le E-Traffic ou la gestion informatisée des permis de conduire et des cartes grises.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0196-pr-mid-portant-approbation-de-la-convention-instituant-le-e-traffic-ou-la-gestion-informatisee-des-permis-de-conduire-et-des-cartes-grises/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0196-pr-mid-portant-approbation-de-la-convention-instituant-le-e-traffic-ou-la-gestion-informatisee-des-permis-de-conduire-et-des-cartes-grises/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

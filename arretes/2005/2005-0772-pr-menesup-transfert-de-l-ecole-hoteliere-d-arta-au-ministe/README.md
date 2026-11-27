@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0772/PR/MENESUP Portant transfert de l’École Hôtelière d’Arta au Ministère de l’Éducation Nationale et de l’Enseignement Supérieur.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0772-pr-menesup-portant-transfert-de-lecole-hoteliere-darta-au-ministere-de-leducation-nationale-et-de-lenseignement-superieur/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0772-pr-menesup-portant-transfert-de-lecole-hoteliere-darta-au-ministere-de-leducation-nationale-et-de-lenseignement-superieur/>
 
 En vigueur : 2005-12-15 (date du Journal officiel qui le publie).
 

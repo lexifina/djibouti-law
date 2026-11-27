@@ -1,6 +1,6 @@
 # Loi n° 104/AN/95/3e L portant approbation des comptes définitifs exercice 1993 de l’Aéroport International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-95-3e-l-portant-approbation-des-comptes-definitifs-exercice-1993-de-laeroport-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/05/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-95-3e-l-portant-approbation-des-comptes-definitifs-exercice-1993-de-laeroport-international-de-djibouti/>
 
 En vigueur : 1996-05-30 (date du Journal officiel qui le publie).
 
@@ -24,5 +24,5 @@ HASSAN GOULED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

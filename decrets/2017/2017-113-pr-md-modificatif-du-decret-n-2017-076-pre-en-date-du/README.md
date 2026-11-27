@@ -1,6 +1,6 @@
 # Décret n° 2017-113/PR/MD portant modificatif du décret n° 2017-076/PRE en date du 21 Février 2017.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-113-pr-md-portant-modificatif-du-decret-n2017-076-pre-en-date-du-21-fevrier-2017/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-113-pr-md-portant-modificatif-du-decret-n2017-076-pre-en-date-du-21-fevrier-2017/>
 
 En vigueur : 2017-03-30 (date du Journal officiel qui le publie).
 

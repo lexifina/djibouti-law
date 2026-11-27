@@ -1,6 +1,6 @@
 # Décret n° 51-1147 modifiant, en ce qui concerne les personnels militaires exclusivement, les dispositions du décret du 3 juillet 1897 portant règlement sur les indemnités de route et de séjour, les concessions de passage et frais de voyage à l’étranger des officiers fonctionnaires, employés et agents civils et militaires des services coloniaux et locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1147-modifiant-en-ce-qui-concerne-les-personnels-militaires-exclusivement-les-dispositions-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1147-modifiant-en-ce-qui-concerne-les-personnels-militaires-exclusivement-les-dispositions-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

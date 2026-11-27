@@ -1,6 +1,6 @@
 # Décret n° 2002-0104/PR/MDN portant ouverture d’un compte hors budget relatif aux dépenses sociales de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0104-pr-mdn-portant-ouverture-dun-compte-hors-budget-relatif-aux-depenses-sociales-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0104-pr-mdn-portant-ouverture-dun-compte-hors-budget-relatif-aux-depenses-sociales-de-la-gendarmerie-nationale/>
 
 En vigueur : 2002-06-30 (date du Journal officiel qui le publie).
 

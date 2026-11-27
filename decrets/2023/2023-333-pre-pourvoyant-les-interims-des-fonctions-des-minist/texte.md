@@ -1,1 +1,0 @@
-Par décret n°2023-333/PRE, du Président de la République, chef du Gouvernement, en date du 08 novembre 2023, pendant la durée de l’absence de S.E.M. ALI HASSAN BAHDON, l’intérim des fonctions du Ministre de la Justice et des Affaires Pénitentiaires, chargé des Droits de l’Homme sera assuré par S.E.M. HASSAN OMAR MOHAMED, Ministre de la Défense cumulativement avec ses fonctions.

@@ -1,6 +1,6 @@
 # Décret n° 11/07/1936 solde et les accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 477 du 31/08/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-07-1936-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 477 du 31/08/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-07-1936-solde-et-les-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1936-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 22-556 relatif au statut particulier des administrateurs civils
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-556-relatif-au-statut-particulier-des-administrateurs-civils/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-556-relatif-au-statut-particulier-des-administrateurs-civils/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ Le secrétaire d’Etat auprès du ministre de l’économie et des finances, ch
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0960/PR/MERN portant approbation du Budget prévisionnel d’Electricité de Djibouti pour l’Exercice 2010.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0960-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2010/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0960-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2010/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

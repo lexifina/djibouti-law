@@ -1,6 +1,6 @@
 # Loi n° 70-595 modifiant l’article 357-2 du Code pénal
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-70-595-modifiant-larticle-357-2-du-code-penal/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-70-595-modifiant-larticle-357-2-du-code-penal/>
 
 En vigueur : 1970-08-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 12/AN/23/9ème L portant création d’un Centre Hospitalier Universitaire (CHU) de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-23-9eme-l-portant-creation-dun-centre-hospitalier-universitaire-chu-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-23-9eme-l-portant-creation-dun-centre-hospitalier-universitaire-chu-de-djibouti/>
 
 En vigueur : 2023-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -64,4 +64,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

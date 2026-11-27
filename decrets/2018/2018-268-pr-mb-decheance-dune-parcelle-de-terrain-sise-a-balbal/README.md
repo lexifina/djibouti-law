@@ -1,8 +1,8 @@
 # Décret n° 2018-268/PR/MB portant la déchéance d’une parcelle de terrain sise à BALBALA PK12
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 13/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-268-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-sise-a-balbala-pk12/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 13/09/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-268-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-sise-a-balbala-pk12/>
 
-En vigueur : 2018-09-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-09-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

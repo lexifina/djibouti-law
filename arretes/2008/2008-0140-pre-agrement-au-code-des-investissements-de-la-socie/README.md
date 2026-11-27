@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0140/PRE portant Agrément au Code des Investissements de la Société Anonyme « Global Fonds Investment » (« GFI ») S.A.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0140-pre-portant-agrement-au-code-des-investissements-de-la-societe-anonyme-global-fonds-investment-gfi-s-a/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0140-pre-portant-agrement-au-code-des-investissements-de-la-societe-anonyme-global-fonds-investment-gfi-s-a/>
 
 En vigueur : 2008-02-28 (date du Journal officiel qui le publie).
 

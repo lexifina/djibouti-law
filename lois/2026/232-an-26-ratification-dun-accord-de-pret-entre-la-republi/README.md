@@ -1,6 +1,6 @@
 # Loi n° 232/AN/26/9ème L Portant ratification d’un Accord de prêt entre la République de Djibouti et la Banque Africaine de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-26-9eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-26-9eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement/>
 
 En vigueur : 2026-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 09/04/1942 étendant aux colonies les dispositions de la loi du 19 janvier 1942 relative aux biens mis sous séquestre en conséquence d’une mesure de sûreté-générale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 547 du 30/06/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-09-04-1942-etendant-aux-colonies-les-dispositions-de-la-loi-du-19-janvier-1942-relative-aux-biens-mis-sous-sequestre-en-consequence-dune-mesure-de-surete-generale/>
+Loi · Journal officiel de la République de Djibouti, n° 547 du 30/06/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-09-04-1942-etendant-aux-colonies-les-dispositions-de-la-loi-du-19-janvier-1942-relative-aux-biens-mis-sous-sequestre-en-consequence-dune-mesure-de-surete-generale/>
 
 En vigueur : 1942-06-30 (date du Journal officiel qui le publie).
 

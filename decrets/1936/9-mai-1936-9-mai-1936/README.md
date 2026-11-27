@@ -1,6 +1,6 @@
 # Décret n° 9 mai 1936 9 mai 1936
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mai-1936-9-mai-1936/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mai-1936-9-mai-1936/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 
@@ -32,5 +32,5 @@ Marcel RÉGNIER.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er — |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art.1er |
+| [art-002.md](art-002.md) | Art. 2 |

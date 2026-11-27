@@ -1,6 +1,6 @@
 # Décret n° 25/06/1942 modifiant le décret du 17 décembre 1928 en ce qui concerne les indemnités pour charges de famille du personnel des cadres coloniaux régis par décret.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 548 du 31/07/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-06-1942-modifiant-le-decret-du-17-decembre-1928-en-ce-qui-concerne-les-indemnites-pour-charges-de-famille-du-personnel-des-cadres-coloniaux-regis-par-decret/>
+Décret · Journal officiel de la République de Djibouti, n° 548 du 31/07/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-06-1942-modifiant-le-decret-du-17-decembre-1928-en-ce-qui-concerne-les-indemnites-pour-charges-de-famille-du-personnel-des-cadres-coloniaux-regis-par-decret/>
 
 En vigueur : 1942-07-31 (date du Journal officiel qui le publie).
 

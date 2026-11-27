@@ -1,6 +1,6 @@
 # Loi n° 4 mars 1942 portant modification de l’article 14 de la loi du 27 mai 1885 sur les récidivistes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-4-mars-1942-portant-modification-de-larticle-14-de-la-loi-du-27-mai-1885-sur-les-recidivistes/>
+Loi · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-4-mars-1942-portant-modification-de-larticle-14-de-la-loi-du-27-mai-1885-sur-les-recidivistes/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

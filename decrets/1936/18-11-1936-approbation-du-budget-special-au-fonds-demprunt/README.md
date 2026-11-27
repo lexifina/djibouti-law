@@ -1,6 +1,6 @@
 # Décret n° 18/11/1936 Approbation du budget spécial au fonds d’emprunt de la Côte française des Somalis (exercice 1936).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-11-1936-approbation-du-budget-special-au-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1936/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-11-1936-approbation-du-budget-special-au-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1936/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Marius MOUTET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

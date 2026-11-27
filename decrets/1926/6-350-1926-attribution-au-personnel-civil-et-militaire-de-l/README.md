@@ -1,6 +1,6 @@
 # Décret n° 6-350-1926 Attribution au personnel civil et militaire de l’Etat d’un acompte sur relèvement de traitements.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 350 du 31/01/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-350-1926-attribution-au-personnel-civil-et-militaire-de-letat-dun-acompte-sur-relevement-de-traitements/>
+Décret · Journal officiel de la République de Djibouti, n° 350 du 31/01/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-350-1926-attribution-au-personnel-civil-et-militaire-de-letat-dun-acompte-sur-relevement-de-traitements/>
 
 En vigueur : 1926-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0167/PR/MI fixant la représentation de chaque district à l’Assemblée Nationale pour les Élections Législatives du vendredi 19 décembre 1997.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0167-pr-mi-fixant-la-representation-de-chaque-district-a-lassemblee-nationale-pour-les-elections-legislatives-du-vendredi-19-decembre-1997/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0167-pr-mi-fixant-la-representation-de-chaque-district-a-lassemblee-nationale-pour-les-elections-legislatives-du-vendredi-19-decembre-1997/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

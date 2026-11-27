@@ -1,6 +1,6 @@
 # Loi n° 72/AN/94/3e L portant unification des services de police et Statut de la Force Nationale de Police.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-94-3e-l-portant-unification-des-services-de-police-et-statut-de-la-force-nationale-de-police/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-94-3e-l-portant-unification-des-services-de-police-et-statut-de-la-force-nationale-de-police/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

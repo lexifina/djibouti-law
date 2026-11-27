@@ -1,8 +1,8 @@
 # Décret n° 2020-198/PRE portant modification de l’article 6 du Décret n° 2010-0083/PRE fixant les attributions, la composition, les modalités d’organisation et de fonctionnement de la Commission Nationale des Marchés Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-198-pre-portant-modification-de-larticle-6-du-decret-n2010-0083-pre-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la-commiss/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-198-pre-portant-modification-de-larticle-6-du-decret-n2010-0083-pre-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la-commiss/>
 
-En vigueur : 2020-08-09 (date fixÃ©e par le texte).
+En vigueur : 2020-08-09 (date fixée par le texte).
 
 ## Visas
 

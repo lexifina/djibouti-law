@@ -1,6 +1,6 @@
 # Loi n° n°6 Loi tendant à l’approbation de l’avenant à Ia convention commerciale entre la France et la Hongrie signé Île 31 décembre 1929
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 428 du 31/07/1932 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n6-loi-tendant-a-lapprobation-de-lavenant-a-ia-convention-commerciale-entre-la-france-et-la-hongrie-signe-ile-31-decembre-1929/>
+Loi · Journal officiel de la République de Djibouti, n° 428 du 31/07/1932 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n6-loi-tendant-a-lapprobation-de-lavenant-a-ia-convention-commerciale-entre-la-france-et-la-hongrie-signe-ile-31-decembre-1929/>
 
 En vigueur : 1932-07-31 (date du Journal officiel qui le publie).
 

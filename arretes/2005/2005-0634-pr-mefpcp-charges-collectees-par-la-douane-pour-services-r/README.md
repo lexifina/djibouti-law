@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0634/PR/MEFPCP Fixant les charges collectées par la douane pour services rendus.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 29/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0634-pr-mefpcp-fixant-les-charges-collectees-par-la-douane-pour-services-rendus/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 29/09/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0634-pr-mefpcp-fixant-les-charges-collectees-par-la-douane-pour-services-rendus/>
 
 En vigueur : 2005-09-29 (date du Journal officiel qui le publie).
 

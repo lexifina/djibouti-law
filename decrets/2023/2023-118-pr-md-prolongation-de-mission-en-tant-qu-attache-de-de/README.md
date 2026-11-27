@@ -1,6 +1,6 @@
 # 2023-118/PR/MD portant prolongation de mission en tant qu’attaché de défense auprès de l’Ambassade de la République de Djibouti en Egypte, le Colonel Osman Doubad Sougouleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-118-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-en-egypte-le-colonel-osman-doubad-sougouleh/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-118-pr-md-portant-prolongation-de-mission-en-tant-quattache-de-defense-aupres-de-lambassade-de-la-republique-de-djibouti-en-egypte-le-colonel-osman-doubad-sougouleh/>
 
 En vigueur : 2023-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

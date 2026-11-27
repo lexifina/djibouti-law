@@ -1,8 +1,8 @@
 # Décret n° 2015-330/PR/MERN modifiant et complétant le Décret n° 2015-153/PR/MERN définissant les modalités d’octroi des licences des activités d’importation, de stockage, de transport et de distribution des hydrocarbures et les modalités du stock stratégique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-330-pr-mern-modifiant-et-completant-le-decret-n2015-153-pr-mern-definissant-les-modalites-doctroi-des-licences-des-activites-dimportation-de-stockage-de-transport-et-de/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-330-pr-mern-modifiant-et-completant-le-decret-n2015-153-pr-mern-definissant-les-modalites-doctroi-des-licences-des-activites-dimportation-de-stockage-de-transport-et-de/>
 
-En vigueur : 2015-12-10 (date fixÃ©e par le texte).
+En vigueur : 2015-12-10 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Décret n° 2020-145/PR/PM portant modification du décret n° 2020-080/PR/PM portant levée partielle des mesures exceptionnelles de prévention contre la propagation du COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-145-pr-pm-portant-modification-du-decret-n-2020-080-pr-pm-portant-levee-partielle-des-mesures-exceptionnelles-de-prevention-contre-la-propagation-du-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-145-pr-pm-portant-modification-du-decret-n-2020-080-pr-pm-portant-levee-partielle-des-mesures-exceptionnelles-de-prevention-contre-la-propagation-du-covid-19/>
 
-En vigueur : 2020-07-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-07-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

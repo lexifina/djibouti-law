@@ -1,6 +1,6 @@
 # Décret n° 05-132-1907 17/01/1907
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 132 du 01/11/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-132-1907-17-01-1907/>
+Décret · Journal officiel de la République de Djibouti, n° 132 du 01/11/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-132-1907-17-01-1907/>
 
 En vigueur : 1907-11-01 (date du Journal officiel qui le publie).
 

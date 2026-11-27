@@ -1,6 +1,6 @@
 # Loi n° Loi n° 201/AN/86/1ère L portant ratification de l’accord portant création de l' »Autorité intergouvernementale sur la Sécheresse et le Développement » (IGADD) en Afrique de l’Est.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-nloi-n201-an-86-1ere-l-portant-ratification-de-laccord-portant-creation-de-lautorite-intergouvernementale-sur-la-secheresse-et-le-developpement-igadd-en-afrique-de-lest/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-nloi-n201-an-86-1ere-l-portant-ratification-de-laccord-portant-creation-de-lautorite-intergouvernementale-sur-la-secheresse-et-le-developpement-igadd-en-afrique-de-lest/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

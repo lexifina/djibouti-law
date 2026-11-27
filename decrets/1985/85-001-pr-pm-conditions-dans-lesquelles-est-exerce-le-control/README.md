@@ -1,6 +1,6 @@
 # Décret n° 85-001/PR/PM Fixant les conditions dans lesquelles est exercé le contrôle des constructions, achats et ventes des navires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-001-pr-pm-fixant-les-conditions-dans-lesquelles-est-exerce-le-controle-des-constructions-achats-et-ventes-des-navires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-001-pr-pm-fixant-les-conditions-dans-lesquelles-est-exerce-le-controle-des-constructions-achats-et-ventes-des-navires/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ HASSAN GOULED APTIDON.
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

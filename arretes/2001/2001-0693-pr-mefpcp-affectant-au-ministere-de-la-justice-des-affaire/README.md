@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0693/PR/MEFPCP affectant au Ministère de la Justice, des Affaires Pénitentiaires et Musulmanes une parcelle de terrain bâtie, sise au plateau de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0693-pr-mefpcp-affectant-au-ministere-de-la-justice-des-affaires-penitentiaires-et-musulmanes-une-parcelle-de-terrain-batie-sise-au-plateau-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0693-pr-mefpcp-affectant-au-ministere-de-la-justice-des-affaires-penitentiaires-et-musulmanes-une-parcelle-de-terrain-batie-sise-au-plateau-de-djibouti/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

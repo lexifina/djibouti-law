@@ -1,6 +1,6 @@
 # Décret n° 80-090/PR portant statuts de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-090-pr-portant-statuts-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/03/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-090-pr-portant-statuts-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1981-03-01 (date du Journal officiel qui le publie).
 
@@ -57,4 +57,4 @@ HASSAN GOULED APTIDON
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0749/PR/MPICRP portant Agrément au Code des Investissements de la Société « TRANSVRAC ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0749-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-transvrac/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0749-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-transvrac/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

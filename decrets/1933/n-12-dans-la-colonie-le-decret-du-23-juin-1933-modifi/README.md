@@ -1,6 +1,6 @@
 # Décret n° n°12 dans la colonie le décret du 23 juin 1933 modifiant les règles d’allo- cation de la haute paye des militaires européen condamnés en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 440 du 31/07/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-dans-la-colonie-le-decret-du-23-juin-1933-modifiant-les-regles-dallo-cation-de-la-haute-paye-des-militaires-europeen-condamnes-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 440 du 31/07/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-dans-la-colonie-le-decret-du-23-juin-1933-modifiant-les-regles-dallo-cation-de-la-haute-paye-des-militaires-europeen-condamnes-en-service-aux-colonies/>
 
 En vigueur : 1933-07-31 (date du Journal officiel qui le publie).
 

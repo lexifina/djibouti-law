@@ -1,6 +1,6 @@
 # Décret n° 7-403-1930 Service des militaires de la gendarmerie détachés aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 403 du 30/06/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-403-1930-service-des-militaires-de-la-gendarmerie-detaches-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 403 du 30/06/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-403-1930-service-des-militaires-de-la-gendarmerie-detaches-aux-colonies/>
 
 En vigueur : 1930-06-30 (date du Journal officiel qui le publie).
 

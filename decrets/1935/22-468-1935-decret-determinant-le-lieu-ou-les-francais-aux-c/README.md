@@ -1,6 +1,6 @@
 # Décret n° 22-468-1935 Décret déterminant le lieu où les Français aux colonies accomplissent leur service actif.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-468-1935-decret-determinant-le-lieu-ou-les-francais-aux-colonies-accomplissent-leur-service-actif/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-468-1935-decret-determinant-le-lieu-ou-les-francais-aux-colonies-accomplissent-leur-service-actif/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

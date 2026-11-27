@@ -1,6 +1,6 @@
 # Décret n° 6-338-1925 A LA CONVENTION DU 8 MARS 1909 RELATIVE A LA CONCESSION DU CHEMIN DE FER DE DJIBOUTI A ADDIS-ABEBA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 338 du 31/01/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-338-1925-a-la-convention-du-8-mars-1909-relative-a-la-concession-du-chemin-de-fer-de-djibouti-a-addis-abeba/>
+Décret · Journal officiel de la République de Djibouti, n° 338 du 31/01/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-338-1925-a-la-convention-du-8-mars-1909-relative-a-la-concession-du-chemin-de-fer-de-djibouti-a-addis-abeba/>
 
 En vigueur : 1925-01-31 (date du Journal officiel qui le publie).
 

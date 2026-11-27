@@ -1,6 +1,6 @@
 # Décret n° n°19 Le décret relatif aux crimes et délits contre la sûreté de ‘l’Etat en ce qui touche la protection des ouvra- ces fortifiés et des établissements militaires et maritimes aux colonies.,….
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-le-decret-relatif-aux-crimes-et-delits-contre-la-surete-de-letat-en-ce-qui-touche-la-protection-des-ouvra-ces-fortifies-et-des-etablissements-militaires-et-maritimes-aux/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-le-decret-relatif-aux-crimes-et-delits-contre-la-surete-de-letat-en-ce-qui-touche-la-protection-des-ouvra-ces-fortifies-et-des-etablissements-militaires-et-maritimes-aux/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

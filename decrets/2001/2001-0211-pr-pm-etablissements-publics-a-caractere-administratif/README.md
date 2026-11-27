@@ -1,6 +1,6 @@
 # Décret n° 2001-0211/PR/PM relatif aux établissements publics à caractère administratif réglementant la période transitoire des entreprises publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0211-pr-pm-relatif-aux-etablissements-publics-a-caractere-administratif-reglementant-la-periode-transitoire-des-entreprises-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0211-pr-pm-relatif-aux-etablissements-publics-a-caractere-administratif-reglementant-la-periode-transitoire-des-entreprises-publiques/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

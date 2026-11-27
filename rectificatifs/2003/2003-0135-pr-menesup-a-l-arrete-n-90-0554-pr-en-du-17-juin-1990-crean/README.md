@@ -1,8 +1,8 @@
 # Additif n° 2003-0135/PR/MENESUP à l’arrêté n° 90-0554/PR/EN du 17 juin 1990 créant et organisant le recrutement, la formation et la certification des personnels enseignants du second degré.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2003-0135-pr-menesup-a-larrete-n90-0554-pr-en-du-17-juin-1990-creant-et-organisant-le-recrutement-la-formation-et-la-certification-des-personnels-enseignants-du-second-d/>
+Additif · Journal officiel de la République de Djibouti, n° 4 du 27/02/2003 · <https://www.journalofficiel.dj/texte-juridique/additif-n2003-0135-pr-menesup-a-larrete-n90-0554-pr-en-du-17-juin-1990-creant-et-organisant-le-recrutement-la-formation-et-la-certification-des-personnels-enseignants-du-second-d/>
 
-En vigueur : 2003-02-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-02-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

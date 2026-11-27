@@ -1,6 +1,6 @@
 # Décret n° 61-454 portant transformation de l’office administratif central des postes et télécommunications d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-454-portant-transformation-de-loffice-administratif-central-des-postes-et-telecommunications-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-454-portant-transformation-de-loffice-administratif-central-des-postes-et-telecommunications-doutre-mer/>
 
 En vigueur : 1961-05-31 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ Le secrétaire d’Etat aux finances,
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

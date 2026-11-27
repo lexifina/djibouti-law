@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0276/PR/MAPCPI portant approbation du Budget prévisionnel du CERD pour l’année 2007.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0276-pr-mapcpi-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2007/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0276-pr-mapcpi-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2007/>
 
 En vigueur : 2007-03-31 (date du Journal officiel qui le publie).
 

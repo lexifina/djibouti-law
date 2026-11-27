@@ -1,6 +1,6 @@
 # Décret n° 10-475-1936 promulguant dans la colonie décret du 28 mai 1936 rendant applicables aux colonies françaises, pays de protectorut et territoires sous mandat dépendant du Ministère des colonies les dispositions de la loi du 16 juillet 1934 et du décret du 16 août 1935, relatifs aux droits des obligataires d’un même emprunt.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-475-1936-promulguant-dans-la-colonie-decret-du-28-mai-1936-rendant-applicables-aux-colonies-francaises-pays-de-protectorut-et-territoires-sous-mandat-dependant-du-ministere-des-col/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-475-1936-promulguant-dans-la-colonie-decret-du-28-mai-1936-rendant-applicables-aux-colonies-francaises-pays-de-protectorut-et-territoires-sous-mandat-dependant-du-ministere-des-col/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ A. ANNET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

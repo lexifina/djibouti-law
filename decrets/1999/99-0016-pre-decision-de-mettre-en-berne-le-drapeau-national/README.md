@@ -1,6 +1,6 @@
 # Décret n° 99-0016/PRE portant décision de mettre en berne le drapeau national en raison du décès du Roi Hussein 1er de Jordanie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0016-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-du-roi-hussein-1er-de-jordanie/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0016-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-du-roi-hussein-1er-de-jordanie/>
 
 En vigueur : 1999-02-15 (date du Journal officiel qui le publie).
 

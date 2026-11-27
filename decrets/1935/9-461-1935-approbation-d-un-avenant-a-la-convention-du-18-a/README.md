@@ -1,6 +1,6 @@
 # Décret n° 9-461-1935 Approbation d’un avenant à la convention du 18 avril 1901, annexée au décret du 18 avril 1901, portant concession d’un entrepôt réel de douanes et de magasins généraux à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 461 du 30/04/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-461-1935-approbation-dun-avenant-a-la-convention-du-18-avril-1901-annexee-au-decret-du-18-avril-1901-portant-concession-dun-entrepot-reel-de-douanes-et-de-magasin/>
+Décret · Journal officiel de la République de Djibouti, n° 461 du 30/04/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-461-1935-approbation-dun-avenant-a-la-convention-du-18-avril-1901-annexee-au-decret-du-18-avril-1901-portant-concession-dun-entrepot-reel-de-douanes-et-de-magasin/>
 
 En vigueur : 1935-04-30 (date du Journal officiel qui le publie).
 

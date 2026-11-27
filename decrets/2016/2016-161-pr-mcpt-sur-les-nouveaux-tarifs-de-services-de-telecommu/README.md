@@ -1,6 +1,6 @@
 # Décret n° 2016-161/PR/MCPT sur les nouveaux tarifs de services de télécommunications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-161-pr-mcpt-sur-les-nouveaux-tarifs-de-services-de-telecommunications/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-161-pr-mcpt-sur-les-nouveaux-tarifs-de-services-de-telecommunications/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 17-219-1915 Une convention
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 219 du 31/01/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-219-1915-une-convention/>
+Décret · Journal officiel de la République de Djibouti, n° 219 du 31/01/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-219-1915-une-convention/>
 
 En vigueur : 1915-01-31 (date du Journal officiel qui le publie).
 

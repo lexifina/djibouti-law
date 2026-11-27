@@ -1,6 +1,6 @@
 # Décret n° DU 2 NOVEMBRE 1945 portant abrogation de certaines dispositions du décret n°45 1563 du 16 juillet 1945 portant application aux territoires du Ministère des Colonies de l’ordonnance n 45-86 du 16 janvier 1945 relatif au recensement des avoirs à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-novembre-1945-portant-abrogation-de-certaines-dispositions-du-decret-n45-1563-du-16-juillet-1945-portant-application-aux-territoires-du-ministere-des-colonies-de-lo/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-novembre-1945-portant-abrogation-de-certaines-dispositions-du-decret-n45-1563-du-16-juillet-1945-portant-application-aux-territoires-du-ministere-des-colonies-de-lo/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

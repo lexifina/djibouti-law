@@ -1,6 +1,6 @@
 # Décret n° 45-1608 portant fixation du maximum des mandats d’articles d’argent échangés dans les relations entre la France et l’Algérie, d’un, part, le Maroc et les colonies françaises d’autre part.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1608-portant-fixation-du-maximum-des-mandats-darticles-dargent-echanges-dans-les-relations-entre-la-france-et-lalgerie-dun-part-le-maroc-et-les-colonies-fra/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1608-portant-fixation-du-maximum-des-mandats-darticles-dargent-echanges-dans-les-relations-entre-la-france-et-lalgerie-dun-part-le-maroc-et-les-colonies-fra/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

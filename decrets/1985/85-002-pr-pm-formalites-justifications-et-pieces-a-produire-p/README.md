@@ -1,6 +1,6 @@
 # Décret n° 85-002/PR/PM fixant les formalités, justifications et pièces à produire pour l’obtention des Titres de nationalité des navires et les conditions de modification ou de retrait de ces titres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-002-pr-pm-fixant-les-formalites-justifications-et-pieces-a-produire-pour-lobtention-des-titres-de-nationalite-des-navires-et-les-conditions-de-modification-ou-de-retrait-de-ces-tit/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-002-pr-pm-fixant-les-formalites-justifications-et-pieces-a-produire-pour-lobtention-des-titres-de-nationalite-des-navires-et-les-conditions-de-modification-ou-de-retrait-de-ces-tit/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

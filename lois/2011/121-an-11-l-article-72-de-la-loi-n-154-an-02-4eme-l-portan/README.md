@@ -1,6 +1,6 @@
 # Loi n° 121/AN/11/6ème L modifiant l’article 72 de la Loi n° 154/AN/02/4ème L portant codification du fonctionnement de l’OPS et du régime général de retraite des travailleurs salariés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-11-6eme-l-modifiant-larticle-72-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-s/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-11-6eme-l-modifiant-larticle-72-de-la-loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-s/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

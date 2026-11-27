@@ -1,6 +1,6 @@
 # Décret n° 83-023/PR/MI portant prorogation d’un an du délai prévu à l’article 1er du décret n° 81-131/PR d’application des dispositions prévues par la loi n° 200/AN/81 du 24 octobre 1981 portant Code de la Nationalité Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/03/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-023-pr-mi-portant-prorogation-dun-an-du-delai-prevu-a-larticle-1er-du-decret-n-81-131-pr-dapplication-des-dispositions-prevues-par-la-loi-n-200-an-81-du-24-octobre-1/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/03/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-023-pr-mi-portant-prorogation-dun-an-du-delai-prevu-a-larticle-1er-du-decret-n-81-131-pr-dapplication-des-dispositions-prevues-par-la-loi-n-200-an-81-du-24-octobre-1/>
 
 En vigueur : 1983-03-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ LE CONSEIL DES MINISTRES ENTENDU DANS SA SEANCE DU 22 FÉVRIER 1983.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

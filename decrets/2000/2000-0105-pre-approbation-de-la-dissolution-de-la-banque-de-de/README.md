@@ -1,6 +1,6 @@
 # Décret n° 2000-0105/PRE portant approbation de la dissolution de la Banque de Développement de Djibouti, Société d’Economie Mixte.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0105-pre-portant-approbation-de-la-dissolution-de-la-banque-de-developpement-de-djibouti-societe-deconomie-mixte/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0105-pre-portant-approbation-de-la-dissolution-de-la-banque-de-developpement-de-djibouti-societe-deconomie-mixte/>
 
 En vigueur : 2000-04-30 (date du Journal officiel qui le publie).
 

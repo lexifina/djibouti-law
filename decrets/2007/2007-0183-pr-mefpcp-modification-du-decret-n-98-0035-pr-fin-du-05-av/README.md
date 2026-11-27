@@ -1,6 +1,6 @@
 # Décret n° 2007-0183/PR/MEFPCP portant modification du Décret n° 98-0035/PR/FIN du 05 avril 1998, rationnalisant l’octroi des indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0183-pr-mefpcp-portant-modification-du-decret-n98-0035-pr-fin-du-05-avril-1998-rationnalisant-loctroi-des-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0183-pr-mefpcp-portant-modification-du-decret-n98-0035-pr-fin-du-05-avril-1998-rationnalisant-loctroi-des-indemnites/>
 
 En vigueur : 2007-09-15 (date du Journal officiel qui le publie).
 

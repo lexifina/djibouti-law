@@ -1,6 +1,6 @@
 # Loi n° 53-681 portant amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/10/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-681-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 01/10/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-681-portant-amnistie/>
 
 En vigueur : 1953-10-01 (date du Journal officiel qui le publie).
 

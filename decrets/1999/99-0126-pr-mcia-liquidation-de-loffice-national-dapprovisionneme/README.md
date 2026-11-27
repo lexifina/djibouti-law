@@ -1,8 +1,8 @@
 # Décret n° 99-0126/PR/MCIA portant liquidation de l’Office National d’Approvisionnement et de Commercialisation (ONAC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0126-pr-mcia-portant-liquidation-de-loffice-national-dapprovisionnement-et-de-commercialisation-onac/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0126-pr-mcia-portant-liquidation-de-loffice-national-dapprovisionnement-et-de-commercialisation-onac/>
 
-En vigueur : 1999-08-14 (date fixÃ©e par le texte).
+En vigueur : 1999-08-14 (date fixée par le texte).
 
 ## Visas
 

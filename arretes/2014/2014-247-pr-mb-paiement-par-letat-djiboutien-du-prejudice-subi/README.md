@@ -1,6 +1,6 @@
 # Arrêté n° 2014-247/PR/MB portant paiement par l’Etat djiboutien du préjudice subi suite à la démolition par erreur des locaux de la succession Djama Ahmed Ibrahim objet du titre foncier n° 4337 par la Préfecture de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-247-pr-mb-portant-paiement-par-letat-djiboutien-du-prejudice-subi-suite-a-la-demolition-par-erreur-des-locaux-de-la-succession-djama-ahmed-ibrahim-objet-du-titre-foncier-n4/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-247-pr-mb-portant-paiement-par-letat-djiboutien-du-prejudice-subi-suite-a-la-demolition-par-erreur-des-locaux-de-la-succession-djama-ahmed-ibrahim-objet-du-titre-foncier-n4/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

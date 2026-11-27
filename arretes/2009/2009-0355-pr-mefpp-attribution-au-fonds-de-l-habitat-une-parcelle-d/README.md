@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0355/PR/MEFPP portant attribution au Fonds de l’Habitat, une parcelle de terrain sise à Hodane à distraire du TF 5159 appartenant à la SID.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0355-pr-mefpp-portant-attribution-au-fonds-de-lhabitat-une-parcelle-de-terrain-sise-hodane-distraire-du-tf-5159-appartenant-la-sid/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 14/05/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0355-pr-mefpp-portant-attribution-au-fonds-de-lhabitat-une-parcelle-de-terrain-sise-hodane-distraire-du-tf-5159-appartenant-la-sid/>
 
 En vigueur : 2009-05-14 (date du Journal officiel qui le publie).
 

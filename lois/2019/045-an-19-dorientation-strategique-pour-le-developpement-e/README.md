@@ -1,6 +1,6 @@
 # Loi n° 45/AN/19/8ème L d’orientation stratégique pour le développement et la promotion du tourisme en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-19-8eme-l-dorientation-strategique-pour-le-developpement-et-la-promotion-du-tourisme-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n45-an-19-8eme-l-dorientation-strategique-pour-le-developpement-et-la-promotion-du-tourisme-en-republique-de-djibouti/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -91,4 +91,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

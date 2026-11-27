@@ -1,6 +1,6 @@
 # Décret n° 72-806 portant codification des textes réglementaires relatifs au service national et fixant la date d’entrée en vigueur du code du service national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-806-portant-codification-des-textes-reglementaires-relatifs-au-service-national-et-fixant-la-date-dentree-en-vigueur-du-code-du-service-national/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-806-portant-codification-des-textes-reglementaires-relatifs-au-service-national-et-fixant-la-date-dentree-en-vigueur-du-code-du-service-national/>
 
 En vigueur : 1972-10-10 (date du Journal officiel qui le publie).
 

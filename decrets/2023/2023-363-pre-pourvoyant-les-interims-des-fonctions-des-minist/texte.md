@@ -1,2 +1,0 @@
-Par décret n°2023-363/PRE, du Président de la République, chef du Gouvernement, en date du 05 décembre 2023, pendant la durée de l’absence de S.E.M. ILYAS MOUSSA DAWALEH, l’intérim des fonctions du Ministre de l’Economie et des Finances, chargé de l’Industrie sera assuré par S.E.M. SAID NOUH HASSAN, Ministre de l’Intérieur cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

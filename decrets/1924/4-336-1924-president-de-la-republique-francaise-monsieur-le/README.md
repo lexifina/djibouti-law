@@ -1,6 +1,6 @@
 # Décret n° 4-336-1924 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE, Monsieur le Président,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 336 du 30/11/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-336-1924-au-president-de-la-republique-francaise-monsieur-le-president/>
+Décret · Journal officiel de la République de Djibouti, n° 336 du 30/11/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-336-1924-au-president-de-la-republique-francaise-monsieur-le-president/>
 
 En vigueur : 1924-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2015-704/PR/MB portant modification de l’arrêté n° 2008-490/PRE du 24 juillet 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-704-pr-mb-portant-modification-de-larrete-n2008-490-pre-du-24-juillet-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-704-pr-mb-portant-modification-de-larrete-n2008-490-pre-du-24-juillet-2008/>
 
 En vigueur : 2015-11-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

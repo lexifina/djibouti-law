@@ -1,6 +1,6 @@
 # Décret n° 81-077/PR Portant MESURES DE GRÂCE COLLECTIVES.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-077-pr-portant-mesures-de-grace-collectives/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-077-pr-portant-mesures-de-grace-collectives/>
 
 En vigueur : 1981-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 12/AN/03/5ème L portant approbation des comptes financiers de la Caisse Nationale de Retraites (CNR) pour l’exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-03-5eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-cnr-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-03-5eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-cnr-pour-lexercice-2001/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

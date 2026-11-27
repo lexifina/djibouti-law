@@ -1,6 +1,6 @@
 # Loi n° 69/AN/89/2ème L portant création du cahier des charges applicables au lotissement « Hayabeley » (secteurs 3 et 4).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-89-2eme-l-portant-creation-du-cahier-des-charges-applicables-au-lotissement-hayabeley-secteurs-3-et-4/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-89-2eme-l-portant-creation-du-cahier-des-charges-applicables-au-lotissement-hayabeley-secteurs-3-et-4/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

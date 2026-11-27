@@ -1,6 +1,6 @@
 # Loi n° 86/AN/00/4ème L portant approbation des comptes financiers de la Société Immobilière de Djibouti pour l’exercice 1998.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-1998/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-1998/>
 
 En vigueur : 2000-07-15 (date du Journal officiel qui le publie).
 

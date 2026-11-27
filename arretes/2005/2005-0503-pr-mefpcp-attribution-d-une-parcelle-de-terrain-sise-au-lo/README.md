@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0503/PR/MEFPCP Portant attribution d’une parcelle de terrain sise au Lotissement Héron.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0503-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-heron/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0503-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-sise-au-lotissement-heron/>
 
 En vigueur : 2005-09-15 (date du Journal officiel qui le publie).
 

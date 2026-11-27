@@ -1,6 +1,6 @@
 # Décret n° 21-216-1914 le 10 Octobre 1914.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 216 du 31/10/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-216-1914-le-10-octobre-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 216 du 31/10/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-216-1914-le-10-octobre-1914/>
 
 En vigueur : 1914-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 98-0164/PR/MEFPCP portant réglementation de la détention et de la circulation sur le territoire des cigarettes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1998 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0164-pr-mefpcp-portant-reglementation-de-la-detention-et-de-la-circulation-sur-le-territoire-des-cigarettes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/1998 · <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0164-pr-mefpcp-portant-reglementation-de-la-detention-et-de-la-circulation-sur-le-territoire-des-cigarettes/>
 
 En vigueur : 1998-03-31 (date du Journal officiel qui le publie).
 

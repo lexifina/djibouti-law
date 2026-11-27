@@ -1,6 +1,6 @@
 # Décret n° 72-967 fixant les attributions de l’inspecteur des forces extérieures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 10/12/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-967-fixant-les-attributions-de-linspecteur-des-forces-exterieures/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 10/12/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-967-fixant-les-attributions-de-linspecteur-des-forces-exterieures/>
 
 En vigueur : 1972-12-10 (date du Journal officiel qui le publie).
 

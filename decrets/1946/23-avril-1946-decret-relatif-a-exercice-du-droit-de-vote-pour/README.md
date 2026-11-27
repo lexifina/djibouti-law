@@ -1,6 +1,6 @@
 # Décret n° 23 Avril 1946 Décret relatif à ‘exercice du droit de vote pour les militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-avril-1946-decret-relatif-a-exercice-du-droit-de-vote-pour-les-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-avril-1946-decret-relatif-a-exercice-du-droit-de-vote-pour-les-militaires/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 

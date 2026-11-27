@@ -1,6 +1,6 @@
 # Décret n° 95-0020/PR/MEC rendant exécutoire la délibération n° 3/95 du Décembre 1995 du Conseil d’Administration de l’Office National d’Approvisionnement et de Commercialisation portant approbation du Budget prévisionnel de l’O.N.A.C. Exercice 1995 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0020-pr-mec-rendant-executoire-la-deliberation-n-3-95-du-decembre-1995-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-po/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0020-pr-mec-rendant-executoire-la-deliberation-n-3-95-du-decembre-1995-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-po/>
 
 En vigueur : 1995-02-15 (date du Journal officiel qui le publie).
 

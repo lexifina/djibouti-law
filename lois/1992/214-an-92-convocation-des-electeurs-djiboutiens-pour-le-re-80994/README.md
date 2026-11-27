@@ -1,6 +1,6 @@
 # Loi n° 214/AN/92/2e L portant convocation des Electeurs djiboutiens pour le référendum au 4 Septembre 1992
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-92-2e-l-portant-convocation-des-electeurs-djiboutiens-pour-le-referendum-au-4-septembre-1992/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-92-2e-l-portant-convocation-des-electeurs-djiboutiens-pour-le-referendum-au-4-septembre-1992/>
 
 En vigueur : 1992-08-31 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Vu le décret n° 92-01 1PRE du 23 janvier 1992, portant nomination du ministra 
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

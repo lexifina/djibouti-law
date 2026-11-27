@@ -1,6 +1,6 @@
 # Décret n° 90-144/PR/INT rendant exécutoire la délibération n° 05/90 du 22 novembre 1990 du conseil d’administration de l’Office des Postes et Télécommunications portant approbation du budget prévisionnel pour l’exercice 1991.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-144-pr-int-rendant-executoire-la-deliberation-n05-90-du-22-novembre-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budge/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-144-pr-int-rendant-executoire-la-deliberation-n05-90-du-22-novembre-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-du-budge/>
 
 En vigueur : 1990-12-31 (date du Journal officiel qui le publie).
 

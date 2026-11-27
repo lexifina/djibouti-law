@@ -1,6 +1,6 @@
 # Arrêté n° 2014-801/PR/MENFP approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2015 du CRIPEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-801-pr-menfp-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-du-cripen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-801-pr-menfp-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-du-cripen/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

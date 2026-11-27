@@ -1,6 +1,6 @@
 # Décret n° 63-891 portant réglement d’administration publique pour l’application de l’article 86 du Code disciplinaire et pénal de la Marine Marchande relatif aux enquêtes sur pertes de navires, abordages et autre accident de mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-891-portant-reglement-dadministration-publique-pour-lapplication-de-larticle-86-du-code-disciplinaire-et-penal-de-la-marine-marchande-relatif-aux-enquetes/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-891-portant-reglement-dadministration-publique-pour-lapplication-de-larticle-86-du-code-disciplinaire-et-penal-de-la-marine-marchande-relatif-aux-enquetes/>
 
 En vigueur : 1965-07-01 (date du Journal officiel qui le publie).
 

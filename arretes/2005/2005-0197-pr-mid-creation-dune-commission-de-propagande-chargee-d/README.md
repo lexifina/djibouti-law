@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0197/PR/MID Portant création d’une commission de propagande chargée de donner son avis sur les prix des documents électoraux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 07/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0197-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electoraux/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 07/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0197-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electoraux/>
 
 En vigueur : 2005-04-07 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 121/AN/05/5ème L Portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Africaine de Développement (BAD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-bad/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement-bad/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

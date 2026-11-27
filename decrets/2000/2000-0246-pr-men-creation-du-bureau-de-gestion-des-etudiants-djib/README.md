@@ -1,8 +1,8 @@
 # Décret n° 2000-0246/PR/MEN portant création du Bureau de Gestion des Etudiants Djiboutiens en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 16/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0246-pr-men-portant-creation-du-bureau-de-gestion-des-etudiants-djiboutiens-en-france/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 16/09/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0246-pr-men-portant-creation-du-bureau-de-gestion-des-etudiants-djiboutiens-en-france/>
 
-En vigueur : 2000-09-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-09-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

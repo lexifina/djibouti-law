@@ -1,6 +1,6 @@
 # Loi n° 29 décembre 1934 facilitant l’acquisition de véhicules ou trac terurs automobiles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-29-decembre-1934-facilitant-lacquisition-de-vehicules-ou-trac-terurs-automobiles/>
+Loi · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/loi-n-29-decembre-1934-facilitant-lacquisition-de-vehicules-ou-trac-terurs-automobiles/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2-15-1900 26 Juillet 1900
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/10/1900 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-15-1900-26-juillet-1900/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/10/1900 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-15-1900-26-juillet-1900/>
 
 En vigueur : 1900-10-01 (date du Journal officiel qui le publie).
 

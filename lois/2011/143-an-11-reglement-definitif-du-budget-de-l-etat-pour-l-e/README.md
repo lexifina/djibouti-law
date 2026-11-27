@@ -1,6 +1,6 @@
 # Loi n° 143/AN/11/6ème L portant règlement définitif du budget de l’Etat pour l’exercice 2010.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-11-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2010/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-11-6eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2010/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

@@ -1,1 +1,0 @@
-Par décret n°2023-220/PRE, du Président de la République, Chef du Gouvernement, en date du 25 juillet 2023, pendant la durée de l’absence de S.E.Mme. OULOUFA ABDO ISMAIL, l’intérim des fonctions de Mme. la Ministre des Affaires Sociales et des Solidarités sera assuré par S.E.M. KASSIM HAROUN ALI, Ministre Délégué chargé de la Décentralisation cumulativement avec ses fonctions.

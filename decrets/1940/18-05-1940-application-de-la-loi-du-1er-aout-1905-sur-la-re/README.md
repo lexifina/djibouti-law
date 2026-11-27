@@ -1,6 +1,6 @@
 # Décret n° 18/05/1940 portant application de la loi du 1er août 1905 sur la répression des fraudes à la Côte française des Somalis .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 527 du 31/10/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-05-1940-portant-application-de-la-loi-du-1er-aout-1905-sur-la-repression-des-fraudes-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-05-1940-portant-application-de-la-loi-du-1er-aout-1905-sur-la-repression-des-fraudes-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
 
@@ -34,7 +34,7 @@ Georges MANDEL.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [art-014.md](art-014.md) | Art. 14 — |
+| [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
@@ -56,4 +56,4 @@ Georges MANDEL.
 | [art-033.md](art-033.md) | Art. 33 |
 | [art-034.md](art-034.md) | Art. 34 |
 | [art-035.md](art-035.md) | Art. 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

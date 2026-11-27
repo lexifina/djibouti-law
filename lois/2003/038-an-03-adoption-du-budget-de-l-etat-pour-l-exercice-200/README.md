@@ -1,6 +1,6 @@
 # Loi n° 38/AN/03/5ème L portant Adoption du Budget de l’État pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-03-5eme-l-portant-adoption-du-budget-de-letat-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-03-5eme-l-portant-adoption-du-budget-de-letat-pour-lexercice-2004/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 

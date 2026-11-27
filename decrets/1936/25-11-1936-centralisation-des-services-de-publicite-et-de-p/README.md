@@ -1,6 +1,6 @@
 # Décret n° 25/11/1936 Centralisation des services de publicité et de propagande du ministère des colonies sous l’autorité d’un fonctionnaire relevant du ministère.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-11-1936-centralisation-des-services-de-publicite-et-de-propagande-du-ministere-des-colonies-sous-lautorite-dun-fonctionnaire-relevant-du-ministere/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-11-1936-centralisation-des-services-de-publicite-et-de-propagande-du-ministere-des-colonies-sous-lautorite-dun-fonctionnaire-relevant-du-ministere/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

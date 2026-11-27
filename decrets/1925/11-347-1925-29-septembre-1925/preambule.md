@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — En altendant la mise en opplicalion des résultats de la revision générale des traitements el soldes, il sera alloué au personnel civil et militaire de l’Etat appelé à bénéficier de cette réforme un acomple
 sur relèvement de traitement.
 Le montant de cet acompte est fixé à 300 franes, dont les deux liers, soit 200 franes, seront payés avant le 15 octobre 1925 et le troisième liers, soil 100 franes, sera mis en payement dans la seconde moilié du mois de novembre 1995 .

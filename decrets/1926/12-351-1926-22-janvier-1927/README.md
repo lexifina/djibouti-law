@@ -1,6 +1,6 @@
 # Décret n° 12-351-1926 22 janvier 1927
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 351 du 01/02/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-351-1926-22-janvier-1927/>
+Décret · Journal officiel de la République de Djibouti, n° 351 du 01/02/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-351-1926-22-janvier-1927/>
 
 En vigueur : 1926-02-01 (date du Journal officiel qui le publie).
 
@@ -31,7 +31,7 @@ Paul Doumer.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art.2– |
+| [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art.4— |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art.4 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 60-811 modifiant le décret n° 58-90 du 12 juillet 1958 portant prorogation des délais d’exécution du second plan quadriennal (J.O.R.F. du 7 août 1960, p. 7367). Arrêté de promulgation n° 920 du 18 août 1960.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-811-modifiant-le-decret-n-58-90-du-12-juillet-1958-portant-prorogation-des-delais-dexecution-du-second-plan-quadriennal-j-o-r-f-du-7-aout-1960-p-7367-arrete-de-promulg/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-811-modifiant-le-decret-n-58-90-du-12-juillet-1958-portant-prorogation-des-delais-dexecution-du-second-plan-quadriennal-j-o-r-f-du-7-aout-1960-p-7367-arrete-de-promulg/>
 
 En vigueur : 1960-08-31 (date du Journal officiel qui le publie).
 

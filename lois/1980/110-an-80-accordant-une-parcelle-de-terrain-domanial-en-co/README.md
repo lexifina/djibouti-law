@@ -1,6 +1,6 @@
 # Loi n° 110/AN/80 accordant une parcelle de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-80-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-80-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

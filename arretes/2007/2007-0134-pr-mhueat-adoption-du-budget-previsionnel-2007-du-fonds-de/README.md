@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0134/PR/MHUEAT portant adoption du budget prévisionnel 2007 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0134-pr-mhueat-portant-adoption-du-budget-previsionnel-2007-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0134-pr-mhueat-portant-adoption-du-budget-previsionnel-2007-du-fonds-de-lhabitat/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 46/AN/19/8ème L modifiant et complétant le Code de Procédure Civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n46-an-19-8eme-l-modifiant-et-completant-le-code-de-procedure-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n46-an-19-8eme-l-modifiant-et-completant-le-code-de-procedure-civile/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

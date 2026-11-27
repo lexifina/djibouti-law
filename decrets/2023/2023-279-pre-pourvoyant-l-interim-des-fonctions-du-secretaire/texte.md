@@ -1,2 +1,0 @@
-Par décret n°2023-279/PRE, du Président de la République, Chef du Gouvernement, en date du 14 septembre 2023, durant l’absence de M. Mohamed Abdillahi Wais, Secrétaire Général de la Présidence, du 17 au 28 Septembre 2023, l’intérim des fonctions sera assuré par M. Mohamed Sadek Saleh, Directeur de Cabinet cumulativement avec ses fonctions.
-Le présent décret sera publié au Journal Officiel de la République de Djibouti.

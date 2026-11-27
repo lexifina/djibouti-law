@@ -1,6 +1,6 @@
 # Arrêté n° 2015-051/PR/MS portant adoption du projet du Budget Prévisionnel 2015 de la CAMME.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-051-pr-ms-portant-adoption-du-projet-du-budget-previsionnel-2015-de-la-camme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-051-pr-ms-portant-adoption-du-projet-du-budget-previsionnel-2015-de-la-camme/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

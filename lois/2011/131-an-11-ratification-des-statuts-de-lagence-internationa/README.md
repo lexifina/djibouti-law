@@ -1,6 +1,6 @@
 # Loi n° 131/AN/11/6ème L portant ratification des Statuts de l’Agence Internationale des Energies Renouvelables (IRENA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-11-6eme-l-portant-ratification-des-statuts-de-lagence-internationale-des-energies-renouvelables-irena/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 14/04/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-11-6eme-l-portant-ratification-des-statuts-de-lagence-internationale-des-energies-renouvelables-irena/>
 
 En vigueur : 2011-04-14 (date du Journal officiel qui le publie).
 

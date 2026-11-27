@@ -1,6 +1,6 @@
 # Arrêté n° 2015-570/PR/MAMCBW portant composition des membres du Conseil d’Administration de l’Office Djiboutien de Droit d’Auteur et Droit Voisin (ODDA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-570-pr-mamcbw-portant-composition-des-membres-du-conseil-dadministration-de-loffice-djiboutien-de-droit-dauteur-et-droit-voisin-odda/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-570-pr-mamcbw-portant-composition-des-membres-du-conseil-dadministration-de-loffice-djiboutien-de-droit-dauteur-et-droit-voisin-odda/>
 
 En vigueur : 2015-09-15 (date du Journal officiel qui le publie).
 

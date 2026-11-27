@@ -1,6 +1,6 @@
 # Décret n° 4-360-1926 Modification de l’article 252 du décret du 30 décembre 1912 sur le régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 360 du 30/11/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-360-1926-modification-de-larticle-252-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 360 du 30/11/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-360-1926-modification-de-larticle-252-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
 
 En vigueur : 1926-11-30 (date du Journal officiel qui le publie).
 

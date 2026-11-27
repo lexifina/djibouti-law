@@ -1,6 +1,6 @@
 # Loi n° 48/AN/83/1ère L portant statut général des fonctionnaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-83-1ere-l-portant-statut-general-des-fonctionnaires/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-83-1ere-l-portant-statut-general-des-fonctionnaires/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -79,4 +79,4 @@ HASSAN GOULED APTIDON
 | [art-060.md](art-060.md) | Article 60 |
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

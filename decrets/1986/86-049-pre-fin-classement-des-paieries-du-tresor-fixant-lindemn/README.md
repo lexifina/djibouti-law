@@ -1,6 +1,6 @@
 # Décret n° 86-049/PRE/FIN portant classement des paieries du Trésor, fixant l’indemnité mensuelle de responsabilité et le montant du cautionnement à constituer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-049-pre-fin-portant-classement-des-paieries-du-tresor-fixant-lindemnite-mensuelle-de-responsabilite-et-le-montant-du-cautionnement-a-constituer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/07/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-049-pre-fin-portant-classement-des-paieries-du-tresor-fixant-lindemnite-mensuelle-de-responsabilite-et-le-montant-du-cautionnement-a-constituer/>
 
 En vigueur : 1986-07-31 (date du Journal officiel qui le publie).
 

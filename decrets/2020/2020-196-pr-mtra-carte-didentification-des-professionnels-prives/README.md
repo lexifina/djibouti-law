@@ -1,6 +1,6 @@
 # Décret n° 2020-196/PR/MTRA instituant la carte d’identification des professionnels privés, entrepreneurs de travail temporaire, salariés effectuant des travaux de tous types.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-196-pr-mtra-instituant-la-carte-didentification-des-professionnels-prives-entrepreneurs-de-travail-temporaire-salaries-effectuant-des-travaux-de-tous-types/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-196-pr-mtra-instituant-la-carte-didentification-des-professionnels-prives-entrepreneurs-de-travail-temporaire-salaries-effectuant-des-travaux-de-tous-types/>
 
 En vigueur : 2020-08-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

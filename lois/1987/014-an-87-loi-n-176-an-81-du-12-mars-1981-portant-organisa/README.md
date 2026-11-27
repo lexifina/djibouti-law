@@ -1,6 +1,6 @@
 # Loi n° 14/AN/87/2ème L modifiant la loi n° 176/AN/81 du 12 mars 1981, portant organisation de l’administration centrale du Ministère de l’Intérieur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-87-2eme-l-modifiant-la-loi-n-176-an-81-du-12-mars-1981-portant-organisation-de-ladministration-centrale-du-ministere-de-linterieur/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-87-2eme-l-modifiant-la-loi-n-176-an-81-du-12-mars-1981-portant-organisation-de-ladministration-centrale-du-ministere-de-linterieur/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # 2023-071/PR/MIE portant dégradation d’un officier de la Garde-Côtes Djiboutienne, sous-lieutenant Mohamed Ibrahim Said.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-071-pr-mie-portant-degradation-dun-officier-de-la-garde-cotes-djiboutienne-sous-lieutenant-mohamed-ibrahim-said/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-071-pr-mie-portant-degradation-dun-officier-de-la-garde-cotes-djiboutienne-sous-lieutenant-mohamed-ibrahim-said/>
 
 En vigueur : 2023-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

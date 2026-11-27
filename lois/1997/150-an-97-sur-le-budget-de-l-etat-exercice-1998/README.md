@@ -1,8 +1,8 @@
 # Loi de finances n° 150/AN/97/3ème L portant sur le budget de l’État exercice 1998.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n150-an-97-3eme-l-portant-sur-le-budget-de-letat-exercice-1998/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n150-an-97-3eme-l-portant-sur-le-budget-de-letat-exercice-1998/>
 
-En vigueur : 1998-01-01 (date fixÃ©e par le texte).
+En vigueur : 1998-01-01 (date fixée par le texte).
 
 ## Visas
 

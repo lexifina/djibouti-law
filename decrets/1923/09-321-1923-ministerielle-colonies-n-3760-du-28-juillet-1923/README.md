@@ -1,6 +1,6 @@
 # Décret n° 09-321-1923 ministérielle (colonies) n° 3760, du 28 juillet 1923, relative au paiement des mandats périmées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 321 du 31/08/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-321-1923-ministerielle-colonies-n-3760-du-28-juillet-1923-relative-au-paiement-des-mandats-perimees/>
+Décret · Journal officiel de la République de Djibouti, n° 321 du 31/08/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-321-1923-ministerielle-colonies-n-3760-du-28-juillet-1923-relative-au-paiement-des-mandats-perimees/>
 
 En vigueur : 1923-08-31 (date du Journal officiel qui le publie).
 

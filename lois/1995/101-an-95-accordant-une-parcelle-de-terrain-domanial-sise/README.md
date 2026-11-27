@@ -1,6 +1,6 @@
 # Loi n° 101/AN/95/3e L accordant une parcelle de terrain domanial sise dans le lotissement de la zone STID.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-95-3e-l-accordant-une-parcelle-de-terrain-domanial-sise-dans-le-lotissement-de-la-zone-stid/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-95-3e-l-accordant-une-parcelle-de-terrain-domanial-sise-dans-le-lotissement-de-la-zone-stid/>
 
 En vigueur : 1996-04-15 (date du Journal officiel qui le publie).
 
@@ -19,7 +19,7 @@ HASSAN GOULED APITIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

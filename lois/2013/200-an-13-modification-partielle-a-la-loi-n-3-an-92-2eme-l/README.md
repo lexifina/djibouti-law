@@ -1,6 +1,6 @@
 # Loi n° 200/AN/13/6ème L portant modification partielle à la Loi n° 3/AN/92/2ème L du 28 octobre 1992 portant réorganisation de la Caisse Nationale de Retraites.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-13-6eme-l-portant-modification-partielle-a-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retraites/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-13-6eme-l-portant-modification-partielle-a-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retraites/>
 
 En vigueur : 2013-02-28 (date du Journal officiel qui le publie).
 

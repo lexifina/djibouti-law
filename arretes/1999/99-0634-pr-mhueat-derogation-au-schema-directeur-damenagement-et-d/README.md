@@ -1,6 +1,6 @@
 # Arrêté n° 99-0634/PR/MHUEAT portant dérogation au Schéma Directeur d’Aménagement et d’Urbanisme en vigueur relatif au déclassement en zone d’activités de terrains sis aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0634-pr-mhueat-portant-derogation-au-schema-directeur-damenagement-et-durbanisme-en-vigueur-relatif-au-declassement-en-zone-dactivites-de-terrains-sis-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 16/10/1999 · <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0634-pr-mhueat-portant-derogation-au-schema-directeur-damenagement-et-durbanisme-en-vigueur-relatif-au-declassement-en-zone-dactivites-de-terrains-sis-aux-salines-ouest/>
 
 En vigueur : 1999-10-16 (date du Journal officiel qui le publie).
 

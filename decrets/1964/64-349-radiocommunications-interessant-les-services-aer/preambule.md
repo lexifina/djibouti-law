@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Section 1
 Généralités.

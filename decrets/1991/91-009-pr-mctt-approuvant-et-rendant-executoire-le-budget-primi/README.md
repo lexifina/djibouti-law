@@ -1,6 +1,6 @@
 # Décret n° 91-009/PR/MCTT approuvant et rendant exécutoire le budget primitif 1991 de l’Office National d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-009-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1991-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-009-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1991-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

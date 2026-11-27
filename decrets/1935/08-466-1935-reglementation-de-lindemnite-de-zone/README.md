@@ -1,6 +1,6 @@
 # Décret n° 08-466-1935 Réglementation de l’indemnité de zone.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 466 du 30/09/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-466-1935-reglementation-de-lindemnite-de-zone/>
+Décret · Journal officiel de la République de Djibouti, n° 466 du 30/09/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-466-1935-reglementation-de-lindemnite-de-zone/>
 
 En vigueur : 1935-09-30 (date du Journal officiel qui le publie).
 

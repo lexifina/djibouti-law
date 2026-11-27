@@ -1,6 +1,6 @@
 # Décret n° le 20 janvier 1940 étendant aux colonies et territoires africains sous mandat le décret du 20 janvier 1940, prohibant ou réglementant, en temps de guerre, l’exportation des capitaux, les opérations de change et le commerce de l’or.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-20-janvier-1940-etendant-aux-colonies-et-territoires-africains-sous-mandat-le-decret-du-20-janvier-1940-prohibant-ou-reglementant-en-temps-de-guerre-lexportation-des-cap/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-20-janvier-1940-etendant-aux-colonies-et-territoires-africains-sous-mandat-le-decret-du-20-janvier-1940-prohibant-ou-reglementant-en-temps-de-guerre-lexportation-des-cap/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

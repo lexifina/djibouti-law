@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 A. ARMÉES DU NORD ET DU NORD-EST
 1° Etats-majors de divisions actives d’infanterie et de cavalerie, états-majors de brigades actives ou anciennement dites de réserve),
 d’infanterie et de cavalerie, états-majors de commandements d’infanterie des divisions actives ou anciennement dites de réserve).

@@ -1,6 +1,6 @@
 # Loi n° 37/AN/19/8ème L portant modification partielle de l’article 72 de la loi n° 121/AN/11/6ème L
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-19-8eme-l-portant-modification-partielle-de-larticle-72-de-la-loi-n121-an-11-6eme-l/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-19-8eme-l-portant-modification-partielle-de-larticle-72-de-la-loi-n121-an-11-6eme-l/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 2021-018/PR/MERN portant octroi de la licence administrative des activités de vente et de distribution du Kérosène.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-018-pr-mern-portant-octroi-de-la-licence-administrative-des-activites-de-vente-et-de-distribution-du-kerosene/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-018-pr-mern-portant-octroi-de-la-licence-administrative-des-activites-de-vente-et-de-distribution-du-kerosene/>
 
 En vigueur : 2021-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

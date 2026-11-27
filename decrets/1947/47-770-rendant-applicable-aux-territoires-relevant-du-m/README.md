@@ -1,6 +1,6 @@
 # Décret n° 47-770 rendant applicable aux territoires relevant du ministère de la. France d outre-mer, le titre II de la loi n° 46-1889 du 28 aoûte 1946 relative au contrôle des inscription sur les listes électorales et la procédure des inscriptions d’urgence.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-770-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-d-outre-mer-le-titre-ii-de-la-loi-n-46-1889-du-28-aoute-1946-relative-au-controle-des-inscription/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-770-rendant-applicable-aux-territoires-relevant-du-ministere-de-la-france-d-outre-mer-le-titre-ii-de-la-loi-n-46-1889-du-28-aoute-1946-relative-au-controle-des-inscription/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

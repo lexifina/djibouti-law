@@ -1,6 +1,6 @@
 # Arrêté n° 2015-203/PR/SEJS portant création du Comité National d’Organisation de la 19 ème Edition du Semi-Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-203-pr-sejs-portant-creation-du-comite-national-dorganisation-de-la-19-eme-edition-du-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-203-pr-sejs-portant-creation-du-comite-national-dorganisation-de-la-19-eme-edition-du-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2015-03-31 (date du Journal officiel qui le publie).
 

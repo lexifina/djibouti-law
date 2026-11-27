@@ -1,6 +1,6 @@
 # Loi n° 202/AN/86/1ère L portant approbation d’une convention de crédit entre la République de Djibouti et la Caisse centrale de Coopération économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-86-1ere-l-portant-approbation-dune-convention-de-credit-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 31/05/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-86-1ere-l-portant-approbation-dune-convention-de-credit-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
 
 En vigueur : 1986-05-31 (date du Journal officiel qui le publie).
 

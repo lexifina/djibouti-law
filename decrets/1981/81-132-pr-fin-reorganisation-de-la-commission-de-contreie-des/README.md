@@ -1,6 +1,6 @@
 # Décret n° 81-132/PR/FIN portant réorganisation de la commission de Contréie des piéces et films cinématographiques et des disques phonographiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-132-pr-fin-portant-reorganisation-de-la-commission-de-contreie-des-pieces-et-films-cinematographiques-et-des-disques-phonographiques/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-132-pr-fin-portant-reorganisation-de-la-commission-de-contreie-des-pieces-et-films-cinematographiques-et-des-disques-phonographiques/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Vu larrété n° 79-0143/PR/MI du 7 février 1979 fixant la composition de la co
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

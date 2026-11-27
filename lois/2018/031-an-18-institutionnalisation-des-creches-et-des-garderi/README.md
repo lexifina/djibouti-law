@@ -1,8 +1,8 @@
 # Loi n° 31/AN/18/8ème L portant institutionnalisation des crèches et des garderies.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-18-8eme-l-portant-institutionnalisation-des-creches-et-des-garderies/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-18-8eme-l-portant-institutionnalisation-des-creches-et-des-garderies/>
 
-En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

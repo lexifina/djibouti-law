@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0485/PR/MCIA Arrêté portant création d’un Comité Technique de modernisation de la Législation Nationale en matière de Commerce.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0485-pr-mcia-arrete-portant-creation-dun-comite-technique-de-modernisation-de-la-legislation-nationale-en-matiere-de-commerce/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0485-pr-mcia-arrete-portant-creation-dun-comite-technique-de-modernisation-de-la-legislation-nationale-en-matiere-de-commerce/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

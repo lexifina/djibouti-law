@@ -1,6 +1,6 @@
 # Décret n° 99-0190/PR/MCC portant création du Centre de Formation Artistique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0190-pr-mcc-portant-creation-du-centre-de-formation-artistique/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0190-pr-mcc-portant-creation-du-centre-de-formation-artistique/>
 
 En vigueur : 1999-10-16 (date du Journal officiel qui le publie).
 

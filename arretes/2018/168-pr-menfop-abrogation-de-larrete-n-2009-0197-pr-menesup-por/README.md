@@ -1,6 +1,6 @@
 # Arrêté n° 168/PR/MENFOP portant abrogation de l’arrêté n° 2009-0197/PR/MENESUP portant création des Conseils d’Etablissements et Comités de Gestion des Etablissements scolaires et réglementant les partenariats avec les Associations des Parents d’Elèves. Et créant le conseil d’éta
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n168-pr-menfop-portant-abrogation-de-larrete-n2009-0197-pr-menesup-portant-creation-des-conseils-detablissements-et-comites-de-gestion-des-etablissements-scolaires-et-reglementa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n168-pr-menfop-portant-abrogation-de-larrete-n2009-0197-pr-menesup-portant-creation-des-conseils-detablissements-et-comites-de-gestion-des-etablissements-scolaires-et-reglementa/>
 
 En vigueur : 2018-11-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

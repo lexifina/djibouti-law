@@ -1,6 +1,6 @@
 # Décret n° 93-0036/PR/MEC Approuvant le budget de la Chambre Internationale de Commerce et des Magasins Généraux exercice 1993.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0036-pr-mec-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1993/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0036-pr-mec-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1993/>
 
 En vigueur : 1993-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 3-363-1927 Déplacements en France du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 363 du 01/02/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-363-1927-deplacements-en-france-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 363 du 01/02/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-363-1927-deplacements-en-france-du-personnel-colonial/>
 
 En vigueur : 1927-02-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 106/AN/00/4ème L portant sur le cadre de l’Environnement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-00-4eme-l-portant-sur-le-cadre-de-lenvironnement/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-00-4eme-l-portant-sur-le-cadre-de-lenvironnement/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 
@@ -90,4 +90,4 @@ ISMAÏL OMAR GUELLEH
 | [art-066.md](art-066.md) | Article 66 |
 | [art-067.md](art-067.md) | Article 67 |
 | [art-068.md](art-068.md) | Article 68 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

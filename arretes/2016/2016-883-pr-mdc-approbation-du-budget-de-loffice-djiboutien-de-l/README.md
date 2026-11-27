@@ -1,6 +1,6 @@
 # Arrêté n° 2016-883/PR/MDC portant approbation du Budget de l’Office Djiboutien de la Propriété Industrielle et Commerciale de l’année 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-883-pr-mdc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-883-pr-mdc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2017/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

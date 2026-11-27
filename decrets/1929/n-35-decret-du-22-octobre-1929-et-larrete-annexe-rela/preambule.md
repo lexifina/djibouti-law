@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1°. L’article 254 du décret du 30 décembre 1912 est modifié ainsi qu’il suit :
 « Les dépenses à faire hors d’une colonie pour le service local de cette colonie sont ffectuées en vertu d’ordres de payement établis au titre du burget intéressé et émis, en France et en Agérie, par le Ministre des Colonies, ou les chefs de service compétenits aux colonies, par Les ordonnateurs du service local.
 » Elles sont acquittées, en France, em Algérie. dans les colonies et pays de protectorat par les comptables du Trésor, pour le compte du caisser-payeur central du Trésor publie. »

@@ -1,6 +1,6 @@
 # Décret n° 2007-0163/PR/MEFPCP relatif à la mise en place de crédit d’avance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0163-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0163-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

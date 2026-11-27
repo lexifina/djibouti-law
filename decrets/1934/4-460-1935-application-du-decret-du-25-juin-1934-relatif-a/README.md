@@ -1,6 +1,6 @@
 # Décret n° 4-460-1935 Application du décret du 25 juin 1934 relatif à l’organisation de la comptabilité de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 460 du 31/03/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-460-1935-application-du-decret-du-25-juin-1934-relatif-a-lorganisation-de-la-comptabilite-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 460 du 31/03/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-460-1935-application-du-decret-du-25-juin-1934-relatif-a-lorganisation-de-la-comptabilite-de-letat/>
 
 En vigueur : 1935-03-31 (date du Journal officiel qui le publie).
 

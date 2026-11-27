@@ -1,6 +1,6 @@
 # Décret n° 2023-104/PR/MJC relatif au comité de lutte contre de lutte contre les drogues et l’al-coolisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-104-pr-mjc-relatif-au-comite-de-lutte-contre-de-lutte-contre-les-drogues-et-lal-coolisme/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-104-pr-mjc-relatif-au-comite-de-lutte-contre-de-lutte-contre-les-drogues-et-lal-coolisme/>
 
 En vigueur : 2023-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

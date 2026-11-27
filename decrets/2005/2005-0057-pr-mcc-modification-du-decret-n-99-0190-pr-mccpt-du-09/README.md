@@ -1,6 +1,6 @@
 # Décret n° 2005-0057/PR/MCC portant modification du décret n° 99-0190/PR/MCCPT du 09/10/1999 portant création du Centre de Formation Artistique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0057-pr-mcc-portant-modification-du-decret-n99-0190-pr-mccpt-du-09-10-1999-portant-creation-du-centre-de-formation-artistique/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0057-pr-mcc-portant-modification-du-decret-n99-0190-pr-mccpt-du-09-10-1999-portant-creation-du-centre-de-formation-artistique/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

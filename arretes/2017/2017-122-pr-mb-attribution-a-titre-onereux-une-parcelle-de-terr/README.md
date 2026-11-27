@@ -1,6 +1,6 @@
 # Arrêté n° 2017-122/PR/MB portant attribution à titre onéreux une parcelle de terrain au profit du GROUPE AL-GAMIL.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-122-pr-mb-portant-attribution-a-titre-onereux-une-parcelle-de-terrain-au-profit-du-groupe-al-gamil/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-122-pr-mb-portant-attribution-a-titre-onereux-une-parcelle-de-terrain-au-profit-du-groupe-al-gamil/>
 
 En vigueur : 2017-07-31 (date du Journal officiel qui le publie).
 

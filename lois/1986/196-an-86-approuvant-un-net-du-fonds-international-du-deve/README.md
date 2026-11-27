@@ -1,6 +1,6 @@
 # Loi n° 196/AN/86/1ère L approuvant un net du Fonds International du Développement Agricole.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/02/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-86-1ere-l-approuvant-un-net-du-fonds-international-du-developpement-agricole/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/02/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-86-1ere-l-approuvant-un-net-du-fonds-international-du-developpement-agricole/>
 
 En vigueur : 1986-02-16 (date du Journal officiel qui le publie).
 

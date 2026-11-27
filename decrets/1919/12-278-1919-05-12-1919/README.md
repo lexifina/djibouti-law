@@ -1,6 +1,6 @@
 # Décret n° 12-278-1919 05/12/1919
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 278 du 31/12/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-278-1919-05-12-1919/>
+Décret · Journal officiel de la République de Djibouti, n° 278 du 31/12/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-278-1919-05-12-1919/>
 
 En vigueur : 1919-12-31 (date du Journal officiel qui le publie).
 

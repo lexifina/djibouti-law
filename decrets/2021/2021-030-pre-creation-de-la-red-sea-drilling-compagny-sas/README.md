@@ -1,8 +1,8 @@
 # Décret n° 2021-030/PRE portant création de la “RED SEA DRILLING COMPAGNY SAS”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-030-pre-portant-creation-de-la-red-sea-drilling-compagny-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-030-pre-portant-creation-de-la-red-sea-drilling-compagny-sas/>
 
-En vigueur : 2021-02-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-02-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

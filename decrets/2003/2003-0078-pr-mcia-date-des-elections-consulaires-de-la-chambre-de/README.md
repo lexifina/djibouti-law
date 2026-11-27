@@ -1,6 +1,6 @@
 # Décret n° 2003-0078/PR/MCIA fixant la date des élections consulaires de la Chambre de Commerce de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0078-pr-mcia-fixant-la-date-des-elections-consulaires-de-la-chambre-de-commerce-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0078-pr-mcia-fixant-la-date-des-elections-consulaires-de-la-chambre-de-commerce-de-djibouti/>
 
 En vigueur : 2003-05-15 (date du Journal officiel qui le publie).
 

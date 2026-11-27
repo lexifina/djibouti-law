@@ -1,6 +1,6 @@
 # Décret n° 61-447 Arrêté portant organisation du service d’État de l’aviation civile d’intérêt général en Côte française des Somalis (J.O.R.F.)du 17 décembre 1961, p. 11597).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-447-arrete-portant-organisation-du-service-detat-de-laviation-civile-dinteret-general-en-cote-francaise-des-somalis-j-o-r-f-du-17-decembre-1961-p-11597/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-447-arrete-portant-organisation-du-service-detat-de-laviation-civile-dinteret-general-en-cote-francaise-des-somalis-j-o-r-f-du-17-decembre-1961-p-11597/>
 
 En vigueur : 1961-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ J. DE BROGLIE.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

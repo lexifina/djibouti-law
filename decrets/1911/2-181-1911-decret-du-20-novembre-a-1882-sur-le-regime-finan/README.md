@@ -1,6 +1,6 @@
 # Décret n° 2-181-1911 modifiant le décret du 20 novembre à 1882 sur le régime financier des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 181 du 01/12/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-181-1911-modifiant-le-decret-du-20-novembre-a-1882-sur-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 181 du 01/12/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-181-1911-modifiant-le-decret-du-20-novembre-a-1882-sur-le-regime-financier-des-colonies/>
 
 En vigueur : 1911-12-01 (date du Journal officiel qui le publie).
 

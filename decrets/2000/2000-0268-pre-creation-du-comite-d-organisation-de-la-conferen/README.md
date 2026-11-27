@@ -1,6 +1,6 @@
 # Décret n° 2000-0268/PRE portant création du Comité d’Organisation de la Conférence des Pays de la Corne d’Afrique et des Pays du Golfe d’Aden sur les Problèmes des Mines Anti-Personnelles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0268-pre-portant-creation-du-comite-dorganisation-de-la-conference-des-pays-de-la-corne-dafrique-et-des-pays-du-golfe-daden-sur-les-problemes-des-mines-an/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0268-pre-portant-creation-du-comite-dorganisation-de-la-conference-des-pays-de-la-corne-dafrique-et-des-pays-du-golfe-daden-sur-les-problemes-des-mines-an/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 39/AN/14/7ème L portant ratification de l’accord de financement du projet de construction de la route Tadjourah-Balho financé par le Fonds Koweïtien pour le Développement Economique Arabe (KFAED).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-de-la-route-tadjourah-balho-finance-par-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-de-la-route-tadjourah-balho-finance-par-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 

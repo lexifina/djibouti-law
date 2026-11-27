@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0400/PR/MI portant changement de nom d’une Rue de la Ville.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0400-pr-mi-portant-changement-de-nom-dune-rue-de-la-ville/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0400-pr-mi-portant-changement-de-nom-dune-rue-de-la-ville/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

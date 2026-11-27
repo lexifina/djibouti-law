@@ -1,6 +1,6 @@
 # Loi n° 214/AN/17/7ème L Portant ratification du protocole d’accord entre le Gouvernement de la République de Djibouti et le Gouvernement de la République Fédérale Démocratique d’Ethiopie relatif à la Création d’un Poste Frontalier Commun.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-17-7eme-l-portant-ratification-du-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-federale-democratique-dethiopie-relat/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-17-7eme-l-portant-ratification-du-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-federale-democratique-dethiopie-relat/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 73-437 relatif aux attributions du ministre des départements et territoires d’outre-mer (J.O.R.F n° 89 du 14 avril 1973) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 25/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-437-relatif-aux-attributions-du-ministre-des-departements-et-territoires-doutre-mer-j-o-r-f-n-89-du-14-avril-1973/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 25/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-437-relatif-aux-attributions-du-ministre-des-departements-et-territoires-doutre-mer-j-o-r-f-n-89-du-14-avril-1973/>
 
 En vigueur : 1973-04-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2016-246/PR/MI portant prolongation de l’heure de la fermeture des bureaux de vote pour les Elections Présidentielles du 08 Avril 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 20/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-246-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-08-avril-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 20/04/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-246-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-08-avril-2016/>
 
 En vigueur : 2016-04-20 (date du Journal officiel qui le publie).
 

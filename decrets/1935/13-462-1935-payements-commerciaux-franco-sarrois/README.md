@@ -1,6 +1,6 @@
 # Décret n° 13-462-1935 Payements commerciaux franco-sarrois.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-462-1935-payements-commerciaux-franco-sarrois/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-462-1935-payements-commerciaux-franco-sarrois/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2000-0017/PR/MEN définissant les conditions d’accès au Baccalauréat Professionnel, section “Gestion et Maintenance des Installations Énergétiques de Froid et Climatisation”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0017-pr-men-definissant-les-conditions-dacces-au-baccalaureat-professionnel-section-gestion-et-maintenance-des-installations-energetiques-de-froid-et-climatisatio/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0017-pr-men-definissant-les-conditions-dacces-au-baccalaureat-professionnel-section-gestion-et-maintenance-des-installations-energetiques-de-froid-et-climatisatio/>
 
-En vigueur : 2000-01-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-01-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

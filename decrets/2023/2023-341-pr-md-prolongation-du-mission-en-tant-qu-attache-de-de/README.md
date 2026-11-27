@@ -1,6 +1,6 @@
 # Décrets n° 2023-341/PR/MD portant prolongation du mission en tant qu’attaché de défense auprès des Ambassades de la République de Djibouti à l’extérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decrets-n-2023-341-pr-md-portant-prolongation-du-mission-en-tant-quattache-de-defense-aupres-des-ambassades-de-la-republique-de-djibouti-a-lexterieur/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2023 · <https://www.journalofficiel.dj/texte-juridique/decrets-n-2023-341-pr-md-portant-prolongation-du-mission-en-tant-quattache-de-defense-aupres-des-ambassades-de-la-republique-de-djibouti-a-lexterieur/>
 
 En vigueur : 2023-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

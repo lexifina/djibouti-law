@@ -1,6 +1,6 @@
 # Loi n° 68-696 relative aux forclusions encourues du fait des événements de mai et juin 1968 et prorogeant divers délais
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1968 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-68-696-relative-aux-forclusions-encourues-du-fait-des-evenements-de-mai-et-juin-1968-et-prorogeant-divers-delais/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 10/10/1968 · <https://www.journalofficiel.dj/texte-juridique/loi-n-68-696-relative-aux-forclusions-encourues-du-fait-des-evenements-de-mai-et-juin-1968-et-prorogeant-divers-delais/>
 
 En vigueur : 1968-10-10 (date du Journal officiel qui le publie).
 

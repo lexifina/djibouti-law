@@ -1,6 +1,6 @@
 # Loi n° 205/AN/86/1èreL fixant les dispositions particulières du régime général de retraite des travailleurs applicable au cours de la période allant du 1er janvier 1986 au 31 décembre 1990.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n205-an-86-1erel-fixant-les-dispositions-particulieres-du-regime-general-de-retraite-des-travailleurs-applicable-au-cours-de-la-periode-allant-du-1er-janvier-1986-au-31-decembre-1990/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n205-an-86-1erel-fixant-les-dispositions-particulieres-du-regime-general-de-retraite-des-travailleurs-applicable-au-cours-de-la-periode-allant-du-1er-janvier-1986-au-31-decembre-1990/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2020-296/PR/MCPT portant renouvellement du conseil d’administration de l’Imprimerie Nationale de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-296-pr-mcpt-portant-renouvellement-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-296-pr-mcpt-portant-renouvellement-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

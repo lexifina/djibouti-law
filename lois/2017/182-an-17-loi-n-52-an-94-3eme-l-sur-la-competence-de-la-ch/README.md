@@ -1,8 +1,8 @@
 # Loi n° 182/AN/17/7ème L modifiant la Loi n° 52/AN/94/3ème L sur la compétence de la Chambre Civile et de la Chambre Commerciale du Tribunal de Première Instance et de la Cour d’Appel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-17-7eme-l-modifiant-la-loi-n52-an-94-3eme-l-sur-la-competence-de-la-chambre-civile-et-de-la-chambre-commerciale-du-tribunal-de-premiere-instance-et-de-la-cour-dappel/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-17-7eme-l-modifiant-la-loi-n52-an-94-3eme-l-sur-la-competence-de-la-chambre-civile-et-de-la-chambre-commerciale-du-tribunal-de-premiere-instance-et-de-la-cour-dappel/>
 
-En vigueur : 2017-05-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-05-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

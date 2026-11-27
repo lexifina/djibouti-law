@@ -1,8 +1,8 @@
 # Décret n° 2018-181/PR/MI portant Reconnaissance d’Utilité Publique l’Association Union Nationale des Femmes Djiboutiennes (UNFD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-181-pr-mi-portant-reconnaissance-dutilite-publique-lassociation-union-nationale-des-femmes-djiboutiennes-unfd/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-181-pr-mi-portant-reconnaissance-dutilite-publique-lassociation-union-nationale-des-femmes-djiboutiennes-unfd/>
 
-En vigueur : 2018-05-23 (date fixÃ©e par le texte).
+En vigueur : 2018-05-23 (date fixée par le texte).
 
 ## Visas
 

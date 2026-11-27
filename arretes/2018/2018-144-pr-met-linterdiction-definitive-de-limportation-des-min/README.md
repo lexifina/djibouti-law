@@ -1,6 +1,6 @@
 # Arrêté n° 2018-144/PR/MET portant l’interdiction définitive de l’importation des minibus en République de Djibouti
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-144-pr-met-portant-linterdiction-definitive-de-limportation-des-minibus-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-144-pr-met-portant-linterdiction-definitive-de-limportation-des-minibus-en-republique-de-djibouti/>
 
 En vigueur : 2018-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

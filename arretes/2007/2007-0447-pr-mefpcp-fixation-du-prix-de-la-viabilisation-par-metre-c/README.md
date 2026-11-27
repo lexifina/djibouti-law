@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0447/PR/MEFPCP portant fixation du prix de la viabilisation par mètre carré cessible du Lotissement de Haramous.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0447-pr-mefpcp-portant-fixation-du-prix-de-la-viabilisation-par-metre-carre-cessible-du-lotissement-de-haramous/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0447-pr-mefpcp-portant-fixation-du-prix-de-la-viabilisation-par-metre-carre-cessible-du-lotissement-de-haramous/>
 
 En vigueur : 2007-05-15 (date du Journal officiel qui le publie).
 

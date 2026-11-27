@@ -1,6 +1,6 @@
 # Arrêté n° 2019-76/PR/MB portant la déchéance et l’attribution d’une parcelle de terrain sise au Quartier 2.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-76-pr-mb-portant-la-decheance-et-lattribution-dune-parcelle-de-terrain-sise-au-quartier-2/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-76-pr-mb-portant-la-decheance-et-lattribution-dune-parcelle-de-terrain-sise-au-quartier-2/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 87-035/PR/MCTT rendant exécutoire la résolution n° 1/87 du 3 mai 1987 du conseil d’administration d’Aéroport de Djibouti portant approbation du budget prévisionnel de l’exercice 1987.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/06/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-035-pr-mctt-rendant-executoire-la-resolution-n1-87-du-3-mai-1987-du-conseil-dadministration-daeroport-de-djibouti-portant-approbation-du-budget-previsionnel-de-lexercice-1/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/06/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-035-pr-mctt-rendant-executoire-la-resolution-n1-87-du-3-mai-1987-du-conseil-dadministration-daeroport-de-djibouti-portant-approbation-du-budget-previsionnel-de-lexercice-1/>
 
 En vigueur : 1987-06-30 (date du Journal officiel qui le publie).
 

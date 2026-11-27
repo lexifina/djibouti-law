@@ -1,6 +1,6 @@
 # Décret n° 48-1593 relatif à l’indemnité de départ colonial .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1593-relatif-a-lindemnite-de-depart-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1593-relatif-a-lindemnite-de-depart-colonial/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 

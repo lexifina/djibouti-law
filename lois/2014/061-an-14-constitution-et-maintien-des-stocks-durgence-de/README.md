@@ -1,6 +1,6 @@
 # Loi n° 61/AN/14/7ème L portant constitution et maintien des stocks d »urgence de produits pétroliers.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-14-7eme-l-portant-constitution-et-maintien-des-stocks-durgence-de-produits-petroliers/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-14-7eme-l-portant-constitution-et-maintien-des-stocks-durgence-de-produits-petroliers/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

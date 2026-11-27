@@ -1,6 +1,6 @@
 # Décret n° 6-439-1933 Extension aux colonies de la loi du 29 avril 1924.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 439 du 30/06/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-439-1933-extension-aux-colonies-de-la-loi-du-29-avril-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 439 du 30/06/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-439-1933-extension-aux-colonies-de-la-loi-du-29-avril-1924/>
 
 En vigueur : 1933-06-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Eugène PENANCIER,
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

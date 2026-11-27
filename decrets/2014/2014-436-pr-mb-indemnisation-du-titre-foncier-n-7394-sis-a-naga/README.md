@@ -1,6 +1,6 @@
 # Décret n° 2014-436/PR/MB portant indemnisation du titre foncier n° 7394 sis à NAGAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-436-pr-mb-portant-indemnisation-du-titre-foncier-n7394-sis-a-nagad/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-436-pr-mb-portant-indemnisation-du-titre-foncier-n7394-sis-a-nagad/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 

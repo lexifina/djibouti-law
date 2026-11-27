@@ -1,6 +1,6 @@
 # Rectificatif n° 01-443-1933 Publication et mise en application provisoire de l’arrangement commercial entre la France et le Canada, signé à Ottawa le 12 mai 1933.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 443 du 31/10/1933 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-01-443-1933-publication-et-mise-en-application-provisoire-de-larrangement-commercial-entre-la-france-et-le-canada-signe-a-ottawa-le-12-mai-1933/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 443 du 31/10/1933 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-01-443-1933-publication-et-mise-en-application-provisoire-de-larrangement-commercial-entre-la-france-et-le-canada-signe-a-ottawa-le-12-mai-1933/>
 
 En vigueur : 1933-10-31 (date du Journal officiel qui le publie).
 

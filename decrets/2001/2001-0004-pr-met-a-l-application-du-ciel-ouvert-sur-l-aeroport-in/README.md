@@ -1,6 +1,6 @@
 # Décret n° 2001-0004/PR/MET relatif à l’application du ciel ouvert sur l’Aéroport International de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0004-pr-met-relatif-a-lapplication-du-ciel-ouvert-sur-laeroport-international-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0004-pr-met-relatif-a-lapplication-du-ciel-ouvert-sur-laeroport-international-de-djibouti/>
 
 En vigueur : 2001-01-15 (date du Journal officiel qui le publie).
 

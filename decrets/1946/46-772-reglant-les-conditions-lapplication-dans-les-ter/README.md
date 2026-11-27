@@ -1,6 +1,6 @@
 # Décret n° 46-772 réglant les conditions «l’application dans les territoires d’outre mer relevant du ministère de la France d’outre-mer, des articles 12 a 18 de la loi du 19 avril 1946, portant organisation du référendum prévu par l’article 3 de la loi constitutionnelle du 2 novembre 195
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-772-reglant-les-conditions-lapplication-dans-les-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-des-articles-12-a-18-de-la-loi-du-19-avril-1946-p/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-772-reglant-les-conditions-lapplication-dans-les-territoires-doutre-mer-relevant-du-ministere-de-la-france-doutre-mer-des-articles-12-a-18-de-la-loi-du-19-avril-1946-p/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

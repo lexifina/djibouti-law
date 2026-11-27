@@ -1,6 +1,6 @@
 # Arrêté n° 82-0275/PR/TP modifiant les tarifs de vente des dossiers d’appels d’offres.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0275-pr-tp-modifiant-les-tarifs-de-vente-des-dossiers-dappels-doffres/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0275-pr-tp-modifiant-les-tarifs-de-vente-des-dossiers-dappels-doffres/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

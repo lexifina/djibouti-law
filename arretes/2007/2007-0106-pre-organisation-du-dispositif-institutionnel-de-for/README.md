@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0106/PRE portant organisation du dispositif institutionnel de formulation, de mise en oeuvre, de suivi et d’évaluation de l’Initiative Nationale pour le Développement Social.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0106-pre-portant-organisation-du-dispositif-institutionnel-de-formulation-de-mise-en-oeuvre-de-suivi-et-devaluation-de-linitiative-nationale-pour-le-developpement-social/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0106-pre-portant-organisation-du-dispositif-institutionnel-de-formulation-de-mise-en-oeuvre-de-suivi-et-devaluation-de-linitiative-nationale-pour-le-developpement-social/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

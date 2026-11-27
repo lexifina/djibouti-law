@@ -1,6 +1,6 @@
 # Décret n° 2000-0083/PR/MI fixant les frais de timbre de certaines prestations en matière d’état civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0083-pr-mi-fixant-les-frais-de-timbre-de-certaines-prestations-en-matiere-detat-civil/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0083-pr-mi-fixant-les-frais-de-timbre-de-certaines-prestations-en-matiere-detat-civil/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

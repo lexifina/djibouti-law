@@ -1,6 +1,6 @@
 # Décret n° 99-0078/PR/MFEN portant sur la définition et la gestion des établissements publics à caractère administratif
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0078-pr-mfen-portant-sur-la-definition-et-la-gestion-des-etablissements-publics-a-caractere-administratif/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0078-pr-mfen-portant-sur-la-definition-et-la-gestion-des-etablissements-publics-a-caractere-administratif/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 
@@ -73,4 +73,4 @@ ISMAÏL OMAR GUELLEH
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

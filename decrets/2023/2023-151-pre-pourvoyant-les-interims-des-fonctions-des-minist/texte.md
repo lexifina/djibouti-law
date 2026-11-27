@@ -1,1 +1,0 @@
-Par décret n°2023-151/PRE, du Président de la République, chef du Gouvernement, en date du 13 juin 2023, pendant la durée de l’absence de S.E. Mme OULOUFA ABDO ISMAIL, l’intérim des fonctions de Mme la Ministre des Affaires Sociales et des Solidarités sera assuré par S.E. Mme AMINA ABDI ADEN, Ministre de la Ville, de l’Urbanisme et de l’Habitat cumulativement avec ses fonctions.

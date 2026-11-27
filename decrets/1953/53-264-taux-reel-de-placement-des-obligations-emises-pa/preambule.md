@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art. lor. — Le maximum du taux réel de placement des obligations que la Compagnie du chemin de fer franco-éthiopien est autorisée à émettre dans la limite de cinq cent millions de francs au titre de l’exercice 1952, en application des dispositions de la convention du 8 mars 1909, de l’avenant du 7 décembre 1915 et de l’article 13 de la loi du 5 janvier 1952 susvisé, ne pourra en aucun cas être supérieur à celui qui résulte du taux nominal d’intérêt pratiqué par la caisse des dépôts et consignations, au moment de la réalisation du contrat. La compagnie servira cet intérêt annuel net de tous impôts et droits présents et futurs à l’exception du droit de convention.

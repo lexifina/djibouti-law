@@ -1,6 +1,6 @@
 # Décret n° 49-316 modifiant le régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-316-modifiant-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-316-modifiant-le-regime-financier-des-colonies/>
 
 En vigueur : 1949-04-01 (date du Journal officiel qui le publie).
 

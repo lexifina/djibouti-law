@@ -1,6 +1,6 @@
 # Décret n° 97-0185/PRE/AN portant convocation de l’Assemblée Nationale en séance solennelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0185-pre-an-portant-convocation-de-lassemblee-nationale-en-seance-solennelle-2/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0185-pre-an-portant-convocation-de-lassemblee-nationale-en-seance-solennelle-2/>
 
 En vigueur : 1997-12-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 86-073/PR/PM portant création d’une annexe du L.E.P à Ali-Sabieh et dévolution de biens.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/08/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-073-pr-pm-portant-creation-dune-annexe-du-l-e-p-a-ali-sabieh-et-devolution-de-biens/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/08/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-073-pr-pm-portant-creation-dune-annexe-du-l-e-p-a-ali-sabieh-et-devolution-de-biens/>
 
 En vigueur : 1986-08-31 (date du Journal officiel qui le publie).
 

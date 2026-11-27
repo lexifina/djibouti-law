@@ -1,6 +1,6 @@
 # Loi n° 161/AN/91/2ème L portant approbation d’un lotissement aux salines ouest à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-91-2eme-l-portant-approbation-dun-lotissement-aux-salines-ouest-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-91-2eme-l-portant-approbation-dun-lotissement-aux-salines-ouest-a-djibouti/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Additif n° 69-123/SG/ESJ à la décision n° 69-20/SG/ESJ du 2 janvier 1969.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1969 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-69-123-sg-esj-a-la-decision-n-69-20-sg-esj-du-2-janvier-1969/>
+Additif · Journal officiel de la République de Djibouti, n° 3 du 10/02/1969 · <https://www.journalofficiel.dj/texte-juridique/additif-n-69-123-sg-esj-a-la-decision-n-69-20-sg-esj-du-2-janvier-1969/>
 
 En vigueur : 1969-02-10 (date du Journal officiel qui le publie).
 

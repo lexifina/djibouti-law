@@ -1,6 +1,6 @@
 # Loi n° 7-320-1923 modifiant l’article 585 du code de procédure civile, concernant les saisies-exécution.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-7-320-1923-modifiant-larticle-585-du-code-de-procedure-civile-concernant-les-saisies-execution/>
+Loi · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/loi-n-7-320-1923-modifiant-larticle-585-du-code-de-procedure-civile-concernant-les-saisies-execution/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

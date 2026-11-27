@@ -1,6 +1,6 @@
 # Loi n° 172/AN/22/8ème L portant ratification de l’accord de financement sous forme de don et d’un accord de financement concessionnel sous forme de prêt pour le projet de renforcement du système de santé de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-22-8eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-don-et-dun-accord-de-financement-concessionnel-sous-forme-de-pret-pour-le-projet-de-renforcement-du/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-22-8eme-l-portant-ratification-de-laccord-de-financement-sous-forme-de-don-et-dun-accord-de-financement-concessionnel-sous-forme-de-pret-pour-le-projet-de-renforcement-du/>
 
 En vigueur : 2023-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

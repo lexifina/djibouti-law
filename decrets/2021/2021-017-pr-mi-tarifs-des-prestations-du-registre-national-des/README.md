@@ -1,6 +1,6 @@
 # Décret n° 2021-017/PR/MI fixant les tarifs des Prestations du Registre National des Personnes Physiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-017-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-017-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques/>
 
 En vigueur : 2021-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2026-071/PR/MB portant exonération du projet d’investissement de la Société l’Hôpital Al Shifa SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-071-pr-mb-portant-exoneration-du-projet-dinvestissement-de-la-societe-lhopital-al-shifa-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 15/04/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-071-pr-mb-portant-exoneration-du-projet-dinvestissement-de-la-societe-lhopital-al-shifa-sas/>
 
-En vigueur : 2026-04-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-04-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

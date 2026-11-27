@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0231/PR/MEFPCP portant attribution à titre onéreux d’une parcelle de terrain à Mouloud au profit de Djibouti Télécom.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0231-pr-mefpcp-portant-attribution-a-titre-onereux-dune-parcelle-de-terrain-a-mouloud-au-profit-de-djibouti-telecom/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0231-pr-mefpcp-portant-attribution-a-titre-onereux-dune-parcelle-de-terrain-a-mouloud-au-profit-de-djibouti-telecom/>
 
 En vigueur : 2011-03-15 (date du Journal officiel qui le publie).
 

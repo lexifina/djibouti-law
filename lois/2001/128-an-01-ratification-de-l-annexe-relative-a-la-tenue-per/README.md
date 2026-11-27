@@ -1,6 +1,6 @@
 # Loi n° 128/AN/01/4ème L portant ratification de l’annexe relative à la tenue périodique du Sommet de la Ligue des États Arabes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-01-4eme-l-portant-ratification-de-lannexe-relative-a-la-tenue-periodique-du-sommet-de-la-ligue-des-etats-arabes/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-01-4eme-l-portant-ratification-de-lannexe-relative-a-la-tenue-periodique-du-sommet-de-la-ligue-des-etats-arabes/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

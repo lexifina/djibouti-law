@@ -1,6 +1,6 @@
 # Décret n° 83-054/PR/MCTT/EPH approuvant et rendant exécutoire le budget primitif 1983 de l’Établissement public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-054-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1983-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-054-pr-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1983-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ HASSAN GOULED APTIDON
 | --- | --- |
 | [art-001.md](art-001.md) | Article Premier |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

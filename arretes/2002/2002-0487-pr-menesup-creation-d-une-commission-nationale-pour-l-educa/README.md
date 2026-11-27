@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0487/PR/MENESUP portant création d’une Commission Nationale pour l’Education, les Sciences & la Culture (CNESC)
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0487-pr-menesup-portant-creation-dune-commission-nationale-pour-leducation-les-sciences-la-culture-cnesc/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0487-pr-menesup-portant-creation-dune-commission-nationale-pour-leducation-les-sciences-la-culture-cnesc/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

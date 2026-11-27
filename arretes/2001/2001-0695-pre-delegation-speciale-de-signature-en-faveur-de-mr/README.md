@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0695/PRE portant délégation spéciale de signature, en faveur de Mr. Mohamed Hassan Abdillahi, Secrétaire Général du Gouvernement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0695-pre-portant-delegation-speciale-de-signature-en-faveur-de-mr-mohamed-hassan-abdillahi-secretaire-general-du-gouvernement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0695-pre-portant-delegation-speciale-de-signature-en-faveur-de-mr-mohamed-hassan-abdillahi-secretaire-general-du-gouvernement/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2018-294/PR/MD portant création de l’Ecole de Formation de la Gendarmerie Nationale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-294-pr-md-portant-creation-de-lecole-de-formation-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-294-pr-md-portant-creation-de-lecole-de-formation-de-la-gendarmerie-nationale/>
 
 En vigueur : 2018-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

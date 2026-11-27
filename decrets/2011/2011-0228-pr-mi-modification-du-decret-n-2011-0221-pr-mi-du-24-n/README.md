@@ -1,6 +1,6 @@
 # Décret n° 2011-0228/PR/MI portant modification du décret n° 2011-0221/PR/MI du 24 novembre 2011 fixant le nombre de Conseillers Régionaux et Communaux lors des élections régionales et communales du 20 janvier 2012 et 10 février 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0228-pr-mi-portant-modification-du-decret-n2011-0221-pr-mi-du-24-novembre-2011-fixant-le-nombre-de-conseillers-regionaux-et-communaux-lors-des-elections-regionales-et-communa/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0228-pr-mi-portant-modification-du-decret-n2011-0221-pr-mi-du-24-novembre-2011-fixant-le-nombre-de-conseillers-regionaux-et-communaux-lors-des-elections-regionales-et-communa/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

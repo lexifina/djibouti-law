@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0629/PR/MDCC portant Agrément au Code des Investissements de la société « Cimenterie d’Ali-Sabieh » pour un projet de production et commercialisation des ciments.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0629-pr-mdcc-portant-agrement-au-code-des-investissements-de-la-societe-cimenterie-dali-sabieh-pour-un-projet-de-production-et-commercialisation-des-ciments/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0629-pr-mdcc-portant-agrement-au-code-des-investissements-de-la-societe-cimenterie-dali-sabieh-pour-un-projet-de-production-et-commercialisation-des-ciments/>
 
 En vigueur : 2012-10-15 (date du Journal officiel qui le publie).
 

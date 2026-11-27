@@ -1,8 +1,8 @@
 # Décret n° 2006-0068/PR/MENESUP modifiant le décret n° 89-062/PRE du 29 mai 1989 relatif aux statuts particuliers des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0068-pr-menesup-modifiant-le-decret-n89-062-pre-du-29-mai-1989-relatif-aux-statuts-particuliers-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0068-pr-menesup-modifiant-le-decret-n89-062-pre-du-29-mai-1989-relatif-aux-statuts-particuliers-des-fonctionnaires/>
 
-En vigueur : 2006-02-27 (date fixÃ©e par le texte).
+En vigueur : 2006-02-27 (date fixée par le texte).
 
 ## Visas
 

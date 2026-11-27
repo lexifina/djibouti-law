@@ -1,6 +1,6 @@
 # Décret n° 2000-0032/PR/MAEM pris en application de la loi n° 93/AN/95/3ème L du 04 avril 1996 portant Code de l’Eau, relatif aux procédures de déclarations, autorisations et concessions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0032-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-aux-procedures-de-declarations-autorisations-et-concessions/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0032-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-aux-procedures-de-declarations-autorisations-et-concessions/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 
@@ -58,4 +58,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

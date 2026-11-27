@@ -1,6 +1,6 @@
 # Ordonnance n° 43 étendant le droit à pension de guerre.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-43-etendant-le-droit-a-pension-de-guerre/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 15/06/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-43-etendant-le-droit-a-pension-de-guerre/>
 
 En vigueur : 1943-06-15 (date du Journal officiel qui le publie).
 

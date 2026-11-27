@@ -1,6 +1,6 @@
 # Loi n° 2-371-1927 Loi portant approbation : 1° du règlement et des tarifs arrêtés par la conférence télégraphique internationale de Paris, le 29 octobre 1925; 2° des taxes terminales et de transit applicables en France.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 371 du 31/10/1927 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-371-1927-loi-portant-approbation-1-du-reglement-et-des-tarifs-arretes-par-la-conference-telegraphique-internationale-de-paris-le-29-octobre-1925-2-des-taxes-terminales-e/>
+Loi · Journal officiel de la République de Djibouti, n° 371 du 31/10/1927 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-371-1927-loi-portant-approbation-1-du-reglement-et-des-tarifs-arretes-par-la-conference-telegraphique-internationale-de-paris-le-29-octobre-1925-2-des-taxes-terminales-e/>
 
 En vigueur : 1927-10-31 (date du Journal officiel qui le publie).
 

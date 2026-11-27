@@ -1,6 +1,6 @@
 # Décret n° 1° Le décret portant probation d’exportation du chlorure de sodium et complétant la liste À annexée au décret du 15 septembre 1940
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 537 du 31/08/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-le-decret-portant-probation-dexportation-du-chlorure-de-sodium-et-completant-la-liste-a-annexee-au-decret-du-15-septembre-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 537 du 31/08/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-le-decret-portant-probation-dexportation-du-chlorure-de-sodium-et-completant-la-liste-a-annexee-au-decret-du-15-septembre-1940/>
 
 En vigueur : 1941-08-31 (date du Journal officiel qui le publie).
 

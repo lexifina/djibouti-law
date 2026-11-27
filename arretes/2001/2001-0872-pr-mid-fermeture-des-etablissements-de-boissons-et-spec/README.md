@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0872/PR/MID portant fermeture des établissements de boissons et spectacles pendant la période du ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0872-pr-mid-portant-fermeture-des-etablissements-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0872-pr-mid-portant-fermeture-des-etablissements-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 

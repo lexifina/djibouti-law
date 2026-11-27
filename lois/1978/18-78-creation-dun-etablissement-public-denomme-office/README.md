@@ -1,6 +1,6 @@
 # Loi n° 18/78 Portant création d’un établissement public dénommé » Office National d’Approvisionnement et de Commercialisation «
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 24/04/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n18-78-portant-creation-dun-etablissement-public-denomme-office-national-dapprovisionnement-et-de-commercialisation/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 24/04/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n18-78-portant-creation-dun-etablissement-public-denomme-office-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1978-04-24 (date du Journal officiel qui le publie).
 

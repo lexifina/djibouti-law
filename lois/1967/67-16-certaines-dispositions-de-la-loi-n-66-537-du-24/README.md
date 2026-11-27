@@ -1,6 +1,6 @@
 # Loi n° 67-16 modifiant certaines dispositions de la loi n » 66-537 du 24 juillet 1966 sur les sociétés commerciales
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-67-16-modifiant-certaines-dispositions-de-la-loi-n-66-537-du-24-juillet-1966-sur-les-societes-commerciales/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 01/03/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-67-16-modifiant-certaines-dispositions-de-la-loi-n-66-537-du-24-juillet-1966-sur-les-societes-commerciales/>
 
 En vigueur : 1967-03-01 (date du Journal officiel qui le publie).
 

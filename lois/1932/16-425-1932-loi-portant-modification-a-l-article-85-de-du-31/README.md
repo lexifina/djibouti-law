@@ -1,6 +1,6 @@
 # Loi de finances n° 16-425-1932 loi portant modification à l’article 85 de du 31 mars 1928, relative au recrutement de l’armée.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 425 du 30/04/1932 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-16-425-1932-loi-portant-modification-a-larticle-85-de-du-31-mars-1928-relative-au-recrutement-de-larmee/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 425 du 30/04/1932 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n-16-425-1932-loi-portant-modification-a-larticle-85-de-du-31-mars-1928-relative-au-recrutement-de-larmee/>
 
 En vigueur : 1932-04-30 (date du Journal officiel qui le publie).
 

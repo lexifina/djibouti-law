@@ -1,6 +1,6 @@
 # Décret n° 2002-0062/PR/MJAPM fixant les modalités d’application de la Loi Organique n° 9/AN/01/4ème L du 18 février 2001 portant Statut de la Magistrature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0062-pr-mjapm-fixant-les-modalites-dapplication-de-la-loi-organique-n9-an-01-4eme-l-du-18-fevrier-2001-portant-statut-de-la-magistrature/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0062-pr-mjapm-fixant-les-modalites-dapplication-de-la-loi-organique-n9-an-01-4eme-l-du-18-fevrier-2001-portant-statut-de-la-magistrature/>
 
 En vigueur : 2002-05-15 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

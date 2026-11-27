@@ -1,6 +1,6 @@
 # Décret n° 2015-260/PR/MI Institution d’une redevance Municipale de stationnement payant des véhicules à moteur sur la voie publique de la ville de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-260-pr-mi-institution-dune-redevance-municipale-de-stationnement-payant-des-vehicules-a-moteur-sur-la-voie-publique-de-la-ville-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-260-pr-mi-institution-dune-redevance-municipale-de-stationnement-payant-des-vehicules-a-moteur-sur-la-voie-publique-de-la-ville-de-djibouti/>
 
 En vigueur : 2015-09-15 (date du Journal officiel qui le publie).
 

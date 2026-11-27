@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0164/PR/MDN fixant les indemnités et avantages accordés aux personnels officiers détachés dans les 3 organes de l’Easbrig.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0164-pr-mdn-fixant-les-indemnites-et-avantages-accordes-aux-personnels-officiers-detaches-dans-les-3-organes-de-leasbrig/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0164-pr-mdn-fixant-les-indemnites-et-avantages-accordes-aux-personnels-officiers-detaches-dans-les-3-organes-de-leasbrig/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

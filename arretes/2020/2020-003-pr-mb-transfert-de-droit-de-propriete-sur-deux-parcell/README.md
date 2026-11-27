@@ -1,6 +1,6 @@
 # Arrêté n° 2020-003/PR/MB portant transfert de droit de propriété sur deux parcelles de terrains urbains bâtis.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-003-pr-mb-portant-transfert-de-droit-de-propriete-sur-deux-parcelles-de-terrains-urbains-batis/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-003-pr-mb-portant-transfert-de-droit-de-propriete-sur-deux-parcelles-de-terrains-urbains-batis/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE PREMIER
 De la composition du corps électoral
 CHAPITRE PREMIER

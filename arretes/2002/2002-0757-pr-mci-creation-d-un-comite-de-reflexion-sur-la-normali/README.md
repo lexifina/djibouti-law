@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0757/PR/MCI portant création d’un Comité de Réflexion sur la normalisation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0757-pr-mci-portant-creation-dun-comite-de-reflexion-sur-la-normalisation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0757-pr-mci-portant-creation-dun-comite-de-reflexion-sur-la-normalisation/>
 
-En vigueur : 2002-10-17 (date fixÃ©e par le texte).
+En vigueur : 2002-10-17 (date fixée par le texte).
 
 ## Visas
 

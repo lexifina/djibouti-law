@@ -1,6 +1,6 @@
 # Décret n° 2021-094/PR/MAMCBW portant organisation et fonctionnement de l’Institut Djiboutien des Arts et de la Cinématographie (IDAC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 13/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-094-pr-mamcbw-portant-organisation-et-fonctionnement-de-linstitut-djiboutien-des-arts-et-de-la-cinematographie-idac/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 13/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-094-pr-mamcbw-portant-organisation-et-fonctionnement-de-linstitut-djiboutien-des-arts-et-de-la-cinematographie-idac/>
 
 En vigueur : 2021-05-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

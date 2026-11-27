@@ -1,6 +1,6 @@
 # Décret n° 2015-048/PR/MEFCI portant privatisation de la Société SEIMAS SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-048-pr-mefci-portant-privatisation-de-la-societe-seimas-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-048-pr-mefci-portant-privatisation-de-la-societe-seimas-sa/>
 
 En vigueur : 2015-02-28 (date du Journal officiel qui le publie).
 

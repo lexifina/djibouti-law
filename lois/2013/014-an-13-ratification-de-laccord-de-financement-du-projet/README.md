@@ -4,7 +4,7 @@ de subsistance pour réduire la vulnérabilité des
 ressources naturelles au sein des communautés
 pastorales à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-renforcement-des-moyens-de-subsistance-pour-reduire-la-vulnerabilite-des-ressources-naturelles-au-sein-d/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-renforcement-des-moyens-de-subsistance-pour-reduire-la-vulnerabilite-des-ressources-naturelles-au-sein-d/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

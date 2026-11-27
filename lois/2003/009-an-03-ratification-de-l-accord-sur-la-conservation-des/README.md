@@ -1,6 +1,6 @@
 # Loi n° 9/AN/03/5ème L portant ratification de l’Accord sur la conservation des oiseaux d’eau migrateurs d’Afrique-Eurasie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-03-5eme-l-portant-ratification-de-laccord-sur-la-conservation-des-oiseaux-deau-migrateurs-dafrique-eurasie/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-03-5eme-l-portant-ratification-de-laccord-sur-la-conservation-des-oiseaux-deau-migrateurs-dafrique-eurasie/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 82-121/PR modifiant le décret n° 79-102/PR du 3 novembre 1979 relatif aux logements administratifs et avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-121-pr-modifiant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-121-pr-modifiant-le-decret-n79-102-pr-du-3-novembre-1979-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1982-11-30 (date du Journal officiel qui le publie).
 

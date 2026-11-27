@@ -1,6 +1,6 @@
 # Décret n° 35/AN/93/3e L portant modification au décret n° 92‑0017/PR/DEF du 3 février 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n35-an-93-3e-l-portant-modification-au-decret-n92%e2%80%910017-pr-def-du-3-fevrier-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n35-an-93-3e-l-portant-modification-au-decret-n92%e2%80%910017-pr-def-du-3-fevrier-1992/>
 
 En vigueur : 1994-03-15 (date du Journal officiel qui le publie).
 

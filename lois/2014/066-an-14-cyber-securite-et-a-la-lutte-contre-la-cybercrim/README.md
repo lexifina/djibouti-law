@@ -1,6 +1,6 @@
 # Loi n° 66/AN/14/7ème L relative au cyber sécurité et à la lutte contre la cybercriminalité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-14-7eme-l-relative-au-cyber-securite-et-a-la-lutte-contre-la-cybercriminalite/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-14-7eme-l-relative-au-cyber-securite-et-a-la-lutte-contre-la-cybercriminalite/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

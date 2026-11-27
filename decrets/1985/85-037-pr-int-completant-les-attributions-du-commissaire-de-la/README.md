@@ -1,6 +1,6 @@
 # Décret n° 85-037/PR/INT complétant les attributions du Commissaire de la République, chef du District de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-037-pr-int-completant-les-attributions-du-commissaire-de-la-republique-chef-du-district-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-037-pr-int-completant-les-attributions-du-commissaire-de-la-republique-chef-du-district-de-djibouti/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

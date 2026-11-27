@@ -1,6 +1,6 @@
 # Arrêté n° 2016-133/PR/MB portant attribution d’une parcelle de terrain au profit du GROUPE MOHAMED SAID GUEDI.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-133-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-du-groupe-mohamed-said-guedi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-133-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-du-groupe-mohamed-said-guedi/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

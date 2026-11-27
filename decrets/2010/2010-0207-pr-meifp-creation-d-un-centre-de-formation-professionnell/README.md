@@ -1,8 +1,8 @@
 # Décret n° 2010-0207/PR/MEIFP portant création d’un Centre de Formation Professionnelle à Damerjog.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0207-pr-meifp-portant-creation-dun-centre-de-formation-professionnelle-a-damerjog/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0207-pr-meifp-portant-creation-dun-centre-de-formation-professionnelle-a-damerjog/>
 
-En vigueur : 2010-11-08 (date fixÃ©e par le texte).
+En vigueur : 2010-11-08 (date fixée par le texte).
 
 ## Visas
 

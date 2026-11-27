@@ -1,8 +1,8 @@
 # Arrêté n° 2005-0194/PR/MHUEAT portant création d’un périmètre d’étude pour la protection du patrimoine architectural et urbain du centre ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0194-pr-mhueat-portant-creation-dun-perimetre-detude-pour-la-protection-du-patrimoine-architectural-et-urbain-du-centre-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0194-pr-mhueat-portant-creation-dun-perimetre-detude-pour-la-protection-du-patrimoine-architectural-et-urbain-du-centre-ville-de-djibouti/>
 
-En vigueur : 2005-03-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2005-03-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

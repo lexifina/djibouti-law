@@ -1,6 +1,6 @@
 # Loi n° 2011-130/AN/11/6ème L modifiant la Loi n° 107/AN/05/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement (BID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2011-130-an-11-6eme-l-modifiant-la-loi-n107-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n2011-130-an-11-6eme-l-modifiant-la-loi-n107-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
 
 En vigueur : 2011-02-15 (date du Journal officiel qui le publie).
 

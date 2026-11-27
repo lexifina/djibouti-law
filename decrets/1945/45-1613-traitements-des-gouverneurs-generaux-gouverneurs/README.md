@@ -1,6 +1,6 @@
 # Décret n° 45-1613 relatif aux traitements des gouverneurs. généraux, gouverneurs et résidents supérieurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1613-relatif-aux-traitements-des-gouverneurs-generaux-gouverneurs-et-residents-superieurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1613-relatif-aux-traitements-des-gouverneurs-generaux-gouverneurs-et-residents-superieurs-des-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

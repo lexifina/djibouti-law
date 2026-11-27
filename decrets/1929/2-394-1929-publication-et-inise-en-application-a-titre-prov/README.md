@@ -1,6 +1,6 @@
 # Décret n° 2-394-1929 Publication et inise en application à titre provisoire de l’arrangement additionnel à l’accord commercial du 23 février 1928 entre la France et économique belgo-luxcm-bourgeoise,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 394 du 30/09/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-394-1929-publication-et-inise-en-application-a-titre-provisoire-de-larrangement-additionnel-a-laccord-commercial-du-23-fevrier-1928-entre-la-france-et-economique-belgo-luxcm-bour/>
+Décret · Journal officiel de la République de Djibouti, n° 394 du 30/09/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-394-1929-publication-et-inise-en-application-a-titre-provisoire-de-larrangement-additionnel-a-laccord-commercial-du-23-fevrier-1928-entre-la-france-et-economique-belgo-luxcm-bour/>
 
 En vigueur : 1929-09-30 (date du Journal officiel qui le publie).
 

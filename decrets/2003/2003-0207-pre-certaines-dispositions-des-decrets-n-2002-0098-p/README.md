@@ -1,6 +1,6 @@
 # Décret n° 2003-0207/PRE modifiant certaines dispositions des décrets n° 2002-0098/PRE, n° 2003-0093/PRE et n° 2003-0201/PRE portant sur l’Autorité de la Zone Franche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0207-pre-modifiant-certaines-dispositions-des-decrets-n2002-0098-pre-n2003-0093-pre-et-n2003-0201-pre-portant-sur-lautorite-de-la-zone-franche-de-djibout/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0207-pre-modifiant-certaines-dispositions-des-decrets-n2002-0098-pre-n2003-0093-pre-et-n2003-0201-pre-portant-sur-lautorite-de-la-zone-franche-de-djibout/>
 
 En vigueur : 2003-10-15 (date du Journal officiel qui le publie).
 

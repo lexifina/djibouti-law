@@ -1,6 +1,6 @@
 # Décret n° 47-2373 rendant applicable aux départements et territoires d’outre-mer, à l’exception de l’Indochine, les dispositions de l’ordonnance n° 45-1088 du 30 mai 1915 relative à la répression des infractions à la réglementation des changes, complétée par l’article 82 de la loi n° 47-520 du 21 mars 1947 relative à diverses dispositions d’ordre financier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2373-rendant-applicable-aux-departements-et-territoires-doutre-mer-a-lexception-de-lindochine-les-dispositions-de-lordonnance-n-45-1088-d/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2373-rendant-applicable-aux-departements-et-territoires-doutre-mer-a-lexception-de-lindochine-les-dispositions-de-lordonnance-n-45-1088-d/>
 
 En vigueur : 1948-01-31 (date du Journal officiel qui le publie).
 
@@ -49,4 +49,4 @@ René Mayer
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

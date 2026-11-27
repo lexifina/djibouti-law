@@ -1,6 +1,6 @@
 # Décret n° n° 46-2096 fixant les conditions dans lesquelles les partis politiques et groupements pourront effectuer leur propagande à l’occasion du referendum sur la Constitution.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2096-fixant-les-conditions-dans-lesquelles-les-partis-politiques-et-groupements-pourront-effectuer-leur-propagande-a-loccasion-du-referendum-sur-la-constitution/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2096-fixant-les-conditions-dans-lesquelles-les-partis-politiques-et-groupements-pourront-effectuer-leur-propagande-a-loccasion-du-referendum-sur-la-constitution/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

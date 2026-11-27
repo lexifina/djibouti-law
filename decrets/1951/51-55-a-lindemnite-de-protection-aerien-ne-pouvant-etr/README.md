@@ -1,6 +1,6 @@
 # Décret n° 51-55 relatif à l’indemnité de protection aérien ne pouvant être allouée aux ingénieurs c des Travaux météorologiques du cadre d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-55-relatif-a-lindemnite-de-protection-aerien-ne-pouvant-etre-allouee-aux-ingenieurs-c-des-travaux-meteorologiques-du-cadre-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-55-relatif-a-lindemnite-de-protection-aerien-ne-pouvant-etre-allouee-aux-ingenieurs-c-des-travaux-meteorologiques-du-cadre-doutre-mer/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 

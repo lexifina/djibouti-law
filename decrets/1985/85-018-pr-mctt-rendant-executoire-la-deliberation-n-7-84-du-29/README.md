@@ -1,6 +1,6 @@
 # Décret n° 85-018/PR/MCTT Rendant exécutoire la Délibération N° 7/84 du 29 Décembre 1984 du Conseil d’Administration de l’Aéroport de Djibouti portant approbation du Budget Prévisionnel pour l’exercice 1985 d’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-018-pr-mctt-rendant-executoire-la-deliberation-n-7-84-du-29-decembre-1984-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-budget-previsionnel-pour/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-018-pr-mctt-rendant-executoire-la-deliberation-n-7-84-du-29-decembre-1984-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-budget-previsionnel-pour/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 71-1130 portant réforme de certaines professions judiciaires et juridiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1130-portant-reforme-de-certaines-professions-judiciaires-et-juridiques/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-71-1130-portant-reforme-de-certaines-professions-judiciaires-et-juridiques/>
 
-En vigueur : 1972-09-16 (date fixÃ©e par le texte).
+En vigueur : 1972-09-16 (date fixée par le texte).
 
 ## Visas
 
@@ -106,4 +106,4 @@ VALÉRY GISCARD D’ESTAING.
 | [art-080.md](art-080.md) | Art. 80 |
 | [art-081.md](art-081.md) | Art. 81 |
 | [art-082.md](art-082.md) | Art. 82 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 60-294-1921 relative à l’amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 294 du 31/05/1921 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-60-294-1921-relative-a-lamnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 294 du 31/05/1921 · <https://www.journalofficiel.dj/texte-juridique/loi-n-60-294-1921-relative-a-lamnistie/>
 
 En vigueur : 1921-05-31 (date du Journal officiel qui le publie).
 

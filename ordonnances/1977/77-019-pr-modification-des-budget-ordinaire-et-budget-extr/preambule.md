@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Le budget des recettes ordinaires est modifie comme suit :
 | Chap.
 | Art.

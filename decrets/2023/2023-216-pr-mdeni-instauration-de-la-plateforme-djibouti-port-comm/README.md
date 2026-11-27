@@ -1,8 +1,8 @@
 # Décret n° 2023-216/PR/MDENI portant instauration de la plateforme Djibouti Port Community System.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-216-pr-mdeni-portant-instauration-de-la-plateforme-djibouti-port-community-system/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-216-pr-mdeni-portant-instauration-de-la-plateforme-djibouti-port-community-system/>
 
-En vigueur : 2023-07-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-07-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

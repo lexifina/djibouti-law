@@ -1,6 +1,6 @@
 # Loi n° 178/AN/02/4ème L portant Adhésion de la République de Djibouti à la Commission de la Jeunesse et des Sports des Pays de l’Océan Indien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-02-4eme-l-portant-adhesion-de-la-republique-de-djibouti-a-la-commission-de-la-jeunesse-et-des-sports-des-pays-de-locean-indien/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-02-4eme-l-portant-adhesion-de-la-republique-de-djibouti-a-la-commission-de-la-jeunesse-et-des-sports-des-pays-de-locean-indien/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

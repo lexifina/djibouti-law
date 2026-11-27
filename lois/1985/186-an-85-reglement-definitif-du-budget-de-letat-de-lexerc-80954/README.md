@@ -1,8 +1,8 @@
 # Loi n° 186/AN/85/1ère L portant règlement définitif du budget de l’Etat de l’exercice 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-85-1ere-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-85-1ere-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1985/>
 
-En vigueur : 1987-01-01 (date fixÃ©e par le texte).
+En vigueur : 1987-01-01 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° n°12 Décret approuvant des arrétés du gouverneur de la Côte francaise des Somalis portant ouverture de crédits supplémentaires. au. budget local
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-decret-approuvant-des-arretes-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-budget-local/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-decret-approuvant-des-arretes-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-budget-local/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-167/PR/MET portant mission et organisation de l’Agence Nationale de la Météorologie de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-167-pr-met-portant-mission-et-organisation-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-167-pr-met-portant-mission-et-organisation-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

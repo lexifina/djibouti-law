@@ -1,8 +1,8 @@
 # Arrêté n° 2015-809/PR/MET portant fixation de la grille tarifaire des prestations de services des transitaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-809-pr-met-portant-fixation-de-la-grille-tarifaire-des-prestations-de-services-des-transitaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-809-pr-met-portant-fixation-de-la-grille-tarifaire-des-prestations-de-services-des-transitaires/>
 
-En vigueur : 2016-01-01 (date fixÃ©e par le texte).
+En vigueur : 2016-01-01 (date fixée par le texte).
 
 ## Visas
 

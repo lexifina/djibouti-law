@@ -1,6 +1,6 @@
 # Loi n° 19/AN/03/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds de l’Organisation des Pays Exportateurs de Pétrole (OPEP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-03-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exportateurs-de-petrole-opep/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-03-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lorganisation-des-pays-exportateurs-de-petrole-opep/>
 
 En vigueur : 2003-07-31 (date du Journal officiel qui le publie).
 

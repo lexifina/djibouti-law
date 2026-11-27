@@ -1,6 +1,6 @@
 # Décret n° 23 mars 1941 relatif à la gestion et liquidation des biens placés sous séquestre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-mars-1941-relatif-a-la-gestion-et-liquidation-des-biens-places-sous-sequestre/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-mars-1941-relatif-a-la-gestion-et-liquidation-des-biens-places-sous-sequestre/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 86/AN/20/8ème L Portant modification et complétant le Code de Commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-20-8eme-l-portant-modification-et-completant-le-code-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-20-8eme-l-portant-modification-et-completant-le-code-de-commerce/>
 
 En vigueur : 2020-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

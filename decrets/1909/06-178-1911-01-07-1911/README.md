@@ -1,6 +1,6 @@
 # Décret n° 06-178-1911 01/07/1911
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 178 du 01/09/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-178-1911-01-07-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 178 du 01/09/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-178-1911-01-07-1911/>
 
 En vigueur : 1911-09-01 (date du Journal officiel qui le publie).
 

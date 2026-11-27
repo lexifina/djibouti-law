@@ -1,6 +1,6 @@
 # Décret n° du 5 février 1941. relative à la constitution en cours martiales des tribunaux militaires dans les territoires dépendant du Secrétariat d’Etat aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 531 du 28/02/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-5-fevrier-1941-relative-a-la-constitution-en-cours-martiales-des-tribunaux-militaires-dans-les-territoires-dependant-du-secretariat-detat-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 531 du 28/02/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-5-fevrier-1941-relative-a-la-constitution-en-cours-martiales-des-tribunaux-militaires-dans-les-territoires-dependant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1941-02-28 (date du Journal officiel qui le publie).
 

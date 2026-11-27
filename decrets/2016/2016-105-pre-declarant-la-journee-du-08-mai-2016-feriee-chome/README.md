@@ -1,6 +1,6 @@
 # Décret n° 2016-105/PRE déclarant la journée du 08 Mai 2016, fériée, chômée et payée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-105-pre-declarant-la-journee-du-08-mai-2016-feriee-chomee-et-payee/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-105-pre-declarant-la-journee-du-08-mai-2016-feriee-chomee-et-payee/>
 
 En vigueur : 2016-05-15 (date du Journal officiel qui le publie).
 

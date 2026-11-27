@@ -1,6 +1,6 @@
 # Décret n° 12/05/1941 modifiant le décret du 26 octobre 1940 concernant les fonctionnaires et agents civils des colonies relevés de leurs fonctions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-05-1941-modifiant-le-decret-du-26-octobre-1940-concernant-les-fonctionnaires-et-agents-civils-des-colonies-releves-de-leurs-fonctions/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-05-1941-modifiant-le-decret-du-26-octobre-1940-concernant-les-fonctionnaires-et-agents-civils-des-colonies-releves-de-leurs-fonctions/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

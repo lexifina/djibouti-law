@@ -1,8 +1,8 @@
 # Décret n° 2017-015/PRE portant approbation de l’Accord d’investissement relatif à “Djibouti International Free Trade Zone”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-015-pre-portant-approbation-de-laccord-dinvestissement-relatif-a-djibouti-international-free-trade-zone/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-015-pre-portant-approbation-de-laccord-dinvestissement-relatif-a-djibouti-international-free-trade-zone/>
 
-En vigueur : 2017-01-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-01-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

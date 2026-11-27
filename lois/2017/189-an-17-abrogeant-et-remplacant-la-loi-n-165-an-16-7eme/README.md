@@ -1,6 +1,6 @@
 # Loi n° 189/AN/17/7ème L abrogeant et remplaçant la loi n° 165/AN/16/7ème L portant ratification de l’Accord de prêt pour le programme de gestion des Eaux et des Sols (PROGRES).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-17-7eme-l-abrogeant-et-remplacant-la-loi-n165-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-programme-de-gestion-des-eaux-et-des-sols-progres/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n189-an-17-7eme-l-abrogeant-et-remplacant-la-loi-n165-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-programme-de-gestion-des-eaux-et-des-sols-progres/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 

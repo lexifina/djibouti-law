@@ -1,6 +1,6 @@
 # Arrêté n° 2016-496/PRE portant exonération des matériels importés pour le projet de la Géothermie Galé le Goma.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-496-pre-portant-exoneration-des-materiels-importes-pour-le-projet-de-la-geothermie-gale-le-goma/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-496-pre-portant-exoneration-des-materiels-importes-pour-le-projet-de-la-geothermie-gale-le-goma/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

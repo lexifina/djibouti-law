@@ -1,6 +1,6 @@
 # Décret n° 73-247 relatif à l’organisation du contrôle naval de la navigation maritime (JORF n° 98 du 9 mars 1973, page 2574).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-247-relatif-a-lorganisation-du-controle-naval-de-la-navigation-maritime-jorf-n-98-du-9-mars-1973-page-2574/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-247-relatif-a-lorganisation-du-controle-naval-de-la-navigation-maritime-jorf-n-98-du-9-mars-1973-page-2574/>
 
 En vigueur : 1973-03-25 (date du Journal officiel qui le publie).
 

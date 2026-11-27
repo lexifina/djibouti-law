@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0399/PR/MI portant mise en place d’un groupe de travail multidisciplinaire chargé de la préparation d’un programme spécial de Réhabilitation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0399-pr-mi-portant-mise-en-place-dun-groupe-de-travail-multidisciplinaire-charge-de-la-preparation-dun-programme-special-de-rehabilitation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0399-pr-mi-portant-mise-en-place-dun-groupe-de-travail-multidisciplinaire-charge-de-la-preparation-dun-programme-special-de-rehabilitation/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 2-429-1932 tendant à l’approbation du protocole annexé à a convention de commerce et de navigation du 30 janvier 1929, entre la République française et le Royaume de Yougoslavie, signé à Belgrade, le 12 mars 1930.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 429 du 31/08/1932 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-429-1932-tendant-a-lapprobation-du-protocole-annexe-a-a-convention-de-commerce-et-de-navigation-du-30-janvier-1929-entre-la-republique-francaise-et-le-royaume-de-yougoslavie-signe-a/>
+Loi · Journal officiel de la République de Djibouti, n° 429 du 31/08/1932 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-429-1932-tendant-a-lapprobation-du-protocole-annexe-a-a-convention-de-commerce-et-de-navigation-du-30-janvier-1929-entre-la-republique-francaise-et-le-royaume-de-yougoslavie-signe-a/>
 
 En vigueur : 1932-08-31 (date du Journal officiel qui le publie).
 

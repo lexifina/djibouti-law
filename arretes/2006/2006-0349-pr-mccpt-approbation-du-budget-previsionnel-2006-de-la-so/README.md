@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0349/PR/MCCPT portant approbation du Budget Prévisionnel 2006 de la Société Djibouti Télécom SA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0349-pr-mccpt-portant-approbation-du-budget-previsionnel-2006-de-la-societe-djibouti-telecom-sa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0349-pr-mccpt-portant-approbation-du-budget-previsionnel-2006-de-la-societe-djibouti-telecom-sa/>
 
 En vigueur : 2006-05-15 (date du Journal officiel qui le publie).
 

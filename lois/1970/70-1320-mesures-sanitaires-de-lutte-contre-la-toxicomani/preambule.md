@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art1. —le livre III du Code de la Santé publique est complété ainsi qu’’il suit :
 TITRE VI
 LUTTE CONTRE LA TOXICOMANIE

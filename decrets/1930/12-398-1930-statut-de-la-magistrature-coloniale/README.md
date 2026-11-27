@@ -1,6 +1,6 @@
 # Décret n° 12-398-1930 Statut de la magistrature coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-398-1930-statut-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-398-1930-statut-de-la-magistrature-coloniale/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 

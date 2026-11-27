@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. lpr. — L’article D. 424-2 du code de l’aviation civile est abrogé et remplacé par les dispositions suivantes :
 Article D. 424-2.
 Le conseil médical de l’aéronautique est chargé :

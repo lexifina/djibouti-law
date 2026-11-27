@@ -1,6 +1,6 @@
 # Décret n° 09/04/1941 rendant applicable à l’Algérie et aux colonies l’échange de lettre du 17 février 1941 relatif aux payements franco-luxembourgeois.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-04-1941-rendant-applicable-a-lalgerie-et-aux-colonies-lechange-de-lettre-du-17-fevrier-1941-relatif-aux-payements-franco-luxembourgeois/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-04-1941-rendant-applicable-a-lalgerie-et-aux-colonies-lechange-de-lettre-du-17-fevrier-1941-relatif-aux-payements-franco-luxembourgeois/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

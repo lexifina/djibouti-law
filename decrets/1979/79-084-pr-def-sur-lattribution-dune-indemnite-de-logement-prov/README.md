@@ -1,6 +1,6 @@
 # Décret n° 79-084/PR/DEF portant sur l’attribution d’une indemnité de logement provisoire au bénéfice des militaires de la Gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-084-pr-def-portant-sur-lattribution-dune-indemnite-de-logement-provisoire-au-benefice-des-militaires-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-084-pr-def-portant-sur-lattribution-dune-indemnite-de-logement-provisoire-au-benefice-des-militaires-de-la-gendarmerie-nationale/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

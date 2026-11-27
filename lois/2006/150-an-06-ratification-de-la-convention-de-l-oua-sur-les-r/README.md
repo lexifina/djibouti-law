@@ -1,6 +1,6 @@
 # Loi n° 150/AN/06/5ème L portant ratification de la Convention de l’OUA sur les réfugiés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-06-5eme-l-portant-ratification-de-la-convention-de-loua-sur-les-refugies/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n150-an-06-5eme-l-portant-ratification-de-la-convention-de-loua-sur-les-refugies/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

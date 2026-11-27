@@ -1,6 +1,6 @@
 # Décret n° 51-1186 relatif à la prise en compte du supplément familial de solde dans le calcul de l’indemnité différentielle prévue à l’article 12 du décret n° 51-1185 du 11 octobre 1951.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1186-relatif-a-la-prise-en-compte-du-supplement-familial-de-solde-dans-le-calcul-de-lindemnite-differentielle-prevue-a-larticle-12-du-decret-n-51-1185-du-11-octobre-1951/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1186-relatif-a-la-prise-en-compte-du-supplement-familial-de-solde-dans-le-calcul-de-lindemnite-differentielle-prevue-a-larticle-12-du-decret-n-51-1185-du-11-octobre-1951/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

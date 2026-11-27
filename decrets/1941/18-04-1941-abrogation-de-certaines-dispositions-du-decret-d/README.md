@@ -1,6 +1,6 @@
 # Décret n° 18/04/1941 portant abrogation de certaines dispositions du décret du 14 octobre 1939 réglementant la situation du personnel contractuel de l’administration en temps de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-04-1941-portant-abrogation-de-certaines-dispositions-du-decret-du-14-octobre-1939-reglementant-la-situation-du-personnel-contractuel-de-ladministration-en-temps-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-04-1941-portant-abrogation-de-certaines-dispositions-du-decret-du-14-octobre-1939-reglementant-la-situation-du-personnel-contractuel-de-ladministration-en-temps-de-guerre/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

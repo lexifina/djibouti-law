@@ -1,6 +1,6 @@
 # Loi n° 8/AN/82 portant approbation des comptes administratifs, exercices 1979 et 1980 de la Chambre internationale de Commerce et d’industrie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-82-portant-approbation-des-comptes-administratifs-exercices-1979-et-1980-de-la-chambre-internationale-de-commerce-et-dindustrie/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-82-portant-approbation-des-comptes-administratifs-exercices-1979-et-1980-de-la-chambre-internationale-de-commerce-et-dindustrie/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

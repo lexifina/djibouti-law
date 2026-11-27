@@ -1,6 +1,6 @@
 # Décret n° 2011-069/PR/MENESUP portant création d’un Service de la Scolarisation des Enfants à Besoins Spéciaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-069-pr-menesup-portant-creation-dun-service-de-la-scolarisation-des-enfants-a-besoins-speciaux/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-069-pr-menesup-portant-creation-dun-service-de-la-scolarisation-des-enfants-a-besoins-speciaux/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

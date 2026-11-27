@@ -1,8 +1,8 @@
 # Décret n° 93-0028/PR/TP définissant les conditions de vente de logements (1ère tranche) de la cité des fonctionnaires à Hayableh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0028-pr-tp-definissant-les-conditions-de-vente-de-logements-1ere-tranche-de-la-cite-des-fonctionnaires-a-hayableh/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0028-pr-tp-definissant-les-conditions-de-vente-de-logements-1ere-tranche-de-la-cite-des-fonctionnaires-a-hayableh/>
 
-En vigueur : 1993-04-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1993-04-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

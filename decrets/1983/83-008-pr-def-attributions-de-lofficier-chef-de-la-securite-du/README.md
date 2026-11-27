@@ -1,6 +1,6 @@
 # Décret n° 83-008/PR/DEF portant attributions de l’Officier Chef de la sécurité du Président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-008-pr-def-portant-attributions-de-lofficier-chef-de-la-securite-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-008-pr-def-portant-attributions-de-lofficier-chef-de-la-securite-du-president-de-la-republique/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 
@@ -24,5 +24,5 @@ Le Conseil des Ministres entendu dans sa séance du 25 Janvier 1983.
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [art-005.md](art-005.md) | Article 5 – |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-005.md](art-005.md) | Article 5 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2001-0099/PR/MEFPP relatif à la mise en place de crédit d’avance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0099-pr-mefpp-relatif-a-la-mise-en-place-de-credit-davance/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0099-pr-mefpp-relatif-a-la-mise-en-place-de-credit-davance/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 94‑0148/PR/EN du 7 novembre 1994 relatif aux enseignants d’Éducation Physique et Sportive en service au Ministère de la Jeunesse, des Sports et des Affaires culturelles.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/11/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910148-pr-en-du-7-novembre-1994-relatif-aux-enseignants-deducation-physique-et-sportive-en-service-au-ministere-de-la-jeunesse-des-sports-et-des-affaires-culturelles/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 15/11/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910148-pr-en-du-7-novembre-1994-relatif-aux-enseignants-deducation-physique-et-sportive-en-service-au-ministere-de-la-jeunesse-des-sports-et-des-affaires-culturelles/>
 
 En vigueur : 1994-11-15 (date du Journal officiel qui le publie).
 

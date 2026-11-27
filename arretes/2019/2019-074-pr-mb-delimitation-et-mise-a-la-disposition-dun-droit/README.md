@@ -1,8 +1,8 @@
 # Arrêté n° 2019-074/PR/MB portant délimitation et mise à la disposition d’un droit de servitude et de passage à la société POLY-GCL.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-074-pr-mb-portant-delimitation-et-mise-a-la-disposition-dun-droit-de-servitude-et-de-passage-a-la-societe-poly-gcl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-074-pr-mb-portant-delimitation-et-mise-a-la-disposition-dun-droit-de-servitude-et-de-passage-a-la-societe-poly-gcl/>
 
-En vigueur : 2019-04-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-04-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

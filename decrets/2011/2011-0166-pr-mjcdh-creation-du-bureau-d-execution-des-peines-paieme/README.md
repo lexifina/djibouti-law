@@ -1,8 +1,8 @@
 # Décret n° 2011-0166/PR/MJCDH portant création du bureau d’exécution des peines, paiement volontaire des amendes et procédure simplifiée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0166-pr-mjcdh-portant-creation-du-bureau-dexecution-des-peines-paiement-volontaire-des-amendes-et-procedure-simplifiee/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0166-pr-mjcdh-portant-creation-du-bureau-dexecution-des-peines-paiement-volontaire-des-amendes-et-procedure-simplifiee/>
 
-En vigueur : 2011-09-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-09-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

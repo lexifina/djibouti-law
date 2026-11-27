@@ -1,6 +1,6 @@
 # Arrêté n° 2017-021/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel Consolidé 2017 de l’HGP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-021-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2017-de-lhgp/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-021-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2017-de-lhgp/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

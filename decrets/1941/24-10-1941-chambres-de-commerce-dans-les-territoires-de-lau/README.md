@@ -1,6 +1,6 @@
 # Décret n° 24/10/1941 concernant les Chambres de commerce dans les territoires de l’autorité du Secrétariat d’Etat aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-10-1941-concernant-les-chambres-de-commerce-dans-les-territoires-de-lautorite-du-secretariat-detat-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-10-1941-concernant-les-chambres-de-commerce-dans-les-territoires-de-lautorite-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

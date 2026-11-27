@@ -1,6 +1,6 @@
 # Décret n° n°38 le décret du 18 mai 1921 qui modifie le tarif des retenues journalières mg op applicables aux hommes de troupe de la gendarmerie coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 295 du 30/06/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n38-le-decret-du-18-mai-1921-qui-modifie-le-tarif-des-retenues-journalieres-mg-op-applicables-aux-hommes-de-troupe-de-la-gendarmerie-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 295 du 30/06/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n38-le-decret-du-18-mai-1921-qui-modifie-le-tarif-des-retenues-journalieres-mg-op-applicables-aux-hommes-de-troupe-de-la-gendarmerie-coloniale/>
 
 En vigueur : 1921-06-30 (date du Journal officiel qui le publie).
 

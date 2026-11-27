@@ -1,6 +1,6 @@
 # Décret n° 13 janvier 1938 portant application, sous réserve de modifications, aux colonies françaises, dont la Côte française des Somalis, du décret du 30 octobre 1935 sur la protection des obligataires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 495 du 28/02/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-portant-application-sous-reserve-de-modifications-aux-colonies-francaises-dont-la-cote-francaise-des-somalis-du-decret-du-30-octobre-1935-sur-la-protection-des-obli/>
+Décret · Journal officiel de la République de Djibouti, n° 495 du 28/02/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-portant-application-sous-reserve-de-modifications-aux-colonies-francaises-dont-la-cote-francaise-des-somalis-du-decret-du-30-octobre-1935-sur-la-protection-des-obli/>
 
 En vigueur : 1938-02-28 (date du Journal officiel qui le publie).
 

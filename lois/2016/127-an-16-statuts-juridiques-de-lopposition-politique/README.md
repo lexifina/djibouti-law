@@ -1,8 +1,8 @@
 # Loi n° 127/AN/16/7ème L portant statuts Juridiques de l’Opposition Politique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-16-7eme-l-portant-statuts-juridiques-de-lopposition-politique/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-16-7eme-l-portant-statuts-juridiques-de-lopposition-politique/>
 
-En vigueur : 2016-02-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-02-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -82,4 +82,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | ARTICLE 29 |
 | [art-030.md](art-030.md) | ARTICLE 30 |
 | [art-031.md](art-031.md) | ARTICLE 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

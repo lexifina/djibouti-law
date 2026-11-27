@@ -1,6 +1,6 @@
 # Arrêté n° 2019-038/PR/MEFI portant adoption du Budget Prévisionnelle de l’exercice 2019 du Fonds de garantie partielle des Crédits de Djibouti (FGPCD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-038-pr-mefi-portant-adoption-du-budget-previsionnelle-de-lexercice-2019-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-038-pr-mefi-portant-adoption-du-budget-previsionnelle-de-lexercice-2019-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

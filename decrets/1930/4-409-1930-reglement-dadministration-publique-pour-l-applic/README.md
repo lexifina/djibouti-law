@@ -1,6 +1,6 @@
 # Décret n° 4-409-1930 Règlement d’administration publique pour l’application de l’article 201 de la loi de finances du 16 avril 1930 instituant l’allocation du combattant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-409-1930-reglement-dadministration-publique-pour-lapplication-de-larticle-201-de-la-loi-de-finances-du-16-avril-1930-instituant-lallocation-du-combattant/>
+Décret · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-409-1930-reglement-dadministration-publique-pour-lapplication-de-larticle-201-de-la-loi-de-finances-du-16-avril-1930-instituant-lallocation-du-combattant/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 
@@ -57,7 +57,7 @@ André MALLARMÉ,
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

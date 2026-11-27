@@ -1,6 +1,6 @@
 # Loi n° 151/AN/11/6ème L portant Organisation du Secrétariat d’Etat à la Jeunesse et aux sports.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-11-6eme-l-portant-organisation-du-secretariat-detat-a-la-jeunesse-et-aux-sports/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-11-6eme-l-portant-organisation-du-secretariat-detat-a-la-jeunesse-et-aux-sports/>
 
 En vigueur : 2012-08-15 (date du Journal officiel qui le publie).
 
@@ -98,4 +98,4 @@ ISMAÏL OMAR GUELLEH
 | [art-063.md](art-063.md) | Article 63 |
 | [art-064.md](art-064.md) | Article 64 |
 | [art-065.md](art-065.md) | Article 65 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

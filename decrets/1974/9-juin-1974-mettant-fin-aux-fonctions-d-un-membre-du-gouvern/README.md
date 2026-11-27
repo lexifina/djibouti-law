@@ -1,6 +1,6 @@
 # Décret n° 9 JUIN 1974 mettant fin aux fonctions d’un membre du Gouvernement
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-juin-1974-mettant-fin-aux-fonctions-dun-membre-du-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-juin-1974-mettant-fin-aux-fonctions-dun-membre-du-gouvernement/>
 
 En vigueur : 1974-06-25 (date du Journal officiel qui le publie).
 

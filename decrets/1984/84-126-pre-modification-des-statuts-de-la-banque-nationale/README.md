@@ -1,6 +1,6 @@
 # Décret n° 84-126/PRE portant modification des statuts de la banque nationale de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-126-pre-portant-modification-des-statuts-de-la-banque-nationale-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-126-pre-portant-modification-des-statuts-de-la-banque-nationale-de-djibouti/>
 
 En vigueur : 1984-12-31 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ LE CONSEIL DES MINISTRES ENTENDU EN SA SEANCE DU 20 NOVEMBRE 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

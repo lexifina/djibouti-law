@@ -1,6 +1,6 @@
 # Décret n° 45-2007 portant fixation : 1 des taxes postales applicables aux journaux et écrits périodiques dan» le régime intérieur ainsi que dans les relation» francocoloniale» et intercoloniales; 2° de» taxe*, télégraphique» de presse dans le régi me intérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2007-portant-fixation-1-des-taxes-postales-applicables-aux-journaux-et-ecrits-periodiques-dan-le-regime-interieur-ainsi-que-dans-les-relation-francocoloniale-et/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2007-portant-fixation-1-des-taxes-postales-applicables-aux-journaux-et-ecrits-periodiques-dan-le-regime-interieur-ainsi-que-dans-les-relation-francocoloniale-et/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

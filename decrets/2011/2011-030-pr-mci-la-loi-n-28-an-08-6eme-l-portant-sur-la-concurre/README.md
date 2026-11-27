@@ -1,6 +1,6 @@
 # Décret n° 2011-030/PR/MCI de la Loi n° 28/AN/08/6ème L portant sur la concurrence, la répression de la fraude et de la protection du consommateur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-030-pr-mci-de-la-loi-n28-an-08-6eme-l-portant-sur-la-concurrence-la-repression-de-la-fraude-et-de-la-protection-du-consommateur/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-030-pr-mci-de-la-loi-n28-an-08-6eme-l-portant-sur-la-concurrence-la-repression-de-la-fraude-et-de-la-protection-du-consommateur/>
 
 En vigueur : 2011-02-28 (date du Journal officiel qui le publie).
 
@@ -54,4 +54,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

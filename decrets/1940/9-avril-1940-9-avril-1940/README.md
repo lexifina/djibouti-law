@@ -1,6 +1,6 @@
 # Décret n° 9 avril 1940 9 avril 1940
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-avril-1940-9-avril-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-avril-1940-9-avril-1940/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 
@@ -39,7 +39,7 @@ Le Harde des Préaux, Ministre df la justice, Albert SÉnor, Le Ministre de la m
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

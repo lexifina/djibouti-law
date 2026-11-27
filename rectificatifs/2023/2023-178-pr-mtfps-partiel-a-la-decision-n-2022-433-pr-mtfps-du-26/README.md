@@ -1,6 +1,6 @@
 # 2023-178/PR/MTFPS partiel à la décision n° 2022-433/PR/MTFPS du 26 décembre 2022 portant versement de M. Mohamed Houssein Ali.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-178-pr-mtfps-partiel-a-la-decision-n-2022-433-pr-mtfps-du-26-decembre-2022-portant-versement-de-m-mohamed-houssein-ali/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 8 du 30/04/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-178-pr-mtfps-partiel-a-la-decision-n-2022-433-pr-mtfps-du-26-decembre-2022-portant-versement-de-m-mohamed-houssein-ali/>
 
 En vigueur : 2023-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

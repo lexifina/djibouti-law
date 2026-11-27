@@ -1,6 +1,6 @@
 # Décret n° 2003-0080/PR/MET fixant l’objet, l’organisation et les règles de fonctionnement du Conseil National des Transports Urbains et Interurbains créé par l’article 33 de la Loi n° 190/AN/02/4ème L du 17 octobre 2002.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0080-pr-met-fixant-lobjet-lorganisation-et-les-regles-de-fonctionnement-du-conseil-national-des-transports-urbains-et-interurbains-cree-par-larticle-33-d/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0080-pr-met-fixant-lobjet-lorganisation-et-les-regles-de-fonctionnement-du-conseil-national-des-transports-urbains-et-interurbains-cree-par-larticle-33-d/>
 
 En vigueur : 2003-05-15 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAIL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

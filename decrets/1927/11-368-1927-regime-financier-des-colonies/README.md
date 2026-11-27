@@ -1,6 +1,6 @@
 # Décret n° 11-368-1927 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 368 du 31/07/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-368-1927-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 368 du 31/07/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-368-1927-regime-financier-des-colonies/>
 
 En vigueur : 1927-07-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Léon PERRIER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-402.md](art-402.md) | Art. 402 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

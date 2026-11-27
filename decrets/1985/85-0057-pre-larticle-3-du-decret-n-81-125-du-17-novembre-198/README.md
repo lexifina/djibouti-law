@@ -1,6 +1,6 @@
 # Décret n° 85-0057/PRE modifiant l’article 3 du décret n° 81-125 du 17 novembre 1981 instituant une Carte Nationale d’Identité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-0057-pre-modifiant-larticle-3-du-decret-n81-125-du-17-novembre-1981-instituant-une-carte-nationale-didentite/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-0057-pre-modifiant-larticle-3-du-decret-n81-125-du-17-novembre-1981-instituant-une-carte-nationale-didentite/>
 
 En vigueur : 1985-07-31 (date du Journal officiel qui le publie).
 

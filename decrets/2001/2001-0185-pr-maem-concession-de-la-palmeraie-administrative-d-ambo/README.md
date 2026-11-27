@@ -1,6 +1,6 @@
 # Décret n° 2001-0185/PR/MAEM portant concession de la Palmeraie Administrative d’Ambouli.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0185-pr-maem-portant-concession-de-la-palmeraie-administrative-dambouli/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0185-pr-maem-portant-concession-de-la-palmeraie-administrative-dambouli/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

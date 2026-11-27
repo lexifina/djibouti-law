@@ -1,6 +1,6 @@
 # Loi n° 13-416-1931 Loi ratifiant le décret du 5 juin 1930 complétant le décret organique du 23 juin 1921 sur le fonctionnement du service des douanes à la Côte française des Somalis.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-13-416-1931-loi-ratifiant-le-decret-du-5-juin-1930-completant-le-decret-organique-du-23-juin-1921-sur-le-fonctionnement-du-service-des-douanes-a-la-cote-francaise-des-somalis/>
+Loi · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/loi-n-13-416-1931-loi-ratifiant-le-decret-du-5-juin-1930-completant-le-decret-organique-du-23-juin-1921-sur-le-fonctionnement-du-service-des-douanes-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 98-0005/PR/MTFP complétant l’organisation de l’OPS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0005-pr-mtfp-completant-lorganisation-de-lops/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0005-pr-mtfp-completant-lorganisation-de-lops/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

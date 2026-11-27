@@ -1,6 +1,6 @@
 # LOI N°192/AN/25/9ème L PORTANT RÉVISION DE LA CONSTITUTION
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 06/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-25-9eme-l-portant-revision-de-la-constitution/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 06/11/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-25-9eme-l-portant-revision-de-la-constitution/>
 
 En vigueur : 2025-11-07 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

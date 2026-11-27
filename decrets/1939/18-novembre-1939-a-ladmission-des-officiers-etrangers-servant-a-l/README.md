@@ -1,6 +1,6 @@
 # Décret n° 18 novembre 1939 relatif à l’admission des officiers étrangers servant à la légion étrangère avec un grade d’officier ou de sous-officier à servir sur tous les théâtres d’opérations,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-novembre-1939-relatif-a-ladmission-des-officiers-etrangers-servant-a-la-legion-etrangere-avec-un-grade-dofficier-ou-de-sous-officier-a-servir-sur-tous-les-theatres-doperations/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-novembre-1939-relatif-a-ladmission-des-officiers-etrangers-servant-a-la-legion-etrangere-avec-un-grade-dofficier-ou-de-sous-officier-a-servir-sur-tous-les-theatres-doperations/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 

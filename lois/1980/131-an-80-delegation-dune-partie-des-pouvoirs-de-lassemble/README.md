@@ -1,6 +1,6 @@
 # Loi n° 131/AN/80 portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente, jusqu’à l’ouverture de la deuxième session ordinaire de 1980 dite « Session budgétaire».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-80-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1980-dite-s/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n131-an-80-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-de-1980-dite-s/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

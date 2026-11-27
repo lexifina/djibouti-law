@@ -1,6 +1,6 @@
 # Loi n° 145/AN/97/3ème L portant approbation des Comptes Administratifs de la Chambre Internationale de Commerce et d’Industrie de Djibouti et des Magasins Généraux pour l’Exercice 1996.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-97-3eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1996/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-97-3eme-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1996/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

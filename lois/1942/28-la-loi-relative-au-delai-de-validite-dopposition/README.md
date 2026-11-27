@@ -1,6 +1,6 @@
 # Loi n° 28 La loi relative au délai de validité d’opposition sur les titres au porteur
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-28-la-loi-relative-au-delai-de-validite-dopposition-sur-les-titres-au-porteur/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 31/08/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-28-la-loi-relative-au-delai-de-validite-dopposition-sur-les-titres-au-porteur/>
 
 En vigueur : 1942-08-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ BREVIE
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 \rt. ler la représentation du Comité
 National Français dans le* pays étrangers
 est confiée

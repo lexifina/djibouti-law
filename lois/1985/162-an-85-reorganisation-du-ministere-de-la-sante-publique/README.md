@@ -1,6 +1,6 @@
 # Loi n° 162/AN/85/1ère L portant réorganisation du Ministère de la Santé Publique et des Affaires Sociales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-85-1ere-l-portant-reorganisation-du-ministere-de-la-sante-publique-et-des-affaires-sociales/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-85-1ere-l-portant-reorganisation-du-ministere-de-la-sante-publique-et-des-affaires-sociales/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0091/PR/MEFPCP portant attribution à Global Fund Investment Limited (GFI) une parcelle de terrain sise aux Salines.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0091-pr-mefpcp-portant-attribution-a-global-fund-investment-limited-gfi-une-parcelle-de-terrain-sise-aux-salines/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0091-pr-mefpcp-portant-attribution-a-global-fund-investment-limited-gfi-une-parcelle-de-terrain-sise-aux-salines/>
 
 En vigueur : 2008-02-14 (date du Journal officiel qui le publie).
 

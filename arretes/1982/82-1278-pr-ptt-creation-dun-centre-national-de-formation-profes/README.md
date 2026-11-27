@@ -1,6 +1,6 @@
 # Arrêté n° 82-1278/PR/PTT portant création d’un Centre National de Formation Professionnelle des Postes et Télécommunications.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/10/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1278-pr-ptt-portant-creation-dun-centre-national-de-formation-professionnelle-des-postes-et-telecommunications/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 30/10/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1278-pr-ptt-portant-creation-dun-centre-national-de-formation-professionnelle-des-postes-et-telecommunications/>
 
 En vigueur : 1982-10-30 (date du Journal officiel qui le publie).
 

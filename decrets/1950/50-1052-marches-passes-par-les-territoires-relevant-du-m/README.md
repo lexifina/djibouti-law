@@ -1,6 +1,6 @@
 # Décret n° 50-1052 relatif aux marchés passés par les territoires relevant du ministère de la France d’outre-mer sur le régime financier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1052-relatif-aux-marches-passes-par-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-sur-le-regime-financier/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1052-relatif-aux-marches-passes-par-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-sur-le-regime-financier/>
 
 En vigueur : 1950-09-30 (date du Journal officiel qui le publie).
 

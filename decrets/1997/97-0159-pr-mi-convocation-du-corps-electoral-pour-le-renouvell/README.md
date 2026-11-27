@@ -1,6 +1,6 @@
 # Décret n° 97-0159/PR/MI portant convocation du corps électoral pour le renouvellement des députés à l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0159-pr-mi-portant-convocation-du-corps-electoral-pour-le-renouvellement-des-deputes-a-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0159-pr-mi-portant-convocation-du-corps-electoral-pour-le-renouvellement-des-deputes-a-lassemblee-nationale/>
 
 En vigueur : 1997-11-15 (date du Journal officiel qui le publie).
 

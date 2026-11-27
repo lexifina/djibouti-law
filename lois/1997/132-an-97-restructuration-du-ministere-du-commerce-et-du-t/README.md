@@ -1,6 +1,6 @@
 # Loi n° 132/AN/97 Portant Restructuration du Ministère du Commerce et du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/05/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-97-portant-restructuration-du-ministere-du-commerce-et-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/05/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-97-portant-restructuration-du-ministere-du-commerce-et-du-tourisme/>
 
 En vigueur : 1997-05-15 (date du Journal officiel qui le publie).
 
@@ -63,4 +63,4 @@ HASSAN GOU ED APTIDON
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

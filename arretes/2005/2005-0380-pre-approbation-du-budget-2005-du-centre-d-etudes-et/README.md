@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0380/PRE Portant approbation du budget 2005 du Centre d’Études et des Recherches de Djibouti (CERD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0380-pre-portant-approbation-du-budget-2005-du-centre-detudes-et-des-recherches-de-djibouti-cerd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0380-pre-portant-approbation-du-budget-2005-du-centre-detudes-et-des-recherches-de-djibouti-cerd/>
 
 En vigueur : 2005-06-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE Ier
 Dispositions générales
 Art. der. Dans les colonies et pays de protectorat, la police sanitaire maritime a pour objet, en exécution de la loi du 3 mars 1822 et des conventions sanilaires internationales auxquelles a adhéré le gouvernement de la République française :

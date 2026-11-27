@@ -1,6 +1,6 @@
 # Loi n° 146/AN/22/8ème L portant ratification des Statuts du Centre International de Génie Génétique et de Biotechnologie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-22-8eme-l-portant-ratification-des-statuts-du-centre-international-de-genie-genetique-et-de-biotechnologie/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-22-8eme-l-portant-ratification-des-statuts-du-centre-international-de-genie-genetique-et-de-biotechnologie/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2015-795/PR/MTRA portant codification et tarification des actes de soins pris en charge par l’Assurance Maladie Universelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-795-pr-mtra-portant-codification-et-tarification-des-actes-de-soins-pris-en-charge-par-lassurance-maladie-universelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-795-pr-mtra-portant-codification-et-tarification-des-actes-de-soins-pris-en-charge-par-lassurance-maladie-universelle/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

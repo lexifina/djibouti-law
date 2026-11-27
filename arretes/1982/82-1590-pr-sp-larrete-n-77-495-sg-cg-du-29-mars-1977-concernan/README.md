@@ -1,6 +1,6 @@
 # Arrêté n° 82-1590/PR/SP modifiant l’arrêté n° 77-495/SG/CG du 29 mars 1977 concernant l’organisation du Corps Territorial de la Santé Publique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1590-pr-sp-modifiant-larrete-n77-495-sg-cg-du-29-mars-1977-concernant-lorganisation-du-corps-territorial-de-la-sante-publique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/11/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1590-pr-sp-modifiant-larrete-n77-495-sg-cg-du-29-mars-1977-concernant-lorganisation-du-corps-territorial-de-la-sante-publique/>
 
 En vigueur : 1982-11-30 (date du Journal officiel qui le publie).
 

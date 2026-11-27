@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0955/PR/MS portant création du Comité de Pilotage pour la transformation de l’Hôpital Général Peltier en Centre Hospitalo-universitaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0955-pr-ms-portant-creation-du-comite-de-pilotage-pour-la-transformation-de-lhopital-general-peltier-en-centre-hospitalo-universitaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0955-pr-ms-portant-creation-du-comite-de-pilotage-pour-la-transformation-de-lhopital-general-peltier-en-centre-hospitalo-universitaire/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 
@@ -65,4 +65,4 @@ Le Conseil des Ministres entendu en sa séance du 03 novembre 2009.
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

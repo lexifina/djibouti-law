@@ -1,6 +1,6 @@
 # Loi n° 151/AN/06/5ème L modifiant la Loi n° 96/AN/00/4ème L portant orientation du système éducatif djiboutien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-06-5eme-l-modifiant-la-loi-n96-an-00-4eme-l-portant-orientation-du-systeme-educatif-djiboutien/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-06-5eme-l-modifiant-la-loi-n96-an-00-4eme-l-portant-orientation-du-systeme-educatif-djiboutien/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

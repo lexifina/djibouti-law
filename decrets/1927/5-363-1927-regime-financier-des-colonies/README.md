@@ -1,6 +1,6 @@
 # Décret n° 5-363-1927 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 363 du 01/02/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-363-1927-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 363 du 01/02/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-363-1927-regime-financier-des-colonies/>
 
 En vigueur : 1927-02-01 (date du Journal officiel qui le publie).
 

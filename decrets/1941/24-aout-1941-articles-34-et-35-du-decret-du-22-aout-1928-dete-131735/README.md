@@ -1,6 +1,6 @@
 # Décret n° 24 août 1941 modifiant les articles 34 et 35 du décret du 22 août 1928, déterminant le statut de la Magistrature coloniale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-aout-1941-modifiant-les-articles-34-et-35-du-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-aout-1941-modifiant-les-articles-34-et-35-du-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

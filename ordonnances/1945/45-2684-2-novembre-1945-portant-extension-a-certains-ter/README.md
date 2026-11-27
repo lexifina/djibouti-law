@@ -1,6 +1,6 @@
 # Ordonnance n° 45 2684 du 2 novembre 1945 portant extension a certains territoires d’outre-mer relevant du ministère des colonies de l’article 1er de l’ordonnance du 15 juin 1945 supprimant la censure préalable pour la presse française
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2684-du-2-novembre-1945-portant-extension-a-certains-territoires-doutre-mer-relevant-du-ministere-des-colonies-de-larticle-1er-de-lordonnance-du-15-juin-1945-suppri/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2684-du-2-novembre-1945-portant-extension-a-certains-territoires-doutre-mer-relevant-du-ministere-des-colonies-de-larticle-1er-de-lordonnance-du-15-juin-1945-suppri/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

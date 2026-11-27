@@ -1,8 +1,8 @@
 # Loi n° 75/AN/95/3ème L portant approbation du Code des Marchés Publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 0 du 14/02/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-95-3eme-l-portant-approbation-du-code-des-marches-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 0 du 14/02/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-95-3eme-l-portant-approbation-du-code-des-marches-publics/>
 
-En vigueur : 1995-02-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1995-02-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -33,4 +33,4 @@ HASSAN GOULED APTIDON
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

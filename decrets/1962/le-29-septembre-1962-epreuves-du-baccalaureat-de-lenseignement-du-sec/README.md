@@ -1,6 +1,6 @@
 # Décret n° le 29 septembre 1962. Epreuves du baccalauréat de l’enseignement du second degré
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-29-septembre-1962-epreuves-du-baccalaureat-de-lenseignement-du-second-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-29-septembre-1962-epreuves-du-baccalaureat-de-lenseignement-du-second-degre/>
 
 En vigueur : 1962-11-30 (date du Journal officiel qui le publie).
 

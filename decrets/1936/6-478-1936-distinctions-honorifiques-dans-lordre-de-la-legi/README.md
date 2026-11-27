@@ -1,6 +1,6 @@
 # Décret n° 6-478-1936 Distinctions honorifiques dans l’ordre de la Légion d’honneur (magistrature coloniale).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-478-1936-distinctions-honorifiques-dans-lordre-de-la-legion-dhonneur-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-478-1936-distinctions-honorifiques-dans-lordre-de-la-legion-dhonneur-magistrature-coloniale/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

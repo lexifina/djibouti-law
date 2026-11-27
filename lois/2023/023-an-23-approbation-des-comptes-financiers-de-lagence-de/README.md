@@ -1,6 +1,6 @@
 # Loi n° 23/AN/23/9ème L portant approbation des comptes financiers de l’Agence de Réhabilitation Urbaine et du Logement Social (ARULOS) pour l’exercice 2022.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos-pour-lexercice-2022/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-arulos-pour-lexercice-2022/>
 
 En vigueur : 2024-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

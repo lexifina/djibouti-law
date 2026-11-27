@@ -1,6 +1,6 @@
 # Arrêté n° 2019-203/PR/MENFOP portant approbation du budget prévisionnel de l’exercice 2020 du CRIPEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-203-pr-menfop-portant-approbation-du-budget-previsionnel-de-lexercice-2020-du-cripen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-203-pr-menfop-portant-approbation-du-budget-previsionnel-de-lexercice-2020-du-cripen/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

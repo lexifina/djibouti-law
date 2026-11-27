@@ -1,6 +1,6 @@
 # Ordonnance n° 92‑0041/PRE/MI modifiant la Loi n° 220/AN/86/1ère L autorisant Officiers d’Etat-Civil à délivrer des Actes de Notoriété Supplétif d’Acte de Naissance.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92%e2%80%910041-pre-mi-modifiant-la-loi-n220-an-86-1ere-l-autorisant-officiers-detat-civil-a-delivrer-des-actes-de-notoriete-suppletif-dacte-de-naissance/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92%e2%80%910041-pre-mi-modifiant-la-loi-n220-an-86-1ere-l-autorisant-officiers-detat-civil-a-delivrer-des-actes-de-notoriete-suppletif-dacte-de-naissance/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 

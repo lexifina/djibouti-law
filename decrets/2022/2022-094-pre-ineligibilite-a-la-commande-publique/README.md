@@ -1,6 +1,6 @@
 # Décret n° 2022-094/PRE portant Inéligibilité à la Commande Publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-094-pre-portant-ineligibilite-a-la-commande-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-094-pre-portant-ineligibilite-a-la-commande-publique/>
 
 En vigueur : 2022-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

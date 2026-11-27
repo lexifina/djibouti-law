@@ -1,6 +1,6 @@
 # Décret n° 2013-087/PR/MJDH relatif aux attributions et à l’organisation des missions de l’Inspection Générale des Services Judiciaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-087-pr-mjdh-relatif-aux-attributions-et-a-lorganisation-des-missions-de-linspection-generale-des-services-judiciaires/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-087-pr-mjdh-relatif-aux-attributions-et-a-lorganisation-des-missions-de-linspection-generale-des-services-judiciaires/>
 
 En vigueur : 2013-05-15 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

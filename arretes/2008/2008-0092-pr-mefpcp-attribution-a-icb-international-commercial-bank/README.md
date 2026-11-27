@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0092/PR/MEFPCP portant attribution à ICB (International Commercial Bank) une parcelle de terrain sise au Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0092-pr-mefpcp-portant-attribution-a-icb-international-commercial-bank-une-parcelle-de-terrain-sise-au-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0092-pr-mefpcp-portant-attribution-a-icb-international-commercial-bank-une-parcelle-de-terrain-sise-au-salines-ouest/>
 
 En vigueur : 2008-02-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2021-100/PR/MTRA portant réécriture et harmonisation des statuts particuliers des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 13/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-100-pr-mtra-portant-reecriture-et-harmonisation-des-statuts-particuliers-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 13/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-100-pr-mtra-portant-reecriture-et-harmonisation-des-statuts-particuliers-des-fonctionnaires/>
 
 En vigueur : 2021-05-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2023-271/PR/MEFI portant approbation de la charte d’éthique et de déontologie de l’auditeur interne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-271-pr-mefi-portant-approbation-de-la-charte-dethique-et-de-deontologie-de-lauditeur-interne/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 14/09/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-271-pr-mefi-portant-approbation-de-la-charte-dethique-et-de-deontologie-de-lauditeur-interne/>
 
-En vigueur : 2023-09-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-09-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

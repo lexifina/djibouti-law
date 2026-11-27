@@ -1,6 +1,6 @@
 # Décret n° du 2 avril 1942 constatant la nullité de certaines associations secrètes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-avril-1942-constatant-la-nullite-de-certaines-associations-secretes/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-2-avril-1942-constatant-la-nullite-de-certaines-associations-secretes/>
 
 En vigueur : 1942-04-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Platon.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 45-0175 relatif à l’attribution du complément de solde aux adjoints techniques du cadre général des travaux publics et mines des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0175-relatif-a-lattribution-du-complement-de-solde-aux-adjoints-techniques-du-cadre-general-des-travaux-publics-et-mines-des-colonies-2/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0175-relatif-a-lattribution-du-complement-de-solde-aux-adjoints-techniques-du-cadre-general-des-travaux-publics-et-mines-des-colonies-2/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2020-073/PR/PM modifiant certaines dispositions du décret n° 2020-68/PR/MTRA portant création du Fonds d’Urgence et de Solidarité (COVID-19).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-073-pr-pm-modifiant-certaines-dispositions-du-decret-n2020-68-pr-mtra-portant-creation-du-fonds-durgence-et-de-solidarite-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-073-pr-pm-modifiant-certaines-dispositions-du-decret-n2020-68-pr-mtra-portant-creation-du-fonds-durgence-et-de-solidarite-covid-19/>
 
-En vigueur : 2020-04-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-04-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

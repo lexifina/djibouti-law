@@ -1,6 +1,6 @@
 # Décret n° 09-433-1932 16 novembre 1932,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 433 du 31/12/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-433-1932-16-novembre-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 433 du 31/12/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-433-1932-16-novembre-1932/>
 
 En vigueur : 1932-12-31 (date du Journal officiel qui le publie).
 

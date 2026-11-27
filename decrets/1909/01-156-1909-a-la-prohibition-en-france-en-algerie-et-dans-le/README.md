@@ -1,6 +1,6 @@
 # Décret n° 01-156-1909 relatif à la prohibition en France, en Algérie et dans les colonies, de l’importation des monnaies divisionnaires d’argent grecques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 156 du 01/11/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-156-1909-relatif-a-la-prohibition-en-france-en-algerie-et-dans-les-colonies-de-limportation-des-monnaies-divisionnaires-dargent-grecques/>
+Décret · Journal officiel de la République de Djibouti, n° 156 du 01/11/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-156-1909-relatif-a-la-prohibition-en-france-en-algerie-et-dans-les-colonies-de-limportation-des-monnaies-divisionnaires-dargent-grecques/>
 
 En vigueur : 1909-11-01 (date du Journal officiel qui le publie).
 

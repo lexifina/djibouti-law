@@ -1,8 +1,8 @@
 # Arrêté n° 2016-754/PR/MD portant création d’une tenue spécifique du Service de Santé des Armées.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-754-pr-md-portant-creation-dune-tenue-specifique-du-service-de-sante-des-armees/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-754-pr-md-portant-creation-dune-tenue-specifique-du-service-de-sante-des-armees/>
 
-En vigueur : 2016-11-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-11-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

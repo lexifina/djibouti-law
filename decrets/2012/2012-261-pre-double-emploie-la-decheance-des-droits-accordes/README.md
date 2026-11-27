@@ -2,7 +2,7 @@
 – la déchéance des droits accordés en vertu du titre foncier n° 79.
 – l’attribution de ces droits à Mme AICHA AHMED OSMAN.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-261-pre-portant-double-emploie-la-decheance-des-droits-accordes-en-vertu-du-titre-foncier-n-79-lattribution-de-ces-droits-a-mme-aicha-ahmed-osman/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-261-pre-portant-double-emploie-la-decheance-des-droits-accordes-en-vertu-du-titre-foncier-n-79-lattribution-de-ces-droits-a-mme-aicha-ahmed-osman/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

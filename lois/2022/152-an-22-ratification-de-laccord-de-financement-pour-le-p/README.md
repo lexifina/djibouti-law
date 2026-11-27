@@ -1,8 +1,8 @@
 # Loi n° 152/AN/22/8ème L portant ratification de l’Accord de financement pour le projet de Corridor Economique Régional de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-corridor-economique-regional-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 14/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-corridor-economique-regional-de-djibouti/>
 
-En vigueur : 2022-07-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-07-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 13-442-1933 Suppression de l’obligation de l’éducation des liqueurs similaires d’absinthe.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-442-1933-suppression-de-lobligation-de-leducation-des-liqueurs-similaires-dabsinthe/>
+Décret · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-442-1933-suppression-de-lobligation-de-leducation-des-liqueurs-similaires-dabsinthe/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 

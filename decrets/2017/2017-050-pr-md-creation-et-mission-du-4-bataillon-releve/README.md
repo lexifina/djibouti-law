@@ -1,6 +1,6 @@
 # Décret n° 2017-050/PR/MD portant création et mission du 4° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-050-pr-md-portant-creation-et-mission-du-4-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-050-pr-md-portant-creation-et-mission-du-4-bataillon-releve/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

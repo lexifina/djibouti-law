@@ -1,6 +1,6 @@
 # Loi n° 51-443 modifiant l’ordonnance n° 45-2184 du 24 septembre 1945 relative à l’exercice et à l’organisation des professions de médecin, chirurgien-dentiste et de sage-femme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-51-443-modifiant-lordonnance-n-45-2184-du-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-chirurgien-dentiste-et-de-sage-femme/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 01/12/1952 · <https://www.journalofficiel.dj/texte-juridique/loi-n-51-443-modifiant-lordonnance-n-45-2184-du-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-chirurgien-dentiste-et-de-sage-femme/>
 
 En vigueur : 1952-12-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2011-034/PR/MHUEAT portant prolongation de la révision tarifaire de la cession amiable dans les anciens quartiers de Djibouti-ville et de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-034-pr-mhueat-portant-prolongation-de-la-revision-tarifaire-de-la-cession-amiable-dans-les-anciens-quartiers-de-djibouti-ville-et-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-034-pr-mhueat-portant-prolongation-de-la-revision-tarifaire-de-la-cession-amiable-dans-les-anciens-quartiers-de-djibouti-ville-et-de-balbala/>
 
 En vigueur : 2011-03-15 (date du Journal officiel qui le publie).
 

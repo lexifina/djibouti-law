@@ -1,6 +1,6 @@
 # Loi n° 110/AN/15/7ème L portant suppression de la taxe solidarité prélevée sur la masse des pensions et des retenues remboursées au profit de l’ex Caisse Nationale de Retraite.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-15-7eme-l-portant-suppression-de-la-taxe-solidarite-prelevee-sur-la-masse-des-pensions-et-des-retenues-remboursees-au-profit-de-lex-caisse-nationale-de-retraite/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-15-7eme-l-portant-suppression-de-la-taxe-solidarite-prelevee-sur-la-masse-des-pensions-et-des-retenues-remboursees-au-profit-de-lex-caisse-nationale-de-retraite/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

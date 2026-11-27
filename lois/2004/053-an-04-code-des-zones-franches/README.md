@@ -1,6 +1,6 @@
 # Loi n° 53/AN/04/5ème L portant Code des Zones Franches.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-04-5eme-l-portant-code-des-zones-franches/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-04-5eme-l-portant-code-des-zones-franches/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-048.md](art-048.md) | Article 48 |
 | [art-049.md](art-049.md) | Article 49 |
 | [art-050.md](art-050.md) | Article 50 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° n°43 la loi du 27 octobre 1919 abrogeant l’alinéa à de l’article 37 du code civil.,,.,,,.,.,.,….
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 277 du 30/11/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n43-la-loi-du-27-octobre-1919-abrogeant-lalinea-a-de-larticle-37-du-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 277 du 30/11/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n43-la-loi-du-27-octobre-1919-abrogeant-lalinea-a-de-larticle-37-du-code-civil/>
 
 En vigueur : 1919-11-30 (date du Journal officiel qui le publie).
 

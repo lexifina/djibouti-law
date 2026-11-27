@@ -1,6 +1,6 @@
 # Loi n° 09/AN/13/7ème L portant ratification de l’Accord de prêt du projet d’appui institutionnel au FDED avec le Fonds de l’OPEP.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n09-an-13-7eme-l-portant-ratification-de-laccord-de-pret-du-projet-dappui-institutionnel-au-fded-avec-le-fonds-de-lopep/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n09-an-13-7eme-l-portant-ratification-de-laccord-de-pret-du-projet-dappui-institutionnel-au-fded-avec-le-fonds-de-lopep/>
 
 En vigueur : 2013-06-30 (date du Journal officiel qui le publie).
 

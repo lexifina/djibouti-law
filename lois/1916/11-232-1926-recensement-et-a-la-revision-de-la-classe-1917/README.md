@@ -1,6 +1,6 @@
 # Loi n° 11-232-1926 relative au recensement et à la révision de la classe 1917.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-232-1926-relative-au-recensement-et-a-la-revision-de-la-classe-1917/>
+Loi · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-232-1926-relative-au-recensement-et-a-la-revision-de-la-classe-1917/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 

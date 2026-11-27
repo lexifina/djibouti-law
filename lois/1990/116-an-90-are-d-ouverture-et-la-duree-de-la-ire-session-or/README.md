@@ -1,6 +1,6 @@
 # Loi n° 116/AN/90/2e L fixant la are d’ouverture et la durée de la ire session ordinalre de 1990.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-90-2e-l-fixant-la-are-douverture-et-la-duree-de-la-ire-session-ordinalre-de-1990/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-90-2e-l-fixant-la-are-douverture-et-la-duree-de-la-ire-session-ordinalre-de-1990/>
 
 En vigueur : 1990-06-30 (date du Journal officiel qui le publie).
 
@@ -19,6 +19,6 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
-| [art-002.md](art-002.md) | Art.2 – |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art. 3 |

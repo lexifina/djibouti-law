@@ -1,6 +1,6 @@
 # Décret n° 60-812 relatif aux mesures particulières de protection et de sauvegarde des installations d’hydrocarbure dans les Territoires d’Outre- Mer de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-812-relatif-aux-mesures-particulieres-de-protection-et-de-sauvegarde-des-installations-dhydrocarbure-dans-les-territoires-doutre-mer-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-812-relatif-aux-mesures-particulieres-de-protection-et-de-sauvegarde-des-installations-dhydrocarbure-dans-les-territoires-doutre-mer-de-la-republique/>
 
 En vigueur : 1960-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 12-464-1935 fixant les modalités suivant lesquelles seront réglées les mesures de défense du franc dans les colonies, protectorats et territoires sous mandat relevant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-464-1935-fixant-les-modalites-suivant-lesquelles-seront-reglees-les-mesures-de-defense-du-franc-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du-ministere-des/>
+Décret · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-464-1935-fixant-les-modalites-suivant-lesquelles-seront-reglees-les-mesures-de-defense-du-franc-dans-les-colonies-protectorats-et-territoires-sous-mandat-relevant-du-ministere-des/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Louis ROLLIN.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 10-357-1926 Administrateurs des colonies et services civils de l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 357 du 31/08/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-357-1926-administrateurs-des-colonies-et-services-civils-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 357 du 31/08/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-357-1926-administrateurs-des-colonies-et-services-civils-de-lindochine/>
 
 En vigueur : 1926-08-31 (date du Journal officiel qui le publie).
 

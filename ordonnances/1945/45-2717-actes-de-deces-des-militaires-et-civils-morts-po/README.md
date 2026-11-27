@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2717 relative aux actes de décès des militaires et civils « morts pour la France »
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2717-relative-aux-actes-de-deces-des-militaires-et-civils-morts-pour-la-france/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2717-relative-aux-actes-de-deces-des-militaires-et-civils-morts-pour-la-france/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

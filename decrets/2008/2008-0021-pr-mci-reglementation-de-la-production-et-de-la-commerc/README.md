@@ -1,6 +1,6 @@
 # Décret n° 2008-0021/PR/MCI portant réglementation de la production et de la commercialisation du pain populaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0021-pr-mci-portant-reglementation-de-la-production-et-de-la-commercialisation-du-pain-populaire/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0021-pr-mci-portant-reglementation-de-la-production-et-de-la-commercialisation-du-pain-populaire/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

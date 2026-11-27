@@ -1,6 +1,6 @@
 # Décret n° 10-451-1934 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 451 du 30/06/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-451-1934-au-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 451 du 30/06/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-451-1934-au-president-de-la-republique-francaise/>
 
 En vigueur : 1934-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 71-362 relatif aux autorisations de prospections préalables de substances minérales ou fossiles dans le sous-sol du plateau continental (J.O.R.F. du 15 mai 1971, p. 4695).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-362-relatif-aux-autorisations-de-prospections-prealables-de-substances-minerales-ou-fossiles-dans-le-sous-sol-du-plateau-continental-j-o-r-f-du-15-mai-1971-p-4695/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-362-relatif-aux-autorisations-de-prospections-prealables-de-substances-minerales-ou-fossiles-dans-le-sous-sol-du-plateau-continental-j-o-r-f-du-15-mai-1971-p-4695/>
 
 En vigueur : 1971-07-10 (date du Journal officiel qui le publie).
 

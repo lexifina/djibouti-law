@@ -1,6 +1,6 @@
 # Décret n° 02-442-1933 Publication et mise en application provisoire de l’avenant à l’accord commercial entre la France et l’Autriche du 16 mai 1928, signé à Paris le 9 juin 1935.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-442-1933-publication-et-mise-en-application-provisoire-de-lavenant-a-laccord-commercial-entre-la-france-et-lautriche-du-16-mai-1928-signe-a-paris-le-9-juin-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-442-1933-publication-et-mise-en-application-provisoire-de-lavenant-a-laccord-commercial-entre-la-france-et-lautriche-du-16-mai-1928-signe-a-paris-le-9-juin-1935/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 

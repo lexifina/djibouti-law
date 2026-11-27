@@ -1,6 +1,6 @@
 # Loi n° 18/07/1941 portant réglementation de la reproduction des traits du Chef de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-18-07-1941-portant-reglementation-de-la-reproduction-des-traits-du-chef-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-18-07-1941-portant-reglementation-de-la-reproduction-des-traits-du-chef-de-letat/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 18/AN/23/9ème L portant ratification de la Convention de l’Union Africaine sur la Cybersécurité et la Protection de données à caractère personnel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-18-an-23-9eme-ll-portant-ratification-de-la-convention-de-lunion-africaine-sur-la-cybersecurite-et-la-protection-de-donnees-a-caractere-personnel/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n-18-an-23-9eme-ll-portant-ratification-de-la-convention-de-lunion-africaine-sur-la-cybersecurite-et-la-protection-de-donnees-a-caractere-personnel/>
 
 En vigueur : 2023-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

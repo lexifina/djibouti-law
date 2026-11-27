@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1917 modifiant l’article 33 de la loi du 31 mars 1919 (droits des ascendants du 1er degré)
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1917-modifiant-larticle-33-de-la-loi-du-31-mars-1919-droits-des-ascendants-du-1er-degre/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1917-modifiant-larticle-33-de-la-loi-du-31-mars-1919-droits-des-ascendants-du-1er-degre/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

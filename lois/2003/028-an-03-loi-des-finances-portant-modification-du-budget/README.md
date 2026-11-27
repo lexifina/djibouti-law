@@ -1,6 +1,6 @@
 # Loi n° 28/AN/03/5ème L Loi des Finances portant modification du budget de l’État pour l’exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-03-5eme-l-loi-des-finances-portant-modification-du-budget-de-letat-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-03-5eme-l-loi-des-finances-portant-modification-du-budget-de-letat-pour-lexercice-2003/>
 
 En vigueur : 2003-11-15 (date du Journal officiel qui le publie).
 

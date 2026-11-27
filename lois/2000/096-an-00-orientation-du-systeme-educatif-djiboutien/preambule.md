@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Titre I
 DES PRINCIPES FONDAMENTAUX

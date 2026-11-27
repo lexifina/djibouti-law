@@ -1,6 +1,6 @@
 # Loi n° 69/AN/83/1 ère L accordant deux parcelles de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-83-1-ere-l-accordant-deux-parcelles-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-83-1-ere-l-accordant-deux-parcelles-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 

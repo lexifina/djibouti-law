@@ -1,6 +1,6 @@
 # Décret n° 46-433 portant organisation du cadre d’administration générale des colonies autres que Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-433-portant-organisation-du-cadre-dadministration-generale-des-colonies-autres-que-indochine/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-433-portant-organisation-du-cadre-dadministration-generale-des-colonies-autres-que-indochine/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ Félix GOUIN. Par le Président du Gouvernenient provisoire de la République, L
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

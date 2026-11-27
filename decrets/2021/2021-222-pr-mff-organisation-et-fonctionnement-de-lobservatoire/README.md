@@ -1,6 +1,6 @@
 # Décret n° 2021-222/PR/MFF portant Organisation et Fonctionnement de l’Observatoire genre de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-222-pr-mff-portant-organisation-et-fonctionnement-de-lobservatoire-genre-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-222-pr-mff-portant-organisation-et-fonctionnement-de-lobservatoire-genre-de-djibouti/>
 
 En vigueur : 2021-09-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

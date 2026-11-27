@@ -1,6 +1,6 @@
 # Décret n° 20-450-1934 Extension aux colonies les dispositions des décrets du 4 avril 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-450-1934-extension-aux-colonies-les-dispositions-des-decrets-du-4-avril-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-450-1934-extension-aux-colonies-les-dispositions-des-decrets-du-4-avril-1934/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

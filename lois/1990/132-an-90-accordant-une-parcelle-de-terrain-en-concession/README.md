@@ -1,6 +1,6 @@
 # Loi n° 132/AN/90/2ème L accordant une parcelle de terrain en concession provisoire au Service Médical Interentreprise sise à Balbala.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-90-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire-au-service-medical-interentreprise-sise-a-balbala/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 30/10/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-90-2eme-l-accordant-une-parcelle-de-terrain-en-concession-provisoire-au-service-medical-interentreprise-sise-a-balbala/>
 
 En vigueur : 1990-10-30 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 EXPOSÉ DES MOTIFS PROJET DE CODE DE LA NATIONALITÉ DJIBOUTIENNE
 En raison de la position géographique de la République de Djibouti, du contexte politique existant dans la région de « La Corne de l’Afrique » et des ressources économiques du pays, les principes qui ont guidé l’élaboration du projet de code de la nationalité djiboutienne, ont pour but essentiel :
 – de sauvegarder les intérêts des nationaux djiboutiens ;

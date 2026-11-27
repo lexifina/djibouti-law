@@ -1,6 +1,6 @@
 # Décret n° 2005-0174/PR/MJAPM instituant une prime au Rendement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0174-pr-mjapm-instituant-une-prime-au-rendement/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0174-pr-mjapm-instituant-une-prime-au-rendement/>
 
 En vigueur : 2005-10-15 (date du Journal officiel qui le publie).
 

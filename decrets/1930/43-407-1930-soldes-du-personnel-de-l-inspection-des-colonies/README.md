@@ -1,6 +1,6 @@
 # Décret n° 43-407-1930 Soldes du personnel de l’inspection des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-43-407-1930-soldes-du-personnel-de-linspection-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-43-407-1930-soldes-du-personnel-de-linspection-des-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 

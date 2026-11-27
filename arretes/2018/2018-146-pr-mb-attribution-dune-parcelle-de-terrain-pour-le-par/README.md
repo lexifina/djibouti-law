@@ -1,6 +1,6 @@
 # Arrêté n° 2018-146/PR/MB portant attribution d’une parcelle de terrain pour le Parti de Rassemblement Populaire pour le Progrès Balbala Hayabeleh
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-146-pr-mb-portant-attribution-dune-parcelle-de-terrain-pour-le-parti-de-rassemblement-populaire-pour-le-progres-balbala-hayabeleh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-146-pr-mb-portant-attribution-dune-parcelle-de-terrain-pour-le-parti-de-rassemblement-populaire-pour-le-progres-balbala-hayabeleh/>
 
 En vigueur : 2018-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

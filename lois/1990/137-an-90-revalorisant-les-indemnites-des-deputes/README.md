@@ -1,6 +1,6 @@
 # Loi n° 137/AN/90/2e L revalorisant les indemnités des députés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-90-2e-l-revalorisant-les-indemnites-des-deputes/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-90-2e-l-revalorisant-les-indemnites-des-deputes/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

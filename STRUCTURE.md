@@ -2,39 +2,46 @@
 
 | Dossier | Contenu |
 | --- | --- |
-| `constitution/` | La Constitution de la RÃ©publique de Djibouti |
-| `codes/<code>/` | Les codes : `codes/code-penal/`, `codes/code-civil/`, `codes/code-de-commerce/`, `codes/code-du-travail/`, `codes/code-de-la-famille/`, `codes/code-protection-mineurs/` |
-| `lois/<annÃ©e>/<nÂ°>-an-<aa>-<objet>/` | Lois, lois organiques et lois de finances, par l'annÃ©e de leur numÃ©ro (`/AN/aa/`), p. ex. `lois/2006/144-an-06-approbation-des-comptes-financiers-delectricite/` |
-| `ordonnances/<annÃ©e>/<nÂ°>-<objet>/` | Ordonnances |
-| `decrets/<annÃ©e>/<nÂ°>-<objet>/` | DÃ©crets rÃ©glementaires |
-| `arretes/<annÃ©e>/<nÂ°>-<objet>/` | ArrÃªtÃ©s rÃ©glementaires |
-| `decisions/<annÃ©e>/`, `deliberations/<annÃ©e>/` | DÃ©cisions et dÃ©libÃ©rations rÃ©glementaires |
-| `accords/<annÃ©e>/` | Accords, conventions et protocoles publiÃ©s au Journal officiel |
-| `rectificatifs/<annÃ©e>/` | Rectificatifs, errata et additifs |
+| `constitution/` | La Constitution de la République de Djibouti |
+| `codes/<code>/` | Les codes : `codes/code-penal/`, `codes/code-civil/`, `codes/code-de-commerce/`, `codes/code-du-travail/`, `codes/code-de-la-famille/`, `codes/code-protection-mineurs/`, `codes/code-de-procedure-penale/` |
+| `constitutions-anterieures/1992/` | La Constitution du 15 septembre 1992 telle que promulguée, avant ses révisions (copie secondaire) |
+| `lois/<année>/<n°>-an-<aa>-<objet>/` | Lois, lois organiques et lois de finances, par l'année de leur numéro (`/AN/aa/`), p. ex. `lois/2006/144-an-06-approbation-des-comptes-financiers-delectricite/` |
+| `ordonnances/<année>/<n°>-<objet>/` | Ordonnances |
+| `decrets/<année>/<n°>-<objet>/` | Décrets réglementaires |
+| `arretes/<année>/<n°>-<objet>/` | Arrêtés réglementaires |
+| `decisions/<année>/`, `deliberations/<année>/` | Décisions et délibérations réglementaires |
+| `accords/<année>/` | Accords, conventions et protocoles publiés au Journal officiel |
+| `rectificatifs/<année>/` | Rectificatifs, errata et additifs |
 
-Une annÃ©e qui compte plus de 1 000 textes est divisÃ©e par mois (`arretes/<annÃ©e>/<mm>/`). Aucun dossier ne compte plus
-de 1 000 entrÃ©es. Chaque texte a un fichier par article (`art-001.md`, `art-012-bis.md`, `art-unique.md`), un
-`preambule.md` pour ce qui prÃ©cÃ¨de le premier article, ou un seul `texte.md` s'il n'a pas d'articles, et un `README.md`
-(titre, numÃ©ro du Journal officiel, visas, signature).
+Une année qui compte plus de 1 000 textes est divisée par mois (`arretes/<année>/<mm>/`). Aucun dossier ne compte plus
+de 1 000 entrées. Chaque texte a un fichier par article (`art-001.md`, `art-012-bis.md`, `art-unique.md`), un
+`preambule.md` pour ce qui précède le premier article, ou un seul `texte.md` s'il n'a pas d'articles, et un `README.md`
+(titre, numéro du Journal officiel, visas, signature).
 
-Les mesures individuelles (nominations, carriÃ¨res, congÃ©s, dÃ©corations, attributions nominatives) et les circulaires
-ne sont pas reprises : ce ne sont pas des rÃ¨gles de droit.
+Les mesures individuelles (nominations, carrières, congés, décorations, attributions nominatives) et les circulaires
+ne sont pas reprises : ce ne sont pas des règles de droit.
 
 ## Dates
 
-Chaque version est un commit datÃ© de 12 h 00 (heure de Djibouti) le jour de son entrÃ©e en vigueur, que rÃ©pÃ¨te le
-trailer `In-force:`. `In-force-basis:` dit d'oÃ¹ vient ce jour :
+Chaque version est un commit daté de 12 h 00 (heure de Djibouti) le jour de son entrée en vigueur, que répète le
+trailer `In-force:`. `In-force-basis:` dit d'où vient ce jour :
 
-- `fixed-in-text` : le jour que le texte fixe lui-mÃªme (Â« entre en vigueur le â€¦ Â», Â« prend effet Ã  compter du â€¦ Â») ;
-- `signature` : la date du texte, quand il entre en vigueur dÃ¨s sa signature ou sa promulgation ;
-- `publication` : la date du numÃ©ro du Journal officiel qui le publie (le texte dit Â« dÃ¨s sa publication Â», ou ne dit
-  rien et a Ã©tÃ© publiÃ© avant le Code civil de 2018) ;
-- `day-after-publication` : le lendemain de cette date, pour les textes publiÃ©s depuis le Code civil de 2018 qui ne
-  fixent pas d'autre jour (Code civil, article 1er).
+- `fixed-in-text` : le jour que le texte fixe lui-même (« entre en vigueur le … », « prend effet à compter du … ») ;
+- `signature` : la date du texte, quand il entre en vigueur dès sa signature ou sa promulgation ;
+- `publication` : la date du numéro du Journal officiel qui le publie (le texte dit « dès sa publication », ou ne dit
+  rien et a été publié avant le Code civil de 2018) ;
+- `day-after-publication` : le lendemain de cette date, pour les textes publiés depuis le Code civil de 2018 qui ne
+  fixent pas d'autre jour (Code civil, article 1er) ;
+- `promulgation` : le jour de la promulgation (la Constitution de 1992) ;
+- `enactment-of-code` : la date de la loi portant le code, quand la copie ne donne pas de date de consolidation (le
+  Code de procédure pénale, comme le Code pénal).
 
-Aucune date de ce dÃ©pÃ´t n'est le jour oÃ¹ nous avons lu une page, sauf le premier commit de `constitution/`, datÃ© du jour
-oÃ¹ le texte de la PrÃ©sidence a Ã©tÃ© lu (la page ne donne pas de date). Un texte sans numÃ©ro du Journal officiel ni date
-propre est retenu (non publiÃ©). Avant 1970, que git ne sait pas dater, le commit porte le 1er janvier 1970 et le vrai
+Les textes qui ne viennent pas d'une source officielle portent le trailer `Source-status: secondary copy (...)` ;
+`Text-source: publisher OCR` signale une couche texte issue d'un OCR fait par l'éditeur du PDF (jamais par nous).
+
+Aucune date de ce dépôt n'est le jour où nous avons lu une page, sauf le premier commit de `constitution/`, daté du jour
+où le texte de la Présidence a été lu (la page ne donne pas de date). Un texte sans numéro du Journal officiel ni date
+propre est retenu (non publié). Avant 1970, que git ne sait pas dater, le commit porte le 1er janvier 1970 et le vrai
 jour figure dans le titre et le trailer `In-force:`.
 
 # Structure (English)

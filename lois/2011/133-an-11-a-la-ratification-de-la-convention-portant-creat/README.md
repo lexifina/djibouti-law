@@ -1,6 +1,6 @@
 # Loi n° 133/AN/11/6ème L portant à la ratification de la Convention portant création de l’Agence Panafricaine de la Grande Muraille Verte.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-11-6eme-l-portant-a-la-ratification-de-la-convention-portant-creation-de-lagence-panafricaine-de-la-grande-muraille-verte/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 14/04/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-11-6eme-l-portant-a-la-ratification-de-la-convention-portant-creation-de-lagence-panafricaine-de-la-grande-muraille-verte/>
 
 En vigueur : 2011-04-14 (date du Journal officiel qui le publie).
 

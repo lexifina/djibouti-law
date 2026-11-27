@@ -1,6 +1,6 @@
 # Décret n° 4-75-1903 portant règlement de police sanitaire maritime dans les colonies et pays de protectorat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 75 du 15/01/1903 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-75-1903-portant-reglement-de-police-sanitaire-maritime-dans-les-colonies-et-pays-de-protectorat/>
+Décret · Journal officiel de la République de Djibouti, n° 75 du 15/01/1903 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-75-1903-portant-reglement-de-police-sanitaire-maritime-dans-les-colonies-et-pays-de-protectorat/>
 
 En vigueur : 1903-01-15 (date du Journal officiel qui le publie).
 
@@ -16,4 +16,4 @@ En vigueur : 1903-01-15 (date du Journal officiel qui le publie).
 | [art-062.md](art-062.md) | Art. 62 |
 | [art-063.md](art-063.md) | Art. 63 |
 | [art-064.md](art-064.md) | Art. 64 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 88-017/PRE/PM portant sur la procédure d’approbation des investissements financés par des aides extérieures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 24/02/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-017-pre-pm-portant-sur-la-procedure-dapprobation-des-investissements-finances-par-des-aides-exterieures/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 24/02/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-017-pre-pm-portant-sur-la-procedure-dapprobation-des-investissements-finances-par-des-aides-exterieures/>
 
 En vigueur : 1988-02-24 (date du Journal officiel qui le publie).
 

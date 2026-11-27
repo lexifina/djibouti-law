@@ -1,6 +1,6 @@
 # Décret n° 49-1595 rendant applicables aux territoires relevant du ministère de la France d’outre-mer les dispositions de la loi n° 49-572 du 23 avril 1919 permettant le changement des pré noms de l’adopté en cas d’adoption ou de légitimation adoptive et modifiant les articles 350, 364 et 369 du Code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1595-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-de-la-loi-n-49-572-du-23-avril-1919-permettant-le-changemen/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-49-1595-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-de-la-loi-n-49-572-du-23-avril-1919-permettant-le-changemen/>
 
 En vigueur : 1950-03-31 (date du Journal officiel qui le publie).
 

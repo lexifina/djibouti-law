@@ -1,6 +1,6 @@
 # Loi n° 128/AN/21/8ème L portant ratification de l’Accord de financement additionnel pour le Projet Intégré de Transferts Monétaires et de Renforcement du Capital Humain (PITCH).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-21-8eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-integre-de-transferts-monetaires-et-de-renforcement-du-capital-humain-pitch/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n128-an-21-8eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-integre-de-transferts-monetaires-et-de-renforcement-du-capital-humain-pitch/>
 
 En vigueur : 2021-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

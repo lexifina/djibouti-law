@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0752/PR/MESR portant approbation du Budget prévisionnel du CERD pour l’année 2012.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0752-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2012/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0752-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2012/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

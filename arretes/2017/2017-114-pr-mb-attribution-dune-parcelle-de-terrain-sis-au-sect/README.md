@@ -1,6 +1,6 @@
 # Arrêté n° 2017-114/PR/MB portant attribution d’une parcelle de terrain sis au secteur de PK 13 à China First Highway Engineering Co.Ltd.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-114-pr-mb-portant-attribution-dune-parcelle-de-terrain-sis-au-secteur-de-pk-13-a-china-first-highway-engineering-co-ltd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 13/07/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-114-pr-mb-portant-attribution-dune-parcelle-de-terrain-sis-au-secteur-de-pk-13-a-china-first-highway-engineering-co-ltd/>
 
 En vigueur : 2017-07-13 (date du Journal officiel qui le publie).
 

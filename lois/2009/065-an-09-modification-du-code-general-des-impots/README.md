@@ -1,6 +1,6 @@
 # Loi n° 65/AN/09/6ème L portant modification du Code Général des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-09-6eme-l-portant-modification-du-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-09-6eme-l-portant-modification-du-code-general-des-impots/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 190/AN/25/9ème L portant création de la Chambre des Notaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-25-9eme-l-portant-creation-de-la-chambre-des-notaires/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-25-9eme-l-portant-creation-de-la-chambre-des-notaires/>
 
-En vigueur : 2026-01-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-01-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -72,4 +72,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

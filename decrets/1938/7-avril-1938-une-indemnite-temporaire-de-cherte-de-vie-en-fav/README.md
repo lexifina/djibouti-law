@@ -1,6 +1,6 @@
 # Décret n° 7 avril 1938 instituant une indemnité temporaire de cherté de vie en faveur des militaires à solde mensuelle en service à la Côte française des Somalis et modifiant le tarif de l’indemnité de logement dans cette colonie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1938-instituant-une-indemnite-temporaire-de-cherte-de-vie-en-faveur-des-militaires-a-solde-mensuelle-en-service-a-la-cote-francaise-des-somalis-et-modifiant-le-tarif-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1938-instituant-une-indemnite-temporaire-de-cherte-de-vie-en-faveur-des-militaires-a-solde-mensuelle-en-service-a-la-cote-francaise-des-somalis-et-modifiant-le-tarif-de-l/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 
@@ -24,7 +24,7 @@ Marins MOUTET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

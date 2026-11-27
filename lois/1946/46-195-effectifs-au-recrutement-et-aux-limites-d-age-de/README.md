@@ -1,6 +1,6 @@
 # Loi n° 46-195 relative aux effectifs, au recrutement et aux limites d’âge des fonctionnaires et agents des services publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-195-relative-aux-effectifs-au-recrutement-et-aux-limites-dage-des-fonctionnaires-et-agents-des-services-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-195-relative-aux-effectifs-au-recrutement-et-aux-limites-dage-des-fonctionnaires-et-agents-des-services-publics/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ A. PHILIP.
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

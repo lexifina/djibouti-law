@@ -1,8 +1,8 @@
 # Loi n° 33/AN/18/8ème L portant adoption du système national de normalisation et de promotion de la qualité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-18-8eme-l-portant-adoption-du-systeme-national-de-normalisation-et-de-promotion-de-la-qualite/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-18-8eme-l-portant-adoption-du-systeme-national-de-normalisation-et-de-promotion-de-la-qualite/>
 
-En vigueur : 2019-02-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-02-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -126,4 +126,4 @@ ISMAÏL OMAR GUELLEH
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2012-273/PR/MTRA portant organisation et fonctionnement du Conseil National du Travail, de l’Emploi et de la Sécurité Sociale (CONTESS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-273-pr-mtra-portant-organisation-et-fonctionnement-du-conseil-national-du-travail-de-lemploi-et-de-la-securite-sociale-contess/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-273-pr-mtra-portant-organisation-et-fonctionnement-du-conseil-national-du-travail-de-lemploi-et-de-la-securite-sociale-contess/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

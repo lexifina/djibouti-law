@@ -1,6 +1,6 @@
 # Arrêté n° 2020-004/PR/MB portant attribution d’une parcelle de terrain sise à Nagad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-004-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-nagad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-004-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-nagad/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

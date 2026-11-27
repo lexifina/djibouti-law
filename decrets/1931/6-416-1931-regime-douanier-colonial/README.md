@@ -1,6 +1,6 @@
 # Décret n° 6-416-1931 Régime douanier colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-416-1931-regime-douanier-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-416-1931-regime-douanier-colonial/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

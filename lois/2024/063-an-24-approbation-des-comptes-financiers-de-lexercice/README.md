@@ -1,6 +1,6 @@
 # Loi n° 63/AN/24/9ème L portant approbation des comptes financiers de l’exercice 2022 de l’Ecole Nationale d’Etudes Judiciaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2022-de-lecole-nationale-detudes-judiciaires/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2022-de-lecole-nationale-detudes-judiciaires/>
 
 En vigueur : 2024-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

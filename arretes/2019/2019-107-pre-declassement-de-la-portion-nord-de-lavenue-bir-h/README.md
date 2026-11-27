@@ -1,6 +1,6 @@
 # Arrêté n° 2019-107/PRE portant déclassement de la portion Nord de l’Avenue Bir-Hakeim entre la Rue de Genève et l’Avenue de l’Administrateur Bernard.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-107-pre-portant-declassement-de-la-portion-nord-de-lavenue-bir-hakeim-entre-la-rue-de-geneve-et-lavenue-de-ladministrateur-bernard/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-107-pre-portant-declassement-de-la-portion-nord-de-lavenue-bir-hakeim-entre-la-rue-de-geneve-et-lavenue-de-ladministrateur-bernard/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

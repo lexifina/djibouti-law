@@ -1,6 +1,6 @@
 # Décret n° 71-647 fixant les conditions de prise en Charge des frais de transport par la voie aérigenhe’ engagés par les personnels civils et militaires dé l’Etat et de ses établissements publics, ainsi que de certains organismes subventionnés en dehors du territoire métropolitain de la France (J.O.R.F. du 4 août 1971, p. 7727)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 25/08/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-647-fixant-les-conditions-de-prise-en-charge-des-frais-de-transport-par-la-voie-aerigenhe-engages-par-les-personnels-civils-et-militaires-de-letat-et-de-ses-etablisseme/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 25/08/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-647-fixant-les-conditions-de-prise-en-charge-des-frais-de-transport-par-la-voie-aerigenhe-engages-par-les-personnels-civils-et-militaires-de-letat-et-de-ses-etablisseme/>
 
 En vigueur : 1971-08-25 (date du Journal officiel qui le publie).
 
@@ -27,6 +27,6 @@ Valéry GISCARD D'’ESTAING.
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

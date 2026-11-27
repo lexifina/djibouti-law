@@ -1,6 +1,6 @@
 # Décret n° 65-612 relatif aux transports maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-612-relatif-aux-transports-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 01/09/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-612-relatif-aux-transports-maritimes/>
 
 En vigueur : 1965-09-01 (date du Journal officiel qui le publie).
 

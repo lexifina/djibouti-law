@@ -1,6 +1,6 @@
 # Rectificatif n° 13-398-1930 Indemnité de fonction spéciale au personnel du contrôle du chemin de fer franco-éthiopien.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-13-398-1930-indemnite-de-fonction-speciale-au-personnel-du-controle-du-chemin-de-fer-franco-ethiopien/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-13-398-1930-indemnite-de-fonction-speciale-au-personnel-du-controle-du-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 

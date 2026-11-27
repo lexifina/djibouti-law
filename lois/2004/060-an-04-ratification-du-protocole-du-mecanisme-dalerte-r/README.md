@@ -1,6 +1,6 @@
 # Loi n° 60/AN/04/5ème L portant ratification du Protocole du Mécanisme d’Alerte Rapide et d’Intervention en cas de conflit (CEWARN).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-04-5eme-l-portant-ratification-du-protocole-du-mecanisme-dalerte-rapide-et-dintervention-en-cas-de-conflit-cewarn/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-04-5eme-l-portant-ratification-du-protocole-du-mecanisme-dalerte-rapide-et-dintervention-en-cas-de-conflit-cewarn/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

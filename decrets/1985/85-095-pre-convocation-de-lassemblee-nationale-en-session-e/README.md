@@ -1,6 +1,6 @@
 # Décret n° 85-095/PRE portant convocation de l’Assemblée nationale en session extraordinaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-095-pre-portant-convocation-de-lassemblee-nationale-en-session-extraordinaire/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-095-pre-portant-convocation-de-lassemblee-nationale-en-session-extraordinaire/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

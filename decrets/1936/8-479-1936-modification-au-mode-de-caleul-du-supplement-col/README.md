@@ -1,6 +1,6 @@
 # Décret n° 8-479-1936 Modification au mode de caleul du supplément colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-479-1936-modification-au-mode-de-caleul-du-supplement-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-479-1936-modification-au-mode-de-caleul-du-supplement-colonial/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

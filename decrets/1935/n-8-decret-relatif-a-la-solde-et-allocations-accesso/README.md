@@ -1,6 +1,6 @@
 # Décret n° n°8 Décret relatif à la solde et allocations accessoires des fonctionnaires employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-decret-relatif-a-la-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-decret-relatif-a-la-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ louis rollin
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 77-047/PR/DEF portant sur la gestion et le fonctionnement des ordinaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-047-pr-def-portant-sur-la-gestion-et-le-fonctionnement-des-ordinaires/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 14/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-047-pr-def-portant-sur-la-gestion-et-le-fonctionnement-des-ordinaires/>
 
 En vigueur : 1977-11-14 (date du Journal officiel qui le publie).
 
@@ -28,7 +28,7 @@ HASSAN GOULED APTIDON
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [art-010.md](art-010.md) | Article 10 – |
+| [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
@@ -42,4 +42,4 @@ HASSAN GOULED APTIDON
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

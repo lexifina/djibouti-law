@@ -1,6 +1,6 @@
 # Décret n° 14-230-1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 230 du 31/12/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-230-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 230 du 31/12/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-230-1915/>
 
 En vigueur : 1915-12-31 (date du Journal officiel qui le publie).
 

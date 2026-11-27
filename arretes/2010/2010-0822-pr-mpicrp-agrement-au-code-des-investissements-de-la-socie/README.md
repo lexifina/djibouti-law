@@ -1,7 +1,7 @@
 # Arrêté n° 2010-0822/PR/MPICRP portant Agrément au Code des Investissements de la Société
 « East Africa Holding Sarl ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0822-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-east-africa-holding-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0822-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-east-africa-holding-sarl/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 

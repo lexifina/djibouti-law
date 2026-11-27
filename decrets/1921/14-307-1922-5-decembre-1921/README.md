@@ -1,6 +1,6 @@
 # Décret n° 14-307-1922 5 décembre 1921
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 307 du 30/06/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-307-1922-5-decembre-1921/>
+Décret · Journal officiel de la République de Djibouti, n° 307 du 30/06/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-307-1922-5-decembre-1921/>
 
 En vigueur : 1922-06-30 (date du Journal officiel qui le publie).
 

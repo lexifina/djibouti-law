@@ -1,8 +1,8 @@
 # Loi n° 95/AN/00/4ème L portant attribution et organisation du Ministère Délégué, chargé des Biens Wakfs et des Affaires Musulmanes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-00-4eme-l-portant-attribution-et-organisation-du-ministere-delegue-charge-des-biens-wakfs-et-des-affaires-musulmanes/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-00-4eme-l-portant-attribution-et-organisation-du-ministere-delegue-charge-des-biens-wakfs-et-des-affaires-musulmanes/>
 
-En vigueur : 2000-08-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-08-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 87/AN/95/3ème L portant ratification par la République de Djibouti la convention sur les changements climatiques, Sommet « planète Terre », adopté à Rio de Janeiro, Brésil du 3-14 juin 1992.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-95-3eme-l-portant-ratification-par-la-republique-de-djibouti-la-convention-sur-les-changements-climatiques-sommet-planete-terre-adopte-a-rio-de-janeiro-bresil-du-3-14/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-95-3eme-l-portant-ratification-par-la-republique-de-djibouti-la-convention-sur-les-changements-climatiques-sommet-planete-terre-adopte-a-rio-de-janeiro-bresil-du-3-14/>
 
 En vigueur : 1995-07-15 (date du Journal officiel qui le publie).
 

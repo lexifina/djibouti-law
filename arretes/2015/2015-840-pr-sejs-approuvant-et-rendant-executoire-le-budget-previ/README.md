@@ -1,6 +1,6 @@
 # Arrêté n° 2015-840/PR/SEJS approuvant et rendant exécutoire le Budget Prévisionnel 2016 de l’Institut National de Formation Sportive.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-840-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-linstitut-national-de-formation-sportive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-840-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-linstitut-national-de-formation-sportive/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

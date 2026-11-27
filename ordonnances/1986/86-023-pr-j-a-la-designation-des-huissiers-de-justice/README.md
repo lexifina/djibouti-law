@@ -1,6 +1,6 @@
 # Ordonnance n° 86-023/PR/J Relatif à la désignation des huissiers de justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/04/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-023-pr-j-relatif-a-la-designation-des-huissiers-de-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 16/04/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-023-pr-j-relatif-a-la-designation-des-huissiers-de-justice/>
 
 En vigueur : 1986-04-16 (date du Journal officiel qui le publie).
 

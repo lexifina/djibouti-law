@@ -1,8 +1,8 @@
 # Décret n° 2020-209/PRE portant octroi d’indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-209-pre-portant-octroi-dindemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-209-pre-portant-octroi-dindemnites/>
 
-En vigueur : 2020-08-11 (date fixÃ©e par le texte).
+En vigueur : 2020-08-11 (date fixée par le texte).
 
 ## Visas
 

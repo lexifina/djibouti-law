@@ -1,6 +1,6 @@
 # Loi n° 107/AN/15/7ème L portant modification du statut, de l’organisation et du fonctionnement de l’Institut National d’Administration publique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-15-7eme-l-portant-modification-du-statut-de-lorganisation-et-du-fonctionnement-de-linstitut-national-dadministration-publique/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-15-7eme-l-portant-modification-du-statut-de-lorganisation-et-du-fonctionnement-de-linstitut-national-dadministration-publique/>
 
 En vigueur : 2016-06-15 (date du Journal officiel qui le publie).
 
@@ -90,4 +90,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

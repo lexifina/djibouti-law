@@ -1,6 +1,6 @@
 # Loi n° 2-229-1915 soumettant aux obligations militaires prévues par les lois de 1905 et de 1913 les sénégalais des communes de plein exercice de la Colonie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 229 du 30/11/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-229-1915-soumettant-aux-obligations-militaires-prevues-par-les-lois-de-1905-et-de-1913-les-senegalais-des-communes-de-plein-exercice-de-la-colonie/>
+Loi · Journal officiel de la République de Djibouti, n° 229 du 30/11/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-229-1915-soumettant-aux-obligations-militaires-prevues-par-les-lois-de-1905-et-de-1913-les-senegalais-des-communes-de-plein-exercice-de-la-colonie/>
 
 En vigueur : 1915-11-30 (date du Journal officiel qui le publie).
 

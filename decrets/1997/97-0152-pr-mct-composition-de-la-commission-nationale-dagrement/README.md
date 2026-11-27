@@ -1,6 +1,6 @@
 # Décret n° 97-0152/PR/MCT fixant la composition de la commission nationale d’agrément au code des investissements.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0152-pr-mct-fixant-la-composition-de-la-commission-nationale-dagrement-au-code-des-investissements/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 30/10/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0152-pr-mct-fixant-la-composition-de-la-commission-nationale-dagrement-au-code-des-investissements/>
 
 En vigueur : 1997-10-30 (date du Journal officiel qui le publie).
 

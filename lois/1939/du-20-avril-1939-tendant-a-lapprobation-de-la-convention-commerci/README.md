@@ -1,6 +1,6 @@
 # Loi n° du 20 avril 1939 tendant à l’approbation de la convention commerciale franco-nica-raguayenne du 4 mai 1938.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-20-avril-1939-tendant-a-lapprobation-de-la-convention-commerciale-franco-nica-raguayenne-du-4-mai-1938/>
+Loi · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-20-avril-1939-tendant-a-lapprobation-de-la-convention-commerciale-franco-nica-raguayenne-du-4-mai-1938/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 

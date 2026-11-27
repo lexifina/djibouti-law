@@ -1,6 +1,6 @@
 # Loi n° 231/AN/82 accordant une parcelle de terrain domanial en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n231-an-82-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n231-an-82-accordant-une-parcelle-de-terrain-domanial-en-concession-provisoire/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

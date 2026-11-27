@@ -1,6 +1,6 @@
 # Loi n° 204/AN/25/9ème L portant approbation des comptes financiers de l’exercice 2024 du Diwan des Biens Waqfs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2024-du-diwan-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2024-du-diwan-des-biens-waqfs/>
 
 En vigueur : 2026-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

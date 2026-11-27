@@ -1,6 +1,6 @@
 # Arrêté n° 2013-0799/PR/MCPT portant adoption du projet du budget prévisionnel 2014 de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0799-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2014-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-0799-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2014-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

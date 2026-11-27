@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0199/PR/MAEM portant approbation des Comptes Prévisionnels pour l’Exercice 2009 de l’ONEAD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0199-pr-maem-portant-approbation-des-comptes-previsionnels-pour-lexercice-2009-de-lonead/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0199-pr-maem-portant-approbation-des-comptes-previsionnels-pour-lexercice-2009-de-lonead/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 5-260-1918 relative à la rectification administrative de certains actes de l’état civil dressés pendant la durée de la guerre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 260 du 30/06/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-260-1918-relative-a-la-rectification-administrative-de-certains-actes-de-letat-civil-dresses-pendant-la-duree-de-la-guerre/>
+Loi · Journal officiel de la République de Djibouti, n° 260 du 30/06/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-260-1918-relative-a-la-rectification-administrative-de-certains-actes-de-letat-civil-dresses-pendant-la-duree-de-la-guerre/>
 
 En vigueur : 1918-06-30 (date du Journal officiel qui le publie).
 

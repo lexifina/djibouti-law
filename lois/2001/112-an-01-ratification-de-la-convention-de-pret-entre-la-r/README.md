@@ -1,6 +1,6 @@
 # Loi n° 112/AN/01/4ème L portant ratification de la Convention de Prêt entre la République de Djibouti et le Fonds Monétaire Arabe (FMA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-01-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-monetaire-arabe-fma/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-01-4eme-l-portant-ratification-de-la-convention-de-pret-entre-la-republique-de-djibouti-et-le-fonds-monetaire-arabe-fma/>
 
 En vigueur : 2001-01-31 (date du Journal officiel qui le publie).
 

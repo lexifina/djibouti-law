@@ -1,6 +1,6 @@
 # Décret n° 2-370-1927 Traitements des administrateurs des colonies et des administrateurs des services civils de l’Indocbine,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-370-1927-traitements-des-administrateurs-des-colonies-et-des-administrateurs-des-services-civils-de-lindocbine/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-370-1927-traitements-des-administrateurs-des-colonies-et-des-administrateurs-des-services-civils-de-lindocbine/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 

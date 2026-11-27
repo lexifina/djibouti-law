@@ -1,6 +1,6 @@
 # Décret n° 2010-0181/PR/MS portant sur la mise en place du Comité National d’Organisation de la Conférence “Ports, Migrations et Vulnérabilité au VIH/SIDA”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0181-pr-ms-portant-sur-la-mise-en-place-du-comite-national-dorganisation-de-la-conference-ports-migrations-et-vulnerabilite-au-vih-sida/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0181-pr-ms-portant-sur-la-mise-en-place-du-comite-national-dorganisation-de-la-conference-ports-migrations-et-vulnerabilite-au-vih-sida/>
 
 En vigueur : 2010-09-30 (date du Journal officiel qui le publie).
 

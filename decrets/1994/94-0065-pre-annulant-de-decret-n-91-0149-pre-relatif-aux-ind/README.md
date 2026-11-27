@@ -1,8 +1,8 @@
 # Décret n° 94‑0065/PRE annulant de décret n° 91-0149/PRE relatif aux indemnités forfai­taires attribuées aux chefs de projets et aux coopérants des pro­jets bilatéraux et multilatéraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910065-pre-annulant-de-decret-n91-0149-pre-relatif-aux-indemnites-forfaitaires-attribuees-aux-chefs-de-projets-et-aux-cooperants-des-projets-bilateraux-et-mult/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910065-pre-annulant-de-decret-n91-0149-pre-relatif-aux-indemnites-forfaitaires-attribuees-aux-chefs-de-projets-et-aux-cooperants-des-projets-bilateraux-et-mult/>
 
-En vigueur : 1994-06-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1994-06-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

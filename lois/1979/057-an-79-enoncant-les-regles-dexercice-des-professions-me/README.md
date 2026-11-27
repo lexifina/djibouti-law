@@ -1,8 +1,8 @@
 # Loi n° 57/AN/79 énonçant les règles d’exercice des professions médicales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-79-enoncant-les-regles-dexercice-des-professions-medicales/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-79-enoncant-les-regles-dexercice-des-professions-medicales/>
 
-En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

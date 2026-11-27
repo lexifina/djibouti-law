@@ -1,6 +1,6 @@
 # Décret n° 2018-107/PRE portant convocation de la 8ème Législature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-107-pre-portant-convocation-de-la-8eme-legislature/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-107-pre-portant-convocation-de-la-8eme-legislature/>
 
 En vigueur : 2018-03-15 (date du Journal officiel qui le publie).
 

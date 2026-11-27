@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0076/PR/MEN portant création d’un Baccalauréat Technologique série : Sciences et Technologies Industrielles Spécialité : Génie Civil.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0076-pr-men-portant-creation-dun-baccalaureat-technologique-serie-sciences-et-technologies-industrielles-specialite-genie-civil/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0076-pr-men-portant-creation-dun-baccalaureat-technologique-serie-sciences-et-technologies-industrielles-specialite-genie-civil/>
 
-En vigueur : 2001-02-01 (date fixÃ©e par le texte).
+En vigueur : 2001-02-01 (date fixée par le texte).
 
 ## Visas
 

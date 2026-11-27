@@ -1,6 +1,6 @@
 # Loi n° 16/AN/18/8ème L portant ratification de l’Accord de Prêt signé entre la République de Djibouti et la Banque Africaine de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-18-8eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-18-8eme-l-portant-ratification-de-laccord-de-pret-signe-entre-la-republique-de-djibouti-et-la-banque-africaine-de-developpement/>
 
 En vigueur : 2018-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

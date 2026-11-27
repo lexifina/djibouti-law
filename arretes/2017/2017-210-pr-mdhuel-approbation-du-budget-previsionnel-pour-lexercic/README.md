@@ -1,6 +1,6 @@
 # Arrêté n° 2017-210/PR/MDHUEL portant approbation du Budget Prévisionnel pour l’exercice 2018 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-210-pr-mdhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2018-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-210-pr-mdhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2018-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

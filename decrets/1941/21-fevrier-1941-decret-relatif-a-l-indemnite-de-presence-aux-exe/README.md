@@ -1,6 +1,6 @@
 # Décret n° 21 février 1941 Le décret relatif à l’indemnité de « présence aux exercices ces >.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-fevrier-1941-le-decret-relatif-a-lindemnite-de-presence-aux-exercices-ces/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-fevrier-1941-le-decret-relatif-a-lindemnite-de-presence-aux-exercices-ces/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

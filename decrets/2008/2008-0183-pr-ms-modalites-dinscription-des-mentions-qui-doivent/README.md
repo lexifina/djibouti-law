@@ -1,8 +1,8 @@
 # Décret n° 2008-0183/PR/MS fixant les modalités d’inscription des mentions qui doivent être portées sur la couverture extérieure des paquets et emballage contenant des produits de tabac.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0183-pr-ms-fixant-les-modalites-dinscription-des-mentions-qui-doivent-etre-portees-sur-la-couverture-exterieure-des-paquets-et-emballage-contenant-des-produits-de-tabac/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0183-pr-ms-fixant-les-modalites-dinscription-des-mentions-qui-doivent-etre-portees-sur-la-couverture-exterieure-des-paquets-et-emballage-contenant-des-produits-de-tabac/>
 
-En vigueur : 2008-07-24 (date fixÃ©e par le texte).
+En vigueur : 2008-07-24 (date fixée par le texte).
 
 ## Visas
 

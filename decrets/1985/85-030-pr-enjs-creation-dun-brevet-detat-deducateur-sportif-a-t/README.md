@@ -1,6 +1,6 @@
 # Décret n° 85-030/PR/ENJS portant création d’un Brevet d’État d’Éducateur sportif à trois degrés
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-030-pr-enjs-portant-creation-dun-brevet-detat-deducateur-sportif-a-trois-degres/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-030-pr-enjs-portant-creation-dun-brevet-detat-deducateur-sportif-a-trois-degres/>
 
 En vigueur : 1985-02-28 (date du Journal officiel qui le publie).
 

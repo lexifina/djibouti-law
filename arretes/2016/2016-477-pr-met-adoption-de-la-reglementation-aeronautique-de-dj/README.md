@@ -1,8 +1,8 @@
 # Arrêté n° 2016-477/PR/MET portant adoption de la règlementation aéronautique de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-477-pr-met-portant-adoption-de-la-reglementation-aeronautique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 14/07/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-477-pr-met-portant-adoption-de-la-reglementation-aeronautique-de-djibouti/>
 
-En vigueur : 2016-07-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-07-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 137/AN/11/6ème L portant ratification du Protocole relatif à la conservation de la diversité biologique et la création d’un réseau des aires protégées dans la Mer Rouge et le Golfe d’Aden.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-conservation-de-la-diversite-biologique-et-la-creation-dun-reseau-des-aires-protegees-dans-la-mer-rouge-et-le-golfe/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-11-6eme-l-portant-ratification-du-protocole-relatif-a-la-conservation-de-la-diversite-biologique-et-la-creation-dun-reseau-des-aires-protegees-dans-la-mer-rouge-et-le-golfe/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

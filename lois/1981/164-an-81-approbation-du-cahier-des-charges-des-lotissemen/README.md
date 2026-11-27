@@ -1,6 +1,6 @@
 # Loi n° 164/AN/81 portant approbation du Cahier des Charges des Lotissements de la Poudrière et du Quartier 7 Sud.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-81-portant-approbation-du-cahier-des-charges-des-lotissements-de-la-poudriere-et-du-quartier-7-sud/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/03/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-81-portant-approbation-du-cahier-des-charges-des-lotissements-de-la-poudriere-et-du-quartier-7-sud/>
 
 En vigueur : 1981-03-01 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2010-0580/PR/MENESUP portant création et fixant les conditions de délivrance d’un Brevet d’études professionnelles en hôtellerie et restauration.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0580-pr-menesup-portant-creation-et-fixant-les-conditions-de-delivrance-dun-brevet-detudes-professionnelles-en-hotellerie-et-restauration/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0580-pr-menesup-portant-creation-et-fixant-les-conditions-de-delivrance-dun-brevet-detudes-professionnelles-en-hotellerie-et-restauration/>
 
-En vigueur : 2010-09-02 (date fixÃ©e par le texte).
+En vigueur : 2010-09-02 (date fixée par le texte).
 
 ## Visas
 

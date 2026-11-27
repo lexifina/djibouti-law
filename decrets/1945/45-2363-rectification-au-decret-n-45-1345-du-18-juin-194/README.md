@@ -1,6 +1,6 @@
 # Décret n° 45-2363 portant rectification au décret n 45-1345 du 18 juin 1945 organisant le cadre de l’inspection des chasses et de la protection de la faune aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2363-portant-rectification-au-decret-n-45-1345-du-18-juin-1945-organisant-le-cadre-de-linspection-des-chasses-et-de-la-protection-de-la-faune-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2363-portant-rectification-au-decret-n-45-1345-du-18-juin-1945-organisant-le-cadre-de-linspection-des-chasses-et-de-la-protection-de-la-faune-aux-colonies/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

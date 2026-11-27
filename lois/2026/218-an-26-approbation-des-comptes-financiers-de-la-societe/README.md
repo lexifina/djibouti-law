@@ -1,6 +1,6 @@
 # Loi n° 218/AN/26/9ème L Portant approbation des comptes financiers de la Société Internationale des Hydrocarbures de Djibouti pour l’exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-26-9eme-l-portant-approbation-des-comptes-financiers-de-la-societe-internationale-des-hydrocarbures-de-djibouti-pour-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-26-9eme-l-portant-approbation-des-comptes-financiers-de-la-societe-internationale-des-hydrocarbures-de-djibouti-pour-lexercice-2024/>
 
 En vigueur : 2026-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

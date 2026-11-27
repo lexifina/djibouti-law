@@ -1,6 +1,6 @@
 # Arrêté n° 2015-391/PR/MI prescrivant le ravalement des façades de la Ville de Djibouti à l’Occasion du 38ème anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-391-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-38eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-391-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-38eme-anniversaire-de-lindependance/>
 
 En vigueur : 2015-06-15 (date du Journal officiel qui le publie).
 

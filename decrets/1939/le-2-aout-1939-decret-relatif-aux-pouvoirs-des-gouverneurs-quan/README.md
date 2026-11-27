@@ -1,6 +1,6 @@
 # Décret n° le 2 août 1939. Décret relatif aux pouvoirs des Gouverneurs quant à l’administration de la justice.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 514 du 30/09/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-aout-1939-decret-relatif-aux-pouvoirs-des-gouverneurs-quant-a-ladministration-de-la-justice/>
+Décret · Journal officiel de la République de Djibouti, n° 514 du 30/09/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-aout-1939-decret-relatif-aux-pouvoirs-des-gouverneurs-quant-a-ladministration-de-la-justice/>
 
 En vigueur : 1939-09-30 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Paul Marchandeau.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Rectificatif n° du 20 septembre 1948 : précisant le cautionnement à fournir par JI. Kermeur (René), chef du service de l’enregistrement, des domaines et du timbre, conservateur de la propriété foncière, curateur aux successions et biens vacants.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1948 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-du-20-septembre-1948-precisant-le-cautionnement-a-fournir-par-ji-kermeur-rene-chef-du-service-de-lenregistrement-des-domaines-et-du-timbre-conservateur-de-la-propriete/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 9 du 30/09/1948 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-du-20-septembre-1948-precisant-le-cautionnement-a-fournir-par-ji-kermeur-rene-chef-du-service-de-lenregistrement-des-domaines-et-du-timbre-conservateur-de-la-propriete/>
 
 En vigueur : 1948-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0048/PR/MID modifiant l’arrêté n° 2005-0737/PR/MID portant réglementation de la propagande pour les élections régionales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 22/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0048-pr-mid-modifiant-larrete-n2005-0737-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-regionales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 22/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0048-pr-mid-modifiant-larrete-n2005-0737-pr-mid-portant-reglementation-de-la-propagande-pour-les-elections-regionales/>
 
 En vigueur : 2006-02-22 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2008-0152/PR portant création d’un Comité de Crise relatif au différend frontalier djibouto-Erythréen.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0152-pr-portant-creation-dun-comite-de-crise-relatif-au-differend-frontalier-djibouto-erythreen/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0152-pr-portant-creation-dun-comite-de-crise-relatif-au-differend-frontalier-djibouto-erythreen/>
 
 En vigueur : 2008-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 66-355 portant publication du reglement additionnel du 12 mai 1965 amendant le règlement sanitaire international du 1er octobre 1952, en particulier en c qui concerne ia désinsectisation des navires et aéronefs, et les annexes 3 et 4 (modèles de certificats internationaux de vaccination ou de revaccination contre la fièvre jaune et contre la variole).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-355-portant-publication-du-reglement-additionnel-du-12-mai-1965-amendant-le-reglement-sanitaire-international-du-1er-octobre-1952-en-particulier-en-c-qui-concerne-ia-desinsectisati/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 01/09/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-355-portant-publication-du-reglement-additionnel-du-12-mai-1965-amendant-le-reglement-sanitaire-international-du-1er-octobre-1952-en-particulier-en-c-qui-concerne-ia-desinsectisati/>
 
 En vigueur : 1966-09-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 93-0005/PR/MIEM portant modification des statuts de l’électricité de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0005-pr-miem-portant-modification-des-statuts-de-lelectricite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0005-pr-miem-portant-modification-des-statuts-de-lelectricite-de-djibouti/>
 
 En vigueur : 1993-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 196/AN/12/6ème L portant transformation de la société d’Etat PAID en “Port de Djibouti SA”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-12-6eme-l-portant-transformation-de-la-societe-detat-paid-en-port-de-djibouti-sa/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-12-6eme-l-portant-transformation-de-la-societe-detat-paid-en-port-de-djibouti-sa/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

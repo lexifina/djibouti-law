@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0370/PR/MI portant autorisation des dépenses avant ordonnancement et mandatement au profit du District de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0370-pr-mi-portant-autorisation-des-depenses-avant-ordonnancement-et-mandatement-au-profit-du-district-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0370-pr-mi-portant-autorisation-des-depenses-avant-ordonnancement-et-mandatement-au-profit-du-district-de-djibouti/>
 
 En vigueur : 2000-05-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ MOHAMED HASSAN ABDILLAHI
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2005-0218/PR/MID Rectifiant le décret n° 2005-0182/PR/MID portant convocation du corps électoral fixant la date des élections régionales et les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0218-pr-mid-rectifiant-le-decret-n2005-0182-pr-mid-portant-convocation-du-corps-electoral-fixant-la-date-des-elections-regionales-et-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0218-pr-mid-rectifiant-le-decret-n2005-0182-pr-mid-portant-convocation-du-corps-electoral-fixant-la-date-des-elections-regionales-et-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

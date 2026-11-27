@@ -1,6 +1,6 @@
 # Loi n° 125/AN/21/8ème L Portant amendement de la Loi n° 152/AN/11/6ème L portant Code de l’Aviation Civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-21-8eme-l-portant-amendement-de-la-loi-n152-an-11-6eme-l-portant-code-de-laviation-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-21-8eme-l-portant-amendement-de-la-loi-n152-an-11-6eme-l-portant-code-de-laviation-civile/>
 
 En vigueur : 2021-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

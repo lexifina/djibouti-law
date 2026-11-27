@@ -1,6 +1,6 @@
 # Arrêté n° 2013-022/PR/MEFIP portant déclassement de la partie terrestre du port comprise dans le domaine public maritime de l’Etat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-022-pr-mefip-portant-declassement-de-la-partie-terrestre-du-port-comprise-dans-le-domaine-public-maritime-de-letat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-022-pr-mefip-portant-declassement-de-la-partie-terrestre-du-port-comprise-dans-le-domaine-public-maritime-de-letat/>
 
 En vigueur : 2013-01-31 (date du Journal officiel qui le publie).
 

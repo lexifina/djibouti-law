@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0863/PR/MJSLT fixant l’organisation des élections des membres du comité exécutif des groupements sportifs uni sports.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0863-pr-mjslt-fixant-lorganisation-des-elections-des-membres-du-comite-executif-des-groupements-sportifs-uni-sports/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 29/11/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0863-pr-mjslt-fixant-lorganisation-des-elections-des-membres-du-comite-executif-des-groupements-sportifs-uni-sports/>
 
 En vigueur : 2007-11-29 (date du Journal officiel qui le publie).
 

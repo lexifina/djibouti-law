@@ -1,6 +1,6 @@
 # Décret n° 2019-208/PR/MUET portant mise en place du Conseil National du Tourisme Durable.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-208-pr-muet-portant-mise-en-place-du-conseil-national-du-tourisme-durable/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-208-pr-muet-portant-mise-en-place-du-conseil-national-du-tourisme-durable/>
 
 En vigueur : 2019-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

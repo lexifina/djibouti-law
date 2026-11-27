@@ -1,6 +1,6 @@
 # Décret n° 99-0077/PR/MFEN portant réforme des sociétés d’État, des sociétés d’économie mixte et des établissements publics à caractère industriel et commercial
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0077-pr-mfen-portant-reforme-des-societes-detat-des-societes-deconomie-mixte-et-des-etablissements-publics-a-caractere-industriel-et-commercial/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0077-pr-mfen-portant-reforme-des-societes-detat-des-societes-deconomie-mixte-et-des-etablissements-publics-a-caractere-industriel-et-commercial/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

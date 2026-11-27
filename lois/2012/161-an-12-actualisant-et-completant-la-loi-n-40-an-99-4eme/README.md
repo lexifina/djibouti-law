@@ -1,8 +1,8 @@
 # Loi n° 161/AN/12/6ème L actualisant et complétant la Loi n° 40/AN/99/4ème L du 8 juin 1999 fixant la réglementation applicable aux entreprises d’assurance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-12-6eme-l-actualisant-et-completant-la-loi-n40-an-99-4eme-l-du-8-juin-1999-fixant-la-reglementation-applicable-aux-entreprises-dassurance/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-12-6eme-l-actualisant-et-completant-la-loi-n40-an-99-4eme-l-du-8-juin-1999-fixant-la-reglementation-applicable-aux-entreprises-dassurance/>
 
-En vigueur : 2012-06-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-06-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -124,4 +124,4 @@ ISMAÏL OMAR GUELLEH
 | [art-090.md](art-090.md) | Article 90 |
 | [art-091.md](art-091.md) | Article 91 |
 | [art-092.md](art-092.md) | Article 92 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

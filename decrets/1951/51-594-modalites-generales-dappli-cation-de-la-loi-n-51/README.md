@@ -1,6 +1,6 @@
 # Décret n° 51-594 fixant les modalités, générales d’application de la loi n » 51-586 du 23 mai. 1951 relative à l’élection, des membres de l’Assemblée Nationale dans les Territoires relevant du Ministère de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-594-fixant-les-modalites-generales-dapplication-de-la-loi-n-51-586-du-23-mai-1951-relative-a-lelection-des-membres-de-lassemblee-nationale-dans-les-territoires-relevant/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-594-fixant-les-modalites-generales-dapplication-de-la-loi-n-51-586-du-23-mai-1951-relative-a-lelection-des-membres-de-lassemblee-nationale-dans-les-territoires-relevant/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ François MITTERAND.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2001-0136/PR/MEFPCP relatif à l’organisation, au fonctionnement et au contrôle des régies d’avance et des régies de recettes de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0136-pr-mefpcp-relatif-a-lorganisation-au-fonctionnement-et-au-controle-des-regies-davance-et-des-regies-de-recettes-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0136-pr-mefpcp-relatif-a-lorganisation-au-fonctionnement-et-au-controle-des-regies-davance-et-des-regies-de-recettes-de-letat/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

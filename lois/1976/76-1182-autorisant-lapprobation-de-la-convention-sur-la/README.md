@@ -1,6 +1,6 @@
 # Loi n° 76-1182 autorisant l’approbation de la convention sur la prévention de la pollution des mers résultant de l’immersion de déchets, ensemble trois annexes, ouverte à la signature à Londres, Mexico Moscou et Washington du 29 décembre 1972 au 31 décembre 1973.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1977 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-76-1182-autorisant-lapprobation-de-la-convention-sur-la-prevention-de-la-pollution-des-mers-resultant-de-limmersion-de-dechets-ensemble-trois-annexes-ouverte-a-la-signature-a-londres/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1977 · <https://www.journalofficiel.dj/texte-juridique/loi-n-76-1182-autorisant-lapprobation-de-la-convention-sur-la-prevention-de-la-pollution-des-mers-resultant-de-limmersion-de-dechets-ensemble-trois-annexes-ouverte-a-la-signature-a-londres/>
 
 En vigueur : 1977-02-10 (date du Journal officiel qui le publie).
 

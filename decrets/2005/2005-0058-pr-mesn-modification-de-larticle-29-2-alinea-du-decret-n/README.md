@@ -1,6 +1,6 @@
 # Décret n° 2005-0058/PR/MESN portant modification de l’article 29-2°alinéa du décret n° 83-098/PR/FP du 10 septembre 1983.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0058-pr-mesn-portant-modification-de-larticle-29-2alinea-du-decret-n83-098-pr-fp-du-10-septembre-1983/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0058-pr-mesn-portant-modification-de-larticle-29-2alinea-du-decret-n83-098-pr-fp-du-10-septembre-1983/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

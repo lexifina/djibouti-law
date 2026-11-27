@@ -1,6 +1,6 @@
 # Décret n° du 27 décembre 1940 sur les combattants de la guerre 1939-1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 533 du 30/04/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-27-decembre-1940-sur-les-combattants-de-la-guerre-1939-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 533 du 30/04/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-27-decembre-1940-sur-les-combattants-de-la-guerre-1939-1940/>
 
 En vigueur : 1941-04-30 (date du Journal officiel qui le publie).
 

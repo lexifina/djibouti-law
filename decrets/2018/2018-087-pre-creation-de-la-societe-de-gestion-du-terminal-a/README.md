@@ -1,8 +1,8 @@
 # Décret n° 2018-087/PRE portant Création de la “Société de Gestion du Terminal à Conteneur de Doraleh” (SGTD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-087-pre-portant-creation-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-087-pre-portant-creation-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd/>
 
-En vigueur : 2018-02-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-02-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

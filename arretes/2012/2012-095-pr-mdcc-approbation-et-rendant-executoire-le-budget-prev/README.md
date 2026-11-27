@@ -1,6 +1,6 @@
 # Arrêté n° 2012-095/PR/MDCC portant approbation et rendant exécutoire le budget prévisionnel de l’exercice 2012 du Fonds de Developpement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-095-pr-mdcc-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-095-pr-mdcc-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2012-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

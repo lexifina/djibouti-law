@@ -1,6 +1,6 @@
 # Décret n° n°2 légion d’honneur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 459 du 28/02/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-legion-dhonneur/>
+Décret · Journal officiel de la République de Djibouti, n° 459 du 28/02/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-legion-dhonneur/>
 
 En vigueur : 1935-02-28 (date du Journal officiel qui le publie).
 

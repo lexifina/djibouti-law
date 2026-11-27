@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0961/PR/MHUEAT portant adoption du Budget prévisionnel 2010 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0961-pr-mhueat-portant-adoption-du-budget-previsionnel-2010-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0961-pr-mhueat-portant-adoption-du-budget-previsionnel-2010-du-fonds-de-lhabitat/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

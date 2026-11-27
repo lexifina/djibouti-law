@@ -1,6 +1,6 @@
 # Loi n° 46-2384 relative à la composition et au fonctionnement du Conseil économique
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2384-relative-a-la-composition-et-au-fonctionnement-du-conseil-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2384-relative-a-la-composition-et-au-fonctionnement-du-conseil-economique/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ TANGUY-PRIGENT.
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

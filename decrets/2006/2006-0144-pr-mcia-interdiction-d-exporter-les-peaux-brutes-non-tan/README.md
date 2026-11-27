@@ -1,6 +1,6 @@
 # Décret n° 2006-0144/PR/MCIA portant interdiction d’exporter les peaux brutes non tannés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0144-pr-mcia-portant-interdiction-dexporter-les-peaux-brutes-non-tannes/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0144-pr-mcia-portant-interdiction-dexporter-les-peaux-brutes-non-tannes/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

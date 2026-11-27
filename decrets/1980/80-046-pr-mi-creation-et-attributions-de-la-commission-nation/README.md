@@ -1,6 +1,6 @@
 # Décret n° 80-046/PR/MI portant création et attributions de la Commission Nationale d’Hygiène et Sécurité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-046-pr-mi-portant-creation-et-attributions-de-la-commission-nationale-dhygiene-et-securite/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-046-pr-mi-portant-creation-et-attributions-de-la-commission-nationale-dhygiene-et-securite/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 81-024/PR/MI rendant exécutoire la délibération n° 4-80 du 16 février 1981 du Conseil d’Administration de l’Office des Postes et Télécommunications portant approbation de la première décision modificative du budget 1981
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-024-pr-mi-rendant-executoire-la-deliberation-n4-80-du-16-fevrier-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premie/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-024-pr-mi-rendant-executoire-la-deliberation-n4-80-du-16-fevrier-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-de-la-premie/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

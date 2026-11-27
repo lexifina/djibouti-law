@@ -1,6 +1,6 @@
 # Décret n° 89-022/PR/MCTT approuvant et rendant exécutoire le budget primitif 1989 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-022-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1989-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-022-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1989-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1989-02-28 (date du Journal officiel qui le publie).
 

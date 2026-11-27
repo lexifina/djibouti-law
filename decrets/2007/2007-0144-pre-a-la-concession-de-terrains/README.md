@@ -1,8 +1,8 @@
 # Décret n° 2007-0144/PRE relatif à la concession de terrains.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0144-pre-relatif-a-la-concession-de-terrains/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0144-pre-relatif-a-la-concession-de-terrains/>
 
-En vigueur : 2007-07-04 (date fixÃ©e par le texte).
+En vigueur : 2007-07-04 (date fixée par le texte).
 
 ## Visas
 

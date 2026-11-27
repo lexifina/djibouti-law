@@ -1,6 +1,6 @@
 # Décret n° 2022-276/PRE portant contrat d’espace publicitaire sise Place Mahamoud Harbi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-276-pre-portant-contrat-despace-publicitaire-sise-place-mahamoud-harbi/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-276-pre-portant-contrat-despace-publicitaire-sise-place-mahamoud-harbi/>
 
 En vigueur : 2022-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

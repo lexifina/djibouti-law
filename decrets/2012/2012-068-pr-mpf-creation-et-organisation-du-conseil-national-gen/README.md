@@ -1,6 +1,6 @@
 # Décret n° 2012-068/PR/MPF portant création et organisation du Conseil National Genre et Développement et du Comité Technique de suivi de la Politique Nationale Genre et la matrice d’Action.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-068-pr-mpf-portant-creation-et-organisation-du-conseil-national-genre-et-developpement-et-du-comite-technique-de-suivi-de-la-politique-nationale-genre-et-la-matrice-daction/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-068-pr-mpf-portant-creation-et-organisation-du-conseil-national-genre-et-developpement-et-du-comite-technique-de-suivi-de-la-politique-nationale-genre-et-la-matrice-daction/>
 
 En vigueur : 2012-04-15 (date du Journal officiel qui le publie).
 

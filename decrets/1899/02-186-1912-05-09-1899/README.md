@@ -1,6 +1,6 @@
 # Décret n° 02-186-1912 05/09/1899
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 186 du 01/05/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-186-1912-05-09-1899/>
+Décret · Journal officiel de la République de Djibouti, n° 186 du 01/05/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-186-1912-05-09-1899/>
 
 En vigueur : 1912-05-01 (date du Journal officiel qui le publie).
 

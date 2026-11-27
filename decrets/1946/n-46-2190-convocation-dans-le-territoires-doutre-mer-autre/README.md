@@ -1,6 +1,6 @@
 # Décret n° n° 46–2190 portant Convocation dans le territoires d’outre-mer autres que les Etablissement: français de l’Océanie des collège électoraux pour l’élection d’une Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2190-portant-convocation-dans-le-territoires-doutre-mer-autres-que-les-etablissement-francais-de-loceanie-des-college-electoraux-pour-lelection-dune-assemblee-na/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2190-portant-convocation-dans-le-territoires-doutre-mer-autres-que-les-etablissement-francais-de-loceanie-des-college-electoraux-pour-lelection-dune-assemblee-na/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ marius moutet
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

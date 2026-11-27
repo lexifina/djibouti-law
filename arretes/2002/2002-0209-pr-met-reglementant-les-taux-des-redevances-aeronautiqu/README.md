@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0209/PR/MET réglementant les taux des redevances aéronautiques applicables à compter du 1er avril 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0209-pr-met-reglementant-les-taux-des-redevances-aeronautiques-applicables-a-compter-du-1er-avril-2002/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0209-pr-met-reglementant-les-taux-des-redevances-aeronautiques-applicables-a-compter-du-1er-avril-2002/>
 
-En vigueur : 2002-04-01 (date fixÃ©e par le texte).
+En vigueur : 2002-04-01 (date fixée par le texte).
 
 ## Visas
 

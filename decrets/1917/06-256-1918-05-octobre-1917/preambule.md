@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, premier. – Les articles ter. 3, tet 5 du décret du 6 avril 1900, moditié par le décret du 20 décembre 1900, sont moditiés et complétes.
 Art premier— Les colonies et pavs de protectorat autres que la Tunisie et le Maroe sont administrés par des gouverneur et des résident superieurs .
 Les gouverneurs, à l’exception du gouverneur de la Cochinehine, prennent le litre de lieutenant-gouverneur lorsqu’ils sont placés en sous-ordre.

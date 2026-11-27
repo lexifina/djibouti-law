@@ -1,6 +1,6 @@
 # Loi n° 178/AN/91/2e L Fixant les modalités d’application des lois relatives au régime foncier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 31/10/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-91-2e-l-fixant-les-modalites-dapplication-des-lois-relatives-au-regime-foncier/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 31/10/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-91-2e-l-fixant-les-modalites-dapplication-des-lois-relatives-au-regime-foncier/>
 
 En vigueur : 1991-10-31 (date du Journal officiel qui le publie).
 
@@ -15,5 +15,5 @@ Vu les lois relatives au régime foncier : domaine public de l’Etat n° 171/AN
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

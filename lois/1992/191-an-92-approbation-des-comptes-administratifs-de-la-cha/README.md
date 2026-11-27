@@ -1,6 +1,6 @@
 # Loi n° 191/AN/92/2e L portant approbation des comptes administratifs de la Chambre Internationale de Commerce et d’Industrie de Djibouti et Magasins Généraux pour l’exercice 1990.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-92-2e-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-magasins-generaux-pour-lexercice-1990/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-92-2e-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-magasins-generaux-pour-lexercice-1990/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2007-0056/PR/MID portant organisation de la Direction des Mines et de la Sécurité Routière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0056-pr-mid-portant-organisation-de-la-direction-des-mines-et-de-la-securite-routiere/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0056-pr-mid-portant-organisation-de-la-direction-des-mines-et-de-la-securite-routiere/>
 
 En vigueur : 2007-03-15 (date du Journal officiel qui le publie).
 

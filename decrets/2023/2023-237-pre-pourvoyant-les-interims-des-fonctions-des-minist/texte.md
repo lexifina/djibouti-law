@@ -1,1 +1,0 @@
-Par décret n°2023-237/PRE, du Président de la République, Chef du Gouvernement, en date du 02 août 2023, pendant la durée de l’absence de S.E.Dr. AHMED ROBLEH, l’intérim des fonctions du Ministre de la Santé sera assuré par S.E.M. ABDOULKADER KAMIL MOHAMED, Premier Ministre cumulativement avec ses fonctions.

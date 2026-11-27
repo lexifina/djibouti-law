@@ -1,6 +1,6 @@
 # Loi n° 69/AN/14/7ème L portant ratification de l’accord bilatéral signé entre la République de Djibouti et la République Fédérale Démocratique d’Ethiopie relatif à l’approvisionnement en eau potable.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-14-7eme-l-portant-ratification-de-laccord-bilateral-signe-entre-la-republique-de-djibouti-et-la-republique-federale-democratique-dethiopie-relatif-a-lapprovisionnement-en-eau-p/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-14-7eme-l-portant-ratification-de-laccord-bilateral-signe-entre-la-republique-de-djibouti-et-la-republique-federale-democratique-dethiopie-relatif-a-lapprovisionnement-en-eau-p/>
 
 En vigueur : 2014-11-30 (date du Journal officiel qui le publie).
 

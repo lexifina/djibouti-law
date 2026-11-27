@@ -1,6 +1,6 @@
 # Loi n° 161/AN/06/5ème L portant ratification d’un Accord de financement entre la République de Djibouti et la Banque Islamique de Développement (BID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-06-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-06-5eme-l-portant-ratification-dun-accord-de-financement-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

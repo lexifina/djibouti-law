@@ -1,6 +1,6 @@
 # Arrêté n° 2010-456/PR/MENESUP modifiant l’Arrêté n° 2006-0532/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence et au titre de Diplôme d’études universitaires générales mention « Droit ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-456-pr-menesup-modifiant-larrete-n2006-0532-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-unive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-456-pr-menesup-modifiant-larrete-n2006-0532-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-unive/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

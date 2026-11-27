@@ -1,6 +1,6 @@
 # Décret n° 50-1160 modifiant le décret relatif aux indemnités pour frais de déplacement en France et Afrique du Nord, des fonctionnaires, employés et agents des services coloniaux et locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1160-modifiant-le-decret-relatif-aux-indemnites-pour-frais-de-deplacement-en-france-et-afrique-du-nord-des-fonctionnaires-employes-et-agents-des-services-coloniaux-et-locaux/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1160-modifiant-le-decret-relatif-aux-indemnites-pour-frais-de-deplacement-en-france-et-afrique-du-nord-des-fonctionnaires-employes-et-agents-des-services-coloniaux-et-locaux/>
 
 En vigueur : 1950-11-30 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ Pierre MÉTAYER.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

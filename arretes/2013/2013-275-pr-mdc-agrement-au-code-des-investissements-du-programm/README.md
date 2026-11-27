@@ -1,6 +1,6 @@
 # Arrêté n° 2013-275/PR/MDC portant Agrément au Code des Investissements du programme intégré d’investissement de la multinationale « FABTECH GROUP OF COMPAGNIES »
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-275-pr-mdc-portant-agrement-au-code-des-investissements-du-programme-integre-dinvestissement-de-la-multinationale-fabtech-group-of-compagnies/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-275-pr-mdc-portant-agrement-au-code-des-investissements-du-programme-integre-dinvestissement-de-la-multinationale-fabtech-group-of-compagnies/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

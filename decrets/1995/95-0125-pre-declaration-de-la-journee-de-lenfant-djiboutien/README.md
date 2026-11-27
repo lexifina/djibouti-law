@@ -1,6 +1,6 @@
 # Décret n° 95-0125/PRE portant déclaration de la «Journée de l’Enfant djiboutien».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0125-pre-portant-declaration-de-la-journee-de-lenfant-djiboutien/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0125-pre-portant-declaration-de-la-journee-de-lenfant-djiboutien/>
 
 En vigueur : 1995-11-15 (date du Journal officiel qui le publie).
 
@@ -13,6 +13,6 @@ Vu la Convention des Droits de l'Enfant ratifiée le 6 décembre 1990 par la Ré
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

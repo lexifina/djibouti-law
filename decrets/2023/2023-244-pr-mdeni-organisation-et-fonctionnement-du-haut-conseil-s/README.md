@@ -1,6 +1,6 @@
 # Décret n° 2023-244/PR/MDENI portant organisation et fonctionnement du Haut Conseil Supérieur de l’Economie et de l’Innovation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-244-pr-mdeni-portant-organisation-et-fonctionnement-du-haut-conseil-superieur-de-leconomie-et-de-linnovation/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-244-pr-mdeni-portant-organisation-et-fonctionnement-du-haut-conseil-superieur-de-leconomie-et-de-linnovation/>
 
 En vigueur : 2023-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

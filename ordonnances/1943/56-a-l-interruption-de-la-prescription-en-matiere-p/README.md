@@ -1,6 +1,6 @@
 # Ordonnance n° 56 relative à l’interruption de la prescription en matière pénale.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-56-relative-a-linterruption-de-la-prescription-en-matiere-penale/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-56-relative-a-linterruption-de-la-prescription-en-matiere-penale/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

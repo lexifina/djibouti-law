@@ -1,6 +1,6 @@
 # Décret n° 20 mai 1941 relatif À la situation des personnels civils retributes sur les budgets généraux, locaux ou spéciaux des co lonies. pays de protectorat français, territoires sous mandat relevant du Conseil de Défense de l’Empire Français,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-mai-1941-relatif-a-la-situation-des-personnels-civils-retributes-sur-les-budgets-generaux-locaux-ou-speciaux-des-co-lonies-pays-de-protectorat-francais-territoires-sous-mandat-re/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-mai-1941-relatif-a-la-situation-des-personnels-civils-retributes-sur-les-budgets-generaux-locaux-ou-speciaux-des-co-lonies-pays-de-protectorat-francais-territoires-sous-mandat-re/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

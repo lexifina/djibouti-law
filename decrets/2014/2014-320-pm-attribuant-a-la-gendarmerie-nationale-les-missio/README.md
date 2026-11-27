@@ -1,6 +1,6 @@
 # Décret n° 2014-320/PM attribuant à la Gendarmerie Nationale les missions de Surveillance et de sécurisation de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-320-pm-attribuant-a-la-gendarmerie-nationale-les-missions-de-surveillance-et-de-securisation-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-320-pm-attribuant-a-la-gendarmerie-nationale-les-missions-de-surveillance-et-de-securisation-de-lassemblee-nationale/>
 
 En vigueur : 2014-11-30 (date du Journal officiel qui le publie).
 

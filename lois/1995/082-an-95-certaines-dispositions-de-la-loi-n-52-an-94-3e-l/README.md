@@ -1,8 +1,8 @@
 # Loi n° 82/AN/95/3e L modifiant certaines dispositions de la loi n° 52/AN/94/3e L du 10 octobre 1994 portant création d’une Cour d’Appel et d’un Tribunal de Première Instance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-95-3e-l-modifiant-certaines-dispositions-de-la-loi-n52-an-94-3e-l-du-10-octobre-1994-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n82-an-95-3e-l-modifiant-certaines-dispositions-de-la-loi-n52-an-94-3e-l-du-10-octobre-1994-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
 
-En vigueur : 1995-05-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1995-05-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

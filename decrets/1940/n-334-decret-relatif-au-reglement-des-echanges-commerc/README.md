@@ -1,6 +1,6 @@
 # Décret n° n°334 Le décret relatif au règlement des échanges commerciaux franco-britanniques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-decret-relatif-au-reglement-des-echanges-commerciaux-franco-britanniques/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-decret-relatif-au-reglement-des-echanges-commerciaux-franco-britanniques/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

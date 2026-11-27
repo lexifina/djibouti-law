@@ -1,6 +1,6 @@
 # Loi n° 156/AN/02/4ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’Ouverture de la 1ère Session Ordinaire de 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-02-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-02-4eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2002/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

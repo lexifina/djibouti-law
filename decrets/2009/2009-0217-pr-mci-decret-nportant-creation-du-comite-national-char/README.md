@@ -1,6 +1,6 @@
 # Décret n° 2009-0217/PR/MCI Décret nportant création du Comité National chargé de l’Organisation des réunions des Ministres des infrastructures des pays du COMESA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0217-pr-mci-decret-nportant-creation-du-comite-national-charge-de-lorganisation-des-reunions-des-ministres-des-infrastructures-des-pays-du-comesa/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0217-pr-mci-decret-nportant-creation-du-comite-national-charge-de-lorganisation-des-reunions-des-ministres-des-infrastructures-des-pays-du-comesa/>
 
 En vigueur : 2009-10-15 (date du Journal officiel qui le publie).
 

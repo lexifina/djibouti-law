@@ -1,6 +1,6 @@
 # Ordonnance n° 19 relative au régime des pensions de guerre de la France Libre
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-19-relative-au-regime-des-pensions-de-guerre-de-la-france-libre-2/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-19-relative-au-regime-des-pensions-de-guerre-de-la-france-libre-2/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ M. VALIN.
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

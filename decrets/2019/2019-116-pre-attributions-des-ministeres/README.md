@@ -1,6 +1,6 @@
 # Décret n° 2019-116/PRE fixant les attributions des Ministères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-116-pre-fixant-les-attributions-des-ministeres/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 30/05/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-116-pre-fixant-les-attributions-des-ministeres/>
 
 En vigueur : 2019-05-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

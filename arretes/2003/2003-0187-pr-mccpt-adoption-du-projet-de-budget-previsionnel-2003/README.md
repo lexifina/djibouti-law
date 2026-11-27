@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0187/PR/MCCPT portant adoption du projet de budget prévisionnel 2003.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0187-pr-mccpt-portant-adoption-du-projet-de-budget-previsionnel-2003/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0187-pr-mccpt-portant-adoption-du-projet-de-budget-previsionnel-2003/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

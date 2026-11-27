@@ -1,6 +1,6 @@
 # Décret n° n°12 Décret portant application dans les colonies, pars de protectorat et territoires sous mandat du décret du 16 juillet 1939, supprimant des indemnités de logement pour les meuves de fonctionnaires,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-decret-portant-application-dans-les-colonies-pars-de-protectorat-et-territoires-sous-mandat-du-decret-du-16-juillet-1939-supprimant-des-indemnites-de-logement-pour-les-meuv/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n12-decret-portant-application-dans-les-colonies-pars-de-protectorat-et-territoires-sous-mandat-du-decret-du-16-juillet-1939-supprimant-des-indemnites-de-logement-pour-les-meuv/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ pierre laval
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

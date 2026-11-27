@@ -1,6 +1,6 @@
 # Loi de finances n° 169/AN/22/8ème L portant budget rectificatif de l’Etat pour l’exercice 2022.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n169-an-22-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2022/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n169-an-22-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2022/>
 
 En vigueur : 2022-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 99-0283/PR/MEN portant création d’un Baccalauréat Technologique de l’Enseignement du 2ème degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0283-pr-men-portant-creation-dun-baccalaureat-technologique-de-lenseignement-du-2eme-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0283-pr-men-portant-creation-dun-baccalaureat-technologique-de-lenseignement-du-2eme-degre/>
 
-En vigueur : 1999-12-30 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-12-30 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

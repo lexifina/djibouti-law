@@ -1,6 +1,6 @@
 # Loi n° 59/AN/09/6ème L portant modification partielle de la loi n° 155/AN/02/4ème L du 31 janvier 2002 portant révision des modalités de contributions d’acquisition des droits à pension, de liquidation des pensions de retraites et des pensions de veuves et d’orphelin des cotisan
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-09-6eme-l-portant-modification-partielle-de-la-loi-n155-an-02-4eme-l-du-31-janvier-2002-portant-revision-des-modalites-de-contributions-dacquisition-des-droits-a-pension-de-l/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-09-6eme-l-portant-modification-partielle-de-la-loi-n155-an-02-4eme-l-du-31-janvier-2002-portant-revision-des-modalites-de-contributions-dacquisition-des-droits-a-pension-de-l/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

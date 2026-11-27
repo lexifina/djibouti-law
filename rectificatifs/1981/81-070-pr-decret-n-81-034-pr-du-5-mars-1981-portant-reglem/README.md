@@ -1,6 +1,6 @@
 # Additif n° 81-070/PR au décret n° 81-034/PR du 5 mars 1981 portant réglementation des véhicules appartenant à l’Administration et aux Établissements Publics et plus précisément ses articles 9 et 10.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n81-070-pr-au-decret-n81-034-pr-du-5-mars-1981-portant-reglementation-des-vehicules-appartenant-a-ladministration-et-aux-etablissements-publics-et-plus-precisement-ses-articles-9/>
+Additif · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/additif-n81-070-pr-au-decret-n81-034-pr-du-5-mars-1981-portant-reglementation-des-vehicules-appartenant-a-ladministration-et-aux-etablissements-publics-et-plus-precisement-ses-articles-9/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

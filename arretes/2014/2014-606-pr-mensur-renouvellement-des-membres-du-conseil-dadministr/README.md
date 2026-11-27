@@ -1,6 +1,6 @@
 # Arrêté n° 2014-606/PR/MENSUR portant renouvellement des membres du Conseil d’Administration du Centre d’Etudes et de Recherche de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-606-pr-mensur-portant-renouvellement-des-membres-du-conseil-dadministration-du-centre-detudes-et-de-recherche-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-606-pr-mensur-portant-renouvellement-des-membres-du-conseil-dadministration-du-centre-detudes-et-de-recherche-de-djibouti/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

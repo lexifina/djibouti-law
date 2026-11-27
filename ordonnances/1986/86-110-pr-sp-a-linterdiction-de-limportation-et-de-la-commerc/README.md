@@ -1,6 +1,6 @@
 # Ordonnance n° 86-110/PR/SP relative à l’interdiction de l’importation et de la commercialisation de certains produits cosmétiques et d’hygiène corporelle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-110-pr-sp-relative-a-linterdiction-de-limportation-et-de-la-commercialisation-de-certains-produits-cosmetiques-et-dhygiene-corporelle/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-110-pr-sp-relative-a-linterdiction-de-limportation-et-de-la-commercialisation-de-certains-produits-cosmetiques-et-dhygiene-corporelle/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

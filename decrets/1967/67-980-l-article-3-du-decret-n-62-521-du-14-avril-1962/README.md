@@ -1,6 +1,6 @@
 # Décret n° 67-980 modifiant l’article 3 du décret n° 62-521 du 14 avril 1962 relatif à l’accès aux écoles militaires de citoyens Français originaires des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/12/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-980-modifiant-larticle-3-du-decret-n-62-521-du-14-avril-1962-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/12/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-980-modifiant-larticle-3-du-decret-n-62-521-du-14-avril-1962-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre/>
 
 En vigueur : 1967-12-10 (date du Journal officiel qui le publie).
 

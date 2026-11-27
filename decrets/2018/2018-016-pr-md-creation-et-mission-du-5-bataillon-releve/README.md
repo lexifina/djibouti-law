@@ -1,6 +1,6 @@
 # Décret n° 2018-016/PR/MD portant création et mission du 5° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-016-pr-md-portant-creation-et-mission-du-5-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-016-pr-md-portant-creation-et-mission-du-5-bataillon-releve/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 

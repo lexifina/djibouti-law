@@ -1,6 +1,6 @@
 # Décret n° 2010-0222/PR/MS modifiant et complétant le Décret n° 2009-0291/PR/MS portant statuts de l’Ecole de Médecine de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0222-pr-ms-modifiant-et-completant-le-decret-n2009-0291-pr-ms-portant-statuts-de-lecole-de-medecine-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0222-pr-ms-modifiant-et-completant-le-decret-n2009-0291-pr-ms-portant-statuts-de-lecole-de-medecine-de-djibouti/>
 
 En vigueur : 2010-11-30 (date du Journal officiel qui le publie).
 

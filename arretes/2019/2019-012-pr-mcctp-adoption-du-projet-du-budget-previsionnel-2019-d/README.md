@@ -1,6 +1,6 @@
 # Arrêté n° 2019-012/PR/MCCTP portant adoption du projet du budget prévisionnel 2019 de l’Imprimerie Nationale de Djibouti (IND).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-012-pr-mcctp-portant-adoption-du-projet-du-budget-previsionnel-2019-de-limprimerie-nationale-de-djibouti-ind/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-012-pr-mcctp-portant-adoption-du-projet-du-budget-previsionnel-2019-de-limprimerie-nationale-de-djibouti-ind/>
 
 En vigueur : 2019-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

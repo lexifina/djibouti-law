@@ -1,6 +1,6 @@
 # Décret n° 52-383 portant modification du décret n° 51-1188 du 11 octobre 1951 fixant les taux et les conditions d’attribution de l’indemnité résidentielle de cherté de vie prévue à l’article 6 du décret n° 51-1185 du 11 octobre 1951.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-383-portant-modification-du-decret-n-51-1188-du-11-octobre-1951-fixant-les-taux-et-les-conditions-dattribution-de-lindemnite-residentielle-de-cherte-de-vie-prevue-a-lart/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/06/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-383-portant-modification-du-decret-n-51-1188-du-11-octobre-1951-fixant-les-taux-et-les-conditions-dattribution-de-lindemnite-residentielle-de-cherte-de-vie-prevue-a-lart/>
 
 En vigueur : 1952-06-01 (date du Journal officiel qui le publie).
 

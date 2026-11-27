@@ -1,6 +1,6 @@
 # Ordonnance n° 24 portant modification du Code disciplinaire et pénal de la Marine marchande.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-portant-modification-du-code-disciplinaire-et-penal-de-la-marine-marchande/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-24-portant-modification-du-code-disciplinaire-et-penal-de-la-marine-marchande/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

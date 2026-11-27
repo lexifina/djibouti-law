@@ -1,6 +1,6 @@
 # Loi n° 109/AN/90/2eL portant approbation du compte administratif de l’exercice 1988 de l’office national du Tourisme et de l’Artisanat (ONTA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-90-2el-portant-approbation-du-compte-administratif-de-lexercice-1988-de-loffice-national-du-tourisme-et-de-lartisanat-onta/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n109-an-90-2el-portant-approbation-du-compte-administratif-de-lexercice-1988-de-loffice-national-du-tourisme-et-de-lartisanat-onta/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 

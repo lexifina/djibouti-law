@@ -1,6 +1,6 @@
 # Loi n° 16 avril 1968 CONVENTION GENERALE D’AIDE FINANCIERE
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 29/04/1968 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-16-avril-1968-convention-generale-daide-financiere/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 29/04/1968 · <https://www.journalofficiel.dj/texte-juridique/loi-n-16-avril-1968-convention-generale-daide-financiere/>
 
 En vigueur : 1968-04-29 (date du Journal officiel qui le publie).
 

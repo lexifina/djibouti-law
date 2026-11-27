@@ -1,6 +1,6 @@
 # Décret n° 18 Le décret portant attribution de l’indemnité de séparation aux fonctionnaires en service à la Côte française des Somalis dont les familles se trouvent a la métropole
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 537 du 31/08/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-le-decret-portant-attribution-de-lindemnite-de-separation-aux-fonctionnaires-en-service-a-la-cote-francaise-des-somalis-dont-les-familles-se-trouvent-a-la-metropole/>
+Décret · Journal officiel de la République de Djibouti, n° 537 du 31/08/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-le-decret-portant-attribution-de-lindemnite-de-separation-aux-fonctionnaires-en-service-a-la-cote-francaise-des-somalis-dont-les-familles-se-trouvent-a-la-metropole/>
 
 En vigueur : 1941-08-31 (date du Journal officiel qui le publie).
 

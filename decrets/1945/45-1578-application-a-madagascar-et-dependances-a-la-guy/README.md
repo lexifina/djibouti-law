@@ -1,6 +1,6 @@
 # Décret n° 45-1578 portant application à Madagascar et Dépendances, à la Guyane, à la Côte Française des Somalis et à Saint-Pierre et Miquelon de l’ordonnance du 14 novembre 1944 portant application de l’ordonnance du 12 novembre 1943 sur la nullité des actes de spoliation accomplis par l’ennemi ou sous son contrôle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1578-portant-application-a-madagascar-et-dependances-a-la-guyane-a-la-cote-francaise-des-somalis-et-a-saint-pierre-et-miquelon-de-lordonnance-du-14-novembre-1944-portant-applica/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1578-portant-application-a-madagascar-et-dependances-a-la-guyane-a-la-cote-francaise-des-somalis-et-a-saint-pierre-et-miquelon-de-lordonnance-du-14-novembre-1944-portant-applica/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 124/AN/96/3ème L portant approbation du Compte Financier de l’exercice 1995 de l’Office des Postes et Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-96-3eme-l-portant-approbation-du-compte-financier-de-lexercice-1995-de-loffice-des-postes-et-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-96-3eme-l-portant-approbation-du-compte-financier-de-lexercice-1995-de-loffice-des-postes-et-telecommunications/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ El Hadj Hassan Gouled Aptidon
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

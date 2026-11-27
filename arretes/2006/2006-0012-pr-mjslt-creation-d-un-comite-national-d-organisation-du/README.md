@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0012/PR/MJSLT portant création d’un Comité National d’Organisation du Dixième Semi Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0012-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-dixieme-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0012-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-dixieme-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2006-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 77-078/PR Portant réglementation du non-cumul des traitements des fonctions administratives ou électives.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-078-pr-portant-reglementation-du-non-cumul-des-traitements-des-fonctions-administratives-ou-electives/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-078-pr-portant-reglementation-du-non-cumul-des-traitements-des-fonctions-administratives-ou-electives/>
 
 En vigueur : 1978-01-09 (date du Journal officiel qui le publie).
 

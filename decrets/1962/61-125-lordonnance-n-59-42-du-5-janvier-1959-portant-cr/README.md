@@ -1,6 +1,6 @@
 # Décret n° 61-125 modifiant l’ordonnance n° 59-42 du 5 janvier 1959 portant création de l’institut des hautes études d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-125-modifiant-lordonnance-n-59-42-du-5-janvier-1959-portant-creation-de-linstitut-des-hautes-etudes-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-125-modifiant-lordonnance-n-59-42-du-5-janvier-1959-portant-creation-de-linstitut-des-hautes-etudes-doutre-mer/>
 
 En vigueur : 1962-02-28 (date du Journal officiel qui le publie).
 

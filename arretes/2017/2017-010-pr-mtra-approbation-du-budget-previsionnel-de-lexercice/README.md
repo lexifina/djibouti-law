@@ -1,8 +1,8 @@
 # Arrêté n° 2017-010/PR/MTRA portant approbation du Budget Prévisionnel de l’Exercice 2017 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-010-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2017-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-010-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2017-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
 
-En vigueur : 2017-01-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-01-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

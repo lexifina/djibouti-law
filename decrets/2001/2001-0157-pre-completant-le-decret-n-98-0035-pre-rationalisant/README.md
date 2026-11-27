@@ -1,8 +1,8 @@
 # Décret n° 2001-0157/PRE complétant le décret n° 98-0035/PRE rationalisant l’octroi des indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0157-pre-completant-le-decret-n98-0035-pre-rationalisant-loctroi-des-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0157-pre-completant-le-decret-n98-0035-pre-rationalisant-loctroi-des-indemnites/>
 
-En vigueur : 2001-07-17 (date fixÃ©e par le texte).
+En vigueur : 2001-07-17 (date fixée par le texte).
 
 ## Visas
 

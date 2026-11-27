@@ -1,6 +1,6 @@
 # Décret n° 45-1962 fixant dans les territoires d’outre-mer relevant du Ministère des Colonies, les modalités des opérations relatives aux élections prévues par l’ordonnancé du 22 août 1945
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1962-fixant-dans-les-territoires-doutre-mer-relevant-du-ministere-des-colonies-les-modalites-des-operations-relatives-aux-elections-prevues-par-lordonnance-du-22/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1962-fixant-dans-les-territoires-doutre-mer-relevant-du-ministere-des-colonies-les-modalites-des-operations-relatives-aux-elections-prevues-par-lordonnance-du-22/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

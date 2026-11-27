@@ -1,6 +1,6 @@
 # Décret n° 67-431 du 26 mai 1967 portant modification d’appellation des personnels et des services de l’inscription maritime (J.O.R.F. du 2 juin 1967, p. 5440).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-431-du-26-mai-1967-portant-modification-dappellation-des-personnels-et-des-services-de-linscription-maritime-j-o-r-f-du-2-juin-1967-p-5440/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-431-du-26-mai-1967-portant-modification-dappellation-des-personnels-et-des-services-de-linscription-maritime-j-o-r-f-du-2-juin-1967-p-5440/>
 
 En vigueur : 1968-10-10 (date du Journal officiel qui le publie).
 

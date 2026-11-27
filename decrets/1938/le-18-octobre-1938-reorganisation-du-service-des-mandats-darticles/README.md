@@ -1,6 +1,6 @@
 # Décret n° le 18 octobre 1938 portant réorganisation du service des mandats d’articles d’argent franco-coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-octobre-1938-portant-reorganisation-du-service-des-mandats-darticles-dargent-franco-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-octobre-1938-portant-reorganisation-du-service-des-mandats-darticles-dargent-franco-coloniaux/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

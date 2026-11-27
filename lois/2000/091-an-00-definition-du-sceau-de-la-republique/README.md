@@ -1,6 +1,6 @@
 # Loi n° 91/AN/00/4ème L portant definition du sceau de la Republique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-00-4eme-l-portant-definition-du-sceau-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-00-4eme-l-portant-definition-du-sceau-de-la-republique/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

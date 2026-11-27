@@ -1,6 +1,6 @@
 # Décret n° 53-360 du 17 avril 1953 portant relèvement du montant des successions vacantes qui peuvent, après cinq ans, être portées en recettes au budget local des territoires relevant du Ministère de la France d’Outre-Mer .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/06/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-360-du-17-avril-1953-portant-relevement-du-montant-des-successions-vacantes-qui-peuvent-apres-cinq-ans-etre-portees-en-recettes-au-budget-local-des-territoires-relevant-du-minist/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/06/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-360-du-17-avril-1953-portant-relevement-du-montant-des-successions-vacantes-qui-peuvent-apres-cinq-ans-etre-portees-en-recettes-au-budget-local-des-territoires-relevant-du-minist/>
 
 En vigueur : 1953-06-01 (date du Journal officiel qui le publie).
 
@@ -28,5 +28,5 @@ Jean Moreau
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |

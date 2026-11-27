@@ -1,6 +1,6 @@
 # Décret n° 2019-270/PR/MUET relatif aux conditions d’attribution de l’agrément d’agence de voyage.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-270-pr-muet-relatif-aux-conditions-dattribution-de-lagrement-dagence-de-voyage/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-270-pr-muet-relatif-aux-conditions-dattribution-de-lagrement-dagence-de-voyage/>
 
 En vigueur : 2019-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

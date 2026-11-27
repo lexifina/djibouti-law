@@ -1,6 +1,6 @@
 # Loi n° 01/AN/13/7ème L approuvant les comptes financiers définitifs du Centre d’Etudes et de Recherches de Djibouti (CERD) pour l’exercice 2009.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n01-an-13-7eme-l-approuvant-les-comptes-financiers-definitifs-du-centre-detudes-et-de-recherches-de-djibouti-cerd-pour-lexercice-2009/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n01-an-13-7eme-l-approuvant-les-comptes-financiers-definitifs-du-centre-detudes-et-de-recherches-de-djibouti-cerd-pour-lexercice-2009/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

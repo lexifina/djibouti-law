@@ -1,6 +1,6 @@
 # Arrêté n° 2014-809/PR/MAEPERH portant adoption du projet de budget prévisionnel 2015 du Laboratoire National D’Analyse Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-809-pr-maeperh-portant-adoption-du-projet-de-budget-previsionnel-2015-du-laboratoire-national-danalyse-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-809-pr-maeperh-portant-adoption-du-projet-de-budget-previsionnel-2015-du-laboratoire-national-danalyse-alimentaires-lanaa/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 99-0202/PR/MTT rendant exécutoire la résolution n° 01 du 03 janvier 1999 du Conseil d’Administration de l’Aéroport International de Djibouti, portant approbation du Compte Prévisionnel de l’exercice 1999.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 16/03/1999 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0202-pr-mtt-rendant-executoire-la-resolution-n01-du-03-janvier-1999-du-conseil-dadministration-de-laeroport-international-de-djibouti-portant-approbation-du-compte-previsio/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 16/03/1999 · <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0202-pr-mtt-rendant-executoire-la-resolution-n01-du-03-janvier-1999-du-conseil-dadministration-de-laeroport-international-de-djibouti-portant-approbation-du-compte-previsio/>
 
 En vigueur : 1999-03-16 (date du Journal officiel qui le publie).
 

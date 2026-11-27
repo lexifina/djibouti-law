@@ -1,6 +1,6 @@
 # Loi n° 81/AN/95/3e L Portant fixation des délais de citation et des formalités de délivrance des exploits en matière civile et commerciale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-95-3e-l-portant-fixation-des-delais-de-citation-et-des-formalites-de-delivrance-des-exploits-en-matiere-civile-et-commerciale/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-95-3e-l-portant-fixation-des-delais-de-citation-et-des-formalites-de-delivrance-des-exploits-en-matiere-civile-et-commerciale/>
 
 En vigueur : 1995-05-31 (date du Journal officiel qui le publie).
 

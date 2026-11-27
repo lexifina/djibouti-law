@@ -1,6 +1,6 @@
 # Décret n° 2009-0292/PR/MID relatif au changement de la CNI.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0292-pr-mid-relatif-au-changement-de-la-cni/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0292-pr-mid-relatif-au-changement-de-la-cni/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

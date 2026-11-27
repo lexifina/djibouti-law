@@ -1,6 +1,6 @@
 # Décret n° 80-127/PR sur le fonctionnement et l’organisation de la Direction de la Planification.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-127-pr-sur-le-fonctionnement-et-lorganisation-de-la-direction-de-la-planification/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-127-pr-sur-le-fonctionnement-et-lorganisation-de-la-direction-de-la-planification/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ HASSAN GOULED APTIDON
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

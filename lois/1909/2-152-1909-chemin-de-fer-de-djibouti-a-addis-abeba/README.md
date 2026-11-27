@@ -1,6 +1,6 @@
 # Loi n° 2-152-1909 relative au chemin de fer de Djibouti à Addis- Abeba.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 152 du 01/07/1909 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-152-1909-relative-au-chemin-de-fer-de-djibouti-a-addis-abeba/>
+Loi · Journal officiel de la République de Djibouti, n° 152 du 01/07/1909 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-152-1909-relative-au-chemin-de-fer-de-djibouti-a-addis-abeba/>
 
 En vigueur : 1909-07-01 (date du Journal officiel qui le publie).
 

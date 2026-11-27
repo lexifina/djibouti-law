@@ -1,6 +1,6 @@
 # Décret n° 19 décembre 1937 étendant notamment à la Côte française des Somalis les dispositions du décret-loi du 30 octobre 1935 modifiant l’article 2 de la loi du 21 juillet 1889.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 506 du 31/01/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-decembre-1937-etendant-notamment-a-la-cote-francaise-des-somalis-les-dispositions-du-decret-loi-du-30-octobre-1935-modifiant-larticle-2-de-la-loi-du-21-juillet-1889/>
+Décret · Journal officiel de la République de Djibouti, n° 506 du 31/01/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-decembre-1937-etendant-notamment-a-la-cote-francaise-des-somalis-les-dispositions-du-decret-loi-du-30-octobre-1935-modifiant-larticle-2-de-la-loi-du-21-juillet-1889/>
 
 En vigueur : 1938-01-31 (date du Journal officiel qui le publie).
 

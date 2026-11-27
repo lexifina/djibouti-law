@@ -1,6 +1,6 @@
 # Décret n° 1-151-1909 portant promulgation du traité d’amitiés et de commerce signé à Addis- Abeba le A0 janvier 1908, entre la France et L’Ethiopie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 151 du 01/06/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-151-1909-portant-promulgation-du-traite-damities-et-de-commerce-signe-a-addis-abeba-le-a0-janvier-1908-entre-la-france-et-lethiopie/>
+Décret · Journal officiel de la République de Djibouti, n° 151 du 01/06/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-151-1909-portant-promulgation-du-traite-damities-et-de-commerce-signe-a-addis-abeba-le-a0-janvier-1908-entre-la-france-et-lethiopie/>
 
 En vigueur : 1909-06-01 (date du Journal officiel qui le publie).
 

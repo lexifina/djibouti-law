@@ -1,6 +1,6 @@
 # Loi n° 121/AN/80 portant modification de la composition de la Cour Judiciaire siégeant en matière sociale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-80-portant-modification-de-la-composition-de-la-cour-judiciaire-siegeant-en-matiere-sociale/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-80-portant-modification-de-la-composition-de-la-cour-judiciaire-siegeant-en-matiere-sociale/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

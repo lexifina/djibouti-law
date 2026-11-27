@@ -1,6 +1,6 @@
 # Loi n° du 25 mars 1936. tendant à compléter l’article 1244 du Code civil et à accorder des délais aux débiteurs malheureux et de bonne foi.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 474 du 31/05/1936 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-25-mars-1936-tendant-a-completer-larticle-1244-du-code-civil-et-a-accorder-des-delais-aux-debiteurs-malheureux-et-de-bonne-foi/>
+Loi · Journal officiel de la République de Djibouti, n° 474 du 31/05/1936 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-25-mars-1936-tendant-a-completer-larticle-1244-du-code-civil-et-a-accorder-des-delais-aux-debiteurs-malheureux-et-de-bonne-foi/>
 
 En vigueur : 1936-05-31 (date du Journal officiel qui le publie).
 

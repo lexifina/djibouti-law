@@ -1,6 +1,6 @@
 # Décret n° n° 819 bis L’arrêté interministériel fixant les attributions respectives des Départements de l’air et des colonies en matière de protection radioélectrique de la navigation aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-819-bis-larrete-interministeriel-fixant-les-attributions-respectives-des-departements-de-lair-et-des-colonies-en-matiere-de-protection-radioelectrique-de-la-navigation-aeri/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-819-bis-larrete-interministeriel-fixant-les-attributions-respectives-des-departements-de-lair-et-des-colonies-en-matiere-de-protection-radioelectrique-de-la-navigation-aeri/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 
@@ -26,5 +26,5 @@ georges mandel
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [art-006.md](art-006.md) | Art. 6 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-006.md](art-006.md) | Art. 6 |
+| [preambule.md](preambule.md) | Préambule |

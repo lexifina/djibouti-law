@@ -1,6 +1,6 @@
 # Décret n° 67-27 Arrêté ministériel déterminant les modalités d’application aux territoires d’outre-mer du décret n° 67-27 du 9 janvier 1967 (J.O.R.F. du 20 juillet 1967, p. 7289)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-27-arrete-ministeriel-determinant-les-modalites-dapplication-aux-territoires-doutre-mer-du-decret-n-67-27-du-9-janvier-1967-j-o-r-f-du-20-juillet-1967-p-7289/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-27-arrete-ministeriel-determinant-les-modalites-dapplication-aux-territoires-doutre-mer-du-decret-n-67-27-du-9-janvier-1967-j-o-r-f-du-20-juillet-1967-p-7289/>
 
 En vigueur : 1971-05-25 (date du Journal officiel qui le publie).
 

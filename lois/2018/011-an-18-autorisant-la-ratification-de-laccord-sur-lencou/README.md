@@ -1,8 +1,8 @@
 # Loi n° 11/AN/18/8ème L autorisant la ratification de l’Accord sur l’encouragement et la protection réciproque des investissements entre la République de Djibouti et la République de Turquie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-18-8eme-l-autorisant-la-ratification-de-laccord-sur-lencouragement-et-la-protection-reciproque-des-investissements-entre-la-republique-de-djibouti-et-la-republique-de-turquie/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-18-8eme-l-autorisant-la-ratification-de-laccord-sur-lencouragement-et-la-protection-reciproque-des-investissements-entre-la-republique-de-djibouti-et-la-republique-de-turquie/>
 
-En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

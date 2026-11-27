@@ -1,6 +1,6 @@
 # Arrêté n° 2014-526/PR/MB portant déchéance des droits accordés sur le Titre Foncier n° 12629.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-526-pr-mb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n12629/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-526-pr-mb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n12629/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

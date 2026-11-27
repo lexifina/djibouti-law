@@ -1,6 +1,6 @@
 # Arrêté n° 2017-199/PR/MCPT portant adoption du Budget Prévisionnel 2018 de Djibouti Télécom.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-199-pr-mcpt-portant-adoption-du-budget-previsionnel-2018-de-djibouti-telecom/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-199-pr-mcpt-portant-adoption-du-budget-previsionnel-2018-de-djibouti-telecom/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

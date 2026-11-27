@@ -1,8 +1,8 @@
 # Décret n° 2024-070/PR/MEFI fixant la date de lancement et la durée du dénombrement principal du troisième Recensement Général de la Population et de l’Habitat (RGPH-3).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-070-pr-mefi-fixant-la-date-de-lancement-et-la-duree-du-denombrement-principal-du-troisieme-recensement-general-de-la-population-et-de-lhabitat-rgph-3/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 15/04/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-070-pr-mefi-fixant-la-date-de-lancement-et-la-duree-du-denombrement-principal-du-troisieme-recensement-general-de-la-population-et-de-lhabitat-rgph-3/>
 
-En vigueur : 2024-04-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-04-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

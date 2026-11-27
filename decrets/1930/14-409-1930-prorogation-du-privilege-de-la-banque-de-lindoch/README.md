@@ -1,6 +1,6 @@
 # Décret n° 14-409-1930 Prorogation du privilège de la Banque de l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-409-1930-prorogation-du-privilege-de-la-banque-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-409-1930-prorogation-du-privilege-de-la-banque-de-lindochine/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 

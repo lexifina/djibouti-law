@@ -1,6 +1,6 @@
 # Loi n° 003/AN/18/8ème L portant Code Civil
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n003-an-18-8eme-l-portant-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n003-an-18-8eme-l-portant-code-civil/>
 
 En vigueur : 2018-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 115/AN/05/5ème L Portant approbation des comptes financiers du Stade Al Hadj Hassan Gouled Aptidon pour l’Exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-05-5eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n115-an-05-5eme-l-portant-approbation-des-comptes-financiers-du-stade-al-hadj-hassan-gouled-aptidon-pour-lexercice-2003/>
 
 En vigueur : 2005-09-15 (date du Journal officiel qui le publie).
 

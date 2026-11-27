@@ -1,8 +1,8 @@
 # Décret n° 96-0074/PR/MFEN portant création d’une commission nationale chargée de la préparation de la table ronde.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0074-pr-mfen-portant-creation-dune-commission-nationale-chargee-de-la-preparation-de-la-table-ronde/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0074-pr-mfen-portant-creation-dune-commission-nationale-chargee-de-la-preparation-de-la-table-ronde/>
 
-En vigueur : 1996-07-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1996-07-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2025-361/PRE portant modification du Décret n° 2023010/PRE du 17 janvier 2023 relatif à l’octroi d’une parcelle de terrain au profit De Touchroad International Holdings Group.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-361-pre-portant-modification-du-decret-n2023010-pre-du-17-janvier-2023-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-361-pre-portant-modification-du-decret-n2023010-pre-du-17-janvier-2023-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
 
 En vigueur : 2026-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 81-066/PR du 26 mai 1981 portant liste des candidats, convocation du corps électoral et fixant la date de l’élection du Président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 27/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-066-pr-du-26-mai-1981-portant-liste-des-candidats-convocation-du-corps-electoral-et-fixant-la-date-de-lelection-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 27/05/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-066-pr-du-26-mai-1981-portant-liste-des-candidats-convocation-du-corps-electoral-et-fixant-la-date-de-lelection-du-president-de-la-republique/>
 
 En vigueur : 1981-05-27 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ HASSAN GOULED APTIDON
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

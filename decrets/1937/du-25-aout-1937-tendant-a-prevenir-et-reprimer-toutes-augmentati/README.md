@@ -1,6 +1,6 @@
 # Décret n° du 25 août 1937. tendant à prévenir et réprimer toutes augmentations illégitimes des prix dans les colonies, pays de protectorat et territoires sous mandat dépendant du Ministère des colonies autres que la Martinique, la Guadeloupe et la Réunion
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 490 du 30/09/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-25-aout-1937-tendant-a-prevenir-et-reprimer-toutes-augmentations-illegitimes-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-c/>
+Décret · Journal officiel de la République de Djibouti, n° 490 du 30/09/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-25-aout-1937-tendant-a-prevenir-et-reprimer-toutes-augmentations-illegitimes-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-c/>
 
 En vigueur : 1937-09-30 (date du Journal officiel qui le publie).
 

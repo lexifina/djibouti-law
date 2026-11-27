@@ -1,6 +1,6 @@
 # Décret n° 91-0101/PR/DEF portant statut particulier du personnel naviquant des forces armees.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-0101-pr-def-portant-statut-particulier-du-personnel-naviquant-des-forces-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 30/07/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-0101-pr-def-portant-statut-particulier-du-personnel-naviquant-des-forces-armees/>
 
 En vigueur : 1991-07-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ La conseil des ministres entendu en sa seance du 4 juin 1991.
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

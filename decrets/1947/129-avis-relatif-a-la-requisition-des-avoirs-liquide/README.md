@@ -1,6 +1,6 @@
 # Décret n° 129 Avis relatif à la réquisition des avoirs liquides en couronnes norvégiennes
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-129-avis-relatif-a-la-requisition-des-avoirs-liquides-en-couronnes-norvegiennes/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/03/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-129-avis-relatif-a-la-requisition-des-avoirs-liquides-en-couronnes-norvegiennes/>
 
 En vigueur : 1947-03-30 (date du Journal officiel qui le publie).
 

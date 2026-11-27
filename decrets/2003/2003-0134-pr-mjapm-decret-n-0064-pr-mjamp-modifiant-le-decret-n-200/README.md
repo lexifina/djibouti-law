@@ -1,6 +1,6 @@
 # Décret n° 2003-0134/PR/MJAPM modifiant le décret n° 0064/PR/MJAMP modifiant le décret n° 2002-0064/PR/MJ fixant les indemnités allouées aux Magistrats de l’Ordre judiciaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0134-pr-mjapm-modifiant-le-decret-n0064-pr-mjamp-modifiant-le-decret-n2002-0064-pr-mj-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0134-pr-mjapm-modifiant-le-decret-n0064-pr-mjamp-modifiant-le-decret-n2002-0064-pr-mj-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
 
 En vigueur : 2003-07-15 (date du Journal officiel qui le publie).
 

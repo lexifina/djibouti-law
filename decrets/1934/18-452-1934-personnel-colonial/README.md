@@ -1,6 +1,6 @@
 # Décret n° 18-452-1934 Personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 452 du 31/07/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-452-1934-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 452 du 31/07/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-452-1934-personnel-colonial/>
 
 En vigueur : 1934-07-31 (date du Journal officiel qui le publie).
 

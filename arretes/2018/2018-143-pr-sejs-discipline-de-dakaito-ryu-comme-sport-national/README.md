@@ -1,6 +1,6 @@
 # Arrêté n° 2018-143/PR/SEJS instituant la discipline de DAKAÏTO RYU comme sport national
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-143-pr-sejs-instituant-la-discipline-de-dakaito-ryu-comme-sport-national/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-143-pr-sejs-instituant-la-discipline-de-dakaito-ryu-comme-sport-national/>
 
 En vigueur : 2018-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

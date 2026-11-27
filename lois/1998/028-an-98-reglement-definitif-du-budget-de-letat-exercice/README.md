@@ -1,6 +1,6 @@
 # Loi n° 28/AN/98/4ème L portant règlement définitif du budget de l’État exercice 1996.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-98-4eme-l-portant-reglement-definitif-du-budget-de-letat-exercice-1996/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-98-4eme-l-portant-reglement-definitif-du-budget-de-letat-exercice-1996/>
 
 En vigueur : 1998-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2011-006/PR/MJAP portant réorganisation des Établissements Pénitentiaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-006-pr-mjap-portant-reorganisation-des-etablissements-penitentiaires/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-006-pr-mjap-portant-reorganisation-des-etablissements-penitentiaires/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

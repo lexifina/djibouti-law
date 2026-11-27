@@ -1,6 +1,6 @@
 # Décret n° 4-230-1915 modifiant le décret du 26 Août, portant création d’une indemnité pour charges de Famille.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 230 du 31/12/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-230-1915-modifiant-le-decret-du-26-aout-portant-creation-dune-indemnite-pour-charges-de-famille/>
+Décret · Journal officiel de la République de Djibouti, n° 230 du 31/12/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-230-1915-modifiant-le-decret-du-26-aout-portant-creation-dune-indemnite-pour-charges-de-famille/>
 
 En vigueur : 1915-12-31 (date du Journal officiel qui le publie).
 

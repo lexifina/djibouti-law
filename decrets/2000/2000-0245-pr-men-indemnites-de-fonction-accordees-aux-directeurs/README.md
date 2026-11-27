@@ -1,8 +1,8 @@
 # Décret n° 2000-0245/PR/MEN modifiant les indemnités de fonction accordées aux Directeurs des Ecoles Primaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 16/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0245-pr-men-modifiant-les-indemnites-de-fonction-accordees-aux-directeurs-des-ecoles-primaires/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 16/09/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0245-pr-men-modifiant-les-indemnites-de-fonction-accordees-aux-directeurs-des-ecoles-primaires/>
 
-En vigueur : 2000-09-03 (date fixÃ©e par le texte).
+En vigueur : 2000-09-03 (date fixée par le texte).
 
 ## Visas
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

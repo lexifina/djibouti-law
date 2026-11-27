@@ -2,7 +2,7 @@
 législatives relatives à la prévention et à la lutte
 contre la corruption.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n03-an-13-7eme-l-completant-les-dispositions-legislatives-relatives-a-la-prevention-et-a-la-lutte-contre-la-corruption/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n03-an-13-7eme-l-completant-les-dispositions-legislatives-relatives-a-la-prevention-et-a-la-lutte-contre-la-corruption/>
 
 En vigueur : 2013-07-31 (date du Journal officiel qui le publie).
 
@@ -76,4 +76,4 @@ ISMAÏL OMAR GUELLEH
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

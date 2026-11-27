@@ -1,6 +1,6 @@
 # Loi n° 27/AN/13/7ème L portant ratification de l’Accord de financement du projet d’appui au Fonds de Développement Economique de Djibouti (FDED).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-dappui-au-fonds-de-developpement-economique-de-djibouti-fded/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-dappui-au-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2014-01-30 (date du Journal officiel qui le publie).
 

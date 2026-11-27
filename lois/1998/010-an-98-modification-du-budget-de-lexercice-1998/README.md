@@ -1,6 +1,6 @@
 # Loi de finances n° 10/AN/98/4éme L portant modification du budget de l’exercice 1998.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n10-an-98-4eme-l-portant-modification-du-budget-de-lexercice-1998/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n10-an-98-4eme-l-portant-modification-du-budget-de-lexercice-1998/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

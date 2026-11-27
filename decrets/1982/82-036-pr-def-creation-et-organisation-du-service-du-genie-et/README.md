@@ -1,6 +1,6 @@
 # Décret n° 82-036/PR/DEF portant création et organisation du Service du Génie et Bâtiment.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-036-pr-def-portant-creation-et-organisation-du-service-du-genie-et-batiment/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-036-pr-def-portant-creation-et-organisation-du-service-du-genie-et-batiment/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 

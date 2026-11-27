@@ -1,6 +1,6 @@
 # Décret n° 2018-190/PR/MD portant révision du décret de la commission « marathon » n° 88-043/PR/DEF du 31 mai 1988 révisé en 2002 relatif au Statut Général des Militaires (SGM).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-190-pr-md-portant-revision-du-decret-de-la-commission-marathon-n88-043-pr-def-du-31-mai-1988-revise-en-2002-relatif-au-statut-general-des-militaires-sgm/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 31/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-190-pr-md-portant-revision-du-decret-de-la-commission-marathon-n88-043-pr-def-du-31-mai-1988-revise-en-2002-relatif-au-statut-general-des-militaires-sgm/>
 
 En vigueur : 2018-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

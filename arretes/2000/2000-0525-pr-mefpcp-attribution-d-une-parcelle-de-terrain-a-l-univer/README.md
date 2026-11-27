@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0525/PR/MEFPCP portant attribution d’une parcelle de terrain à l’Université Al-Azhar.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0525-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-luniversite-al-azhar/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0525-pr-mefpcp-portant-attribution-dune-parcelle-de-terrain-a-luniversite-al-azhar/>
 
 En vigueur : 2000-07-31 (date du Journal officiel qui le publie).
 

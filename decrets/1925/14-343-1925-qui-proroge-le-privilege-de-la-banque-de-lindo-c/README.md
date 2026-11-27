@@ -1,6 +1,6 @@
 # Décret n° 14-343-1925 qui proroge le privilège de la Banque de l’Indo-Chine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 343 du 30/06/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-343-1925-qui-proroge-le-privilege-de-la-banque-de-lindo-chine/>
+Décret · Journal officiel de la République de Djibouti, n° 343 du 30/06/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-343-1925-qui-proroge-le-privilege-de-la-banque-de-lindo-chine/>
 
 En vigueur : 1925-06-30 (date du Journal officiel qui le publie).
 

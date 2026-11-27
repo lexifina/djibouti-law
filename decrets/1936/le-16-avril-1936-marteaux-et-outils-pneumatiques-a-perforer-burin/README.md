@@ -1,6 +1,6 @@
 # Décret n° le 16 avril 1936. Marteaux et outils pneumatiques à perforer, buriner, river, piquer,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-16-avril-1936-marteaux-et-outils-pneumatiques-a-perforer-buriner-river-piquer/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-16-avril-1936-marteaux-et-outils-pneumatiques-a-perforer-buriner-river-piquer/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

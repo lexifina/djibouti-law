@@ -1,6 +1,6 @@
 # Loi n° 212/AN/07/5ème L portant création de la Caisse Nationale de Sécurité Sociale (C.N.S.S).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-c-n-s-s/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-07-5eme-l-portant-creation-de-la-caisse-nationale-de-securite-sociale-c-n-s-s/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

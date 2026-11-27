@@ -1,6 +1,6 @@
 # Arrêté n° 95-0912/PR/FP portant création de l’Observatoire de la Formation dans l’Administration publique (OFAP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1995 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n95-0912-pr-fp-portant-creation-de-lobservatoire-de-la-formation-dans-ladministration-publique-ofap/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/1995 · <https://www.journalofficiel.dj/texte-juridique/arrete-n95-0912-pr-fp-portant-creation-de-lobservatoire-de-la-formation-dans-ladministration-publique-ofap/>
 
 En vigueur : 1995-10-31 (date du Journal officiel qui le publie).
 

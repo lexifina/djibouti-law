@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0118/PR/MDCC portant modification de l’Arrêté n° 97-0292/PR/ONTA relatif à la redevance sur les nuitées des chambres d’hôtel.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0118-pr-mdcc-portant-modification-de-larrete-n97-0292-pr-onta-relatif-a-la-redevance-sur-les-nuitees-des-chambres-dhotel/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0118-pr-mdcc-portant-modification-de-larrete-n97-0292-pr-onta-relatif-a-la-redevance-sur-les-nuitees-des-chambres-dhotel/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

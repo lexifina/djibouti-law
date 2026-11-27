@@ -1,6 +1,6 @@
 # Décret n° 02-334-1924 1° portant fixation et organisation du domaine public et des servitudes d’utilité publique à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 334 du 30/09/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-334-1924-1-portant-fixation-et-organisation-du-domaine-public-et-des-servitudes-dutilite-publique-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 334 du 30/09/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-334-1924-1-portant-fixation-et-organisation-du-domaine-public-et-des-servitudes-dutilite-publique-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1924-09-30 (date du Journal officiel qui le publie).
 

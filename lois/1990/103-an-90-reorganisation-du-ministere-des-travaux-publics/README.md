@@ -1,6 +1,6 @@
 # Loi n° 103/AN/90/2e L portant réorganisation du Ministére des Travaux publics de l’Urbanisme et du Logement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-90-2e-l-portant-reorganisation-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-90-2e-l-portant-reorganisation-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ HASSAN GOULED APTIDON
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

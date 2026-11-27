@@ -1,6 +1,6 @@
 # Décret n° 9-437-1933 OUVERTURE ET ANNULATION DE CRÉDITS AU BUDGET LOCAL DE LA COTE FRANÇAISE DES SOMALIS POUR L’EXERCICE 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 437 du 30/04/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-437-1933-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 437 du 30/04/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-437-1933-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1932/>
 
 En vigueur : 1933-04-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Albert SABRAUT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

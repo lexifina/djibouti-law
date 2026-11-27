@@ -1,6 +1,6 @@
 # Loi n° 198/AN/92/2e L Portant délégation d’une partie des pouvoirs de l’Assemblée nationale à la Commission permanente jusqu’à l’ouverture de la 1re session ordinaire 1992.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-92-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1re-session-ordinaire-1992/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n198-an-92-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1re-session-ordinaire-1992/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 163/AN/02/4ème L portant Approbation des Comptes Financiers de la Société Immobilière de Djibouti pour l’exercice 1999
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-1999/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

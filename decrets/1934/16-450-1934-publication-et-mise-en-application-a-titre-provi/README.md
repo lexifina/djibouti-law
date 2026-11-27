@@ -1,6 +1,6 @@
 # Décret n° 16-450-1934 Publication et mise en application à titre provisoire d’une convention de commerce entre la France et la Suisse signée à Berne le 29 mars 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-450-1934-publication-et-mise-en-application-a-titre-provisoire-dune-convention-de-commerce-entre-la-france-et-la-suisse-signee-a-berne-le-29-mars-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-450-1934-publication-et-mise-en-application-a-titre-provisoire-dune-convention-de-commerce-entre-la-france-et-la-suisse-signee-a-berne-le-29-mars-1934/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

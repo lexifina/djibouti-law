@@ -1,6 +1,6 @@
 # Loi n° 57/AN/14/7ème L Portant organisation et attribution du Secrétariat d’Etat auprès du Ministère de l’Habitat, de l’Urbanisme et de l’Environnement, chargé du logement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-14-7eme-l-portant-organisation-et-attribution-du-secretariat-detat-aupres-du-ministere-de-lhabitat-de-lurbanisme-et-de-lenvironnement-charge-du-logement/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-14-7eme-l-portant-organisation-et-attribution-du-secretariat-detat-aupres-du-ministere-de-lhabitat-de-lurbanisme-et-de-lenvironnement-charge-du-logement/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 
@@ -86,4 +86,4 @@ ISMAÏL OMAR GUELLEH
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

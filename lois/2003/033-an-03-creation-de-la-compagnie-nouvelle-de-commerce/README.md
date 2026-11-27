@@ -1,6 +1,6 @@
 # Loi n° 33/AN/03/5ème L portant création de la Compagnie Nouvelle de Commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-03-5eme-l-portant-creation-de-la-compagnie-nouvelle-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-03-5eme-l-portant-creation-de-la-compagnie-nouvelle-de-commerce/>
 
 En vigueur : 2003-11-30 (date du Journal officiel qui le publie).
 

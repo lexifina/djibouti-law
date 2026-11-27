@@ -1,6 +1,6 @@
 # Décret n° 21-260-1918 portant ouverture de crédits supplémentaires aux chapitres 2 et 11 du budget local.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 260 du 30/06/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-260-1918-portant-ouverture-de-credits-supplementaires-aux-chapitres-2-et-11-du-budget-local/>
+Décret · Journal officiel de la République de Djibouti, n° 260 du 30/06/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-260-1918-portant-ouverture-de-credits-supplementaires-aux-chapitres-2-et-11-du-budget-local/>
 
 En vigueur : 1918-06-30 (date du Journal officiel qui le publie).
 

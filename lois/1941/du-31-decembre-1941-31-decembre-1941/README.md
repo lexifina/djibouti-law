@@ -1,6 +1,6 @@
 # Loi n° du 31 décembre 1941 du 31 décembre 1941
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-31-decembre-1941-du-31-decembre-1941/>
+Loi · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-31-decembre-1941-du-31-decembre-1941/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

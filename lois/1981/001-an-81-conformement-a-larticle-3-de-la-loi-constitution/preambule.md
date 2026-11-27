@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 TITRE PREMIER : DE LA CONSTITUTION DE LA RÉPUBLIQUE

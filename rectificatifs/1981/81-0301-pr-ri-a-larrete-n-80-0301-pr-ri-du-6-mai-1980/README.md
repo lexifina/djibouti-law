@@ -1,6 +1,6 @@
 # Additif n° 81-0301/PR/RI à l’arrêté n° 80 — 0301/PR/RI du 6 mai 1980.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n81-0301-pr-ri-a-larrete-n-80-0301-pr-ri-du-6-mai-1980/>
+Additif · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/additif-n81-0301-pr-ri-a-larrete-n-80-0301-pr-ri-du-6-mai-1980/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

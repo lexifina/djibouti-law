@@ -1,6 +1,6 @@
 # Décret n° 05-358-1926 Taxes postales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 358 du 30/09/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-358-1926-taxes-postales/>
+Décret · Journal officiel de la République de Djibouti, n° 358 du 30/09/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-358-1926-taxes-postales/>
 
 En vigueur : 1926-09-30 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Maurice BOKANOWSKI.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

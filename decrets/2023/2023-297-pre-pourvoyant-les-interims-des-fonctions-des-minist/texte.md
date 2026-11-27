@@ -1,1 +1,0 @@
-Par décret n°2023-297/PRE, du Président de la République, chef du Gouvernement, en date du 08 octobre 2023, pendant la durée de l’absence de S. E. M. ISMAN IBRAHIM ROBLEH, l’intérim des fonctions du Ministre du Budget sera assuré par S.E.M. ABDOULKADER KAMIL MOHAMED, Premier Ministre cumulativement avec ses fonctions.

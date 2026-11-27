@@ -1,8 +1,8 @@
 # Loi n° 153/AN/22/8ème L portant ratification de l’Accord de financement pour le projet “Djibouti Fondation Numérique”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-djibouti-fondation-numerique/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-djibouti-fondation-numerique/>
 
-En vigueur : 2022-05-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-05-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

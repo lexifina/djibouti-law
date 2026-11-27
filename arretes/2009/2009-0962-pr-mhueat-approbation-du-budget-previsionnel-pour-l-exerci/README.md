@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0962/PR/MHUEAT portant approbation du Budget prévisionnel pour l’Exercice 2010 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0962-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2010-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0962-pr-mhueat-portant-approbation-du-budget-previsionnel-pour-lexercice-2010-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

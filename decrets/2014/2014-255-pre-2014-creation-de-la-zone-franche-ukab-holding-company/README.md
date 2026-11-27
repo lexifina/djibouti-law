@@ -1,6 +1,6 @@
 # Décret n° 2014-255/PRE/2014 portant création de la zone franche UKAB HOLDING COMPANY au PK.12.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-255-pre-2014-portant-creation-de-la-zone-franche-ukab-holding-company-au-pk-12/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-255-pre-2014-portant-creation-de-la-zone-franche-ukab-holding-company-au-pk-12/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

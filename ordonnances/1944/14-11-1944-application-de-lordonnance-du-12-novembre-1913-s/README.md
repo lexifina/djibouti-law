@@ -1,6 +1,6 @@
 # Ordonnance n° 14/11/1944 portant application de l’ordonnance du 12 novembre 1913 sur la nullité des actes de spoliation accomplis par l’ennemi et sous son contrôle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-14-11-1944-portant-application-de-lordonnance-du-12-novembre-1913-sur-la-nullite-des-actes-de-spoliation-accomplis-par-lennemi-et-sous-son-controle/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-14-11-1944-portant-application-de-lordonnance-du-12-novembre-1913-sur-la-nullite-des-actes-de-spoliation-accomplis-par-lennemi-et-sous-son-controle/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

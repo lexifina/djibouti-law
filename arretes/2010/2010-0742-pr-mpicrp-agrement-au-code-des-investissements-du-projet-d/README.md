@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0742/PR/MPICRP portant Agrément au Code des Investissements du projet de construction d’un centre d’affaires internationales avec des bureaux, salles de conférence et de locaux commerciaux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0742-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-construction-dun-centre-daffaires-internationales-avec-des-bureaux-salles-de-conference-et-de-locaux-co/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0742-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-construction-dun-centre-daffaires-internationales-avec-des-bureaux-salles-de-conference-et-de-locaux-co/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 

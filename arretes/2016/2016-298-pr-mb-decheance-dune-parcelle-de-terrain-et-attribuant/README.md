@@ -1,6 +1,6 @@
 # Arrêté n° 2016-298/PR/MB portant la déchéance d’une parcelle de terrain et attribuant une tierce personne morale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-298-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-et-attribuant-une-tierce-personne-morale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-298-pr-mb-portant-la-decheance-dune-parcelle-de-terrain-et-attribuant-une-tierce-personne-morale/>
 
 En vigueur : 2016-04-30 (date du Journal officiel qui le publie).
 

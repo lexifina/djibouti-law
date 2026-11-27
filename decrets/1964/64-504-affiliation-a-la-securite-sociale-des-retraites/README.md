@@ -1,6 +1,6 @@
 # Décret n° 64-504 portant affiliation à la Sécurité sociale des retraités de la Compagnie du Chemin de Fer Franco-Ethiopien de Djibouti à Addis-Abéba (J.OR.F. du 6 juin 1964, p. 4861) [arrêté de promulgation n° 863 du 15 juin 1964].
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/07/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-504-portant-affiliation-a-la-securite-sociale-des-retraites-de-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba-j-or-f-du-6-juin-1964-p-4861-arrete-de/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/07/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-504-portant-affiliation-a-la-securite-sociale-des-retraites-de-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba-j-or-f-du-6-juin-1964-p-4861-arrete-de/>
 
 En vigueur : 1964-07-01 (date du Journal officiel qui le publie).
 

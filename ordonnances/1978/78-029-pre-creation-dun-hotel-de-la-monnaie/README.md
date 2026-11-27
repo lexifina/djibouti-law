@@ -1,6 +1,6 @@
 # Ordonnance n° 78-029/PRE Portant création d’un Hôtel de la monnaie.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-029-pre-portant-creation-dun-hotel-de-la-monnaie/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 6 du 27/03/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-029-pre-portant-creation-dun-hotel-de-la-monnaie/>
 
 En vigueur : 1978-03-27 (date du Journal officiel qui le publie).
 

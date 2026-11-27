@@ -1,6 +1,6 @@
 # Loi n° 153/AN/06/5ème L relative à la ratification de la Convention sur la protection et la promotion de la diversité des expressions culturelles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-06-5eme-l-relative-a-la-ratification-de-la-convention-sur-la-protection-et-la-promotion-de-la-diversite-des-expressions-culturelles/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n153-an-06-5eme-l-relative-a-la-ratification-de-la-convention-sur-la-protection-et-la-promotion-de-la-diversite-des-expressions-culturelles/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

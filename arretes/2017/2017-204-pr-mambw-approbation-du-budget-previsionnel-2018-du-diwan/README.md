@@ -1,6 +1,6 @@
 # Arrêté n° 2017-204/PR/MAMBW portant approbation du Budget Prévisionnel 2018 du DIWAN DE LA ZAKAT.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-204-pr-mambw-portant-approbation-du-budget-previsionnel-2018-du-diwan-de-la-zakat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-204-pr-mambw-portant-approbation-du-budget-previsionnel-2018-du-diwan-de-la-zakat/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

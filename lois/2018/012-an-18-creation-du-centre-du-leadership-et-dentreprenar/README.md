@@ -1,6 +1,6 @@
 # Loi n° 12/AN/18/8ème L portant création du Centre du Leadership et d’Entreprenariat (CLE).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-18-8eme-l-portant-creation-du-centre-du-leadership-et-dentreprenariat-cle/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-an-18-8eme-l-portant-creation-du-centre-du-leadership-et-dentreprenariat-cle/>
 
 En vigueur : 2018-06-28 (date du Journal officiel qui le publie).
 

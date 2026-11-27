@@ -1,6 +1,6 @@
 # Décret n° 97-0158/PR/MI fixant la date des élections des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0158-pr-mi-fixant-la-date-des-elections-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0158-pr-mi-fixant-la-date-des-elections-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 1997-11-15 (date du Journal officiel qui le publie).
 

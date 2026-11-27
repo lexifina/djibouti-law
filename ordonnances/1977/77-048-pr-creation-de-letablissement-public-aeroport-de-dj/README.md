@@ -1,6 +1,6 @@
 # Ordonnance n° 77-048/PR portant création de l’Établissement public « AEROPORT DE DJIBOUTI ».
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-048-pr-portant-creation-de-letablissement-public-aeroport-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 11 du 14/11/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-048-pr-portant-creation-de-letablissement-public-aeroport-de-djibouti/>
 
 En vigueur : 1977-11-14 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ HASSAN GOULED APTIDON
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

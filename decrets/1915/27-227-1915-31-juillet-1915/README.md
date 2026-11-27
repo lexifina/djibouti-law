@@ -1,6 +1,6 @@
 # Décret n° 27-227-1915 31 Juillet 1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 227 du 30/09/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-227-1915-31-juillet-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 227 du 30/09/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-227-1915-31-juillet-1915/>
 
 En vigueur : 1915-09-30 (date du Journal officiel qui le publie).
 

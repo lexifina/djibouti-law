@@ -1,6 +1,6 @@
 # Décret n° 68-64 sur les assurances maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 12/11/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-64-sur-les-assurances-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 12/11/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-64-sur-les-assurances-maritimes/>
 
 En vigueur : 1968-11-12 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Le ministre des transports, JEAN CHAMANT.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

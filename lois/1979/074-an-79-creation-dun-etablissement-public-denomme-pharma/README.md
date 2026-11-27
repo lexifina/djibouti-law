@@ -1,6 +1,6 @@
 # Loi n° 74/AN/79 portant création d’un établissement public dénommé » Pharmacie de l’Indépendance » .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-79-portant-creation-dun-etablissement-public-denomme-pharmacie-de-lindependance/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/12/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-79-portant-creation-dun-etablissement-public-denomme-pharmacie-de-lindependance/>
 
 En vigueur : 1979-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 135/AN/90/2ème L fixant la date d’ouverture et de durée de la Session Ordinaire de 1990 dite « Session Budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-90-2eme-l-fixant-la-date-douverture-et-de-duree-de-la-session-ordinaire-de-1990-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n135-an-90-2eme-l-fixant-la-date-douverture-et-de-duree-de-la-session-ordinaire-de-1990-dite-session-budgetaire/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

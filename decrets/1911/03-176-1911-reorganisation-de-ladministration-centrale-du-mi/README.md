@@ -1,6 +1,6 @@
 # Décret n° 03-176-1911 portant réorganisation de l’administration centrale du Ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 176 du 01/07/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-176-1911-portant-reorganisation-de-ladministration-centrale-du-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 176 du 01/07/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-176-1911-portant-reorganisation-de-ladministration-centrale-du-ministere-des-colonies/>
 
 En vigueur : 1911-07-01 (date du Journal officiel qui le publie).
 

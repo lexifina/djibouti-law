@@ -1,6 +1,6 @@
 # Décret n° 12 septembre 1939 mise en appli cation de l’accord sur les échanges et règlements commerciaux entre la France et l’Espagne, conclu le 18 janvier 1940
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-septembre-1939-mise-en-appli-cation-de-laccord-sur-les-echanges-et-reglements-commerciaux-entre-la-france-et-lespagne-conclu-le-18-janvier-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-septembre-1939-mise-en-appli-cation-de-laccord-sur-les-echanges-et-reglements-commerciaux-entre-la-france-et-lespagne-conclu-le-18-janvier-1940/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 

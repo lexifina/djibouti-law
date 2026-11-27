@@ -1,6 +1,6 @@
 # Loi n° 47/AN/14/7ème L portant ratification de l’Accord de financement du projet de production d’énergie géothermique financé sur le Fonds d’Affectation Spéciale pour le programme d’assistance à la gestion du secteur énergétique (ESMAP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-production-denergie-geothermique-finance-sur-le-fonds-daffectation-speciale-pour-le-programme-dassistanc/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-production-denergie-geothermique-finance-sur-le-fonds-daffectation-speciale-pour-le-programme-dassistanc/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 

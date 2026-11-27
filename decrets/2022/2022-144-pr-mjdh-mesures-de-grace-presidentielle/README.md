@@ -1,6 +1,6 @@
 # Décret n° 2022-144/PR/MJDH portant mesures de Grâce Présidentielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-144-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-144-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2022-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 145/AN/16/7ème L modifiant la loi portant Statut du personnel de la sécurité pénitentiaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-16-7eme-l-modifiant-la-loi-portant-statut-du-personnel-de-la-securite-penitentiaire/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-16-7eme-l-modifiant-la-loi-portant-statut-du-personnel-de-la-securite-penitentiaire/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

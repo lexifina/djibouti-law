@@ -1,6 +1,6 @@
 # Décret n° 2-07-1907 le Décret Au 16 mai 1900
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 128 du 01/07/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-07-1907-le-decret-au-16-mai-1900/>
+Décret · Journal officiel de la République de Djibouti, n° 128 du 01/07/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-07-1907-le-decret-au-16-mai-1900/>
 
 En vigueur : 1907-07-01 (date du Journal officiel qui le publie).
 

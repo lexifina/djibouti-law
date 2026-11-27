@@ -1,6 +1,6 @@
 # Loi n° 163/AN/06/5ème L portant Loi de Finances rectificative pour l’Exercice 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-06-5eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-06-5eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2006/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

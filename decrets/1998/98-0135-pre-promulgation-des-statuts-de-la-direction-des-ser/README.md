@@ -1,8 +1,8 @@
 # Décret n° 98-0135/PRE portant promulgation des statuts de la Direction des Services de Documentation et de Sécurité Intérieure et Extérieure.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0135-pre-portant-promulgation-des-statuts-de-la-direction-des-services-de-documentation-et-de-securite-interieure-et-exterieure/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0135-pre-portant-promulgation-des-statuts-de-la-direction-des-services-de-documentation-et-de-securite-interieure-et-exterieure/>
 
-En vigueur : 1998-11-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1998-11-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° n° 47-101 abrogeant les dispositions du décret du 4 novembre 1942 et portant prorogation et modification du décret du 29 juin 1937 réglementant les lover des locaux d’habitation de la Côte française des Somalis,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-101-abrogeant-les-dispositions-du-decret-du-4-novembre-1942-et-portant-prorogation-et-modification-du-decret-du-29-juin-1937-reglementant-les-lover-des-locaux-dhabitation/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-47-101-abrogeant-les-dispositions-du-decret-du-4-novembre-1942-et-portant-prorogation-et-modification-du-decret-du-29-juin-1937-reglementant-les-lover-des-locaux-dhabitation/>
 
 En vigueur : 1947-04-30 (date du Journal officiel qui le publie).
 

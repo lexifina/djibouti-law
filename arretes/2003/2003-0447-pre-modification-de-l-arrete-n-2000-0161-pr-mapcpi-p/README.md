@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0447/PRE portant modification de l’Arrêté n° 2000-0161/PR/MAPCPI portant Agrément au Code des Investissements de la Société «Marill Transports».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0447-pre-portant-modification-de-larrete-n2000-0161-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-marill-transports/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0447-pre-portant-modification-de-larrete-n2000-0161-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-marill-transports/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

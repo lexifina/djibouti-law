@@ -1,6 +1,6 @@
 # Loi n° 67/AN/09/6ème L relative à la ratification de la Convention relative aux Droits des personnes handicapées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-09-6eme-l-relative-a-la-ratification-de-la-convention-relative-aux-droits-des-personnes-handicapees/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-09-6eme-l-relative-a-la-ratification-de-la-convention-relative-aux-droits-des-personnes-handicapees/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

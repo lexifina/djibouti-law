@@ -1,6 +1,6 @@
 # Loi n° 155/AN/16/7ème L portant ratification de l’accord de financement pour l’achat de produits pétroliers raffinés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-16-7eme-l-portant-ratification-de-laccord-de-financement-pour-lachat-de-produits-petroliers-raffines/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-16-7eme-l-portant-ratification-de-laccord-de-financement-pour-lachat-de-produits-petroliers-raffines/>
 
 En vigueur : 2016-10-31 (date du Journal officiel qui le publie).
 

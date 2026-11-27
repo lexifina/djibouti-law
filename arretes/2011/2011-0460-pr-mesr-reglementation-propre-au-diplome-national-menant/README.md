@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0460/PR/MESR portant réglementation propre au diplôme national menant au titre de diplôme universitaire de technologie mention “Statistiques et traitement informatique de données”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0460-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-statistiques-et-traitement-informatique-de-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0460-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-statistiques-et-traitement-informatique-de-d/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

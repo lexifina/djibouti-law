@@ -1,6 +1,6 @@
 # Décret n° 12-267-1919 modifiant divers articles des codes de Justice militaire pour l’armée de terre et pour l’armée de mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 267 du 31/01/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-267-1919-modifiant-divers-articles-des-codes-de-justice-militaire-pour-larmee-de-terre-et-pour-larmee-de-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 267 du 31/01/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-267-1919-modifiant-divers-articles-des-codes-de-justice-militaire-pour-larmee-de-terre-et-pour-larmee-de-mer/>
 
 En vigueur : 1919-01-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Gronges LEYGUES.
 | [art-008.md](art-008.md) | Art.8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

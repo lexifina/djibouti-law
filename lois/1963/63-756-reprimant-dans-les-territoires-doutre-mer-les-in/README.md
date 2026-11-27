@@ -1,6 +1,6 @@
 # Loi n° 63-756 réprimant dans les Territoires d’Outre-Mer les infractions au régime des servitudes aéronautiques (J.O.R.F. du 31 juillet 1963, p. 7075). Arrêté de promulgation n° 1000 du 10 août 1963 .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/08/1963 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-63-756-reprimant-dans-les-territoires-doutre-mer-les-infractions-au-regime-des-servitudes-aeronautiques-j-o-r-f-du-31-juillet-1963-p-7075-arrete-de-promulgation-n-1000-du-10/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 31/08/1963 · <https://www.journalofficiel.dj/texte-juridique/loi-n-63-756-reprimant-dans-les-territoires-doutre-mer-les-infractions-au-regime-des-servitudes-aeronautiques-j-o-r-f-du-31-juillet-1963-p-7075-arrete-de-promulgation-n-1000-du-10/>
 
 En vigueur : 1963-08-31 (date du Journal officiel qui le publie).
 

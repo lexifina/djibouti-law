@@ -1,6 +1,6 @@
 # Décret n° 65-1156 portant établissement en temps de paix des tribunaux permanents des Forces armées, et déterminant les autorités militaires qui exercent les pouvoirs judiciaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-1156-portant-etablissement-en-temps-de-paix-des-tribunaux-permanents-des-forces-armees-et-determinant-les-autorites-militaires-qui-exercent-les-pouvoirs-judiciaire-2/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-1156-portant-etablissement-en-temps-de-paix-des-tribunaux-permanents-des-forces-armees-et-determinant-les-autorites-militaires-qui-exercent-les-pouvoirs-judiciaire-2/>
 
 En vigueur : 1966-03-01 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Jean FOYER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-016.md](art-016.md) | Art. 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

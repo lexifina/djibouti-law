@@ -1,8 +1,8 @@
 # Loi n° 073/AN/19/8ème L portant ratification de l’instrument d’amendement de 1986 à la constitution de l’organisation internationale du travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n073-an-19-8eme-l-portant-ratification-de-linstrument-damendement-de-1986-a-la-constitution-de-lorganisation-internationale-du-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n073-an-19-8eme-l-portant-ratification-de-linstrument-damendement-de-1986-a-la-constitution-de-lorganisation-internationale-du-travail/>
 
-En vigueur : 2020-02-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-02-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2050 du 8 septembre 1945 validant les actes promulgués depuis le 16 juin 1940 en matière d’assurance des marins français du com merce, de la pêche ou de la plaisance et des agents du Service général à bord des navires contre la vieillesse, l’accident, la maladie, l’invalidité et le décès et portant modification à ces textes.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2050-du-8-septembre-1945-validant-les-actes-promulgues-depuis-le-16-juin-1940-en-matiere-dassurance-des-marins-francais-du-com-merce-de-la-peche-ou-de-la-plaisance-et/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2050-du-8-septembre-1945-validant-les-actes-promulgues-depuis-le-16-juin-1940-en-matiere-dassurance-des-marins-francais-du-com-merce-de-la-peche-ou-de-la-plaisance-et/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

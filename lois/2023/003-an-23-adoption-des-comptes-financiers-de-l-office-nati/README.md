@@ -1,6 +1,6 @@
 # Loi n° 003/AN/23/9ème L portant adoption des comptes financiers de l’Office National du Tourisme de Djibouti (ONTD) pour l’exercice 2021
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n003-an-23-9eme-l-portant-adoption-des-comptes-financiers-de-loffice-national-du-tourisme-de-djibouti-ontd-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n003-an-23-9eme-l-portant-adoption-des-comptes-financiers-de-loffice-national-du-tourisme-de-djibouti-ontd-pour-lexercice-2021/>
 
 En vigueur : 2023-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

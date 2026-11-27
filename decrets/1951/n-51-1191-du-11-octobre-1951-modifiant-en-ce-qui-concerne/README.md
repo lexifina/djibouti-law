@@ -1,6 +1,6 @@
 # Décret n° n° 51-1191 du 11 octobre 1951 modifiant, en ce qui concerne les Territoires relevant du Ministère de la France d’Outre-Mer, les dispositions du décret du 26 mai 1937 fixant la réglementation du logement et de l’ameublement aux Colonies (J.O.R.F. du 14 octobre 1951, p. 1941)………………
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1191-du-11-octobre-1951-modifiant-en-ce-qui-concerne-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-du-decret-du-26-mai-1937-fixant-l/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1191-du-11-octobre-1951-modifiant-en-ce-qui-concerne-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-du-decret-du-26-mai-1937-fixant-l/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 

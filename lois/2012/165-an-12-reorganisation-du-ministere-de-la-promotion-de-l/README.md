@@ -1,6 +1,6 @@
 # Loi n° 165/AN/12/6ème L portant réorganisation du Ministère de la Promotion de la Femme et du Planning Familial chargé des Relations avec le Parlement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-12-6eme-l-portant-reorganisation-du-ministere-de-la-promotion-de-la-femme-et-du-planning-familial-charge-des-relations-avec-le-parlement/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-12-6eme-l-portant-reorganisation-du-ministere-de-la-promotion-de-la-femme-et-du-planning-familial-charge-des-relations-avec-le-parlement/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 
@@ -66,4 +66,4 @@ ISMAÏL OMAR GUELLEH
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

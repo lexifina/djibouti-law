@@ -1,6 +1,6 @@
 # Décret n° 14/11/1944 chargeant un administrateur en chef des colonies des fonctions de Secrétaire Général du Gouvernement Général de l’Afrique Equatoriale Française.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-11-1944-chargeant-un-administrateur-en-chef-des-colonies-des-fonctions-de-secretaire-general-du-gouvernement-general-de-lafrique-equatoriale-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-11-1944-chargeant-un-administrateur-en-chef-des-colonies-des-fonctions-de-secretaire-general-du-gouvernement-general-de-lafrique-equatoriale-francaise/>
 
 En vigueur : 1945-02-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 38/AN/19/8ème L portant modification de l’article 6 de la loi n° 122/AN/10/6ème L modifiant la Loi n° 155/AN/02/4ème L et certaines dispositions de la Loi n° 3/AN/92/2ème L du 28 octobre 1992 portant réorganisation de la Caisse Nationale de Retraites
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-19-8eme-l-portant-modification-de-larticle-6-de-la-loi-n122-an-10-6eme-l-modifiant-la-loi-n155-an-02-4eme-l-et-certaines-dispositions-de-la-loi-n3-an-92-2eme-l-du/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-19-8eme-l-portant-modification-de-larticle-6-de-la-loi-n122-an-10-6eme-l-modifiant-la-loi-n155-an-02-4eme-l-et-certaines-dispositions-de-la-loi-n3-an-92-2eme-l-du/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

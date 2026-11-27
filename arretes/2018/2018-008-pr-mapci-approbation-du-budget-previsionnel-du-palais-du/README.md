@@ -1,6 +1,6 @@
 # Arrêté n° 2018-008/PR/MAPCI portant approbation du Budget Prévisionnel du Palais du Peuple pour l’Exercice 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-008-pr-mapci-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-008-pr-mapci-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2018/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 

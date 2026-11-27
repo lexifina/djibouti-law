@@ -1,6 +1,6 @@
 # Décret n° 73-308 complétant l’article R-241-4 du code de l’aviation civile relatif aux Servitudes aéronautiques de dégagement (JORF n° 67 des 19 et 20 mars 1973, p.3006).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/05/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-308-completant-larticle-r-241-4-du-code-de-laviation-civile-relatif-aux-servitudes-aeronautiques-de-degagement-jorf-n-67-des-19-et-20-mars-1973-p-3006/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 10/05/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-308-completant-larticle-r-241-4-du-code-de-laviation-civile-relatif-aux-servitudes-aeronautiques-de-degagement-jorf-n-67-des-19-et-20-mars-1973-p-3006/>
 
 En vigueur : 1973-05-10 (date du Journal officiel qui le publie).
 

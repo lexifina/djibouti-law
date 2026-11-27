@@ -1,6 +1,6 @@
 # Décret n° 12-387-1929 Application aux colonies de diverses lois modifiant certaines parties de la législation métropolitaine tant en matière civile qu’en matière pénale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 387 du 28/02/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-387-1929-application-aux-colonies-de-diverses-lois-modifiant-certaines-parties-de-la-legislation-metropolitaine-tant-en-matiere-civile-quen-matiere-penale/>
+Décret · Journal officiel de la République de Djibouti, n° 387 du 28/02/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-387-1929-application-aux-colonies-de-diverses-lois-modifiant-certaines-parties-de-la-legislation-metropolitaine-tant-en-matiere-civile-quen-matiere-penale/>
 
 En vigueur : 1929-02-28 (date du Journal officiel qui le publie).
 

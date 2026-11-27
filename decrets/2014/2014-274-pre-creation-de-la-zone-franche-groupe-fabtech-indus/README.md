@@ -1,6 +1,6 @@
 # Décret n° 2014-274/PRE portant création de la zone franche Groupe “Fabtech Industries” dans le secteur de Holl-Holl.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-274-pre-portant-creation-de-la-zone-franche-groupe-fabtech-industries-dans-le-secteur-de-holl-holl/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-274-pre-portant-creation-de-la-zone-franche-groupe-fabtech-industries-dans-le-secteur-de-holl-holl/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

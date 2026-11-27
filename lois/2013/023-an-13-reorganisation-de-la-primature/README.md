@@ -1,6 +1,6 @@
 # Loi n° 23/AN/13/7ème L portant réorganisation de la Primature.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-13-7eme-l-portant-reorganisation-de-la-primature/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-13-7eme-l-portant-reorganisation-de-la-primature/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

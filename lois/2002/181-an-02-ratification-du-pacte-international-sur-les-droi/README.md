@@ -1,6 +1,6 @@
 # Loi n° 181/AN/02/4ème L portant ratification du Pacte International sur les droits civils et politiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-02-4eme-l-portant-ratification-du-pacte-international-sur-les-droits-civils-et-politiques/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-02-4eme-l-portant-ratification-du-pacte-international-sur-les-droits-civils-et-politiques/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

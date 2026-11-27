@@ -1,6 +1,6 @@
 # Décret n° 2000-0094/PR/MDN portant création de la Direction des services techniques, administratifs, et financiers de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0094-pr-mdn-portant-creation-de-la-direction-des-services-techniques-administratifs-et-financiers-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0094-pr-mdn-portant-creation-de-la-direction-des-services-techniques-administratifs-et-financiers-de-la-gendarmerie-nationale/>
 
 En vigueur : 2000-04-15 (date du Journal officiel qui le publie).
 

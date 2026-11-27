@@ -1,6 +1,6 @@
 # Loi n° 66/AN/719/8ème L portant protection, prévention et prise en charge des femmes et enfants victimes de violence.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-719-8eme-l-portant-protection-prevention-et-prise-en-charge-des-femmes-et-enfants-victimes-de-violence/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-719-8eme-l-portant-protection-prevention-et-prise-en-charge-des-femmes-et-enfants-victimes-de-violence/>
 
 En vigueur : 2020-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -78,4 +78,4 @@ ISMAÏL OMAR GUELLEH
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

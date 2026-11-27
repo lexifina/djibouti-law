@@ -1,6 +1,6 @@
 # Décret n° 2017-310/PR/SEAS modifiant les articles 54 et 55 du Décret n° 2008-0026 du 20 janvier 2008 portant sur le Statut Particulier de l’Agence Djiboutienne de Développement Social (ADDS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 28/09/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-310-pr-seas-modifiant-les-articles-54-et-55-du-decret-n2008-0026-du-20-janvier-2008-portant-sur-le-statut-particulier-de-lagence-djiboutienne-de-developpement-social-adds/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 28/09/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-310-pr-seas-modifiant-les-articles-54-et-55-du-decret-n2008-0026-du-20-janvier-2008-portant-sur-le-statut-particulier-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2017-09-28 (date du Journal officiel qui le publie).
 

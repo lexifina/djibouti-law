@@ -1,6 +1,6 @@
 # Loi n° 80/AN/89/2ème L portant création et attribution du lot n° 61 (Bis) du lotissement du Héron.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-89-2eme-l-portant-creation-et-attribution-du-lot-n61-bis-du-lotissement-du-heron/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-89-2eme-l-portant-creation-et-attribution-du-lot-n61-bis-du-lotissement-du-heron/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi de finances n° 20/AN/87/2e L Portant modification du budget extraordinaire de l’exercice 1987.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n20-an-87-2e-l-portant-modification-du-budget-extraordinaire-de-lexercice-1987/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 1 du 15/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n20-an-87-2e-l-portant-modification-du-budget-extraordinaire-de-lexercice-1987/>
 
 En vigueur : 1988-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 95-0043/PR/MEC approuvant et rendent exécutoire le budget prévisionnel 1995 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0043-pr-mec-approuvant-et-rendent-executoire-le-budget-previsionnel-1995-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0043-pr-mec-approuvant-et-rendent-executoire-le-budget-previsionnel-1995-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1995-03-30 (date du Journal officiel qui le publie).
 

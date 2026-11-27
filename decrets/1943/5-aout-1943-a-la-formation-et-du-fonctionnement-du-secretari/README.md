@@ -1,6 +1,6 @@
 # Décret n° 5 aout 1943 relatif à la formation et du fonctionnement du Secrétariat du Comité de Défense nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 15/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-aout-1943-relatif-a-la-formation-et-du-fonctionnement-du-secretariat-du-comite-de-defense-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 15/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-aout-1943-relatif-a-la-formation-et-du-fonctionnement-du-secretariat-du-comite-de-defense-nationale/>
 
 En vigueur : 1943-09-15 (date du Journal officiel qui le publie).
 

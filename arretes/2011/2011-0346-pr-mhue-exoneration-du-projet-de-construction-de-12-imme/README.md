@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0346/PR/MHUE portant exonération du projet de construction de 12 immeubles R+2.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0346-pr-mhue-portant-exoneration-du-projet-de-construction-de-12-immeubles-r2/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0346-pr-mhue-portant-exoneration-du-projet-de-construction-de-12-immeubles-r2/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

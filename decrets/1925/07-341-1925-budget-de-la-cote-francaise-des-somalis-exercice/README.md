@@ -1,6 +1,6 @@
 # Décret n° 07-341-1925 Budget de la Côte française des Somalis (exercice 1923 .)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 341 du 30/04/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-341-1925-budget-de-la-cote-francaise-des-somalis-exercice-1923/>
+Décret · Journal officiel de la République de Djibouti, n° 341 du 30/04/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-341-1925-budget-de-la-cote-francaise-des-somalis-exercice-1923/>
 
 En vigueur : 1925-04-30 (date du Journal officiel qui le publie).
 

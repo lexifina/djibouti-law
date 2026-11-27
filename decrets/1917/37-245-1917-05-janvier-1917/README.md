@@ -1,6 +1,6 @@
 # Décret n° 37-245-1917 05 janvier 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 245 du 31/03/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-37-245-1917-05-janvier-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 245 du 31/03/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-37-245-1917-05-janvier-1917/>
 
 En vigueur : 1917-03-31 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ HERRIOI.
 | [art-004.md](art-004.md) | Art.4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

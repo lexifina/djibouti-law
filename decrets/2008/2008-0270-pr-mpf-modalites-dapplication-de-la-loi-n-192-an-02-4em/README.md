@@ -1,6 +1,6 @@
 # Décret n° 2008-0270/PR/MPF portant modalités d’application de la Loi n° 192/AN/02/4ème L du 13 novembre 2002 instituant le système de quota dans les fonctions électives et dans l’administration de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0270-pr-mpf-portant-modalites-dapplication-de-la-loi-n192-an-02-4eme-l-du-13-novembre-2002-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministrat/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0270-pr-mpf-portant-modalites-dapplication-de-la-loi-n192-an-02-4eme-l-du-13-novembre-2002-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministrat/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

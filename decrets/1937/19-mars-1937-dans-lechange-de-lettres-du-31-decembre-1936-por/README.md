@@ -1,6 +1,6 @@
 # Décret n° 19 mars 1937 concernant dans l’échange de lettres du 31 décembre 1936 portant re- nouvellement et modification du modus vivendi commercial conclu entre la France et l’Italie le 11 août 1936.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-mars-1937-concernant-dans-lechange-de-lettres-du-31-decembre-1936-portant-re-nouvellement-et-modification-du-modus-vivendi-commercial-conclu-entre-la-france-et-litalie-le-11-a/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-mars-1937-concernant-dans-lechange-de-lettres-du-31-decembre-1936-portant-re-nouvellement-et-modification-du-modus-vivendi-commercial-conclu-entre-la-france-et-litalie-le-11-a/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -14,5 +14,5 @@ A. ANNET
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

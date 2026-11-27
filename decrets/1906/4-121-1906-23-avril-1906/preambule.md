@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er, — Dans les relations intercoloniales. la taxe des lettres affranchies est fixée à 10 centimes par 15 grammes ou fractions de 15 grammes.
 La taxe des lettres non affranchies est fixée à 20 centimes par 15 gramimes ou fractions de 15 grammes.
 Les lettres insuffisamment affranchies sont frappées d’une surtaxe égale au double de l’insuflisance de l’affranchissement.

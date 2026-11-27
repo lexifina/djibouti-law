@@ -1,6 +1,6 @@
 # Arrêté n° 2015-055/PR/SEJS approuvant et rendant exécutoire le Budget Prévisionnel 2015 du Stade “Al Hadj Hassan Gouled Aptidon”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-055-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2015-du-stade-al-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-055-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2015-du-stade-al-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

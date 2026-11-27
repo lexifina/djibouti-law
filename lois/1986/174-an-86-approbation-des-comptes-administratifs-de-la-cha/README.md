@@ -1,6 +1,6 @@
 # Loi n° 174/AN/86/1ère L portant approbation des comptes administratifs de la Chambre Internationale de Commerce et d’Industrie et des Magasins généraux pour l’exercice 1984.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-86-1ere-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-pour-lexercice-1984/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-86-1ere-l-portant-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-pour-lexercice-1984/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

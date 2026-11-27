@@ -1,6 +1,6 @@
 # Ordonnance n° 77-018/PR confiant le service de l’émission monétaire au Trésor de la République de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/08/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-018-pr-confiant-le-service-de-lemission-monetaire-au-tresor-de-la-republique-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 15/08/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-018-pr-confiant-le-service-de-lemission-monetaire-au-tresor-de-la-republique-de-djibouti/>
 
 En vigueur : 1977-08-15 (date du Journal officiel qui le publie).
 

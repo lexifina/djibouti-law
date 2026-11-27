@@ -1,6 +1,6 @@
 # Loi n° 9-320-1923 prorogeant le délai prévu pour l’exercice de l’action en révision instituée par l’article 20 de la loi du 29 avril 1924, relatif à l’amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-9-320-1923-prorogeant-le-delai-prevu-pour-lexercice-de-laction-en-revision-instituee-par-larticle-20-de-la-loi-du-29-avril-1924-relatif-a-lamnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/loi-n-9-320-1923-prorogeant-le-delai-prevu-pour-lexercice-de-laction-en-revision-instituee-par-larticle-20-de-la-loi-du-29-avril-1924-relatif-a-lamnistie/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 209/AN/07/5ème L portant adhésion à la Convention internationale sur l’élimination de toutes les formes de discrimination raciale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-07-5eme-l-portant-adhesion-a-la-convention-internationale-sur-lelimination-de-toutes-les-formes-de-discrimination-raciale/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-07-5eme-l-portant-adhesion-a-la-convention-internationale-sur-lelimination-de-toutes-les-formes-de-discrimination-raciale/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

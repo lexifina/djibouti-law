@@ -1,6 +1,6 @@
 # Décret n° 4-205-1913 le 9 octobre 1913.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 205 du 30/11/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-205-1913-le-9-octobre-1913/>
+Décret · Journal officiel de la République de Djibouti, n° 205 du 30/11/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-205-1913-le-9-octobre-1913/>
 
 En vigueur : 1913-11-30 (date du Journal officiel qui le publie).
 

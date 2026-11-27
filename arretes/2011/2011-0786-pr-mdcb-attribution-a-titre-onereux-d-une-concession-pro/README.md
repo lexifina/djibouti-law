@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0786/PR/MDCB portant attribution à titre onéreux d’une concession provisoire sise à Guelleh Batal II.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0786-pr-mdcb-portant-attribution-a-titre-onereux-dune-concession-provisoire-sise-a-guelleh-batal-ii/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0786-pr-mdcb-portant-attribution-a-titre-onereux-dune-concession-provisoire-sise-a-guelleh-batal-ii/>
 
 En vigueur : 2011-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 04-438-1933 Réprimant les détournements et dissipations d’avances de salaires, primes d’engagement, frais de transport commis par les indigènes et assimilés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 438 du 31/05/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-438-1933-reprimant-les-detournements-et-dissipations-davances-de-salaires-primes-dengagement-frais-de-transport-commis-par-les-indigenes-et-assimiles/>
+Décret · Journal officiel de la République de Djibouti, n° 438 du 31/05/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-438-1933-reprimant-les-detournements-et-dissipations-davances-de-salaires-primes-dengagement-frais-de-transport-commis-par-les-indigenes-et-assimiles/>
 
 En vigueur : 1933-05-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Abel GARDEY.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

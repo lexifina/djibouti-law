@@ -1,6 +1,6 @@
 # Décret n° 84-024/PRE portant clôture de la session extraordinaire de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-024-pre-portant-cloture-de-la-session-extraordinaire-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-024-pre-portant-cloture-de-la-session-extraordinaire-de-lassemblee-nationale/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 
@@ -15,4 +15,4 @@ VU le décret n° 84-023/PRE du 2 avril 1984 portant convocation de l’Assembl�
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

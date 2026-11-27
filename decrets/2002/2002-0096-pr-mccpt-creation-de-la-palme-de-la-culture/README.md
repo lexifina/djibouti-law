@@ -1,8 +1,8 @@
 # Décret n° 2002-0096/PR/MCCPT portant création de la Palme de la Culture.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0096-pr-mccpt-portant-creation-de-la-palme-de-la-culture/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0096-pr-mccpt-portant-creation-de-la-palme-de-la-culture/>
 
-En vigueur : 2002-06-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-06-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2020-001/PR/MB portant attribution deux parcelles de terrain sis PK 30.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-001-pr-mb-portant-attribution-deux-parcelles-de-terrain-sis-pk-30/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-001-pr-mb-portant-attribution-deux-parcelles-de-terrain-sis-pk-30/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

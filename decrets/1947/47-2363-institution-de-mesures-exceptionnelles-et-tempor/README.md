@@ -1,6 +1,6 @@
 # Décret n° 47-2363 portant Institution de mesures exceptionnelles et temporaires en vue de remédier à la crise du logement en Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2363-portant-institution-de-mesures-exceptionnelles-et-temporaires-en-vue-de-remedier-a-la-crise-du-logement-en-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2363-portant-institution-de-mesures-exceptionnelles-et-temporaires-en-vue-de-remedier-a-la-crise-du-logement-en-cote-francaise-des-somalis/>
 
 En vigueur : 1948-01-31 (date du Journal officiel qui le publie).
 

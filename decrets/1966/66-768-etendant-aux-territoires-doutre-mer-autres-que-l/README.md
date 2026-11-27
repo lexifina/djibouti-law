@@ -1,6 +1,6 @@
 # Décret n° 66-768 étendant aux Territoires d’outre-mer autres que les Comores certaines dispositions du décret n° 65-1158 du 24 décembre1965 relatif au régime des caisses d’épargne étendant aux Territoires d’outre-mer autres que les Comores certaines dispositions du décret n° 65-1158 du 24 décembre1965 relatif au régime des caisses d’épargne
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-768-etendant-aux-territoires-doutre-mer-autres-que-les-comores-certaines-dispositions-du-decret-n-65-1158-du-24-decembre1965-relatif-au-regime-des-caisses-depargne-etenda/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-768-etendant-aux-territoires-doutre-mer-autres-que-les-comores-certaines-dispositions-du-decret-n-65-1158-du-24-decembre1965-relatif-au-regime-des-caisses-depargne-etenda/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

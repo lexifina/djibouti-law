@@ -1,6 +1,6 @@
 # Loi n° 8/AN/87/2ème L portant modification de l’article 35 de la loi n° 21/AN/78 du 30 mars 1978 portant statut de la Force Nationale de Sécurité (FNS).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-87-2eme-l-portant-modification-de-larticle-35-de-la-loi-n-21-an-78-du-30-mars-1978-portant-statut-de-la-force-nationale-de-securite-fns/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-87-2eme-l-portant-modification-de-larticle-35-de-la-loi-n-21-an-78-du-30-mars-1978-portant-statut-de-la-force-nationale-de-securite-fns/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

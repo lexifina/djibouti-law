@@ -1,6 +1,6 @@
 # Décret n° 91-0654/ PR/PAM portant modification du budget primitif du port autonome international d djibouti-exercie 1991
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-0654-pr-pam-portant-modification-du-budget-primitif-du-port-autonome-international-d-djibouti-exercie-1991/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-0654-pr-pam-portant-modification-du-budget-primitif-du-port-autonome-international-d-djibouti-exercie-1991/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 
@@ -17,5 +17,5 @@ Vu sur proposition du ministere du port et des affaire maritime
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-001.md](art-001.md) | Article premier |
+| [preambule.md](preambule.md) | Préambule |

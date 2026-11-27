@@ -1,8 +1,8 @@
 # Décret n° 2007-0138/PR/MID fixant les tarifs des services de l’Office de la Voirie de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0138-pr-mid-fixant-les-tarifs-des-services-de-loffice-de-la-voirie-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0138-pr-mid-fixant-les-tarifs-des-services-de-loffice-de-la-voirie-de-djibouti/>
 
-En vigueur : 2007-06-19 (date fixÃ©e par le texte).
+En vigueur : 2007-06-19 (date fixée par le texte).
 
 ## Visas
 

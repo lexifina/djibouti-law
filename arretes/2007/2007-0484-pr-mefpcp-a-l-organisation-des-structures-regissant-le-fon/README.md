@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0484/PR/MEFPCP relatif à l’organisation des structures régissant le Fonds de Développement Economique de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0484-pr-mefpcp-relatif-a-lorganisation-des-structures-regissant-le-fonds-de-developpement-economique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0484-pr-mefpcp-relatif-a-lorganisation-des-structures-regissant-le-fonds-de-developpement-economique-de-djibouti/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

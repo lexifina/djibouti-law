@@ -1,6 +1,6 @@
 # Décret n° 2008-0192/PR/MDN portant rappel des retraités militaires, gendarmes et policiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0192-pr-mdn-portant-rappel-des-retraites-militaires-gendarmes-et-policiers/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0192-pr-mdn-portant-rappel-des-retraites-militaires-gendarmes-et-policiers/>
 
 En vigueur : 2008-07-31 (date du Journal officiel qui le publie).
 

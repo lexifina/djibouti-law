@@ -1,6 +1,6 @@
 # Décret n° n° 209 Le décret portant amélioration de la situation pécuniaire des militaires de la gendarmerie en service aux colonies;
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-209-le-decret-portant-amelioration-de-la-situation-pecuniaire-des-militaires-de-la-gendarmerie-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-209-le-decret-portant-amelioration-de-la-situation-pecuniaire-des-militaires-de-la-gendarmerie-en-service-aux-colonies/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ PAUL REYNAUD
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

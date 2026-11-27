@@ -1,6 +1,6 @@
 # Arrêté n° 91-0124/PR/MCTT portant création d’une redevance de Sûreté Aéroportuaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0124-pr-mctt-portant-creation-dune-redevance-de-surete-aeroportuaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0124-pr-mctt-portant-creation-dune-redevance-de-surete-aeroportuaire/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

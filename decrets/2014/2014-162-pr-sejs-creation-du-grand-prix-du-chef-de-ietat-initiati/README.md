@@ -1,6 +1,6 @@
 # Décret n° 2014-162/PR/SEJS portant création du Grand Prix du Chef de I’Etat “Initiative Jeunesse”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-162-pr-sejs-portant-creation-du-grand-prix-du-chef-de-ietat-initiative-jeunesse/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-162-pr-sejs-portant-creation-du-grand-prix-du-chef-de-ietat-initiative-jeunesse/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

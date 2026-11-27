@@ -1,6 +1,6 @@
 # Décret n° 2013-010/PRE portant constitution du Conseil d’Administration de Port de Djibouti SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-010-pre-portant-constitution-du-conseil-dadministration-de-port-de-djibouti-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-010-pre-portant-constitution-du-conseil-dadministration-de-port-de-djibouti-sa/>
 
 En vigueur : 2013-01-31 (date du Journal officiel qui le publie).
 

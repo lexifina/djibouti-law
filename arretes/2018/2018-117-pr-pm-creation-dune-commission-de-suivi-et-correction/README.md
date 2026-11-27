@@ -1,8 +1,8 @@
 # Arrêté n° 2018-117/PR/PM portant création d’une commission de suivi et correction des anomalies relevées par la Cour des Comptes en 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-117-pr-pm-portant-creation-dune-commission-de-suivi-et-correction-des-anomalies-relevees-par-la-cour-des-comptes-en-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-117-pr-pm-portant-creation-dune-commission-de-suivi-et-correction-des-anomalies-relevees-par-la-cour-des-comptes-en-2018/>
 
-En vigueur : 2018-07-31 (date fixÃ©e par le texte).
+En vigueur : 2018-07-31 (date fixée par le texte).
 
 ## Visas
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Arlicle 1er. — Le décrel du 26 janvier 1926 porlant fixalion des traitements 0 classes du personnel des services extérieurs de l’adminisiralion des douanes, modifié par les décrels des 22 novembre 1926, est de nouveau modifié ainsi qu’il suit :
 Arlicle 1er………………………………………
 A — Agents supérieurs de direclion et de contrôle.

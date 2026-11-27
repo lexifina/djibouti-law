@@ -1,6 +1,6 @@
 # Loi n° 169/AN/12/6ème L portant Organisation et fonctionnement du Secrétariat d’Etat auprès du Premier Ministre chargé de la Solidarité Nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-12-6eme-l-portant-organisation-et-fonctionnement-du-secretariat-detat-aupres-du-premier-ministre-charge-de-la-solidarite-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n169-an-12-6eme-l-portant-organisation-et-fonctionnement-du-secretariat-detat-aupres-du-premier-ministre-charge-de-la-solidarite-nationale/>
 
 En vigueur : 2012-08-15 (date du Journal officiel qui le publie).
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

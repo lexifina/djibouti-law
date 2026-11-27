@@ -1,6 +1,6 @@
 # Décret n° 45-0157 fixant le régime de solde des troupes coloniales et métropolitaines à la charge du Département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0157-fixant-le-regime-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-0157-fixant-le-regime-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

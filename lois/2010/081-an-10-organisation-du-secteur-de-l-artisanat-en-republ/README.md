@@ -1,6 +1,6 @@
 # Loi n° 81/AN/10/6ème L portant organisation du secteur de l’Artisanat en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-10-6eme-l-portant-organisation-du-secteur-de-lartisanat-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-10-6eme-l-portant-organisation-du-secteur-de-lartisanat-en-republique-de-djibouti/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ ISMAÏL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

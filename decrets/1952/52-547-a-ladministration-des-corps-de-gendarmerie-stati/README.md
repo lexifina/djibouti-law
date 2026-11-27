@@ -1,6 +1,6 @@
 # Décret n° 52-547 relatif à l’administration des corps de gendarmerie stationnés dans les Territoires relevant du Ministère de la France d’Outre-Mer et dans les Départements d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-547-relatif-a-ladministration-des-corps-de-gendarmerie-stationnes-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-et-dans-les-departements-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-547-relatif-a-ladministration-des-corps-de-gendarmerie-stationnes-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-et-dans-les-departements-doutre-mer/>
 
 En vigueur : 1952-07-01 (date du Journal officiel qui le publie).
 

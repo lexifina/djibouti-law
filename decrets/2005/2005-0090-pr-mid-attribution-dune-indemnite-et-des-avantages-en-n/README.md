@@ -1,8 +1,8 @@
 # Décret n° 2005-0090/PR/MID portant attribution d’une indemnité et des avantages en nature aux Directeurs Généraux Adjoints de la Police Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0090-pr-mid-portant-attribution-dune-indemnite-et-des-avantages-en-nature-aux-directeurs-generaux-adjoints-de-la-police-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0090-pr-mid-portant-attribution-dune-indemnite-et-des-avantages-en-nature-aux-directeurs-generaux-adjoints-de-la-police-nationale/>
 
-En vigueur : 2005-06-20 (date fixÃ©e par le texte).
+En vigueur : 2005-06-20 (date fixée par le texte).
 
 ## Visas
 

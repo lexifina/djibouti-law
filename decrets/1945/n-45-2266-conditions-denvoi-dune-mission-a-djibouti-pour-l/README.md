@@ -1,6 +1,6 @@
 # Décret n° n° 45-2266 fixant les conditions d’envoi d’une mission à Djibouti pour l’étude et l’aménagement du lac Assal
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2266-fixant-les-conditions-denvoi-dune-mission-a-djibouti-pour-letude-et-lamenagement-du-lac-assal/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-2266-fixant-les-conditions-denvoi-dune-mission-a-djibouti-pour-letude-et-lamenagement-du-lac-assal/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ P. GIACOBBI.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

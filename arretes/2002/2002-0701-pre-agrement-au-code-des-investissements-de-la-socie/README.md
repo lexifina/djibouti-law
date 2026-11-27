@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0701/PRE portant Agrément au Code des Investissements de la Société «Minoterie de la Mer Rouge».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0701-pre-portant-agrement-au-code-des-investissements-de-la-societe-minoterie-de-la-mer-rouge/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0701-pre-portant-agrement-au-code-des-investissements-de-la-societe-minoterie-de-la-mer-rouge/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

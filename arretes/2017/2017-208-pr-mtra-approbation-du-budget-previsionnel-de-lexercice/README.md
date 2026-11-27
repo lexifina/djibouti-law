@@ -1,8 +1,8 @@
 # Arrêté n° 2017-208/PR/MTRA portant approbation du Budget Prévisionnel de l’Exercice 2018 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-208-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2018-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-208-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2018-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
 
-En vigueur : 2017-12-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-12-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

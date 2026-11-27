@@ -1,6 +1,6 @@
 # Décret n° 2009-0193/PR/MID portant organisation du contrôle, de l’entretien et de la délivrance d’homologation des extincteurs mobiles, des extincteurs automatiques fixes (installations sprinklers), des détecteurs thermiques, optiques, de fumées ou de gaz, des robinets incendie arm
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0193-pr-mid-portant-organisation-du-controle-de-lentretien-et-de-la-delivrance-dhomologation-des-extincteurs-mobiles-des-extincteurs-automatiques-fixes-installa/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0193-pr-mid-portant-organisation-du-controle-de-lentretien-et-de-la-delivrance-dhomologation-des-extincteurs-mobiles-des-extincteurs-automatiques-fixes-installa/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

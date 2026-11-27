@@ -1,6 +1,6 @@
 # Décret n° 85-0093/PR/MCTT/AEP portant agrément au code des investissemnts de l’entreprise Djama Aouled Chirdon.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-0093-pr-mctt-aep-portant-agrement-au-code-des-investissemnts-de-lentreprise-djama-aouled-chirdon/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-0093-pr-mctt-aep-portant-agrement-au-code-des-investissemnts-de-lentreprise-djama-aouled-chirdon/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

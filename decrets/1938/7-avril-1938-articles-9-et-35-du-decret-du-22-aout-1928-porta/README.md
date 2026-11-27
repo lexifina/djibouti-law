@@ -1,6 +1,6 @@
 # Décret n° 7 avril 1938 modifiant les articles 9 et 35 du décret du 22 août 1928 portant organisation de la magistrature coloniale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1938-modifiant-les-articles-9-et-35-du-decret-du-22-aout-1928-portant-organisation-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-avril-1938-modifiant-les-articles-9-et-35-du-decret-du-22-aout-1928-portant-organisation-de-la-magistrature-coloniale/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 142/AN/91/2ème L accordant une parcelle de terrain sise à Balbala en concession provisoire à Mr. Youssouf Aptidon Darar.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-91-2eme-l-accordant-une-parcelle-de-terrain-sise-a-balbala-en-concession-provisoire-a-mr-youssouf-aptidon-darar/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-91-2eme-l-accordant-une-parcelle-de-terrain-sise-a-balbala-en-concession-provisoire-a-mr-youssouf-aptidon-darar/>
 
 En vigueur : 1991-01-15 (date du Journal officiel qui le publie).
 

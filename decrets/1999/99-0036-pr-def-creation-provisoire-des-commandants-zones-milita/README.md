@@ -1,6 +1,6 @@
 # Décret n° 99-0036/PR/DEF portant création provisoire des commandants zones militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 16/03/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0036-pr-def-portant-creation-provisoire-des-commandants-zones-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 16/03/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0036-pr-def-portant-creation-provisoire-des-commandants-zones-militaires/>
 
 En vigueur : 1999-03-16 (date du Journal officiel qui le publie).
 

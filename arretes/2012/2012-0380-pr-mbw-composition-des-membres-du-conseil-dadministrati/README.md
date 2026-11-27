@@ -1,8 +1,8 @@
 # Arrêté n° 2012-0380/PR/MBW portant composition des membres du Conseil d’Administration des Biens Waqfs.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0380-pr-mbw-portant-composition-des-membres-du-conseil-dadministration-des-biens-waqfs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0380-pr-mbw-portant-composition-des-membres-du-conseil-dadministration-des-biens-waqfs/>
 
-En vigueur : 2012-06-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-06-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

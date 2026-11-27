@@ -1,8 +1,8 @@
 # Loi n° 63/AN/99/4ème L portant reforme hospitalière.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-99-4eme-l-portant-reforme-hospitaliere/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/12/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-99-4eme-l-portant-reforme-hospitaliere/>
 
-En vigueur : 1999-12-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1999-12-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -125,4 +125,4 @@ ISMAÏL OMAR GUELLEH
 | [art-091.md](art-091.md) | Article 91 |
 | [art-092.md](art-092.md) | Article 92 |
 | [art-093.md](art-093.md) | Article 93 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

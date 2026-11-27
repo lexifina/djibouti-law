@@ -1,8 +1,8 @@
 # Décret n° 2013-012/PRE portant constitution du Conseil d’Administration du Port de Djibouti SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-012-pre-portant-constitution-du-conseil-dadministration-du-port-de-djibouti-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-012-pre-portant-constitution-du-conseil-dadministration-du-port-de-djibouti-sa/>
 
-En vigueur : 2013-02-02 (date fixÃ©e par le texte).
+En vigueur : 2013-02-02 (date fixée par le texte).
 
 ## Visas
 

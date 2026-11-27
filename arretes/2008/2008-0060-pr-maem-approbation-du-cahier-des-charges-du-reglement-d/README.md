@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0060/PR/MAEM portant approbation du Cahier des Charges, du Règlement de Service de Distribution d’Eau, du Règlement de Service de l’Assainissement de l’ONEAD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0060-pr-maem-portant-approbation-du-cahier-des-charges-du-reglement-de-service-de-distribution-deau-du-reglement-de-service-de-lassainissement-de-lonead/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0060-pr-maem-portant-approbation-du-cahier-des-charges-du-reglement-de-service-de-distribution-deau-du-reglement-de-service-de-lassainissement-de-lonead/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 
@@ -58,4 +58,4 @@ ISMAIL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

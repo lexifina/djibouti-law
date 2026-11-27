@@ -1,6 +1,6 @@
 # Loi n° 51/AN/99/4ème L relative au Médiateur de la République.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-99-4eme-l-relative-au-mediateur-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-99-4eme-l-relative-au-mediateur-de-la-republique/>
 
 En vigueur : 1999-08-31 (date du Journal officiel qui le publie).
 

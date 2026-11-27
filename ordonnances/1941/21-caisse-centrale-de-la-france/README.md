@@ -1,6 +1,6 @@
 # Ordonnance n° 21 instituant la Caisse Centrale de la France
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-21-instituant-la-caisse-centrale-de-la-france/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-21-instituant-la-caisse-centrale-de-la-france/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

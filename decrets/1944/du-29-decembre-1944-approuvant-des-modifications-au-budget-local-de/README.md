@@ -1,6 +1,6 @@
 # Décret n° du 29 décembre 1944 approuvant des modifications au budget local de la Côte Française des Somalis (exercice 1944).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-29-decembre-1944-approuvant-des-modifications-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1944/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-29-decembre-1944-approuvant-des-modifications-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1944/>
 
 En vigueur : 1945-01-01 (date du Journal officiel qui le publie).
 

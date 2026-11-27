@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0808/PR/MID portant fermeture des établissements de boissons spéciales pendant la période de Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0808-pr-mid-portant-fermeture-des-etablissements-de-boissons-speciales-pendant-la-periode-de-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 30/10/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0808-pr-mid-portant-fermeture-des-etablissements-de-boissons-speciales-pendant-la-periode-de-ramadan/>
 
 En vigueur : 2003-10-30 (date du Journal officiel qui le publie).
 

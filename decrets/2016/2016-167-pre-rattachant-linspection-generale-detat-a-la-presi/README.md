@@ -1,6 +1,6 @@
 # Décret n° 2016-167/PRE rattachant l’Inspection Générale d’Etat à la Présidence de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-167-pre-rattachant-linspection-generale-detat-a-la-presidence-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/07/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-167-pre-rattachant-linspection-generale-detat-a-la-presidence-de-la-republique/>
 
 En vigueur : 2016-07-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 81-0124/PR fixant à nouveau les indemnités de représentation allouées au président de la République et aux membres du Conseil des Ministres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-0124-pr-fixant-a-nouveau-les-indemnites-de-representation-allouees-au-president-de-la-republique-et-aux-membres-du-conseil-des-ministres/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-0124-pr-fixant-a-nouveau-les-indemnites-de-representation-allouees-au-president-de-la-republique-et-aux-membres-du-conseil-des-ministres/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

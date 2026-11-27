@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Le modus virendi commercial contre la France et la Turquie, signé à Paris Le 6 août 1959, dont la teneur suit, sera applicable à partir du 13 août 1935, en attendant son approbation par le Sénat et par la Chambre des députés .
 « MODUS VIVENDI »
 ENTRE LA TURQUIE ET LA FRANCE.

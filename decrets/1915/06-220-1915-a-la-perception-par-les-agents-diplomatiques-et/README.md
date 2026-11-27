@@ -1,6 +1,6 @@
 # Décret n° 06-220-1915 relatif à la perception par les Agents diplomatiques et Consulaires français de certains droits pour l’expédition des navires étrangers à destination de la France et des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 220 du 28/02/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-220-1915-relatif-a-la-perception-par-les-agents-diplomatiques-et-consulaires-francais-de-certains-droits-pour-lexpedition-des-navires-etrangers-a-destination-de-la-france-et-des-co/>
+Décret · Journal officiel de la République de Djibouti, n° 220 du 28/02/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-220-1915-relatif-a-la-perception-par-les-agents-diplomatiques-et-consulaires-francais-de-certains-droits-pour-lexpedition-des-navires-etrangers-a-destination-de-la-france-et-des-co/>
 
 En vigueur : 1915-02-28 (date du Journal officiel qui le publie).
 

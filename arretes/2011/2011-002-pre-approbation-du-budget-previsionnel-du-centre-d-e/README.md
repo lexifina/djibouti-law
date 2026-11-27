@@ -1,6 +1,6 @@
 # Arrêté n° 2011-002/PRE portant approbation du Budget prévisionnel du Centre d’Etudes et de Recherche de Djibouti (CERD) pour l’année 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-002-pre-portant-approbation-du-budget-previsionnel-du-centre-detudes-et-de-recherche-de-djibouti-cerd-pour-lannee-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-002-pre-portant-approbation-du-budget-previsionnel-du-centre-detudes-et-de-recherche-de-djibouti-cerd-pour-lannee-2011/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

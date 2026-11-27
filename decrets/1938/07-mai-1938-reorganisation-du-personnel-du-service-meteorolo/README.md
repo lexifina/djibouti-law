@@ -1,6 +1,6 @@
 # Décret n° 07 mai 1938. Réorganisation du personnel du service météorologique des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-mai-1938-reorganisation-du-personnel-du-service-meteorologique-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-mai-1938-reorganisation-du-personnel-du-service-meteorologique-des-colonies/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ Le Ministre des colonies, Georges MANDEL.
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

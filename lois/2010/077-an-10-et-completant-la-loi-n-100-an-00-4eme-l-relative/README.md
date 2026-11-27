@@ -1,6 +1,6 @@
 # Loi n° 77/AN/10/6ème L modifiant et complétant la loi n° 100/AN/00/4ème L relative aux attributions et à l’organisation du Ministère de la Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-10-6eme-l-modifiant-et-completant-la-loi-n100-an-00-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-10-6eme-l-modifiant-et-completant-la-loi-n100-an-00-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-justice/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

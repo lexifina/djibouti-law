@@ -1,6 +1,6 @@
 # Décret n° 94-0080/PR/MEC portant approbation du budget prévisionnel de l’ONAC ‑ exercice 1994.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 16/07/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0080-pr-mec-portant-approbation-du-budget-previsionnel-de-lonac-%e2%80%91-exercice-1994/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 16/07/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0080-pr-mec-portant-approbation-du-budget-previsionnel-de-lonac-%e2%80%91-exercice-1994/>
 
 En vigueur : 1994-07-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-369 étendant aux territoires dépendant du Ministère des Colonies les dispositions de l’ordonnance du 4 décembre 1944 réprimant la destruction de certains documents.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-369-etendant-aux-territoires-dependant-du-ministere-des-colonies-les-dispositions-de-lordonnance-du-4-decembre-1944-reprimant-la-destruction-de-certains-documents/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 01/04/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-369-etendant-aux-territoires-dependant-du-ministere-des-colonies-les-dispositions-de-lordonnance-du-4-decembre-1944-reprimant-la-destruction-de-certains-documents/>
 
 En vigueur : 1945-04-01 (date du Journal officiel qui le publie).
 

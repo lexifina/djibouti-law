@@ -1,6 +1,6 @@
 # Loi n° 37/AN/03/5ème L portant Règlement définitif du budget de l’État de l’Exercice 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-03-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n37-an-03-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2002/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 

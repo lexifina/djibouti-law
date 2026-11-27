@@ -1,6 +1,6 @@
 # Décret n° 92‑0017/PRE/DEF portant modificatif du décret n° 91‑168/PRE/DEF du 28 novembre 1991.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910017-pre-def-portant-modificatif-du-decret-n91%e2%80%91168-pre-def-du-28-novembre-1991/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910017-pre-def-portant-modificatif-du-decret-n91%e2%80%91168-pre-def-du-28-novembre-1991/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

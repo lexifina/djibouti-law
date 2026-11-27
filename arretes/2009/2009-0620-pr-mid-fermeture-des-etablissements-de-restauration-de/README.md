@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0620/PR/MID portant fermeture des établissements de restauration, de débits de boissons et spectacles pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0620-pr-mid-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0620-pr-mid-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

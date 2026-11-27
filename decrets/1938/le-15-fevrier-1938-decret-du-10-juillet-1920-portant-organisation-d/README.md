@@ -1,6 +1,6 @@
 # Décret n° le 15 février 1938 modifiant le décret du 10 juillet 1920 portant organisation du personnel des administrateurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 496 du 31/03/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-fevrier-1938-modifiant-le-decret-du-10-juillet-1920-portant-organisation-du-personnel-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 496 du 31/03/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-fevrier-1938-modifiant-le-decret-du-10-juillet-1920-portant-organisation-du-personnel-des-administrateurs-des-colonies/>
 
 En vigueur : 1938-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 06-268-1919 04/011919
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 268 du 28/02/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-268-1919-04-011919/>
+Décret · Journal officiel de la République de Djibouti, n° 268 du 28/02/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-268-1919-04-011919/>
 
 En vigueur : 1919-02-28 (date du Journal officiel qui le publie).
 

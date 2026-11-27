@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0802/PR/MID portant mise en place d’un comité d’organisation du symposium ministériel des pays du Golden Spear.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0802-pr-mid-portant-mise-en-place-dun-comite-dorganisation-du-symposium-ministeriel-des-pays-du-golden-spear/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0802-pr-mid-portant-mise-en-place-dun-comite-dorganisation-du-symposium-ministeriel-des-pays-du-golden-spear/>
 
 En vigueur : 2007-10-15 (date du Journal officiel qui le publie).
 

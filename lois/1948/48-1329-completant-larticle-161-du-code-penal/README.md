@@ -1,6 +1,6 @@
 # Loi n° 48-1329 complétant l’article 161 du Code pénal.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1948 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1329-completant-larticle-161-du-code-penal/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 31/12/1948 · <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1329-completant-larticle-161-du-code-penal/>
 
 En vigueur : 1948-12-31 (date du Journal officiel qui le publie).
 

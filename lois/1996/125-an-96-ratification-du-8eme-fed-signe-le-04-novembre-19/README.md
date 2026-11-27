@@ -1,6 +1,6 @@
 # Loi n° 125/AN/96/3ème L portant ratification du 8ème FED signé le 04 novembre 1995.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-96-3eme-l-portant-ratification-du-8eme-fed-signe-le-04-novembre-1995/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-96-3eme-l-portant-ratification-du-8eme-fed-signe-le-04-novembre-1995/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ El Hadj Hassan Gouled Aptidon
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

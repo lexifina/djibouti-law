@@ -1,6 +1,6 @@
 # Décret n° 09/09/1941 rendant applicable aux colonies la loi du 25 janvier 1941 relative au mariage par procuration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-09-1941-rendant-applicable-aux-colonies-la-loi-du-25-janvier-1941-relative-au-mariage-par-procuration/>
+Décret · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-09-1941-rendant-applicable-aux-colonies-la-loi-du-25-janvier-1941-relative-au-mariage-par-procuration/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

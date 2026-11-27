@@ -1,6 +1,6 @@
 # Loi n° 15/AN/08/6ème L portant dénonciation de deux Conventions Internationales du Travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-08-6eme-l-portant-denonciation-de-deux-conventions-internationales-du-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-08-6eme-l-portant-denonciation-de-deux-conventions-internationales-du-travail/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

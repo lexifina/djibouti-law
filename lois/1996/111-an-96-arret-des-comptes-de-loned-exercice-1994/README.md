@@ -1,6 +1,6 @@
 # Loi n° 111/AN/96/3e L portant arrêt des comptes de l’ONED exercice 1994.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-96-3e-l-portant-arret-des-comptes-de-loned-exercice-1994/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-96-3e-l-portant-arret-des-comptes-de-loned-exercice-1994/>
 
 En vigueur : 1996-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 197/AN/12/6ème L portant Budget de l’Etat pour l’exercice 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-12-6eme-l-portant-budget-de-letat-pour-lexercice-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-12-6eme-l-portant-budget-de-letat-pour-lexercice-2013/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

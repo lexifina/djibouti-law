@@ -1,6 +1,6 @@
 # Décret n° 07-443-1933 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 443 du 31/10/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-443-1933-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 443 du 31/10/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-443-1933-regime-financier-des-colonies/>
 
 En vigueur : 1933-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 7 Le décret étendant aux territoire relevant du Secrétariat d’Etat aux colonies es dispositions du décret du S juillet 1941 portant interdiction de condition, de diffusion et de vente d’hvmnes, chants ou poèmes d’inspiration communisle ou anarchiste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 537 du 31/08/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-le-decret-etendant-aux-territoire-relevant-du-secretariat-detat-aux-colonies-es-dispositions-du-decret-du-s-juillet-1941-portant-interdiction-de-condition-de-diffusion-et-de-vente/>
+Décret · Journal officiel de la République de Djibouti, n° 537 du 31/08/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-le-decret-etendant-aux-territoire-relevant-du-secretariat-detat-aux-colonies-es-dispositions-du-decret-du-s-juillet-1941-portant-interdiction-de-condition-de-diffusion-et-de-vente/>
 
 En vigueur : 1941-08-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ PLATON.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

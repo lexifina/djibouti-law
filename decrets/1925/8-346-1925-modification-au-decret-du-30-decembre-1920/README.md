@@ -1,6 +1,6 @@
 # Décret n° 8-346-1925 Modification au décret du 30 décembre 1920.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-346-1925-modification-au-decret-du-30-decembre-1920/>
+Décret · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-346-1925-modification-au-decret-du-30-decembre-1920/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 

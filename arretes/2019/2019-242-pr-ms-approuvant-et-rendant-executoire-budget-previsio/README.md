@@ -1,6 +1,6 @@
 # Arrêté n° 2019-242/PR/MS approuvant et rendant exécutoire Budget Prévisionnel 2020 de l’Hôpital Dar-El-Hanan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-242-pr-ms-approuvant-et-rendant-executoire-budget-previsionnel-2020-de-lhopital-dar-el-hanan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-242-pr-ms-approuvant-et-rendant-executoire-budget-previsionnel-2020-de-lhopital-dar-el-hanan/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

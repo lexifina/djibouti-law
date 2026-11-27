@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0043/PR/MESN portant approbation du Budget prévisionnel de l’exercice 2002 de l’Organisme de Protection Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0043-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2002-de-lorganisme-de-protection-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0043-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2002-de-lorganisme-de-protection-sociale/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

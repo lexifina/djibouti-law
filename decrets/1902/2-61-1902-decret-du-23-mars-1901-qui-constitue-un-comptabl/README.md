@@ -1,6 +1,6 @@
 # Décret n° 2-61-1902 du 23 Mars 1901 qui constitue un comptable en deniers l’agent comptable des timbres-poste coloniaux à Paris.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 61 du 15/06/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-61-1902-du-23-mars-1901-qui-constitue-un-comptable-en-deniers-lagent-comptable-des-timbres-poste-coloniaux-a-paris/>
+Décret · Journal officiel de la République de Djibouti, n° 61 du 15/06/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-61-1902-du-23-mars-1901-qui-constitue-un-comptable-en-deniers-lagent-comptable-des-timbres-poste-coloniaux-a-paris/>
 
 En vigueur : 1902-06-15 (date du Journal officiel qui le publie).
 

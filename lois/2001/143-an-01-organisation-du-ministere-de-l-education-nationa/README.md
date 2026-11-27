@@ -1,6 +1,6 @@
 # Loi n° 143/AN/01/4ème L portant Organisation du Ministère de l’Education Nationale et de l’Enseignement Supérieur (MENESUP).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-01-4eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-lenseignement-superieur-menesup/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-01-4eme-l-portant-organisation-du-ministere-de-leducation-nationale-et-de-lenseignement-superieur-menesup/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ ISMAÏL OMAR GUELLEH
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 91-0079/PR/MCTT rendant exécutoire la Résolution n° 4/90 du Conseil d’Administration de l’Aéroport de Djibouti et portant approbation du Budget Prévisionnel de l’Exercice 1991.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0079-pr-mctt-rendant-executoire-la-resolution-n4-90-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-previsionnel-de-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0079-pr-mctt-rendant-executoire-la-resolution-n4-90-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-previsionnel-de-l/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

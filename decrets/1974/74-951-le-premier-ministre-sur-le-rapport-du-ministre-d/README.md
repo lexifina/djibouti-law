@@ -1,6 +1,6 @@
 # Décret n° 74-951 Le Premier ministre, Sur le rapport du ministre de l’économie et des finances et du secréistaire d’Etat aux départements et territoires d’outre-mer. Vu la loi no 74-89% du 7 aontt 1974 relative A la radiodiffusion et à la télévision ;
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-951-le-premier-ministre-sur-le-rapport-du-ministre-de-leconomie-et-des-finances-et-du-secreistaire-detat-aux-departements-et-territoires-doutre-mer-vu/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/02/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-951-le-premier-ministre-sur-le-rapport-du-ministre-de-leconomie-et-des-finances-et-du-secreistaire-detat-aux-departements-et-territoires-doutre-mer-vu/>
 
 En vigueur : 1975-02-10 (date du Journal officiel qui le publie).
 

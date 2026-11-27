@@ -1,8 +1,8 @@
 # Arrêté n° 2007-0805/PR/MS relatif à la transformation du Centre de Formation du Personnel de Santé en Institut Supérieur des Sciences de la Santé (ISSS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0805-pr-ms-relatif-a-la-transformation-du-centre-de-formation-du-personnel-de-sante-en-institut-superieur-des-sciences-de-la-sante-isss/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0805-pr-ms-relatif-a-la-transformation-du-centre-de-formation-du-personnel-de-sante-en-institut-superieur-des-sciences-de-la-sante-isss/>
 
-En vigueur : 2007-10-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2007-10-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

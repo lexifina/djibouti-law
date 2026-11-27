@@ -1,6 +1,6 @@
 # Décret n° 19/03/937 19/03/1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 485 du 30/04/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-03-937-19-03-1937-4/>
+Décret · Journal officiel de la République de Djibouti, n° 485 du 30/04/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-03-937-19-03-1937-4/>
 
 En vigueur : 1937-04-30 (date du Journal officiel qui le publie).
 

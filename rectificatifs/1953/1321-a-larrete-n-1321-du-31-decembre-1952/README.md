@@ -1,6 +1,6 @@
 # Rectificatif n° 1321 à l’arrêté n° 1321 du 31 décembre 1952 .
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1321-a-larrete-n-1321-du-31-decembre-1952/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1321-a-larrete-n-1321-du-31-decembre-1952/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

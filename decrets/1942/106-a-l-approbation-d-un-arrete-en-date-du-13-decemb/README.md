@@ -1,6 +1,6 @@
 # Décret n° 106 relatif à l’approbation d’un arrêté en date du 13 décembre 1941 du Gouverneur de la Côte française des Somalis et dépendances, portant ouverture de crédits supplémentaires au budget local (exercice 1941).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-106-relatif-a-lapprobation-dun-arrete-en-date-du-13-decembre-1941-du-gouverneur-de-la-cote-francaise-des-somalis-et-dependances-portant-ouverture-de-credits-suppleme/>
+Décret · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-106-relatif-a-lapprobation-dun-arrete-en-date-du-13-decembre-1941-du-gouverneur-de-la-cote-francaise-des-somalis-et-dependances-portant-ouverture-de-credits-suppleme/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

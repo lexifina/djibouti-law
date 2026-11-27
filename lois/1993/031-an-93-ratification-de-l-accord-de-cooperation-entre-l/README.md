@@ -1,6 +1,6 @@
 # Loi n° 31/AN/93/3eme L portant ratification de l’accord de coopération entre l’ONUDI et la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-93-3eme-l-portant-ratification-de-laccord-de-cooperation-entre-lonudi-et-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-93-3eme-l-portant-ratification-de-laccord-de-cooperation-entre-lonudi-et-la-republique-de-djibouti/>
 
 En vigueur : 1993-08-31 (date du Journal officiel qui le publie).
 

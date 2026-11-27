@@ -1,6 +1,6 @@
 # Décret n° 4-38-1901 approuvant la convention passée, le 18 Avril 1901, entre le Ministre des colonies et M. de l’Enferna, pour l’établissement à Djibouti d’un entrepôt réel de douane et de magasins généraux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 38 du 01/07/1901 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-38-1901-approuvant-la-convention-passee-le-18-avril-1901-entre-le-ministre-des-colonies-et-m-de-lenferna-pour-letablissement-a-djibouti-dun-entrepot-reel-de-douane-et-de-mag/>
+Décret · Journal officiel de la République de Djibouti, n° 38 du 01/07/1901 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-38-1901-approuvant-la-convention-passee-le-18-avril-1901-entre-le-ministre-des-colonies-et-m-de-lenferna-pour-letablissement-a-djibouti-dun-entrepot-reel-de-douane-et-de-mag/>
 
 En vigueur : 1901-07-01 (date du Journal officiel qui le publie).
 

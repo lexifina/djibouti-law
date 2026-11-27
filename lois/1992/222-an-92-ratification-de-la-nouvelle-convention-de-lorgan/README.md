@@ -1,6 +1,6 @@
 # Loi n° 222/AN/92/2e L portant ratification de la nouvelle convention de l’Organisation Arabe de Télécommunications Spatiales (OATS).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-92-2e-l-portant-ratification-de-la-nouvelle-convention-de-lorganisation-arabe-de-telecommunications-spatiales-oats/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-92-2e-l-portant-ratification-de-la-nouvelle-convention-de-lorganisation-arabe-de-telecommunications-spatiales-oats/>
 
 En vigueur : 1992-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 10/02/1953 relatif à la publication, dans les Territoires relevant du Ministère de la France d’Outre-Mer, du décret n° 51-458 du 19 avril 1951 portant publication de la Convention de Berne pour la protection des œuvres littéraires et artistiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-02-1953-relatif-a-la-publication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-decret-n-51-458-du-19-avril-1951-portant-publication-de-la-conventio/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-02-1953-relatif-a-la-publication-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-du-decret-n-51-458-du-19-avril-1951-portant-publication-de-la-conventio/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

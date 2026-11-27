@@ -1,8 +1,8 @@
 # Arrêté n° 2012-169/PR/MDC fixant le contenu des Registres de Propriété Industrielle de l’Office Djiboutien de la Propriété Industrielle et Commerciale (ODPIC).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-169-pr-mdc-fixant-le-contenu-des-registres-de-propriete-industrielle-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-169-pr-mdc-fixant-le-contenu-des-registres-de-propriete-industrielle-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
 
-En vigueur : 2012-03-01 (date fixÃ©e par le texte).
+En vigueur : 2012-03-01 (date fixée par le texte).
 
 ## Visas
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 83-099/PR/FP fixant les conditions d’exercice du droit syndical et du droit de grève.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-099-pr-fp-fixant-les-conditions-dexercice-du-droit-syndical-et-du-droit-de-greve/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-099-pr-fp-fixant-les-conditions-dexercice-du-droit-syndical-et-du-droit-de-greve/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ HASSAN GOULED APTIDON
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Loi n° 196/AN/23/8ème L portant ratification de l’accord de financement entre la République de Djibouti et la Banque Mondiale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-23-8eme-l-portant-ratification-de-laccord-de-financement-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-23-8eme-l-portant-ratification-de-laccord-de-financement-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
 
-En vigueur : 2023-01-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-01-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

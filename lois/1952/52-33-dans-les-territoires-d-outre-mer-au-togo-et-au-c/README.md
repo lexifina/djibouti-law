@@ -1,6 +1,6 @@
 # Loi n° 52-33 instituant dans les territoires d’outre-mer, au Togo et au Cameroun, un système de perception immédiate d’amendes forfaitaires pour certaines contraventions de simple police.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/11/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-52-33-instituant-dans-les-territoires-doutre-mer-au-togo-et-au-cameroun-un-systeme-de-perception-immediate-damendes-forfaitaires-pour-certaines-contraventions-de-simpl/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 01/11/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-52-33-instituant-dans-les-territoires-doutre-mer-au-togo-et-au-cameroun-un-systeme-de-perception-immediate-damendes-forfaitaires-pour-certaines-contraventions-de-simpl/>
 
 En vigueur : 1953-11-01 (date du Journal officiel qui le publie).
 

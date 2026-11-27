@@ -1,8 +1,8 @@
 # Décret n° 2018-350/PR/MERN portant modification du Décret n° 2017-025/PRE portant constitution du Conseil d’Administration de la Société International Djibouti Industrial Parks Operation FZCO.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-350-pr-mern-portant-modification-du-decret-n2017-025-pre-portant-constitution-du-conseil-dadministration-de-la-societe-international-djibouti-industrial-parks-operation-fzc/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-350-pr-mern-portant-modification-du-decret-n2017-025-pre-portant-constitution-du-conseil-dadministration-de-la-societe-international-djibouti-industrial-parks-operation-fzc/>
 
-En vigueur : 2018-11-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-11-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 22 février 1937 22 février 1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-fevrier-1937-22-fevrier-1937/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-fevrier-1937-22-fevrier-1937/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ Marins MOUTET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 er– |
+| [art-001.md](art-001.md) | Art. 1 er |
 | [art-002.md](art-002.md) | Art. 2 |

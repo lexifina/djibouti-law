@@ -1,8 +1,8 @@
 # Décret n° 2001-0184/PR/MHUEAT portant création d’un Fonds de l’Habitat et la Gestion des Établissements Humains.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0184-pr-mhueat-portant-creation-dun-fonds-de-lhabitat-et-la-gestion-des-etablissements-humains/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0184-pr-mhueat-portant-creation-dun-fonds-de-lhabitat-et-la-gestion-des-etablissements-humains/>
 
-En vigueur : 2001-09-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2001-09-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

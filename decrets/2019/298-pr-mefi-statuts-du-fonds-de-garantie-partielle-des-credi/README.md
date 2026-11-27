@@ -1,6 +1,6 @@
 # Décret n° 298/PR/MEFI portant Statuts du Fonds de Garantie Partielle des Crédits de Djibouti (FGPCD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n298-pr-mefi-portant-statuts-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 28/11/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n298-pr-mefi-portant-statuts-du-fonds-de-garantie-partielle-des-credits-de-djibouti-fgpcd/>
 
 En vigueur : 2019-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

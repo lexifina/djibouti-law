@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 _ Article premier — Est rendue exécutoire la résolution n° 06 / 88 du 6 novembre 1988 du conseil d’administration d’Aéroport de Djibouti et portant approbation du budget prévisionnel d’Aéroport de Djibouti pour l’exercice 1989 et qui est arrêté de la facon suivante :
 1. – Budget de fonctionnement :
 Recettes………………….738 480 000 FD

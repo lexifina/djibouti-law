@@ -1,6 +1,6 @@
 # Décret n° 2018-039/PRE portant création d’une Direction de l’Intelligence Numérique au sein de la Direction Générale de la Sécurité Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-039-pre-portant-creation-dune-direction-de-lintelligence-numerique-au-sein-de-la-direction-generale-de-la-securite-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-039-pre-portant-creation-dune-direction-de-lintelligence-numerique-au-sein-de-la-direction-generale-de-la-securite-nationale/>
 
 En vigueur : 2018-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0163/PR/MI fixant les modalités d’organisation du scrutin du vendredi 18 décembre 1997 et relatif aux prochaines élections législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0163-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-vendredi-18-decembre-1997-et-relatif-aux-prochaines-elections-legislatives/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/11/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0163-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-vendredi-18-decembre-1997-et-relatif-aux-prochaines-elections-legislatives/>
 
 En vigueur : 1997-11-15 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ HASSAN GOULED APTIDON
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

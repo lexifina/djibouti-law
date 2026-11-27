@@ -1,6 +1,6 @@
 # Décret n° 2001-0125/PR/MET portant réglementation de la Profession d’Avitailleur de navires au Port de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0125-pr-met-portant-reglementation-de-la-profession-davitailleur-de-navires-au-port-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0125-pr-met-portant-reglementation-de-la-profession-davitailleur-de-navires-au-port-de-djibouti/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

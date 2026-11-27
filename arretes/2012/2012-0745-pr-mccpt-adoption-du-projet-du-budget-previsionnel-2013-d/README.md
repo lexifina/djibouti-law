@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0745/PR/MCCPT portant adoption du projet du Budget prévisionnel 2013 de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0745-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2013-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0745-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2013-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

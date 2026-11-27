@@ -1,6 +1,6 @@
 # Décret n° 46-2438 por tant règlement d’administration publique pour l’application des articles 10 et 11 de la loi n* 46-729 portant amnistie (16 avril 1946).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2438-por-tant-reglement-dadministration-publique-pour-lapplication-des-articles-10-et-11-de-la-loi-n-46-729-portant-amnistie-16-avril-1946/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2438-por-tant-reglement-dadministration-publique-pour-lapplication-des-articles-10-et-11-de-la-loi-n-46-729-portant-amnistie-16-avril-1946/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ Le Ministre de la santé publique, René ARTHAUD.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

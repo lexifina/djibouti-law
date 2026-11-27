@@ -1,6 +1,6 @@
 # Loi n° 101/AN/84/1re L portant organisation du Ministère des Affaires Étrangères et de la coopération.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-84-1re-l-portant-organisation-du-ministere-des-affaires-etrangeres-et-de-la-cooperation/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n101-an-84-1re-l-portant-organisation-du-ministere-des-affaires-etrangeres-et-de-la-cooperation/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 

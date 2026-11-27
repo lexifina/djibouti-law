@@ -1,6 +1,6 @@
 # Décret n° 86-029/PR portant création de charges d’huissier de justice en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-029-pr-portant-creation-de-charges-dhuissier-de-justice-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/04/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-029-pr-portant-creation-de-charges-dhuissier-de-justice-en-republique-de-djibouti/>
 
 En vigueur : 1986-04-30 (date du Journal officiel qui le publie).
 

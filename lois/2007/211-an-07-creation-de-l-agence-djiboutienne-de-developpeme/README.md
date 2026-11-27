@@ -1,6 +1,6 @@
 # Loi n° 211/AN/07/5ème L portant création de l’Agence Djiboutienne de Développement Social (ADDS).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-07-5eme-l-portant-creation-de-lagence-djiboutienne-de-developpement-social-adds/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-07-5eme-l-portant-creation-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

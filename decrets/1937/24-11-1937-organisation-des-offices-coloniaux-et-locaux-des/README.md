@@ -1,6 +1,6 @@
 # Décret n° 24/11/1937 portant organisation des offices coloniaux et locaux des mutilés, combattants, victimes de la guerre et pupilles de la nation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 493 du 31/12/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-11-1937-portant-organisation-des-offices-coloniaux-et-locaux-des-mutiles-combattants-victimes-de-la-guerre-et-pupilles-de-la-nation/>
+Décret · Journal officiel de la République de Djibouti, n° 493 du 31/12/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-11-1937-portant-organisation-des-offices-coloniaux-et-locaux-des-mutiles-combattants-victimes-de-la-guerre-et-pupilles-de-la-nation/>
 
 En vigueur : 1937-12-31 (date du Journal officiel qui le publie).
 
@@ -76,4 +76,4 @@ Georges BONNET.
 | [art-037.md](art-037.md) | Art. 37 |
 | [art-038.md](art-038.md) | Art. 38 |
 | [art-039.md](art-039.md) | Art. 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

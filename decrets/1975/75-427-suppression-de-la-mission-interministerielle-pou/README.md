@@ -1,6 +1,6 @@
 # Décret n° 75-427 portant suppression de la mission interministérielle pour le développement du tourisme dans les départements et territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 10/06/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-427-portant-suppression-de-la-mission-interministerielle-pour-le-developpement-du-tourisme-dans-les-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 10/06/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-427-portant-suppression-de-la-mission-interministerielle-pour-le-developpement-du-tourisme-dans-les-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1975-06-10 (date du Journal officiel qui le publie).
 

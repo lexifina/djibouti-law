@@ -1,6 +1,6 @@
 # Loi n° 162/AN/91/2ème L approuvant le compte administratif pour l’exercice 1989 de l’Établissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-91-2eme-l-approuvant-le-compte-administratif-pour-lexercice-1989-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-91-2eme-l-approuvant-le-compte-administratif-pour-lexercice-1989-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 

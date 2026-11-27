@@ -1,6 +1,6 @@
 # Décret n° le 7 avril 1938. modifiant le décret du 24 octobre 1922 fixant les caractères des liqueurs similaires de l’abstinthe.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-7-avril-1938-modifiant-le-decret-du-24-octobre-1922-fixant-les-caracteres-des-liqueurs-similaires-de-labstinthe/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-7-avril-1938-modifiant-le-decret-du-24-octobre-1922-fixant-les-caracteres-des-liqueurs-similaires-de-labstinthe/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

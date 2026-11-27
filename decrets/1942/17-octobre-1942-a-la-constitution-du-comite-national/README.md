@@ -1,6 +1,6 @@
 # Décret n° 17 octobre 1942 relatif à la constitution du Comité National.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-octobre-1942-relatif-a-la-constitution-du-comite-national/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-octobre-1942-relatif-a-la-constitution-du-comite-national/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

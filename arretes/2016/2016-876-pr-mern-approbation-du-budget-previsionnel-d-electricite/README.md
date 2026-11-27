@@ -1,6 +1,6 @@
 # Arrêté n° 2016-876/PR/MERN portant approbation du Budget Prévisionnel d’Electricité de Djibouti pour l’exercice 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-876-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-876-pr-mern-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-pour-lexercice-2017/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

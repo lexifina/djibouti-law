@@ -1,6 +1,6 @@
 # Décret n° 86-015/PR approuvant et rendant exécutoire le Budget Primitif 1986 de l’Office National d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/03/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-015-pr-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/03/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-015-pr-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1986-03-16 (date du Journal officiel qui le publie).
 

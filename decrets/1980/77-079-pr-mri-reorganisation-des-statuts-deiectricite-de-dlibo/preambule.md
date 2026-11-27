@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Les statuts d’Electricité de Djibouti, réorganisés par l’arrêté n° 73-1477/SG/CG du 10 octobre 1973, sont abrogés et remplacés par les suivants :
 ELECTRICITE DE DJIBOUTI
 STATUTS

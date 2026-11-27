@@ -1,6 +1,6 @@
 # Décret n° 05-60-1902 Texte du décret et de la loi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 60 du 01/06/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-60-1902-texte-du-decret-et-de-la-loi/>
+Décret · Journal officiel de la République de Djibouti, n° 60 du 01/06/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-60-1902-texte-du-decret-et-de-la-loi/>
 
 En vigueur : 1902-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 86-111/PRE/DEF portant homologation d’un champ de tir PA-PM à Doralé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-111-pre-def-portant-homologation-dun-champ-de-tir-pa-pm-a-dorale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-111-pre-def-portant-homologation-dun-champ-de-tir-pa-pm-a-dorale/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

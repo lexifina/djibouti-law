@@ -1,6 +1,6 @@
 # Décret n° 71-424 portant code du service national (promuleuée par arrêté n° 487/SLAG du 2 juillet 1971)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 26/07/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-424-portant-code-du-service-national-promuleuee-par-arrete-n-487-slag-du-2-juillet-1971/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 26/07/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-424-portant-code-du-service-national-promuleuee-par-arrete-n-487-slag-du-2-juillet-1971/>
 
 En vigueur : 1971-07-26 (date du Journal officiel qui le publie).
 
@@ -43,6 +43,6 @@ Henri DUVILLARD,.
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

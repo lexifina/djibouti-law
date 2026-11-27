@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0462/PR/MEFPCP portant attribution à l’Union pour le Développement Culturel, une parcelle de terrain sise aux Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0462-pr-mefpcp-portant-attribution-a-lunion-pour-le-developpement-culturel-une-parcelle-de-terrain-sise-aux-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0462-pr-mefpcp-portant-attribution-a-lunion-pour-le-developpement-culturel-une-parcelle-de-terrain-sise-aux-salines-ouest/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

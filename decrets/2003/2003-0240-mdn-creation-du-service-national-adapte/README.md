@@ -1,6 +1,6 @@
 # Décret n° 2003-0240/MDN portant création du Service National Adapté.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0240-mdn-portant-creation-du-service-national-adapte/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0240-mdn-portant-creation-du-service-national-adapte/>
 
 En vigueur : 2003-12-31 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

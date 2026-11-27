@@ -1,6 +1,6 @@
 # Décret n° 2023-083/PRE réorganiation du cadre institutionnel chargé de la Lutte contre le Terrorisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-083-pre-reorganiation-du-cadre-institutionnel-charge-de-la-lutte-contre-le-terrorisme/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-083-pre-reorganiation-du-cadre-institutionnel-charge-de-la-lutte-contre-le-terrorisme/>
 
 En vigueur : 2023-03-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

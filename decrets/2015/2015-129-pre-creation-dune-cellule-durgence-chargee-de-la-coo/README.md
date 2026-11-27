@@ -1,8 +1,8 @@
 # Décret n° 2015-129/PRE portant création d’une Cellule d’Urgence chargée de la Coordination de l’aide aux réfugiés du Yémen.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-129-pre-portant-creation-dune-cellule-durgence-chargee-de-la-coordination-de-laide-aux-refugies-du-yemen/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-129-pre-portant-creation-dune-cellule-durgence-chargee-de-la-coordination-de-laide-aux-refugies-du-yemen/>
 
-En vigueur : 2015-04-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-04-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

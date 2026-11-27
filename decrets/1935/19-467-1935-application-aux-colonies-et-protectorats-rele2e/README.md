@@ -1,6 +1,6 @@
 # Décret n° 19-467-1935 Application aux colonies et protectorats rele2e vant du ministère des colonies, à l’exception de l’Indochine et de la Nouvelle-Calédonie ne et dépendances, et aux territoires du Cameroun et du Togo, de la loi du 15 janvier 1950 abrogeant le paraphe et le visa annuels du livre-journal et du livre d’invenitaires prescrits par l’article 10 du code de commerces
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-467-1935-application-aux-colonies-et-protectorats-rele2e-vant-du-ministere-des-colonies-a-lexception-de-lindochine-et-de-la-nouvelle-caledonie-ne-et-dependances-et-aux/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-467-1935-application-aux-colonies-et-protectorats-rele2e-vant-du-ministere-des-colonies-a-lexception-de-lindochine-et-de-la-nouvelle-caledonie-ne-et-dependances-et-aux/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Louis ROLLIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art.2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

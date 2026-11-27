@@ -1,6 +1,6 @@
 # Loi n° 180/AN/85/1re L portant ratification de l’acte constitutif de l’Organisation des Nations unies pour le Développement industriel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-85-1re-l-portant-ratification-de-lacte-constitutif-de-lorganisation-des-nations-unies-pour-le-developpement-industriel/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-85-1re-l-portant-ratification-de-lacte-constitutif-de-lorganisation-des-nations-unies-pour-le-developpement-industriel/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2021-298/PR/MFF portant modification de l’article 6 du Décret n° 2021-194/PR/MEFF portant création et organisation de la plateforme de protection de l’Enfant en République de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-298-pr-mff-portant-modification-de-larticle-6-du-decret-n2021-194-pr-meff-portant-creation-et-organisation-de-la-plateforme-de-protection-de-lenfant-en-republique-de-djibo/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-298-pr-mff-portant-modification-de-larticle-6-du-decret-n2021-194-pr-meff-portant-creation-et-organisation-de-la-plateforme-de-protection-de-lenfant-en-republique-de-djibo/>
 
 En vigueur : 2021-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

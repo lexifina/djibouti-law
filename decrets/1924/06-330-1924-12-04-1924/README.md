@@ -1,6 +1,6 @@
 # Décret n° 06-330-1924 12/04/1924
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 330 du 31/05/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-330-1924-12-04-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 330 du 31/05/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-330-1924-12-04-1924/>
 
 En vigueur : 1924-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2005-0046/PR/MEFPCP portant distribution des Dividendes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0046-pr-mefpcp-portant-distribution-des-dividendes/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0046-pr-mefpcp-portant-distribution-des-dividendes/>
 
 En vigueur : 2005-03-31 (date du Journal officiel qui le publie).
 

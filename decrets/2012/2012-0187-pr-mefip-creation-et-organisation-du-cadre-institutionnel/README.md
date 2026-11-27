@@ -1,6 +1,6 @@
 # Décret n° 2012-0187/PR/MEFIP portant création et organisation du Cadre Institutionnel pour le Dialogue Gouvernement-Partenaires Techniques et Financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0187-pr-mefip-portant-creation-et-organisation-du-cadre-institutionnel-pour-le-dialogue-gouvernement-partenaires-techniques-et-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/08/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0187-pr-mefip-portant-creation-et-organisation-du-cadre-institutionnel-pour-le-dialogue-gouvernement-partenaires-techniques-et-financiers/>
 
 En vigueur : 2012-08-30 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

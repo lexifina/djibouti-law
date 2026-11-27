@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2538 réprimant certaines évasions.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1951 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2538-reprimant-certaines-evasions/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 31/01/1951 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2538-reprimant-certaines-evasions/>
 
 En vigueur : 1951-01-31 (date du Journal officiel qui le publie).
 

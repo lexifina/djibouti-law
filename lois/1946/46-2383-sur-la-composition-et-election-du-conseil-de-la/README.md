@@ -1,6 +1,6 @@
 # Loi n° 46-2383 sur la composition et ‘élection du Conseil de la République.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2383-sur-la-composition-et-election-du-conseil-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-2383-sur-la-composition-et-election-du-conseil-de-la-republique/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ Marius MOUTET.
 | [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 24 février 1937 Service de la gendarmerie détachée aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-fevrier-1937-service-de-la-gendarmerie-detachee-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-fevrier-1937-service-de-la-gendarmerie-detachee-aux-colonies/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

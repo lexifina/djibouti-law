@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Les collèges électoraux des territoires relevant du ministère de la France d’outre-mer autres que les Etablissements francais de l’Océanie sont convoqués pour le dimanche 10 novembre 1946, en vue de procéder
 soit à l’élection d’une Assemblée nationael dans les formes prévues par la loi susvisée du 3 octobre 146, modifiée par la loi du 7 octobre 1846 si le corps électoral des citoyens francais a approuvé la Constitution soumise au referendum soit à l’élection d’une Assemblée constituante dans les formes prévues par l’ordonnance susvisée du 22 août 1945 si le corps électoral des citoyens francais a rejeté la Constitution soumise au referendum,

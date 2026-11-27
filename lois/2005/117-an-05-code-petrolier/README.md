@@ -1,6 +1,6 @@
 # Loi n° 117/AN/05/5ème L portant Code Pétrolier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/10/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-05-5eme-l-portant-code-petrolier/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 31/10/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-05-5eme-l-portant-code-petrolier/>
 
 En vigueur : 2005-10-31 (date du Journal officiel qui le publie).
 
@@ -90,4 +90,4 @@ ISMAÏL OMAR GUELLEH
 | [art-069.md](art-069.md) | Article 69 |
 | [art-070.md](art-070.md) | Article 70 |
 | [art-071.md](art-071.md) | Article 71 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

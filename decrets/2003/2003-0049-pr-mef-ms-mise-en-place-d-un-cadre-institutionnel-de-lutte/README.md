@@ -1,8 +1,8 @@
 # Décret n° 2003-0049/PR/MEF/MS portant mise en place d’un cadre institutionnel de lutte contre le Sida, le Paludisme et la Tuberculose.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0049-pr-mef-ms-portant-mise-en-place-dun-cadre-institutionnel-de-lutte-contre-le-sida-le-paludisme-et-la-tuberculose/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0049-pr-mef-ms-portant-mise-en-place-dun-cadre-institutionnel-de-lutte-contre-le-sida-le-paludisme-et-la-tuberculose/>
 
-En vigueur : 2003-03-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-03-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

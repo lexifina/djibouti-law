@@ -1,6 +1,6 @@
 # Décret n° 4-307-1922 relatif à la clôture du compte ‘’ flotte de gérance” et à l’attribution des navires de commerce appartenant à l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 307 du 30/06/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-307-1922-relatif-a-la-cloture-du-compte-flotte-de-gerance-et-a-lattribution-des-navires-de-commerce-appartenant-a-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 307 du 30/06/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-307-1922-relatif-a-la-cloture-du-compte-flotte-de-gerance-et-a-lattribution-des-navires-de-commerce-appartenant-a-letat/>
 
 En vigueur : 1922-06-30 (date du Journal officiel qui le publie).
 

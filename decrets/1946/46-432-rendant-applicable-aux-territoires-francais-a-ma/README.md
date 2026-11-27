@@ -1,6 +1,6 @@
 # Décret n° 46-432 rendant applicable aux territoires Français à Madagascar et dépendances, à la Côte française des Somalis, aux Etablissements français de l’Inde et de l’Océanie, à fa Guyane, à la Nouvelle-Calédonie et dépendances, au Togo et au Cameroun, les titre 1er et II de la loi du 1er juillet 1901.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-432-rendant-applicable-aux-territoires-francais-a-madagascar-et-dependances-a-la-cote-francaise-des-somalis-aux-etablissements-francais-de-linde-et-de-loceanie-a-fa-guyane/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-432-rendant-applicable-aux-territoires-francais-a-madagascar-et-dependances-a-la-cote-francaise-des-somalis-aux-etablissements-francais-de-linde-et-de-loceanie-a-fa-guyane/>
 
 En vigueur : 1950-06-30 (date du Journal officiel qui le publie).
 

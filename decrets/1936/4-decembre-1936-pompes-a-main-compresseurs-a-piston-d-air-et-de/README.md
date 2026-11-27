@@ -1,6 +1,6 @@
 # Décret n° 4 décembre 1936. POMPES A MAIN, COMPRESSEURS A PISTON D’AIR ET DE GAZ DIVERS
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-decembre-1936-pompes-a-main-compresseurs-a-piston-dair-et-de-gaz-divers/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-decembre-1936-pompes-a-main-compresseurs-a-piston-dair-et-de-gaz-divers/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

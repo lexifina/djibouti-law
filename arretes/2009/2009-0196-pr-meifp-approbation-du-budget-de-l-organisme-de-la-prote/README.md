@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0196/PR/MEIFP portant approbation du Budget de l’Organisme de la Protection Sociale pour l’Exercice 2009.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0196-pr-meifp-portant-approbation-du-budget-de-lorganisme-de-la-protection-sociale-pour-lexercice-2009/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0196-pr-meifp-portant-approbation-du-budget-de-lorganisme-de-la-protection-sociale-pour-lexercice-2009/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Amendement n° 1 077 accordant la sujétion française au nommé Farath Ali
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-1-077-accordant-la-sujetion-francaise-au-nomme-farath-ali/>
+Amendement · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-1-077-accordant-la-sujetion-francaise-au-nomme-farath-ali/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

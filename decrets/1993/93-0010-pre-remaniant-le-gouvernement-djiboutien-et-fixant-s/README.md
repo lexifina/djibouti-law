@@ -1,6 +1,6 @@
 # Décret n° 93‑0010/PRE remaniant le Gouvernement Djiboutien et fixant ses attributions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910010-pre-remaniant-le-gouvernement-djiboutien-et-fixant-ses-attributions/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910010-pre-remaniant-le-gouvernement-djiboutien-et-fixant-ses-attributions/>
 
 En vigueur : 1993-02-15 (date du Journal officiel qui le publie).
 

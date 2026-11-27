@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0310/PRE portant exonérations de taxes et droits au profit de la Fondation Diwan Az Zakat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 29/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0310-pre-portant-exonerations-de-taxes-et-droits-au-profit-de-la-fondation-diwan-az-zakat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 29/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0310-pre-portant-exonerations-de-taxes-et-droits-au-profit-de-la-fondation-diwan-az-zakat/>
 
 En vigueur : 2010-04-29 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

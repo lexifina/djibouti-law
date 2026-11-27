@@ -1,6 +1,6 @@
 # Décret n° 06-190-1912 2 juillet 1912.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 190 du 30/09/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-190-1912-2-juillet-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 190 du 30/09/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-190-1912-2-juillet-1912/>
 
 En vigueur : 1912-09-30 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ LEBRUN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

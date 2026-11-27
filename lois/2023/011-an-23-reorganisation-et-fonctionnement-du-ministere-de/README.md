@@ -1,8 +1,8 @@
 # Loi n° 11/AN/23/9ème L portant réorganisation et fonctionnement du Ministère de la Santé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-23-9eme-l-portant-reorganisation-et-fonctionnement-du-ministere-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-23-9eme-l-portant-reorganisation-et-fonctionnement-du-ministere-de-la-sante/>
 
-En vigueur : 2023-07-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-07-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

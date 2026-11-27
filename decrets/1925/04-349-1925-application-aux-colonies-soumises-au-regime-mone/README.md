@@ -1,6 +1,6 @@
 # Décret n° 04-349-1925 Application aux colonies soumises au régime monétaire métropolitain de la loi du 15 août 1923 modifiant certaines dispositions de la loi du 1‘: avril 1898.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 349 du 31/12/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-349-1925-application-aux-colonies-soumises-au-regime-monetaire-metropolitain-de-la-loi-du-15-aout-1923-modifiant-certaines-dispositions-de-la-loi-du-1-avril-1898/>
+Décret · Journal officiel de la République de Djibouti, n° 349 du 31/12/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-349-1925-application-aux-colonies-soumises-au-regime-monetaire-metropolitain-de-la-loi-du-15-aout-1923-modifiant-certaines-dispositions-de-la-loi-du-1-avril-1898/>
 
 En vigueur : 1925-12-31 (date du Journal officiel qui le publie).
 

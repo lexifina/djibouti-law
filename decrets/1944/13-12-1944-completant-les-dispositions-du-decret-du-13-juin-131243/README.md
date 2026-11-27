@@ -1,6 +1,6 @@
 # Décret n° 13/12/1944 complétant les dispositions du décret du 13 juin 1912 portant règlement des indemnité allouées aux fonctionnaires, employés et agents civils des services coloniaux ou locaux voyageant isolément dans les colonies et pays de protectorat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-12-1944-completant-les-dispositions-du-decret-du-13-juin-1912-portant-reglement-des-indemnite-allouees-aux-fonctionnaires-employes-et-agents-civils-des-services-coloniaux-ou-locaux/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-12-1944-completant-les-dispositions-du-decret-du-13-juin-1912-portant-reglement-des-indemnite-allouees-aux-fonctionnaires-employes-et-agents-civils-des-services-coloniaux-ou-locaux/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

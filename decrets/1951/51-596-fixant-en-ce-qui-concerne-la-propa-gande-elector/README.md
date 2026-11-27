@@ -1,6 +1,6 @@
 # Décret n° 51-596 fixant, en ce qui concerne la propagande électorale, les modalités d’application de l’article 12 de la loi n° 51-586 du 23 mai 1951 relative à l’éleciton des députés à l’Assemblée Nationale dans les Territoires rele- ‘ vaut du Ministère de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-596-fixant-en-ce-qui-concerne-la-propagande-electorale-les-modalites-dapplication-de-larticle-12-de-la-loi-n-51-586-du-23-mai-1951-relative-a-leleciton-des-deputes-a/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-596-fixant-en-ce-qui-concerne-la-propagande-electorale-les-modalites-dapplication-de-larticle-12-de-la-loi-n-51-586-du-23-mai-1951-relative-a-leleciton-des-deputes-a/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 82-050/PR/TP portant sur la classification du réseau routier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-050-pr-tp-portant-sur-la-classification-du-reseau-routier/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-050-pr-tp-portant-sur-la-classification-du-reseau-routier/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

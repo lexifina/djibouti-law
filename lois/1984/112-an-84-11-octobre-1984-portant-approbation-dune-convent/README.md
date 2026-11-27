@@ -1,6 +1,6 @@
 # Loi n° 112/AN/84/1re L DU 11 OCTOBRE 1984 portant approbation d’une convention de crédit entre la République de Djibouti et la Caisse centrale de Coopération économique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-84-1re-l-du-11-octobre-1984-portant-approbation-dune-convention-de-credit-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-84-1re-l-du-11-octobre-1984-portant-approbation-dune-convention-de-credit-entre-la-republique-de-djibouti-et-la-caisse-centrale-de-cooperation-economique/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

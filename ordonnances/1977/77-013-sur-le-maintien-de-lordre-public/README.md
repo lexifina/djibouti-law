@@ -1,6 +1,6 @@
 # Ordonnance n° 77-013 sur le maintien de l’ordre public.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/08/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-013-sur-le-maintien-de-lordre-public/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 15/08/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-013-sur-le-maintien-de-lordre-public/>
 
 En vigueur : 1977-08-15 (date du Journal officiel qui le publie).
 

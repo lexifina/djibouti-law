@@ -1,6 +1,6 @@
 # Loi n° 138/AN/90/2ème L portant modification du budget de l’État de l’exercice 1989.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-90-2eme-l-portant-modification-du-budget-de-letat-de-lexercice-1989/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n138-an-90-2eme-l-portant-modification-du-budget-de-letat-de-lexercice-1989/>
 
 En vigueur : 1991-01-15 (date du Journal officiel qui le publie).
 

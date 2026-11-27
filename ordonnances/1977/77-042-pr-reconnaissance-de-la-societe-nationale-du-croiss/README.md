@@ -1,6 +1,6 @@
 # Ordonnance n° 77-042/PR portant reconnaissance de la Société nationale du Croissant-Rouge.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 24/10/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-042-pr-portant-reconnaissance-de-la-societe-nationale-du-croissant-rouge/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 24/10/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-042-pr-portant-reconnaissance-de-la-societe-nationale-du-croissant-rouge/>
 
 En vigueur : 1977-10-24 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1543 réglant l’organisation et le statut du personnel des services des travaux publics, des mines et des techniciens industrielles, relevant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1543-reglant-lorganisation-et-le-statut-du-personnel-des-services-des-travaux-publics-des-mines-et-des-techniciens-industrielles-relevant-du-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1543-reglant-lorganisation-et-le-statut-du-personnel-des-services-des-travaux-publics-des-mines-et-des-techniciens-industrielles-relevant-du-ministere-des-colonies/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

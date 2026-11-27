@@ -1,6 +1,6 @@
 # Décret n° 2026-022/PR/MJC portant classement du site d’art rupestre d’Abourma au patrimoine culturel national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 29/01/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-022-pr-mjc-portant-classement-du-site-dart-rupestre-dabourma-au-patrimoine-culturel-national/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 29/01/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-022-pr-mjc-portant-classement-du-site-dart-rupestre-dabourma-au-patrimoine-culturel-national/>
 
 En vigueur : 2026-01-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

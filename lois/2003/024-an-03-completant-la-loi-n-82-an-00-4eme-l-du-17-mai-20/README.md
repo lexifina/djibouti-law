@@ -1,6 +1,6 @@
 # Loi n° 24/AN/03/5ème L complétant la loi n° 82/AN/00/4ème L du 17 mai 2000 portant attribution et organisation du Ministère de l’Habitat, de l’Urbanisme, de l’Environnement et de l’Aménagement du Territoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-03-5eme-l-completant-la-loi-n82-an-00-4eme-l-du-17-mai-2000-portant-attribution-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironne/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 30/09/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-03-5eme-l-completant-la-loi-n82-an-00-4eme-l-du-17-mai-2000-portant-attribution-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironne/>
 
 En vigueur : 2003-09-30 (date du Journal officiel qui le publie).
 

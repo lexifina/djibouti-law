@@ -1,6 +1,6 @@
 # Loi n° 218/AN/92/2e L portant ratification de l’accord coopération économique et technique entre le Gouvernement de la République de Djibouti et le Gouvernement de la Corée du Sud.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-92-2e-l-portant-ratification-de-laccord-cooperation-economique-et-technique-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-coree-du-sud/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-92-2e-l-portant-ratification-de-laccord-cooperation-economique-et-technique-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-coree-du-sud/>
 
 En vigueur : 1992-10-31 (date du Journal officiel qui le publie).
 

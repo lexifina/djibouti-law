@@ -1,6 +1,6 @@
 # Décret n° 2008-0219/PR/MEIFP portant modification du Décret n° 2008-0105/PR/MEIFP relatif au Conseil d’Administration de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0219-pr-meifp-portant-modification-du-decret-n2008-0105-pr-meifp-relatif-au-conseil-dadministration-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-p/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0219-pr-meifp-portant-modification-du-decret-n2008-0105-pr-meifp-relatif-au-conseil-dadministration-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-p/>
 
 En vigueur : 2008-08-31 (date du Journal officiel qui le publie).
 

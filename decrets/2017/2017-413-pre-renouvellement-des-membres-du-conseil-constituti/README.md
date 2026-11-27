@@ -1,6 +1,6 @@
 # Décret n° 2017-413/PRE portant renouvellement des membres du Conseil Constitutionnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-413-pre-portant-renouvellement-des-membres-du-conseil-constitutionnel/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-413-pre-portant-renouvellement-des-membres-du-conseil-constitutionnel/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

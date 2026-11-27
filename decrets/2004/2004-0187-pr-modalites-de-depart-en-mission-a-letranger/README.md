@@ -1,6 +1,6 @@
 # Décret n° 2004-0187/PR fixant les modalités de départ en mission à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0187-pr-fixant-les-modalites-de-depart-en-mission-a-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0187-pr-fixant-les-modalites-de-depart-en-mission-a-letranger/>
 
 En vigueur : 2004-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 18 février 1942 relatif aux organismes britanniques d’assurances dans les territoires relevant du secrétariat d’Etat aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1942-relatif-aux-organismes-britanniques-dassurances-dans-les-territoires-relevant-du-secretariat-detat-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1942-relatif-aux-organismes-britanniques-dassurances-dans-les-territoires-relevant-du-secretariat-detat-aux-colonies/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 18 janvier 1941 relatif à la sauvegarde des biens, droits et et intérêts appartenant à des personnes physiques ou morales non présentes ou non représentées sur les territoires de l’Afrique Equatoriale Française et du Cameroun Français.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-janvier-1941-relatif-a-la-sauvegarde-des-biens-droits-et-et-interets-appartenant-a-des-personnes-physiques-ou-morales-non-presentes-ou-non-representees-sur-les-territoires-de-laf/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-janvier-1941-relatif-a-la-sauvegarde-des-biens-droits-et-et-interets-appartenant-a-des-personnes-physiques-ou-morales-non-presentes-ou-non-representees-sur-les-territoires-de-laf/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

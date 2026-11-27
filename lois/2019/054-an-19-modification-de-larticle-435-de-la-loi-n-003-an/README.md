@@ -1,6 +1,6 @@
 # Loi n° 54/AN/19/8ème L portant modification de l’article 435 de la Loi n° 003/AN/18/8ème L du 12 avril 2018 portant Code Civil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-19-8eme-l-portant-modification-de-larticle-435-de-la-loi-n003-an-18-8eme-l-du-12-avril-2018-portant-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-19-8eme-l-portant-modification-de-larticle-435-de-la-loi-n003-an-18-8eme-l-du-12-avril-2018-portant-code-civil/>
 
 En vigueur : 2019-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 32/AN/18/8ème L portant ratification de la Convention de financement pour l’achat de produits pétroliers raffinés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-18-8eme-l-portant-ratification-de-la-convention-de-financement-pour-lachat-de-produits-petroliers-raffines/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-18-8eme-l-portant-ratification-de-la-convention-de-financement-pour-lachat-de-produits-petroliers-raffines/>
 
 En vigueur : 2019-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

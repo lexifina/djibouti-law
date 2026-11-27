@@ -1,6 +1,6 @@
 # Décret n° 14-400-1930 Allocations aux familles habitant hors de France dont les soutiens indispensables sont appelés sous les drapeaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 400 du 31/03/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-400-1930-allocations-aux-familles-habitant-hors-de-france-dont-les-soutiens-indispensables-sont-appeles-sous-les-drapeaux/>
+Décret · Journal officiel de la République de Djibouti, n° 400 du 31/03/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-400-1930-allocations-aux-familles-habitant-hors-de-france-dont-les-soutiens-indispensables-sont-appeles-sous-les-drapeaux/>
 
 En vigueur : 1930-03-31 (date du Journal officiel qui le publie).
 

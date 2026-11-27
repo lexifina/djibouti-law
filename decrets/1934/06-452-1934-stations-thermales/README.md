@@ -1,6 +1,6 @@
 # Décret n° 06-452-1934 Stations thermales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 452 du 31/07/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-452-1934-stations-thermales/>
+Décret · Journal officiel de la République de Djibouti, n° 452 du 31/07/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-452-1934-stations-thermales/>
 
 En vigueur : 1934-07-31 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Pierre Laval
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

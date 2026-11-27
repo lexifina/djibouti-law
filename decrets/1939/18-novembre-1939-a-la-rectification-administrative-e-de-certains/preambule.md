@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1°, — Les actes de décès des militaires, Ges marins de 1 Etat et des personnes employées à la suite des armées, dressés de puis le septembt 6 1939 jusqu’à une date qui sera fixée par décret, après la cessation des hostilités, peuvent être l’objet d’une rectification administrative lorsqu’ils présentent des lacunes on des erreurs, sans que le fait du décès ni l’identité du décédé soient douteux.
 Art 2– Cette rectification s’applique tant aux actes dressés aux armées où pendant un voyage maritime qu’à ceux qui sont établis par les autorités municipales ou consulaires francaises et par les autorités étrangères civiles ou militaires.
 Elle intervient d’office on sur la requête soit de l’officier de l’état civil qui a dressé ou trauscrit l’acte, soit du proc ureur de la. République, soit des parties intéressées.

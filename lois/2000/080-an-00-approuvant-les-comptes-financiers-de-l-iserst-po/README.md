@@ -1,6 +1,6 @@
 # Loi n° 80/AN/00/4ème L approuvant les comptes financiers de l’ISERST pour l’exercice 1998.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-00-4eme-l-approuvant-les-comptes-financiers-de-liserst-pour-lexercice-1998/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-00-4eme-l-approuvant-les-comptes-financiers-de-liserst-pour-lexercice-1998/>
 
 En vigueur : 2000-03-30 (date du Journal officiel qui le publie).
 

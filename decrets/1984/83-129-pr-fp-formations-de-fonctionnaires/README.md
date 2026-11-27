@@ -1,6 +1,6 @@
 # Décret n° 83-129/PR/FP relatif aux formations de fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-129-pr-fp-relatif-aux-formations-de-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-129-pr-fp-relatif-aux-formations-de-fonctionnaires/>
 
 En vigueur : 1984-01-01 (date du Journal officiel qui le publie).
 

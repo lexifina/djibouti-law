@@ -1,6 +1,6 @@
 # Loi n° 107/AN/20/8ème L portant création de l’Autorité Nationale de Sécurité et Sûreté Nucléaires, Radiologiques, Chimiques et Biologiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-20-8eme-l-portant-creation-de-lautorite-nationale-de-securite-et-surete-nucleaires-radiologiques-chimiques-et-biologiques/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-20-8eme-l-portant-creation-de-lautorite-nationale-de-securite-et-surete-nucleaires-radiologiques-chimiques-et-biologiques/>
 
 En vigueur : 2021-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -72,4 +72,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | ARTICLE 13 |
 | [art-014.md](art-014.md) | ARTICLE 14 |
 | [art-015.md](art-015.md) | ARTICLE 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

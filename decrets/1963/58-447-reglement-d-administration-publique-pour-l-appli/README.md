@@ -1,6 +1,6 @@
 # Décret n° 58-447 portant règlement d’administration publique pour l’application dans les territoires d’outre-mer de la loi du 11 mars 1957 sur la propriété littéraire et artistique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-58-447-portant-reglement-dadministration-publique-pour-lapplication-dans-les-territoires-doutre-mer-de-la-loi-du-11-mars-1957-sur-la-propriete-litteraire-et/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-58-447-portant-reglement-dadministration-publique-pour-lapplication-dans-les-territoires-doutre-mer-de-la-loi-du-11-mars-1957-sur-la-propriete-litteraire-et/>
 
 En vigueur : 1963-02-28 (date du Journal officiel qui le publie).
 

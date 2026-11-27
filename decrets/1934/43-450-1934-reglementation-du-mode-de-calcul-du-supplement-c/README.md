@@ -1,6 +1,6 @@
 # Décret n° 43-450-1934 Réglementation du mode de calcul du supplément colonial alloué aux employés et agents en service outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-43-450-1934-reglementation-du-mode-de-calcul-du-supplement-colonial-alloue-aux-employes-et-agents-en-service-outre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-43-450-1934-reglementation-du-mode-de-calcul-du-supplement-colonial-alloue-aux-employes-et-agents-en-service-outre-mer/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

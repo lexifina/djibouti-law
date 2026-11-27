@@ -1,6 +1,6 @@
 # Décret n° 2017-039/PR/MI fixant les modalités de l’organisation des Elections Régionales et Communales du 24 Février et le 17 mars 2017.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-039-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-24-fevrier-et-le-17-mars-2017/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-039-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-24-fevrier-et-le-17-mars-2017/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 
@@ -43,4 +43,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

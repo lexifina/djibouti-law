@@ -1,6 +1,6 @@
 # Décret n° 2002-0260/PRE Portant approbation du Contrat d’Aménagement Urbain de la Zone Haramous.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0260-pre-portant-approbation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0260-pre-portant-approbation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 

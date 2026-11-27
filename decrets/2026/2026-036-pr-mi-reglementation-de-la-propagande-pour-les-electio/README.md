@@ -1,6 +1,6 @@
 # Décret n° 2026-036/PR/MI portant règlementation de la propagande pour les élections présidentielles du 10 avril 2026.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 17/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-036-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-10-avril-2026/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 17/02/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-036-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-10-avril-2026/>
 
 En vigueur : 2026-02-18 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

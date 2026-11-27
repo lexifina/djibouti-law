@@ -1,8 +1,8 @@
 # Décret n° 2013-336/PR/MERN portant création du corps de métiers de l’Energie et des Mines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-336-pr-mern-portant-creation-du-corps-de-metiers-de-lenergie-et-des-mines/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-336-pr-mern-portant-creation-du-corps-de-metiers-de-lenergie-et-des-mines/>
 
-En vigueur : 2013-12-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-12-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

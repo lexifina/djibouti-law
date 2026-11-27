@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0335/PR/MEFPCP portant concession d’une parcelle de terrain au profit de la Société “le Lagon Bleu” sise aux Îles Mouchas.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0335-pr-mefpcp-portant-concession-dune-parcelle-de-terrain-au-profit-de-la-societe-le-lagon-bleu-sise-aux-iles-mouchas/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0335-pr-mefpcp-portant-concession-dune-parcelle-de-terrain-au-profit-de-la-societe-le-lagon-bleu-sise-aux-iles-mouchas/>
 
 En vigueur : 2011-04-30 (date du Journal officiel qui le publie).
 

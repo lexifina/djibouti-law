@@ -1,6 +1,6 @@
 # Loi n° 187/AN/25/9ème L portant sur l’électrification rurale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 15/03/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-25-9eme-l-portant-sur-lelectrification-rurale/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 15/03/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-25-9eme-l-portant-sur-lelectrification-rurale/>
 
 En vigueur : 2026-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -68,4 +68,4 @@ ISMAÏL OMAR GUELLEH
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

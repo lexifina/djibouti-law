@@ -1,6 +1,6 @@
 # Décret n° 2018-337/PR/MB portant création, attributions, organisation et fonctionnement du centre d’application financière, en abrégé CAF.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-337-pr-mb-portant-creation-attributions-organisation-et-fonctionnement-du-centre-dapplication-financiere-en-abrege-caf/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-337-pr-mb-portant-creation-attributions-organisation-et-fonctionnement-du-centre-dapplication-financiere-en-abrege-caf/>
 
 En vigueur : 2018-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -83,4 +83,4 @@ ISMAÏL OMAR GUELLEH
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

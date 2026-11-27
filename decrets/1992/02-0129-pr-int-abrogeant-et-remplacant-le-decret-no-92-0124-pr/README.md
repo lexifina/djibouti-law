@@ -1,6 +1,6 @@
 # Décret n° 02-0129/PR/INT Abrogeant et remplaçant le décret no 92- 0124/PR /INT du 16 novembre 1992 portant publication des listes de candidats et ouverture de la campagne électorale pour les élections législatives du 18 décembre 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n02-0129-pr-int-abrogeant-et-remplacant-le-decret-no-92-0124-pr-int-du-16-novembre-1992-portant-publication-des-listes-de-candidats-et-ouverture-de-la-campagne-electorale-pour-les-elect/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n02-0129-pr-int-abrogeant-et-remplacant-le-decret-no-92-0124-pr-int-du-16-novembre-1992-portant-publication-des-listes-de-candidats-et-ouverture-de-la-campagne-electorale-pour-les-elect/>
 
 En vigueur : 1992-11-30 (date du Journal officiel qui le publie).
 
@@ -20,7 +20,7 @@ Sur proposition du Ministre de [ Intérieur. des Postes et Télécommunication
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [art-002.md](art-002.md) | Article 2 — |
-| [art-003.md](art-003.md) | Article 3 — |
-| [art-004.md](art-004.md) | Article 4 — |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | Article 2 |
+| [art-003.md](art-003.md) | Article 3 |
+| [art-004.md](art-004.md) | Article 4 |

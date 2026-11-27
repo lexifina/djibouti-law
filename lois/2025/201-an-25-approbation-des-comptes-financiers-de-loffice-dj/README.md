@@ -1,6 +1,6 @@
 # Loi n° 201/AN/25/9ème L portant approbation des comptes financiers de l’Office Djiboutien de Développement de l’Energie Géothermique pour l’exercice 2024.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-pour-lexercice-2024/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-pour-lexercice-2024/>
 
 En vigueur : 2026-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

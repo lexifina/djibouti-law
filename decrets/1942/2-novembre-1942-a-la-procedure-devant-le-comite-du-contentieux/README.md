@@ -1,6 +1,6 @@
 # Décret n° 2 novembre 1942 relatif à la procédure devant le Comité du contentieux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-novembre-1942-relatif-a-la-procedure-devant-le-comite-du-contentieux/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-novembre-1942-relatif-a-la-procedure-devant-le-comite-du-contentieux/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ R. Pleven.
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0773/PR/MEFPCP portant organisation du Bureau National de la carte d’assurance COMESA ou Carte Jaune.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0773-pr-mefpcp-portant-organisation-du-bureau-national-de-la-carte-dassurance-comesa-ou-carte-jaune/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0773-pr-mefpcp-portant-organisation-du-bureau-national-de-la-carte-dassurance-comesa-ou-carte-jaune/>
 
 En vigueur : 2005-12-15 (date du Journal officiel qui le publie).
 

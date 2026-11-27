@@ -1,6 +1,6 @@
 # Décret n° le 18 mai 1938 le 18 mai 1938
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-mai-1938-le-18-mai-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-18-mai-1938-le-18-mai-1938/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0118/PR/MEFPP portant création du Comité Plan National Directeur Informatique (P.N.D.I.).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0118-pr-mefpp-portant-creation-du-comite-plan-national-directeur-informatique-p-n-d-i/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0118-pr-mefpp-portant-creation-du-comite-plan-national-directeur-informatique-p-n-d-i/>
 
 En vigueur : 1999-08-15 (date du Journal officiel qui le publie).
 

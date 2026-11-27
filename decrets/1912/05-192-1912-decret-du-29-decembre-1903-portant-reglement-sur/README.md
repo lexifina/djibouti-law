@@ -1,8 +1,8 @@
 # Décret n° 05-192-1912 modifiant le décret du 29 décembre 1903, portant règlement sur la solde et les accessoires de solde des troupes coloniales et métropolitaines à la charge du Département des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 192 du 01/11/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-192-1912-modifiant-le-decret-du-29-decembre-1903-portant-reglement-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des/>
+Décret · Journal officiel de la République de Djibouti, n° 192 du 01/11/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-192-1912-modifiant-le-decret-du-29-decembre-1903-portant-reglement-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des/>
 
-En vigueur : 1912-05-01 (date fixÃ©e par le texte).
+En vigueur : 1912-05-01 (date fixée par le texte).
 
 ## Visas
 
@@ -22,4 +22,4 @@ A. LEBRUN
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

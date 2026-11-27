@@ -1,6 +1,6 @@
 # Arrêté n° 2019-227/PRE portant approbation du budget prévisionnel 2020 de l’Office Djiboutien de Développement de l’Energie Géothermique (ODDEG).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-227-pre-portant-approbation-du-budget-previsionnel-2020-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-227-pre-portant-approbation-du-budget-previsionnel-2020-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

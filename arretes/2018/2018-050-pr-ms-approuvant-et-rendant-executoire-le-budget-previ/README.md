@@ -1,6 +1,6 @@
 # Arrêté n° 2018-050/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel de l’exercice 2018 de l’INSPD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-050-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-de-linspd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-050-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-de-linspd/>
 
 En vigueur : 2018-03-15 (date du Journal officiel qui le publie).
 

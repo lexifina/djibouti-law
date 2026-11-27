@@ -1,6 +1,6 @@
 # Décret n° 2011-0196/PR/MJCDH portant application de la loi n° 136/AN/11/6ème L relative à l’aide judiciaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0196-pr-mjcdh-portant-application-de-la-loi-n136-an-11-6eme-l-relative-a-laide-judiciaire/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0196-pr-mjcdh-portant-application-de-la-loi-n136-an-11-6eme-l-relative-a-laide-judiciaire/>
 
 En vigueur : 2011-10-31 (date du Journal officiel qui le publie).
 

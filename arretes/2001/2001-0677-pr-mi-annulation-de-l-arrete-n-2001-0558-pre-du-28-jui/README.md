@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0677/PR/MI portant annulation de l’Arrêté n° 2001-0558/PRE du 28 juillet 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0677-pr-mi-portant-annulation-de-larrete-n2001-0558-pre-du-28-juillet-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0677-pr-mi-portant-annulation-de-larrete-n2001-0558-pre-du-28-juillet-2001/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ MOHAMED HASSAN ABDILLAHI
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

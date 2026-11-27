@@ -1,6 +1,6 @@
 # Loi n° 005/AN/23/9ème L Portant approbation des comptes financiers de l’Agence djiboutienne de développement social (ADDS) pour l’exercice 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n005-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-de-developpement-social-adds-pour-lexercice-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n005-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-de-developpement-social-adds-pour-lexercice-2018/>
 
 En vigueur : 2023-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

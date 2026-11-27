@@ -1,6 +1,6 @@
 # Décret n° 45-1348 validant l’acte du décret n° 1615 du 9 juin 1943, modifié par l’acte dit décret n° 463 du 28 février 1944 fixant la situation des personnels coloniaux et locaux pendant la période d’interruption des communications avec les colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1348-validant-lacte-du-decret-n-1615-du-9-juin-1943-modifie-par-lacte-dit-decret-n-463-du-28-fevrier-1944-fixant-la-situation-des-personnels-coloniaux-et-locaux-pen/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1348-validant-lacte-du-decret-n-1615-du-9-juin-1943-modifie-par-lacte-dit-decret-n-463-du-28-fevrier-1944-fixant-la-situation-des-personnels-coloniaux-et-locaux-pen/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

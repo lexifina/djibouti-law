@@ -1,6 +1,6 @@
 # Décret n° 2016-042/PR/MI portant réglementation de la propagande pour les élections présidentielles du 08 avril 2016.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-042-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2016/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-042-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-presidentielles-du-08-avril-2016/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

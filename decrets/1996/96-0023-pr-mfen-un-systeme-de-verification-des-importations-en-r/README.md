@@ -1,8 +1,8 @@
 # Décret n° 96-0023/PR/MFEN instituant un système de vérification des importations en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0023-pr-mfen-instituant-un-systeme-de-verification-des-importations-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0023-pr-mfen-instituant-un-systeme-de-verification-des-importations-en-republique-de-djibouti/>
 
-En vigueur : 1996-04-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1996-04-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

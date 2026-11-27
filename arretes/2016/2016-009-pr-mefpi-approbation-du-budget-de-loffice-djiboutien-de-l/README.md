@@ -1,6 +1,6 @@
 # Arrêté n° 2016-009/PR/MEFPI portant approbation du Budget de l’Office Djiboutien de la Propriété Industrielle et Commerciale de l’année 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-009-pr-mefpi-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-009-pr-mefpi-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2016/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

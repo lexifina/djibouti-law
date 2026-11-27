@@ -1,6 +1,6 @@
 # Rectificatif n° 2015-369/PR/MTRA à la décision n° 2015-233/PR/MTRA du 9 avril 2015 portant versement en ce qui concerne de Mme Deka Hassan Bakal et Mr Mohamed Ali Aras.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2015-369-pr-mtra-a-la-decision-n2015-233-pr-mtra-du-9-avril-2015-portant-versement-en-ce-qui-concerne-de-mme-deka-hassan-bakal-et-mr-mohamed-ali-aras/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2015-369-pr-mtra-a-la-decision-n2015-233-pr-mtra-du-9-avril-2015-portant-versement-en-ce-qui-concerne-de-mme-deka-hassan-bakal-et-mr-mohamed-ali-aras/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

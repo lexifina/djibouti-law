@@ -1,6 +1,6 @@
 # Loi n° 67/AN/94/3ème L portant règlement définitif du Budget de l’État exercice 1993.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-94-3eme-l-portant-reglement-definitif-du-budget-de-letat-exercice-1993/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n67-an-94-3eme-l-portant-reglement-definitif-du-budget-de-letat-exercice-1993/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

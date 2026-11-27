@@ -1,6 +1,6 @@
 # Loi n° 204/AN/17/7ème L portant ratification de la convention de prêt conclue entre la République de Djibouti et le Fonds Arabe pour le Développement Economique et Social pour le financement additionnel du projet de réhabilitation des infrastructures d’eau potable à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-17-7eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-pour-le-financement-addit/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-17-7eme-l-portant-ratification-de-la-convention-de-pret-conclue-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpement-economique-et-social-pour-le-financement-addit/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

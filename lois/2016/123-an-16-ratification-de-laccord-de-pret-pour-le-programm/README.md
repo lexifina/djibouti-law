@@ -1,6 +1,6 @@
 # Loi n° 123/AN/16/7ème L portant ratification de l’Accord de prêt pour le programme de résilience à la sécheresse et de développement des moyens de subsistance durable dans les pays de la Corne de l’Afrique (DRSLP III).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-programme-de-resilience-a-la-secheresse-et-de-developpement-des-moyens-de-subsistance-durable-dans-les-pays-de-la-corne-de/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-programme-de-resilience-a-la-secheresse-et-de-developpement-des-moyens-de-subsistance-durable-dans-les-pays-de-la-corne-de/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

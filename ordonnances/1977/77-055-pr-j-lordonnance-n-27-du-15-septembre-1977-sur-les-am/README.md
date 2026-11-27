@@ -1,6 +1,6 @@
 # Ordonnance n° 77-055/PR/J modifiant l’ordonnance n° 27 du 15 septembre 1977 sur les amendes forfaitaires.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-055-pr-j-modifiant-lordonnance-n27-du-15-septembre-1977-sur-les-amendes-forfaitaires/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-055-pr-j-modifiant-lordonnance-n27-du-15-septembre-1977-sur-les-amendes-forfaitaires/>
 
 En vigueur : 1977-11-28 (date du Journal officiel qui le publie).
 

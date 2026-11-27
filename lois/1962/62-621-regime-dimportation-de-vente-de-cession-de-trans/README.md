@@ -1,6 +1,6 @@
 # Loi n° 62-621 fixant le régime d’importation, de vente, de cession, de transport, de port, de détention et d’exportation des armes, articles d’armeinent, munitions et matériels de guerre en Côte Française des Somalis.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1962 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-62-621-fixant-le-regime-dimportation-de-vente-de-cession-de-transport-de-port-de-detention-et-dexportation-des-armes-articles-darmeinent-munitions-et-materiels/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1962 · <https://www.journalofficiel.dj/texte-juridique/loi-n-62-621-fixant-le-regime-dimportation-de-vente-de-cession-de-transport-de-port-de-detention-et-dexportation-des-armes-articles-darmeinent-munitions-et-materiels/>
 
 En vigueur : 1962-06-30 (date du Journal officiel qui le publie).
 

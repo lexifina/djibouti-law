@@ -1,6 +1,6 @@
 # Décret n° 88-044/PRE portant Statut Particulier des Officiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-044-pre-portant-statut-particulier-des-officiers/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-044-pre-portant-statut-particulier-des-officiers/>
 
 En vigueur : 1988-05-31 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ HASSAN GOULED APTIDON
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

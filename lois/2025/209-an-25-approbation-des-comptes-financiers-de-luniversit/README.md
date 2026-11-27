@@ -1,6 +1,6 @@
 # Loi n° 209/AN/25/9ème L portant approbation des comptes financiers de l’Université de Djibouti pour l’exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 26/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-luniversite-de-djibouti-pour-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 26/02/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-n209-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-luniversite-de-djibouti-pour-lexercice-2023/>
 
 En vigueur : 2026-02-27 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

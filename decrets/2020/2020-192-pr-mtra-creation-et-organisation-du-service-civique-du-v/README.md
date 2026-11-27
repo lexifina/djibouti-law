@@ -1,6 +1,6 @@
 # Décret n° 2020-192/PR/MTRA portant création et organisation du Service Civique du Volontariat pour l’Emploi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-192-pr-mtra-portant-creation-et-organisation-du-service-civique-du-volontariat-pour-lemploi/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-192-pr-mtra-portant-creation-et-organisation-du-service-civique-du-volontariat-pour-lemploi/>
 
 En vigueur : 2020-08-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

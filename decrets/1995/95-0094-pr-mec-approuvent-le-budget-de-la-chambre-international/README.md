@@ -1,6 +1,6 @@
 # Décret n° 95-0094/PR/MEC approuvent le budget de la Chambre Internationale de Commerce et des Magasins généraux exercice 1995.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 14/09/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0094-pr-mec-approuvent-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1995/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 14/09/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0094-pr-mec-approuvent-le-budget-de-la-chambre-internationale-de-commerce-et-des-magasins-generaux-exercice-1995/>
 
 En vigueur : 1995-09-14 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ BARKAT GOURAD HAMADOU.
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 46-2357 modifiant les statuts de la Caisse centrale de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2357-modifiant-les-statuts-de-la-caisse-centrale-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2357-modifiant-les-statuts-de-la-caisse-centrale-de-la-france-doutre-mer/>
 
 En vigueur : 1946-11-30 (date du Journal officiel qui le publie).
 

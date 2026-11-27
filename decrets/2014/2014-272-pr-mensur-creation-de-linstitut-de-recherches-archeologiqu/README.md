@@ -1,8 +1,8 @@
 # Décret n° 2014-272/PR/MENSUR Portant création de l’Institut de Recherches Archéologiques et Historiques au Centre d’Etudes et de Recherche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-272-pr-mensur-portant-creation-de-linstitut-de-recherches-archeologiques-et-historiques-au-centre-detudes-et-de-recherche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-272-pr-mensur-portant-creation-de-linstitut-de-recherches-archeologiques-et-historiques-au-centre-detudes-et-de-recherche-de-djibouti/>
 
-En vigueur : 2014-09-30 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-09-30 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

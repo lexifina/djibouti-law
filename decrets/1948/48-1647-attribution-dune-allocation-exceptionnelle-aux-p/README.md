@@ -1,6 +1,6 @@
 # Décret n° 48-1647 portant attribution d’une allocation exceptionnelle aux personnels des cadres régis par décret relevant du Ministère de la France d’outre-mer et appartenant à la zone franc C. F. A.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1647-portant-attribution-dune-allocation-exceptionnelle-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-et-appartenant-a-la-zone-franc/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1647-portant-attribution-dune-allocation-exceptionnelle-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-et-appartenant-a-la-zone-franc/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 

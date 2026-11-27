@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0498/PR/MENESUP modifiant l’Arrêté n° 2006-0528/PR/MENESUP fixant la réglementation propre au diplôme national menant au grade de Licence et au titre de diplôme d’études universitaires générales mention « anglais ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 14/08/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0498-pr-menesup-modifiant-larrete-n2006-0528-pr-menesup-fixant-la-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-unive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 14/08/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0498-pr-menesup-modifiant-larrete-n2006-0528-pr-menesup-fixant-la-reglementation-propre-au-diplome-national-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-unive/>
 
 En vigueur : 2008-08-14 (date du Journal officiel qui le publie).
 

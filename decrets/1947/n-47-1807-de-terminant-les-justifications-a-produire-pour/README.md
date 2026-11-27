@@ -1,6 +1,6 @@
 # Décret n° n°47-1807 de terminant les justifications à produire pour obtenir le bénéfice des dispositions des articles 10 et 11 de la loi du 16 août 1947 portant amnistie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n47-1807-de-terminant-les-justifications-a-produire-pour-obtenir-le-benefice-des-dispositions-des-articles-10-et-11-de-la-loi-du-16-aout-1947-portant-amnistie/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n47-1807-de-terminant-les-justifications-a-produire-pour-obtenir-le-benefice-des-dispositions-des-articles-10-et-11-de-la-loi-du-16-aout-1947-portant-amnistie/>
 
 En vigueur : 1947-10-31 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ andre maroselli
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

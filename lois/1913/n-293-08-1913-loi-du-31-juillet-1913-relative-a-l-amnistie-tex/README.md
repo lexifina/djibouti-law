@@ -1,6 +1,6 @@
 # Loi n° 293-08-1913 la loi du 31 juillet 1913, relative à l’amnistie (Texte de la loi).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 202 du 31/08/1913 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-293-08-1913-la-loi-du-31-juillet-1913-relative-a-lamnistie-texte-de-la-loi/>
+Loi · Journal officiel de la République de Djibouti, n° 202 du 31/08/1913 · <https://www.journalofficiel.dj/texte-juridique/loi-n-293-08-1913-la-loi-du-31-juillet-1913-relative-a-lamnistie-texte-de-la-loi/>
 
 En vigueur : 1913-08-31 (date du Journal officiel qui le publie).
 

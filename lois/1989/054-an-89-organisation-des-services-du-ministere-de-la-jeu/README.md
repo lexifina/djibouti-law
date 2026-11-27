@@ -1,6 +1,6 @@
 # Loi n° 54/AN/89/2ème L portant organisation des services du Ministère de la Jeunesse et des Sports et des Affaires Culturelles
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-89-2eme-l-portant-organisation-des-services-du-ministere-de-la-jeunesse-et-des-sports-et-des-affaires-culturelles/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n54-an-89-2eme-l-portant-organisation-des-services-du-ministere-de-la-jeunesse-et-des-sports-et-des-affaires-culturelles/>
 
 En vigueur : 1989-02-15 (date du Journal officiel qui le publie).
 

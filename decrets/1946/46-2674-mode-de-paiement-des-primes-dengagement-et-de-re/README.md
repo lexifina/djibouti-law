@@ -1,6 +1,6 @@
 # Décret n° 46-2674 modifiant le mode de paiement des primes d’engagement et de rengagement dans les troupes coloniales et créant des allocations supplémentaire* provisoires en faveur de certain* personnels non officiers de l’arniée de terre en service dans des terrifoires relevant du Département de la France d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2674-modifiant-le-mode-de-paiement-des-primes-dengagement-et-de-rengagement-dans-les-troupes-coloniales-et-creant-des-allocations-supplementaire-provisoires-en-faveur-de-certain/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2674-modifiant-le-mode-de-paiement-des-primes-dengagement-et-de-rengagement-dans-les-troupes-coloniales-et-creant-des-allocations-supplementaire-provisoires-en-faveur-de-certain/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

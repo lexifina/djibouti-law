@@ -1,6 +1,6 @@
 # Décret n° 14-404-1930 Application aux colonies et aux territoires à mandat du décret du 26 janvier 1928.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-404-1930-application-aux-colonies-et-aux-territoires-a-mandat-du-decret-du-26-janvier-1928/>
+Décret · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-404-1930-application-aux-colonies-et-aux-territoires-a-mandat-du-decret-du-26-janvier-1928/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ François PIÉTRI.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

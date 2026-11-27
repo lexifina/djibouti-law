@@ -1,6 +1,6 @@
 # Loi n° 220/AN/86/1ère L autorisant certains officiers d’état-civil à délivrer des actes de notoriété supplétifs d’acte de naissance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-86-1ere-l-autorisant-certains-officiers-detat-civil-a-delivrer-des-actes-de-notoriete-suppletifs-dacte-de-naissance/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-86-1ere-l-autorisant-certains-officiers-detat-civil-a-delivrer-des-actes-de-notoriete-suppletifs-dacte-de-naissance/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

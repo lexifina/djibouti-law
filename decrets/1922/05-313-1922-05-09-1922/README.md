@@ -1,6 +1,6 @@
 # Décret n° 05-313-1922 05/09/1922
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 313 du 31/12/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-313-1922-05-09-1922/>
+Décret · Journal officiel de la République de Djibouti, n° 313 du 31/12/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-313-1922-05-09-1922/>
 
 En vigueur : 1922-12-31 (date du Journal officiel qui le publie).
 

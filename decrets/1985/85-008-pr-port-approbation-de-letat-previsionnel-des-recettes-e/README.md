@@ -1,6 +1,6 @@
 # Décret n° 85-008/PR/PORT portant approbation de l’état prévisionnel des recettes et des dépenses du Port Autonome International de Djibouti pour l’exercice 1985.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-008-pr-port-portant-approbation-de-letat-previsionnel-des-recettes-et-des-depenses-du-port-autonome-international-de-djibouti-pour-lexercice-1985/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-008-pr-port-portant-approbation-de-letat-previsionnel-des-recettes-et-des-depenses-du-port-autonome-international-de-djibouti-pour-lexercice-1985/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

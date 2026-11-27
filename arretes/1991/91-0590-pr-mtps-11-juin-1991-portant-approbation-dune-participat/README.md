@@ -1,6 +1,6 @@
 # Arrêté n° 91-0590/PR/MTPS du 11 juin 1991 portant approbation d’une participation financière du Service Médical Interentreprises au projet de construction d’un Centre de Formation des Personnels de Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0590-pr-mtps-du-11-juin-1991-portant-approbation-dune-participation-financiere-du-service-medical-interentreprises-au-projet-de-construction-dun-centre-de-formation-des-personnels/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0590-pr-mtps-du-11-juin-1991-portant-approbation-dune-participation-financiere-du-service-medical-interentreprises-au-projet-de-construction-dun-centre-de-formation-des-personnels/>
 
 En vigueur : 1991-06-15 (date du Journal officiel qui le publie).
 

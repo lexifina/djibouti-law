@@ -1,6 +1,6 @@
 # Loi n° 145/AN/06/5ème L portant création de l’Office National de l’Eau et de l’Assainissement de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-06-5eme-l-portant-creation-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-06-5eme-l-portant-creation-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

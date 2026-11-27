@@ -1,6 +1,6 @@
 # Décret n° 2016-057/PR/MI arrêtant la liste des candidats pour les Elections Présidentielles du 08 avril 2016.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-057-pr-mi-arretant-la-liste-des-candidats-pour-les-elections-presidentielles-du-08-avril-2016-2/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-057-pr-mi-arretant-la-liste-des-candidats-pour-les-elections-presidentielles-du-08-avril-2016-2/>
 
 En vigueur : 2016-03-15 (date du Journal officiel qui le publie).
 

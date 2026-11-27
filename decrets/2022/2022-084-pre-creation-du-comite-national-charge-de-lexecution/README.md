@@ -1,6 +1,6 @@
 # Décret n° 2022-084/PRE portant création du Comité National chargé de l’exécution, du suivi et de l’évaluation de la Stratégie Nationale du Handicap 2021-2025 de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-084-pre-portant-creation-du-comite-national-charge-de-lexecution-du-suivi-et-de-levaluation-de-la-strategie-nationale-du-handicap-2021-2025-de-la-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-084-pre-portant-creation-du-comite-national-charge-de-lexecution-du-suivi-et-de-levaluation-de-la-strategie-nationale-du-handicap-2021-2025-de-la-republique-de-djibouti/>
 
 En vigueur : 2022-04-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 2017-213/PR/MJDH portant remise gracieuse de peine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-213-pr-mjdh-portant-remise-gracieuse-de-peine/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-213-pr-mjdh-portant-remise-gracieuse-de-peine/>
 
 En vigueur : 2017-06-29 (date du Journal officiel qui le publie).
 

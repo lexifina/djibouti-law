@@ -1,6 +1,6 @@
 # Rectificatif n° 1034 rectifiant l’article 2 de l’arrêté n° 979.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1948 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1034-rectifiant-larticle-2-de-larrete-n-979/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 10 du 31/10/1948 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1034-rectifiant-larticle-2-de-larrete-n-979/>
 
 En vigueur : 1948-10-31 (date du Journal officiel qui le publie).
 

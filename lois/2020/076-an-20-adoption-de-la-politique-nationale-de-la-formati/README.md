@@ -1,6 +1,6 @@
 # Loi n° 76/AN/20/8ème L portant adoption de la Politique Nationale de la Formation Professionnelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-20-8eme-l-portant-adoption-de-la-politique-nationale-de-la-formation-professionnelle/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-20-8eme-l-portant-adoption-de-la-politique-nationale-de-la-formation-professionnelle/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

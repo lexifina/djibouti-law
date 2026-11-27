@@ -1,6 +1,6 @@
 # Loi n° 187/AN/81 Portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente, jusqu’à l’ouverture de la deuxième Session Ordinaire dite m SESSION BUDGÉTAIRE » de 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-81-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-dite-m-session-budgetair/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-81-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-dite-m-session-budgetair/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

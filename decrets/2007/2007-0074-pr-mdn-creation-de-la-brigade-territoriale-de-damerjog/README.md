@@ -1,6 +1,6 @@
 # Décret n° 2007-0074/PR/MDN portant création de la Brigade Territoriale de Damerjog.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0074-pr-mdn-portant-creation-de-la-brigade-territoriale-de-damerjog/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0074-pr-mdn-portant-creation-de-la-brigade-territoriale-de-damerjog/>
 
 En vigueur : 2007-03-31 (date du Journal officiel qui le publie).
 

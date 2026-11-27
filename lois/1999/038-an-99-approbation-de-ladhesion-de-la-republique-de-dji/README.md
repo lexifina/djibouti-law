@@ -1,6 +1,6 @@
 # Loi n° 38/AN/99/4ème L portant approbation de l’Adhésion de la République de Djibouti à la Convention de Vienne pour la Protection de la Couche d’Ozone et aux Amendements du Protocole de Montréal
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-99-4eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-la-convention-de-vienne-pour-la-protection-de-la-couche-dozone-et-aux-amendements-du-protocole-de-montrea/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-99-4eme-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-la-convention-de-vienne-pour-la-protection-de-la-couche-dozone-et-aux-amendements-du-protocole-de-montrea/>
 
 En vigueur : 1999-05-31 (date du Journal officiel qui le publie).
 

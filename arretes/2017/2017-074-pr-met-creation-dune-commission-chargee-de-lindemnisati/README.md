@@ -1,6 +1,6 @@
 # Arrêté n° 2017-074/PR/MET portant création d’une commission chargée de l’indemnisation des dockers.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-074-pr-met-portant-creation-dune-commission-chargee-de-lindemnisation-des-dockers/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-074-pr-met-portant-creation-dune-commission-chargee-de-lindemnisation-des-dockers/>
 
 En vigueur : 2017-05-15 (date du Journal officiel qui le publie).
 

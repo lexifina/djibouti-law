@@ -1,8 +1,8 @@
 # Décret n° 72-214 modifiant et complétant le décret n° 53-914 du 26 septembre 1963 portant simplification de formalités administratives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-214-modifiant-et-completant-le-decret-n-53-914-du-26-septembre-1963-portant-simplification-de-formalites-administratives/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-214-modifiant-et-completant-le-decret-n-53-914-du-26-septembre-1963-portant-simplification-de-formalites-administratives/>
 
-En vigueur : 1972-05-01 (date fixÃ©e par le texte).
+En vigueur : 1972-05-01 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2022-040/PR/MI portant publication des listes des candidats aux Elections Régionales et Communales du 11 Mars et 01 Avril 2022.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-040-pr-mi-portant-publication-des-listes-des-candidats-aux-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-040-pr-mi-portant-publication-des-listes-des-candidats-aux-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
 
 En vigueur : 2022-03-02 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 49/AN/99/4ème L portant approbation de l’adhésion à la Convention Arabe de Lutte contre le Terrorisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-99-4eme-l-portant-approbation-de-ladhesion-a-la-convention-arabe-de-lutte-contre-le-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-99-4eme-l-portant-approbation-de-ladhesion-a-la-convention-arabe-de-lutte-contre-le-terrorisme/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

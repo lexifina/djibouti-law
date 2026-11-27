@@ -1,6 +1,6 @@
 # Loi n° 213/AN/08/5ème L relative à l’organisation et au fonctionnement de l’Ordre National des professions médicales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n213-an-08-5eme-l-relative-a-lorganisation-et-au-fonctionnement-de-lordre-national-des-professions-medicales/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n213-an-08-5eme-l-relative-a-lorganisation-et-au-fonctionnement-de-lordre-national-des-professions-medicales/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-055.md](art-055.md) | Article 55 |
 | [art-056.md](art-056.md) | Article 56 |
 | [art-057.md](art-057.md) | Article 57 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

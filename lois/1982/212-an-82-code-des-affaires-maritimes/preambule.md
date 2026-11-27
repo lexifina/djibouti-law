@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 T I T R E I
 GENERALITES
 CHAPITRE 1er : CHAMP D’APPLICATION

@@ -1,6 +1,6 @@
 # Décret n° 45-2804 déterminant les conditions dans lesquelles des facilités pourront être accordées aux chefs d’entreprises mobilisés en vue de leur permettre de reprendre leur activité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2804-determinant-les-conditions-dans-lesquelles-des-facilites-pourront-etre-accordees-aux-chefs-dentreprises-mobilises-en-vue-de-leur-permettre-de-reprendre-leur-activite/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-2804-determinant-les-conditions-dans-lesquelles-des-facilites-pourront-etre-accordees-aux-chefs-dentreprises-mobilises-en-vue-de-leur-permettre-de-reprendre-leur-activite/>
 
 En vigueur : 1945-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2016-387/PRE/MET portant création de régis d’avance auprès de l’institution de LA GARDE-CÔTES DJIBOUTIENNE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-387-pre-met-portant-creation-de-regis-davance-aupres-de-linstitution-de-la-garde-cotes-djiboutienne/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-387-pre-met-portant-creation-de-regis-davance-aupres-de-linstitution-de-la-garde-cotes-djiboutienne/>
 
 En vigueur : 2016-05-31 (date du Journal officiel qui le publie).
 

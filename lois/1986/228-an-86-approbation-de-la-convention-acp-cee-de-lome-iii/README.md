@@ -1,6 +1,6 @@
 # Loi n° 228/AN/86/1re L portant approbation de la Convention ACP-CEE de Lomé III.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n228-an-86-1re-l-portant-approbation-de-la-convention-acp-cee-de-lome-iii/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n228-an-86-1re-l-portant-approbation-de-la-convention-acp-cee-de-lome-iii/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

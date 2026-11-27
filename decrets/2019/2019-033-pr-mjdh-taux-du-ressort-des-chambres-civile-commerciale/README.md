@@ -1,6 +1,6 @@
 # Décret n° 2019-033/PR/MJDH fixant les taux du ressort des chambres civile, commerciale et sociale du Tribunal de Première Instance et du Tribunal Administratif.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-033-pr-mjdh-fixant-les-taux-du-ressort-des-chambres-civile-commerciale-et-sociale-du-tribunal-de-premiere-instance-et-du-tribunal-administratif/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-033-pr-mjdh-fixant-les-taux-du-ressort-des-chambres-civile-commerciale-et-sociale-du-tribunal-de-premiere-instance-et-du-tribunal-administratif/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

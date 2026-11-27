@@ -1,6 +1,6 @@
 # Décret n° 73-164 relatif à l’extension dans le Territoire français des Afars et des Issas du décret n° 67-451 du 7 juin 1967 portant extension de la zone où la pêche est interdite aux navires étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-164-relatif-a-lextension-dans-le-territoire-francais-des-afars-et-des-issas-du-decret-n-67-451-du-7-juin-1967-portant-extension-de-la-zone-ou-la-peche-est-interdite-aux-navi/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-164-relatif-a-lextension-dans-le-territoire-francais-des-afars-et-des-issas-du-decret-n-67-451-du-7-juin-1967-portant-extension-de-la-zone-ou-la-peche-est-interdite-aux-navi/>
 
 En vigueur : 1973-03-25 (date du Journal officiel qui le publie).
 

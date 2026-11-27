@@ -1,6 +1,6 @@
 # Décret n° 90/022/PR/MCTT approuvant et rendant exécutoire le budget prévisionnel 1990 de I’Etablissement public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-022-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1990-de-ietablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-022-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1990-de-ietablissement-public-des-hydrocarbures/>
 
 En vigueur : 1990-03-15 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ HASSAN GOULED APTIDON
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

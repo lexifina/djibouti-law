@@ -1,6 +1,6 @@
 # Décret n° n°334 Le décret étendant aux territoires relevant du Ministère des colonies les dispositions du décret du 26 septembre 1939 relatif au service des jeunes (La S gens sans sans nationalité
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-decret-etendant-aux-territoires-relevant-du-ministere-des-colonies-les-dispositions-du-decret-du-26-septembre-1939-relatif-au-service-des-jeunes-la-s-gens-sans-sans-nati/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n334-le-decret-etendant-aux-territoires-relevant-du-ministere-des-colonies-les-dispositions-du-decret-du-26-septembre-1939-relatif-au-service-des-jeunes-la-s-gens-sans-sans-nati/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ goerges mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

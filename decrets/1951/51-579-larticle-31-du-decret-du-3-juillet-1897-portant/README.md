@@ -1,6 +1,6 @@
 # Décret n° 51-579 modifiant l’article 31 du décret du 3 juillet 1897 portant règlement sur les indemnités de route et de séjour, les concessions de passage et les frais de voyage à l’étranger du personnel des services coloniaux ou locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-579-modifiant-larticle-31-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour-les-concessions-de-passage-et-les-frais-de-voyage-a-letranger-d/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-579-modifiant-larticle-31-du-decret-du-3-juillet-1897-portant-reglement-sur-les-indemnites-de-route-et-de-sejour-les-concessions-de-passage-et-les-frais-de-voyage-a-letranger-d/>
 
 En vigueur : 1951-07-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0038/PR/MAEM portant adoption du projet de Budget prévisionnel 2010 du Laboratoire National d’Analyses Alimentaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0038-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2010-du-laboratoire-national-danalyses-alimentaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0038-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2010-du-laboratoire-national-danalyses-alimentaires/>
 
 En vigueur : 2010-01-31 (date du Journal officiel qui le publie).
 

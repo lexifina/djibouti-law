@@ -1,6 +1,6 @@
 # Décret n° n° 46-2098 rendant applicable aux départements et territoires relevant du ministère de Ja France d’outre-mer le décret du 2 septembre 1946 fixant les conditions dans lesquelles les partis politiques pourront effectuer leur propagande à l’occasion du referendum sur la Constitution…
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2098-rendant-applicable-aux-departements-et-territoires-relevant-du-ministere-de-ja-france-doutre-mer-le-decret-du-2-septembre-1946-fixant-les-conditions-dans-lesquelles/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2098-rendant-applicable-aux-departements-et-territoires-relevant-du-ministere-de-ja-france-doutre-mer-le-decret-du-2-septembre-1946-fixant-les-conditions-dans-lesquelles/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 
@@ -26,5 +26,5 @@ Marius MOUTET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |

@@ -1,6 +1,6 @@
 # Décret n° 11-371-1927 Réorganisation du service des articles d’argent franc-coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 371 du 31/10/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-371-1927-reorganisation-du-service-des-articles-dargent-franc-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 371 du 31/10/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-371-1927-reorganisation-du-service-des-articles-dargent-franc-coloniaux/>
 
 En vigueur : 1927-10-31 (date du Journal officiel qui le publie).
 

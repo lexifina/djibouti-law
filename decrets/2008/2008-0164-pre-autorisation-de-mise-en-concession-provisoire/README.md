@@ -1,6 +1,6 @@
 # Décret n° 2008-0164/PRE portant autorisation de mise en concession provisoire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0164-pre-portant-autorisation-de-mise-en-concession-provisoire/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0164-pre-portant-autorisation-de-mise-en-concession-provisoire/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

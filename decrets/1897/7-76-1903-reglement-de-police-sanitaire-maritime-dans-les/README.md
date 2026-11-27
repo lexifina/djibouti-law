@@ -1,6 +1,6 @@
 # Décret n° 7-76-1903 portant règlement de police sanitaire maritime dans les colonies et pays de protectorat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 76 du 01/02/1903 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-76-1903-portant-reglement-de-police-sanitaire-maritime-dans-les-colonies-et-pays-de-protectorat/>
+Décret · Journal officiel de la République de Djibouti, n° 76 du 01/02/1903 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-76-1903-portant-reglement-de-police-sanitaire-maritime-dans-les-colonies-et-pays-de-protectorat/>
 
 En vigueur : 1903-02-01 (date du Journal officiel qui le publie).
 

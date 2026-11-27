@@ -1,1 +1,0 @@
-Par décret n°2023-256/PRE, du Président de la République, Chef du Gouvernement, en date du 10 août 2023, pendant la durée de l’absence de S.E.M. KASSIM HAROUN ALI, l’intérim des fonctions du Ministre Délégué chargé de la Décentralisation sera assuré par S.E.Mme. MOUNA OSMAN ADEN, Ministre de la Femme et de la Famille, cumulativement avec ses fonctions.

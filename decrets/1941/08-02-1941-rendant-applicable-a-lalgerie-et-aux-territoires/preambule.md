@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. Pr . Le protocole relatif à l’application aux payements franco hollandais de l’accord de compensation pour les payements franco-allemands du 11 novembre 1940, signé à Weisbaden, le 1er février 1941, et dont la te neur suit, est approuvé et entrera en vigueur le lendemain de sa publication au Journal officiel.
 PROTOCOLE du 1er février 1911 relatif à l’application aux puyemtents franco-hollandais de l’accord de compensation pour les payements franro-allemands du 14 novembre 1910.
 L’accord de compensation pour les payements franco-allemands du 14 novembre 1940 sera appliqué avec effet immédiat aux payements entre la partie du territoire français occupée par les troupes allemandes, ainsi que la partie non occupée de la France, y compris les colonies françaises, les protectorats et les territoires sous mandat français, d’une part, et les territoires hollandais occupés, d’autre part.

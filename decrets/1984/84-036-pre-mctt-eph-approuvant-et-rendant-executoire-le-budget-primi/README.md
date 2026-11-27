@@ -1,6 +1,6 @@
 # Décret n° 84-036/PRE/MCTT/EPH approuvant et rendant exécutoire le budget primitif 1984 de l’Établissement public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-036-pre-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-036-pre-mctt-eph-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres entendu en sa séance du 17 avril 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

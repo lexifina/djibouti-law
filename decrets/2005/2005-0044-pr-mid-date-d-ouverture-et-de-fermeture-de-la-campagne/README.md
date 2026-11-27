@@ -1,6 +1,6 @@
 # Décret n° 2005-0044/PR/MID Fixant la date d’ouverture et de fermeture de la campagne électorale pour les Élections Présidentielles du 08 avril 2005.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0044-pr-mid-fixant-la-date-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-presidentielles-du-08-avril-2005/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0044-pr-mid-fixant-la-date-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-presidentielles-du-08-avril-2005/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

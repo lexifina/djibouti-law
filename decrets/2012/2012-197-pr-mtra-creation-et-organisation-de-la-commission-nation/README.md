@@ -1,8 +1,8 @@
 # Décret n° 2012-197/PR/MTRA portant création et organisation de la Commission National chargée de la Réforme de l’Administration et du Secrétaire Exécutif de la Réforme de l’Administration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-197-pr-mtra-portant-creation-et-organisation-de-la-commission-national-chargee-de-la-reforme-de-ladministration-et-du-secretaire-executif-de-la-reforme-de-ladminis/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-197-pr-mtra-portant-creation-et-organisation-de-la-commission-national-chargee-de-la-reforme-de-ladministration-et-du-secretaire-executif-de-la-reforme-de-ladminis/>
 
-En vigueur : 2012-09-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-09-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

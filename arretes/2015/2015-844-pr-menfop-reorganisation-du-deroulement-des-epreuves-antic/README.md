@@ -1,6 +1,6 @@
 # Arrêté n° 2015-844/PR/MENFOP portant réorganisation du déroulement des épreuves anticipées du baccalauréat de l’Enseignement Général.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-844-pr-menfop-portant-reorganisation-du-deroulement-des-epreuves-anticipees-du-baccalaureat-de-lenseignement-general/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-844-pr-menfop-portant-reorganisation-du-deroulement-des-epreuves-anticipees-du-baccalaureat-de-lenseignement-general/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

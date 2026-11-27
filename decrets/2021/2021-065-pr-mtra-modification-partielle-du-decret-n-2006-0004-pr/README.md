@@ -1,8 +1,8 @@
 # Décret n° 2021-065/PR/MTRA portant modification partielle du Décret n° 2006-0004/PR/MS du 02 janvier 2006 portant revalorisation et harmonisation des rémunérations du corps de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-065-pr-mtra-portant-modification-partielle-du-decret-n2006-0004-pr-ms-du-02-janvier-2006-portant-revalorisation-et-harmonisation-des-remunerations-du-corps-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-065-pr-mtra-portant-modification-partielle-du-decret-n2006-0004-pr-ms-du-02-janvier-2006-portant-revalorisation-et-harmonisation-des-remunerations-du-corps-de-la-sante/>
 
-En vigueur : 2021-03-25 (date fixÃ©e par le texte).
+En vigueur : 2021-03-25 (date fixée par le texte).
 
 ## Visas
 

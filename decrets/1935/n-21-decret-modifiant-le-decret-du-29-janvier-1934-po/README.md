@@ -1,6 +1,6 @@
 # Décret n° n°21 Décret modifiant le décret du 29 janvier 1934 portant réorganisation du personnel du cadre général des services météorologiques colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n21-decret-modifiant-le-decret-du-29-janvier-1934-portant-reorganisation-du-personnel-du-cadre-general-des-services-meteorologiques-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n21-decret-modifiant-le-decret-du-29-janvier-1934-portant-reorganisation-du-personnel-du-cadre-general-des-services-meteorologiques-colonies/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ louis rollin
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

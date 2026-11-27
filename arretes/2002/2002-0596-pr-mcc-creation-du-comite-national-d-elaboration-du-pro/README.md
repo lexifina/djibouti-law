@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0596/PR/MCC portant création du Comité national d’élaboration du projet de stratégie de développement de l’infrastructure nationale des technologies de l’information et de la communication.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0596-pr-mcc-portant-creation-du-comite-national-delaboration-du-projet-de-strategie-de-developpement-de-linfrastructure-nationale-des-technologies-de-linf/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0596-pr-mcc-portant-creation-du-comite-national-delaboration-du-projet-de-strategie-de-developpement-de-linfrastructure-nationale-des-technologies-de-linf/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

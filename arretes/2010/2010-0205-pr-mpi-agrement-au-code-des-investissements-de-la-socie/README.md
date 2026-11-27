@@ -2,7 +2,7 @@
 des Investissements de la Société “Dahabshill
 Bank International”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0205-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-dahabshill-bank-international/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0205-pr-mpi-portant-agrement-au-code-des-investissements-de-la-societe-dahabshill-bank-international/>
 
 En vigueur : 2010-03-31 (date du Journal officiel qui le publie).
 

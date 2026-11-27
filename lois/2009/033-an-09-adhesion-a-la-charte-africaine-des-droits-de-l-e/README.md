@@ -1,6 +1,6 @@
 # Loi n° 33/AN/09/6ème L portant adhésion à la Charte Africaine des Droits de l’Enfant et de deux protocoles additionnels à la CDE.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-09-6eme-l-portant-adhesion-a-la-charte-africaine-des-droits-de-lenfant-et-de-deux-protocoles-additionnels-a-la-cde/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-09-6eme-l-portant-adhesion-a-la-charte-africaine-des-droits-de-lenfant-et-de-deux-protocoles-additionnels-a-la-cde/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 

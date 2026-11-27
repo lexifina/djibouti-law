@@ -1,6 +1,6 @@
 # Décret n° 74-56 relatif aux articles D. 133-1 à D. 133-9 du code de l’aviation civile fixant les frais de contrôle pour la délivrance et le maintien des certificats de navigabilité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-56-relatif-aux-articles-d-133-1-a-d-133-9-du-code-de-laviation-civile-fixant-les-frais-de-controle-pour-la-delivrance-et-le-maintien-des-certificats-de-navigabilite/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-56-relatif-aux-articles-d-133-1-a-d-133-9-du-code-de-laviation-civile-fixant-les-frais-de-controle-pour-la-delivrance-et-le-maintien-des-certificats-de-navigabilite/>
 
 En vigueur : 1975-07-10 (date du Journal officiel qui le publie).
 

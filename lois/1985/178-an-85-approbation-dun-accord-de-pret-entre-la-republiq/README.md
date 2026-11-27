@@ -1,6 +1,6 @@
 # Loi n° 178/AN/85/1re L portant approbation d’un accord de prêt entre la République de Djibouti et le Fonds koweïtien pour le Développement économique arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/11/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-85-1re-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/11/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-85-1re-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe/>
 
 En vigueur : 1985-11-30 (date du Journal officiel qui le publie).
 

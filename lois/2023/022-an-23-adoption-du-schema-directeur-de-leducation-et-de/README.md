@@ -1,8 +1,8 @@
 # LOI N°22/AN/23/9ÈME L PORTANT ADOPTION DU SCHÉMA DIRECTEUR DE L’EDUCATION ET DE LA FORMATION.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 18/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-23-9eme-l-portant-adoption-du-schema-directeur-de-leducation-et-de-la-formation/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 18/02/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-23-9eme-l-portant-adoption-du-schema-directeur-de-leducation-et-de-la-formation/>
 
-En vigueur : 2024-02-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-02-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

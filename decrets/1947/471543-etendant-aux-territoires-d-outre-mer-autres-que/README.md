@@ -1,6 +1,6 @@
 # Décret n° 471543 étendant aux territoires d’outre-mer autres que l’Indochine la loi n » 46-2389 du 28 octobre 1946 sur les dommages de guerre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-471543-etendant-aux-territoires-doutre-mer-autres-que-lindochine-la-loi-n-46-2389-du-28-octobre-1946-sur-les-dommages-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-471543-etendant-aux-territoires-doutre-mer-autres-que-lindochine-la-loi-n-46-2389-du-28-octobre-1946-sur-les-dommages-de-guerre/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2020-008/PRE portant exonération des équipements importés pour l’exploitation et la maintenance du Datacenter de l’État.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-008-pre-portant-exoneration-des-equipements-importes-pour-lexploitation-et-la-maintenance-du-datacenter-de-letat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-008-pre-portant-exoneration-des-equipements-importes-pour-lexploitation-et-la-maintenance-du-datacenter-de-letat/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0279/PR/MCCPT portant adoption du projet du Budget prévisionnel 2007 de la Poste de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0279-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2007-de-la-poste-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0279-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2007-de-la-poste-de-djibouti/>
 
 En vigueur : 2007-03-31 (date du Journal officiel qui le publie).
 

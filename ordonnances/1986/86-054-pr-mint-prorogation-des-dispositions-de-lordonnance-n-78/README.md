@@ -1,6 +1,6 @@
 # Ordonnance n° 86-054/PR/MINT portant prorogation des dispositions de l’ordonnance n° 78-022/PR du 22 novembre 1978 sur les rapports entre propriétaires et locataires de constructions en matériaux légers dans le district de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-054-pr-mint-portant-prorogation-des-dispositions-de-lordonnance-n78-022-pr-du-22-novembre-1978-sur-les-rapports-entre-proprietaires-et-locataires-de-constructions-en-mater/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-054-pr-mint-portant-prorogation-des-dispositions-de-lordonnance-n78-022-pr-du-22-novembre-1978-sur-les-rapports-entre-proprietaires-et-locataires-de-constructions-en-mater/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

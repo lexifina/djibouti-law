@@ -1,8 +1,8 @@
 # Décret n° 2023-124/PR/MB portant les exonérations fiscales de la Société Salaam Real Estate pour la construction de “SALAAM CITY”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-124-pr-mb-portant-les-exonerations-fiscales-de-la-societe-salaam-real-estate-pour-la-construction-de-salaam-city/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-124-pr-mb-portant-les-exonerations-fiscales-de-la-societe-salaam-real-estate-pour-la-construction-de-salaam-city/>
 
-En vigueur : 2023-05-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-05-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -29,4 +29,4 @@ SUR Proposition de Monsieur Le Ministre du Budget.
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

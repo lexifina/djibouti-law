@@ -1,6 +1,6 @@
 # Décret n° 09-166-1912 02/08/1910
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 166 du 01/09/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-166-1912-02-08-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 166 du 01/09/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-166-1912-02-08-1910/>
 
 En vigueur : 1910-09-01 (date du Journal officiel qui le publie).
 

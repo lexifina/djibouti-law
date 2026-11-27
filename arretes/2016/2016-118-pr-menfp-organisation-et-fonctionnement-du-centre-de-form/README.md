@@ -1,6 +1,6 @@
 # Arrêté n° 2016-118/PR/MENFP portant organisation et fonctionnement du Centre de Formation des Enseignants de l’Enseignement Fondamental (CFEEF).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-118-pr-menfp-portant-organisation-et-fonctionnement-du-centre-de-formation-des-enseignants-de-lenseignement-fondamental-cfeef/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-118-pr-menfp-portant-organisation-et-fonctionnement-du-centre-de-formation-des-enseignants-de-lenseignement-fondamental-cfeef/>
 
 En vigueur : 2016-05-31 (date du Journal officiel qui le publie).
 

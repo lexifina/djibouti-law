@@ -1,6 +1,6 @@
 # Loi n° 149/AN/24/9ème L portant approbation des comptes financiers 2023 de l’Agence Nationale pour la Promotion des Investissements.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 27/02/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-24-9eme-l-portant-approbation-des-comptes-financiers-2023-de-lagence-nationale-pour-la-promotion-des-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 27/02/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-24-9eme-l-portant-approbation-des-comptes-financiers-2023-de-lagence-nationale-pour-la-promotion-des-investissements/>
 
 En vigueur : 2025-02-28 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

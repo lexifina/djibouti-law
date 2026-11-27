@@ -1,6 +1,6 @@
 # Loi n° 2/AN/87/2e L portant interdiction des relations avec l’Afrique du Sud.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/10/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-87-2e-l-portant-interdiction-des-relations-avec-lafrique-du-sud/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/10/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-87-2e-l-portant-interdiction-des-relations-avec-lafrique-du-sud/>
 
 En vigueur : 1987-10-15 (date du Journal officiel qui le publie).
 

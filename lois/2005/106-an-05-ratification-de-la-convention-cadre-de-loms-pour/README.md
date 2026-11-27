@@ -1,6 +1,6 @@
 # Loi n° 106/AN/05/5ème L portant ratification de la Convention Cadre de l’OMS pour la lutte antitabac.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-05-5eme-l-portant-ratification-de-la-convention-cadre-de-loms-pour-la-lutte-antitabac/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-05-5eme-l-portant-ratification-de-la-convention-cadre-de-loms-pour-la-lutte-antitabac/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

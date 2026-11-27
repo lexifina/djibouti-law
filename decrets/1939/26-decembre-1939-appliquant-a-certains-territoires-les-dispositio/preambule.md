@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. — Les dispositions du décret susvisé du 23 octobre 1935 sont rendues applicables dans les territoires d’outre-mer relevant du ministéere des colonies L’exemption de l’amende prévue par ce texte sera accordée aux comptables de fait qui, dans les six mois de la promulgation du présent décret, auront signalé au gouverneur, par lettre recommandée, l’existence de leur gestion de fait.

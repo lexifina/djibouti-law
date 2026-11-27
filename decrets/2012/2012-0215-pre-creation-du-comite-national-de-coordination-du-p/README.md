@@ -1,6 +1,6 @@
 # Décret n° 2012-0215/PRE portant création du Comité National de Coordination du Projet E-Gouvernement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0215-pre-portant-creation-du-comite-national-de-coordination-du-projet-e-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0215-pre-portant-creation-du-comite-national-de-coordination-du-projet-e-gouvernement/>
 
 En vigueur : 2012-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 122/AN/01/4ème L modifiant et complétant la Loi n° 136/AN/97 relative à l’Organisation et au Fonctionnement de la Chambre des Comptes et de Discipline Budgétaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-01-4eme-l-modifiant-et-completant-la-loi-n136-an-97-relative-a-lorganisation-et-au-fonctionnement-de-la-chambre-des-comptes-et-de-discipline-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-01-4eme-l-modifiant-et-completant-la-loi-n136-an-97-relative-a-lorganisation-et-au-fonctionnement-de-la-chambre-des-comptes-et-de-discipline-budgetaire/>
 
 En vigueur : 2001-04-15 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

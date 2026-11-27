@@ -1,6 +1,6 @@
 # Loi n° 36/AN/83/1ère L portant modification du Code Général des Impôts « fiscalité directe ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-83-1ere-l-portant-modification-du-code-general-des-impots-fiscalite-directe/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-83-1ere-l-portant-modification-du-code-general-des-impots-fiscalite-directe/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art er -— Amuistie vpleine et entière est accordée, à la Côte francaise des Somalis, pour tous les faits commis antérieurement. au 10 mai 1939, lorsque les dispositions ci-après qui les prévoient et les punissent ont été rendues applicables dans cette colonie :
 1°A tous les délits et contraventions en matière de réunion, : élections à l’excep tion des dé lits de fraude et de corruption
 électorales, — Un conflits collectifs du travail et de manifestations sur la voie publique, ainsi qu ; tous les dé lits. à contri aventions connexes autres que les délits de vol, de recel, de pillage, d’incendie et de coups et blessures avant entraîné une maladie ou une incapacité de travail de plus de vingt jours;

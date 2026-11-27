@@ -1,6 +1,6 @@
 # Loi n° 218/AN/17/8ème L portant adoption des comptes financiers de l’Imprimerie Nationale de Djibouti pour l’exercice 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-17-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2015/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-17-8eme-l-portant-adoption-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-pour-lexercice-2015/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

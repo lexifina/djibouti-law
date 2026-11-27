@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1417 modifiant les articles 356 et 357 du Code pénal.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1948 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1417-modifiant-les-articles-356-et-357-du-code-penal/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 11 du 30/11/1948 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1417-modifiant-les-articles-356-et-357-du-code-penal/>
 
 En vigueur : 1948-11-30 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Pierre-Henri TEITGEN.
 | --- | --- |
 | [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

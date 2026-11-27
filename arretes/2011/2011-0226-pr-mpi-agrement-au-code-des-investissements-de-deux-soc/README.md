@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0226/PR/MPI portant Agrément au Code des Investissements de deux Sociétés.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0226-pr-mpi-portant-agrement-au-code-des-investissements-de-deux-societes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0226-pr-mpi-portant-agrement-au-code-des-investissements-de-deux-societes/>
 
 En vigueur : 2011-03-15 (date du Journal officiel qui le publie).
 

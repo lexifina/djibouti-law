@@ -1,6 +1,6 @@
 # Décret n° 2016-189/PR/MDCD relatif à la mise en place d’une commission de réflexion sur le renforcement du processus de décentralisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-189-pr-mdcd-relatif-a-la-mise-en-place-dune-commission-de-reflexion-sur-le-renforcement-du-processus-de-decentralisation/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-189-pr-mdcd-relatif-a-la-mise-en-place-dune-commission-de-reflexion-sur-le-renforcement-du-processus-de-decentralisation/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2019-194/PR/MERN portant modèle des cahiers des charges.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-194-pr-mern-portant-modele-des-cahiers-des-charges/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-194-pr-mern-portant-modele-des-cahiers-des-charges/>
 
-En vigueur : 2019-07-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

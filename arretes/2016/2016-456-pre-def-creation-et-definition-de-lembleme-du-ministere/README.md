@@ -1,6 +1,6 @@
 # Arrêté n° 2016-456/PRE/DEF portant création et définition de l’emblème du Ministère de la Défense, chargé des Relations avec le Parlement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-456-pre-def-portant-creation-et-definition-de-lembleme-du-ministere-de-la-defense-charge-des-relations-avec-le-parlement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-456-pre-def-portant-creation-et-definition-de-lembleme-du-ministere-de-la-defense-charge-des-relations-avec-le-parlement/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 

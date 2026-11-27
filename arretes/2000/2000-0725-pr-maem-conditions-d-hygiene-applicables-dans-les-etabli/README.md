@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0725/PR/MAEM relatif aux conditions d’hygiène applicables dans les établissements de manipulation des produits de la pêche.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0725-pr-maem-relatif-aux-conditions-dhygiene-applicables-dans-les-etablissements-de-manipulation-des-produits-de-la-peche/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0725-pr-maem-relatif-aux-conditions-dhygiene-applicables-dans-les-etablissements-de-manipulation-des-produits-de-la-peche/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 93-0070/PR/TP portant classification du réseau routier et modifiant le décret n° 82-050/PR/TP du 16 juin 1982.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0070-pr-tp-portant-classification-du-reseau-routier-et-modifiant-le-decret-n82-050-pr-tp-du-16-juin-1982/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0070-pr-tp-portant-classification-du-reseau-routier-et-modifiant-le-decret-n82-050-pr-tp-du-16-juin-1982/>
 
 En vigueur : 1993-07-15 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ HASSAN GOULED APTIDON
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
-| [art-002.md](art-002.md) | Art.2 – |
+| [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Article 3 |

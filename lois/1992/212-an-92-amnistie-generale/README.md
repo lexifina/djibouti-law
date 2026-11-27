@@ -1,6 +1,6 @@
 # Loi n° 212/AN/92/2e L portant amnistie générale
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-92-2e-l-portant-amnistie-generale-2/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-92-2e-l-portant-amnistie-generale-2/>
 
 En vigueur : 1992-06-30 (date du Journal officiel qui le publie).
 

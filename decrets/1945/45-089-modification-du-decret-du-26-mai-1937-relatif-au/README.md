@@ -1,6 +1,6 @@
 # Décret n° 45-089 portant modification du décret du 26 mai 1937 relatif au logement et à ‘ameublement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-089-portant-modification-du-decret-du-26-mai-1937-relatif-au-logement-et-a-ameublement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-089-portant-modification-du-decret-du-26-mai-1937-relatif-au-logement-et-a-ameublement-aux-colonies/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2001-0222/PR/PM portant création d’une Inspection Générale d’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0222-pr-pm-portant-creation-dune-inspection-generale-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0222-pr-pm-portant-creation-dune-inspection-generale-detat/>
 
 En vigueur : 2001-11-29 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

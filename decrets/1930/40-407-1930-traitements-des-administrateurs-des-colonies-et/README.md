@@ -1,6 +1,6 @@
 # Décret n° 40-407-1930 Traitements des administrateurs des colonies et des administrateurs des services civils de l’Indochine :
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-40-407-1930-traitements-des-administrateurs-des-colonies-et-des-administrateurs-des-services-civils-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-40-407-1930-traitements-des-administrateurs-des-colonies-et-des-administrateurs-des-services-civils-de-lindochine/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Francois PIÉTRE,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

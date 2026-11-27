@@ -1,6 +1,6 @@
 # Décret n° 88-028/PR/MADR Portant statuts de la Société des Aliments du Bétail.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-028-pr-madr-portant-statuts-de-la-societe-des-aliments-du-betail/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 14/04/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-028-pr-madr-portant-statuts-de-la-societe-des-aliments-du-betail/>
 
 En vigueur : 1988-04-14 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ HASSAN GOULED APTIDON
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

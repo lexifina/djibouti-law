@@ -1,6 +1,6 @@
 # Décret n° 03-198-1913 10 décembre 1912
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 198 du 30/04/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-198-1913-10-decembre-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 198 du 30/04/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-198-1913-10-decembre-1912/>
 
 En vigueur : 1913-04-30 (date du Journal officiel qui le publie).
 
@@ -58,4 +58,4 @@ L-KLOTZ.
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 94‑0153/PRE/MEC portant organisation de la Table ronde sur le programme de redressement économique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 30/11/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910153-pre-mec-portant-organisation-de-la-table-ronde-sur-le-programme-de-redressement-economique/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 30/11/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910153-pre-mec-portant-organisation-de-la-table-ronde-sur-le-programme-de-redressement-economique/>
 
 En vigueur : 1994-11-30 (date du Journal officiel qui le publie).
 

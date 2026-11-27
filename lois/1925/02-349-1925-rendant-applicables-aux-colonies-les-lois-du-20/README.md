@@ -1,6 +1,6 @@
 # Loi n° 02-349-1925 rendant applicables aux colonies les lois du 20 décembre 1906 et du 29 octobre 1909.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 349 du 31/12/1925 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-349-1925-rendant-applicables-aux-colonies-les-lois-du-20-decembre-1906-et-du-29-octobre-1909/>
+Loi · Journal officiel de la République de Djibouti, n° 349 du 31/12/1925 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-349-1925-rendant-applicables-aux-colonies-les-lois-du-20-decembre-1906-et-du-29-octobre-1909/>
 
 En vigueur : 1925-12-31 (date du Journal officiel qui le publie).
 

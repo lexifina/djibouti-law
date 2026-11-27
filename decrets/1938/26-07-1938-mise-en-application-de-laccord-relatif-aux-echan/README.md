@@ -1,8 +1,8 @@
 # Décret n° 26/07/1938 concernant la mise en application de l’accord relatif aux échanges et aux paiements des marchandises entre les colonies et possessions françaises et l’Italie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-07-1938-concernant-la-mise-en-application-de-laccord-relatif-aux-echanges-et-aux-paiements-des-marchandises-entre-les-colonies-et-possessions-francaises-et-litalie/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-07-1938-concernant-la-mise-en-application-de-laccord-relatif-aux-echanges-et-aux-paiements-des-marchandises-entre-les-colonies-et-possessions-francaises-et-litalie/>
 
-En vigueur : 1938-07-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1938-07-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

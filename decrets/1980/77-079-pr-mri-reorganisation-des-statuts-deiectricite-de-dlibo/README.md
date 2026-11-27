@@ -1,6 +1,6 @@
 # Décret n° 77-079/PR/MRI portant réorganisation des statuts d’Eiectricité de Dlibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-079-pr-mri-portant-reorganisation-des-statuts-deiectricite-de-dlibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-079-pr-mri-portant-reorganisation-des-statuts-deiectricite-de-dlibouti/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Le Conseil des Ministres entendu dans sa séance du 6 décembre 1977 ;
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

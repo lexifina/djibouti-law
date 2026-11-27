@@ -1,6 +1,6 @@
 # Ordonnance n° 88-087/PR tendant à faciliter le redressement économique et financier de certaines entreprises.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1988 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n88-087-pr-tendant-a-faciliter-le-redressement-economique-et-financier-de-certaines-entreprises/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 22 du 30/11/1988 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n88-087-pr-tendant-a-faciliter-le-redressement-economique-et-financier-de-certaines-entreprises/>
 
 En vigueur : 1988-11-30 (date du Journal officiel qui le publie).
 

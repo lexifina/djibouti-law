@@ -1,6 +1,6 @@
 # Loi n° 120/AN/05/5ème L Portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Koweïtien pour le Développement Économique et Arabe (KFAED).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-et-arabe-kfaed/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-et-arabe-kfaed/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

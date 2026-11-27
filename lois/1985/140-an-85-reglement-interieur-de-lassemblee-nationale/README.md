@@ -1,6 +1,6 @@
 # Loi n° 140/AN/85/1ère L concernant le Règlement Intérieur de l’Assemblée Nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/03/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-85-1ere-l-concernant-le-reglement-interieur-de-lassemblee-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/03/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-85-1ere-l-concernant-le-reglement-interieur-de-lassemblee-nationale/>
 
 En vigueur : 1985-03-16 (date du Journal officiel qui le publie).
 

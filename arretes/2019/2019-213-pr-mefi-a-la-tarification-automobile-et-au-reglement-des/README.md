@@ -1,6 +1,6 @@
 # Arrêté n° 2019-213/PR/MEFI relatif à la tarification automobile et au règlement des sinistres matériels automobiles.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-213-pr-mefi-relatif-a-la-tarification-automobile-et-au-reglement-des-sinistres-materiels-automobiles/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-213-pr-mefi-relatif-a-la-tarification-automobile-et-au-reglement-des-sinistres-materiels-automobiles/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -53,4 +53,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

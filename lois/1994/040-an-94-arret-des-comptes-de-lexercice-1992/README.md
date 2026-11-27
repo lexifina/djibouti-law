@@ -1,6 +1,6 @@
 # Loi n° 40/AN/94/3e L portant arrêt des comptes de l’exercice 1992
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-94-3e-l-portant-arret-des-comptes-de-lexercice-1992/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-94-3e-l-portant-arret-des-comptes-de-lexercice-1992/>
 
 En vigueur : 1994-03-31 (date du Journal officiel qui le publie).
 

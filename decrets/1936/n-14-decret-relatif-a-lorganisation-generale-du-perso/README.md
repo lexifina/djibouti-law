@@ -1,6 +1,6 @@
 # Décret n° n°14 Décret relatif à l’organisation générale du personnel des trésoreries coloniales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-decret-relatif-a-lorganisation-generale-du-personnel-des-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n14-decret-relatif-a-lorganisation-generale-du-personnel-des-tresoreries-coloniales/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

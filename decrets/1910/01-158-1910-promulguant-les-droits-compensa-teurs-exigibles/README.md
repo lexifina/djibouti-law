@@ -1,6 +1,6 @@
 # Décret n° 01-158-1910 promulguant les droits compensa teurs exigibles en /•’rance, en Algérie , dans les Colonies et Possessions françaises et dans les Pai/s de protectorat de l’Indochine, en vertu de la Convention de Bruxelles, sur les sucres originaires de la Colonie portugaise de Mozambique
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 158 du 01/01/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-158-1910-promulguant-les-droits-compensa-teurs-exigibles-en-rance-en-algerie-dans-les-colonies-et-possessions-francaises-et-dans-les-pai-s-de-protectorat-de-lindochi/>
+Décret · Journal officiel de la République de Djibouti, n° 158 du 01/01/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-158-1910-promulguant-les-droits-compensa-teurs-exigibles-en-rance-en-algerie-dans-les-colonies-et-possessions-francaises-et-dans-les-pai-s-de-protectorat-de-lindochi/>
 
 En vigueur : 1910-01-01 (date du Journal officiel qui le publie).
 

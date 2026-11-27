@@ -1,6 +1,6 @@
 # Décret n° 77-058/PR portant ouverture de la session budgétaire de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-058-pr-portant-ouverture-de-la-session-budgetaire-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-058-pr-portant-ouverture-de-la-session-budgetaire-de-lassemblee-nationale/>
 
 En vigueur : 1977-11-28 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ HASSAN GOULED APTIDON
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

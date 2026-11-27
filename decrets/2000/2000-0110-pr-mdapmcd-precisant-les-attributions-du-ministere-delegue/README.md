@@ -1,6 +1,6 @@
 # Décret n° 2000-0110/PR/MDAPMCD précisant les attributions du Ministère Délégué auprès du Premier Ministre, chargé de la Décentralisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0110-pr-mdapmcd-precisant-les-attributions-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-decentralisation/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0110-pr-mdapmcd-precisant-les-attributions-du-ministere-delegue-aupres-du-premier-ministre-charge-de-la-decentralisation/>
 
 En vigueur : 2000-05-15 (date du Journal officiel qui le publie).
 

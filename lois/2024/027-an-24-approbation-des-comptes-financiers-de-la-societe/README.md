@@ -1,6 +1,6 @@
 # Loi n° 27/AN/24/9ème L portant approbation des comptes financiers de la Société Immobilière et d’Aménagement Foncier pour l’exercice 2019.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-et-damenagement-foncier-pour-lexercice-2019/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 30/04/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-et-damenagement-foncier-pour-lexercice-2019/>
 
 En vigueur : 2024-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

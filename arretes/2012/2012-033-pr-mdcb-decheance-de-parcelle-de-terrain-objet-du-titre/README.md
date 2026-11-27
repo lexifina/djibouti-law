@@ -1,6 +1,6 @@
 # Arrêté n° 2012-033/PR/MDCB portant la déchéance de parcelle de terrain objet du Titre Foncier n° 8158 à Mr Hassan Mohamed Kamil.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-033-pr-mdcb-portant-la-decheance-de-parcelle-de-terrain-objet-du-titre-foncier-n8158-a-mr-hassan-mohamed-kamil/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-033-pr-mdcb-portant-la-decheance-de-parcelle-de-terrain-objet-du-titre-foncier-n8158-a-mr-hassan-mohamed-kamil/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 98-0378/PR/EN annulant les allocations scolaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0378-pr-en-annulant-les-allocations-scolaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/arrete-n98-0378-pr-en-annulant-les-allocations-scolaires/>
 
-En vigueur : 1998-09-01 (date fixÃ©e par le texte).
+En vigueur : 1998-09-01 (date fixée par le texte).
 
 ## Visas
 

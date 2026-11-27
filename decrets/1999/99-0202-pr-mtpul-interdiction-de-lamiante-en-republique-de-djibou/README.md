@@ -1,6 +1,6 @@
 # Décret n° 99-0202/PR/MTPUL portant interdiction de l’amiante en République de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0202-pr-mtpul-portant-interdiction-de-lamiante-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0202-pr-mtpul-portant-interdiction-de-lamiante-en-republique-de-djibouti/>
 
 En vigueur : 1999-10-31 (date du Journal officiel qui le publie).
 

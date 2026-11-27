@@ -1,8 +1,8 @@
 # Arrêté n° 2016-045/PR/MEFI portant création du Comité d’élaboration du cadre juridique et institutionnel des partenariats public-privé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-045-pr-mefi-portant-creation-du-comite-delaboration-du-cadre-juridique-et-institutionnel-des-partenariats-public-prive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-045-pr-mefi-portant-creation-du-comite-delaboration-du-cadre-juridique-et-institutionnel-des-partenariats-public-prive/>
 
-En vigueur : 2016-01-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-01-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

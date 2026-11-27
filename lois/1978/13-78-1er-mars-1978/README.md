@@ -1,6 +1,6 @@
 # Loi n° 13/78 du 1er mars 1978.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 13/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n13-78-du-1er-mars-1978/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 13/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n13-78-du-1er-mars-1978/>
 
 En vigueur : 1978-03-13 (date du Journal officiel qui le publie).
 

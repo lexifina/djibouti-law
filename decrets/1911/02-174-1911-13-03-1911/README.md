@@ -1,6 +1,6 @@
 # Décret n° 02-174-1911 13/03/1911
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 174 du 01/05/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-174-1911-13-03-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 174 du 01/05/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-174-1911-13-03-1911/>
 
 En vigueur : 1911-05-01 (date du Journal officiel qui le publie).
 

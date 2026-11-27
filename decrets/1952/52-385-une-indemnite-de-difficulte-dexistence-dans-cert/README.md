@@ -1,6 +1,6 @@
 # Décret n° 52-385 instituant une indemnité de difficulté d’existence dans certains localités de la France d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-385-instituant-une-indemnite-de-difficulte-dexistence-dans-certains-localites-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/06/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-385-instituant-une-indemnite-de-difficulte-dexistence-dans-certains-localites-de-la-france-doutre-mer/>
 
 En vigueur : 1952-06-01 (date du Journal officiel qui le publie).
 

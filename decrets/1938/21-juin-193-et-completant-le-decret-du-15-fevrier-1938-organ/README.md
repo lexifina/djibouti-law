@@ -1,6 +1,6 @@
 # Décret n° 21 juin 193 modifiant et complétant le décret du 15 février 1938 organisant le contrôle du conditionnement de produit agricoles originaire ou en provenance des territoires relevant du ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-juin-193-modifiant-et-completant-le-decret-du-15-fevrier-1938-organisant-le-controle-du-conditionnement-de-produit-agricoles-originaire-ou-en-provenance-des-territoires-relevant-du/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-juin-193-modifiant-et-completant-le-decret-du-15-fevrier-1938-organisant-le-controle-du-conditionnement-de-produit-agricoles-originaire-ou-en-provenance-des-territoires-relevant-du/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

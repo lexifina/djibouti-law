@@ -1,6 +1,6 @@
 # Décret n° 2019-128/PR/MDC portant organisation des opérations électorales de la Chambre de Commerce de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-128-pr-mdc-portant-organisation-des-operations-electorales-de-la-chambre-de-commerce-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 13/06/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-128-pr-mdc-portant-organisation-des-operations-electorales-de-la-chambre-de-commerce-de-djibouti/>
 
 En vigueur : 2019-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 183/AN/25/9ème L portant ratification du Statut du Centre du Travail de l’Organisation de la Coopération Islamique (OCI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-25-9eme-l-portant-ratification-du-statut-du-centre-du-travail-de-lorganisation-de-la-cooperation-islamique-oci/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 30/10/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-25-9eme-l-portant-ratification-du-statut-du-centre-du-travail-de-lorganisation-de-la-cooperation-islamique-oci/>
 
 En vigueur : 2025-10-31 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

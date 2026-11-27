@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0022/PR/MEFPCP portant transfert d’une parcelle de terrain au profit du Ministère de l’Economie, des Finances et de la Planification, chargé de la Privatisation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0022-pr-mefpcp-portant-transfert-dune-parcelle-de-terrain-au-profit-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0022-pr-mefpcp-portant-transfert-dune-parcelle-de-terrain-au-profit-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
 
 En vigueur : 2007-01-15 (date du Journal officiel qui le publie).
 

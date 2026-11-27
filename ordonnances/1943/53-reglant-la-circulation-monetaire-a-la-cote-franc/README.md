@@ -1,6 +1,6 @@
 # Ordonnance n° 53 réglant la circulation monétaire à la Côte Française des Somalis.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-53-reglant-la-circulation-monetaire-a-la-cote-francaise-des-somalis/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-53-reglant-la-circulation-monetaire-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

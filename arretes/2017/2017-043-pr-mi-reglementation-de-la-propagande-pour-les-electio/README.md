@@ -1,6 +1,6 @@
 # Arrêté n° 2017-043/PR/MI portant réglementation de la propagande pour les Elections Régionales et Communales du 24 Février et 17 Mars 2017.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 08/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-043-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-regionales-et-communales-du-24-fevrier-et-17-mars-2017/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 08/03/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-043-pr-mi-portant-reglementation-de-la-propagande-pour-les-elections-regionales-et-communales-du-24-fevrier-et-17-mars-2017/>
 
 En vigueur : 2017-03-08 (date du Journal officiel qui le publie).
 

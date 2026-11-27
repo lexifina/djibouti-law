@@ -1,6 +1,6 @@
 # Décret n° 92‑0051/PRE portant obligation de communication de renseignements statistiques à la Banque Nationale de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910051-pre-portant-obligation-de-communication-de-renseignements-statistiques-a-la-banque-nationale-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910051-pre-portant-obligation-de-communication-de-renseignements-statistiques-a-la-banque-nationale-de-djibouti/>
 
 En vigueur : 1992-05-31 (date du Journal officiel qui le publie).
 

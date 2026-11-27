@@ -1,6 +1,6 @@
 # Décret n° 85-036/PR/DEF portant création d’un Compte Épargne Militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-036-pr-def-portant-creation-dun-compte-epargne-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/03/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-036-pr-def-portant-creation-dun-compte-epargne-militaire/>
 
 En vigueur : 1985-03-30 (date du Journal officiel qui le publie).
 

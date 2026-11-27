@@ -1,6 +1,6 @@
 # Décret n° 2007-0044/PR/MAPCPI portant Création d’un Comité Technique, chargé de la mise en conformité des documents administratifs publics et parapublics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0044-pr-mapcpi-portant-creation-dun-comite-technique-charge-de-la-mise-en-conformite-des-documents-administratifs-publics-et-parapublics/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0044-pr-mapcpi-portant-creation-dun-comite-technique-charge-de-la-mise-en-conformite-des-documents-administratifs-publics-et-parapublics/>
 
 En vigueur : 2007-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Additif n° 2063 30/11/1947
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-2063-30-11-1947/>
+Additif · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/additif-n-2063-30-11-1947/>
 
 En vigueur : 1947-12-31 (date du Journal officiel qui le publie).
 

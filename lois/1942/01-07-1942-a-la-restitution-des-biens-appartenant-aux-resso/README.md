@@ -1,6 +1,6 @@
 # Loi n° 01/07/1942 relative à la restitution des biens appartenant aux ressortissants allemands.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 548 du 31/07/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-01-07-1942-relative-a-la-restitution-des-biens-appartenant-aux-ressortissants-allemands/>
+Loi · Journal officiel de la République de Djibouti, n° 548 du 31/07/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-01-07-1942-relative-a-la-restitution-des-biens-appartenant-aux-ressortissants-allemands/>
 
 En vigueur : 1942-07-31 (date du Journal officiel qui le publie).
 

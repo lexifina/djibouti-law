@@ -1,6 +1,6 @@
 # Décret n° le 2 juin 1938 relatif à l’honorariat du grade pour les fonctionnaire» et magistrats coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 499 du 30/06/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-juin-1938-relatif-a-lhonorariat-du-grade-pour-les-fonctionnaire-et-magistrats-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 499 du 30/06/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-juin-1938-relatif-a-lhonorariat-du-grade-pour-les-fonctionnaire-et-magistrats-coloniaux/>
 
 En vigueur : 1938-06-30 (date du Journal officiel qui le publie).
 

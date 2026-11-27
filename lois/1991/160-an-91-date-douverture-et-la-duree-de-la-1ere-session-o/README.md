@@ -1,6 +1,6 @@
 # Loi n° 160/AN/91/2è L fixant la date d’ouverture et la durée de la 1ère session ordinaire de 1991.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-91-2e-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1991/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-91-2e-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1991/>
 
 En vigueur : 1991-05-15 (date du Journal officiel qui le publie).
 

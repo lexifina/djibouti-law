@@ -1,6 +1,6 @@
 # Décret n° 82-031/PR/DEF portant création et organisation de la Direction des services administratifs et financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-031-pr-def-portant-creation-et-organisation-de-la-direction-des-services-administratifs-et-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-031-pr-def-portant-creation-et-organisation-de-la-direction-des-services-administratifs-et-financiers/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 

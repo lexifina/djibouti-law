@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0231/PR/MCCPT portant approbation du budget prévisionnel de la Radiodiffusion Télévision de Djibouti pour l’exercice 2003.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0231-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radiodiffusion-television-de-djibouti-pour-lexercice-2003/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0231-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radiodiffusion-television-de-djibouti-pour-lexercice-2003/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

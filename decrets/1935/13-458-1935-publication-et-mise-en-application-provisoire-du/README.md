@@ -1,6 +1,6 @@
 # Décret n° 13-458-1935 Publication et mise en application provisoire d’un avenant à l’arrangée nt relatif aux échanges commerciaux franco-allemands du 28 juillet 1934, signé à Paris le 30 novembre 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-458-1935-publication-et-mise-en-application-provisoire-dun-avenant-a-larrangee-nt-relatif-aux-echanges-commerciaux-franco-allemands-du-28-juillet-1934-signe-a-paris-le-30-novem/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-458-1935-publication-et-mise-en-application-provisoire-dun-avenant-a-larrangee-nt-relatif-aux-echanges-commerciaux-franco-allemands-du-28-juillet-1934-signe-a-paris-le-30-novem/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

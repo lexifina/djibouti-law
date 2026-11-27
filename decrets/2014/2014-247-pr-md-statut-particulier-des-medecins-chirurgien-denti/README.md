@@ -1,6 +1,6 @@
 # Décret n° 2014-247/PR/MD relatif au statut particulier des Médecins, chirurgien-dentistes, pharmaciens et officiers du corps Technique et Administratif du Service de Santé des Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-247-pr-md-relatif-au-statut-particulier-des-medecins-chirurgien-dentistes-pharmaciens-et-officiers-du-corps-technique-et-administratif-du-service-de-sante-des-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-247-pr-md-relatif-au-statut-particulier-des-medecins-chirurgien-dentistes-pharmaciens-et-officiers-du-corps-technique-et-administratif-du-service-de-sante-des-armees/>
 
 En vigueur : 2014-09-15 (date du Journal officiel qui le publie).
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

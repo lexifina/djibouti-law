@@ -1,6 +1,6 @@
 # Décret n° 8 mars 1938 portant application aux colonies et pays de protectorat relevant du ministère des colonies de la loi du 25 mars 1938 prorogeant la loi du 22 mars 1936 tendant à protéger l’industrie et le commerce de détail de la chaussure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mars-1938-portant-application-aux-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-de-la-loi-du-25-mars-1938-prorogeant-la-loi-du-22-mars-1936-tendant-a-protege/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mars-1938-portant-application-aux-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-de-la-loi-du-25-mars-1938-prorogeant-la-loi-du-22-mars-1936-tendant-a-protege/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 

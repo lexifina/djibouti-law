@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0459/PR/MESR portant réglementation propre aux diplômes nationaux menant au grade de licence et au titre de diplôme d’études universitaires générales mention “Journalisme, Documentation et Communication”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0459-pr-mesr-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales-mention-journa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0459-pr-mesr-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-universitaires-generales-mention-journa/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

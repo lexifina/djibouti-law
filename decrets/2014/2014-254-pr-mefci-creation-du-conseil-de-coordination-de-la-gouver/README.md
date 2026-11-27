@@ -1,6 +1,6 @@
 # Décret n° 2014-254/PR/MEFCI portant création du Conseil de Coordination de la Gouvernance des Entreprises et Etablissements Publics (CCGEEP).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-254-pr-mefci-portant-creation-du-conseil-de-coordination-de-la-gouvernance-des-entreprises-et-etablissements-publics-ccgeep/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-254-pr-mefci-portant-creation-du-conseil-de-coordination-de-la-gouvernance-des-entreprises-et-etablissements-publics-ccgeep/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

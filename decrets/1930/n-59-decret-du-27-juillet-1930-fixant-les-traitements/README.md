@@ -1,6 +1,6 @@
 # Décret n° n°59 Décret du 27 juillet 1930 fixant les traitements des magistrats coloniaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n59-decret-du-27-juillet-1930-fixant-les-traitements-des-magistrats-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n59-decret-du-27-juillet-1930-fixant-les-traitements-des-magistrats-coloniaux/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

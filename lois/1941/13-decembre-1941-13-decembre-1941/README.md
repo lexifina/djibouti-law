@@ -1,6 +1,6 @@
 # Loi n° 13 décembre 1941 13 décembre 1941
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 541 du 31/12/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-13-decembre-1941-13-decembre-1941/>
+Loi · Journal officiel de la République de Djibouti, n° 541 du 31/12/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-13-decembre-1941-13-decembre-1941/>
 
 En vigueur : 1941-12-31 (date du Journal officiel qui le publie).
 

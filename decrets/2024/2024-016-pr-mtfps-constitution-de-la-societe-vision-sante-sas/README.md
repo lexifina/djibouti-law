@@ -1,8 +1,8 @@
 # Décret n° 2024-016/PR/MTFPS portant constitution de la société Vision Santé SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 31/01/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-016-pr-mtfps-portant-constitution-de-la-societe-vision-sante-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 31/01/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-016-pr-mtfps-portant-constitution-de-la-societe-vision-sante-sas/>
 
-En vigueur : 2024-01-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-01-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

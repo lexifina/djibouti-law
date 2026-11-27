@@ -1,6 +1,6 @@
 # Décret n° 2022-314/PR/MI fixant les modalités d’organisation du scrutin du 24 Février 2023 pour les élections des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-314-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-24-fevrier-2023-pour-les-elections-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-314-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-24-fevrier-2023-pour-les-elections-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 2022-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 80/AN/10/6ème L portant modification du Code de la Route en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 06/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-10-6eme-l-portant-modification-du-code-de-la-route-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 06/06/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-10-6eme-l-portant-modification-du-code-de-la-route-en-republique-de-djibouti/>
 
 En vigueur : 2010-06-06 (date du Journal officiel qui le publie).
 
@@ -15,4 +15,4 @@ Le Conseil des Ministres entendu en sa séance du 07 Avril 2009.
 | Fichier | Disposition |
 | --- | --- |
 | [art-119.md](art-119.md) | Article 119 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

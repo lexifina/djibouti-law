@@ -1,6 +1,6 @@
 # Décret n° 68-796 du 9 septembre 1968 modifiant le décret n° 63-766 du 30 juillet 1963 portant règlement d’administration publique pour l’application de l’ordonnance n° 45-1708 du 31 juillet 1945 et relatif à l’organisation et au fonctionnement du Conseil d’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-796-du-9-septembre-1968-modifiant-le-decret-n-63-766-du-30-juillet-1963-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-796-du-9-septembre-1968-modifiant-le-decret-n-63-766-du-30-juillet-1963-portant-reglement-dadministration-publique-pour-lapplication-de-lordonnance/>
 
 En vigueur : 1968-10-10 (date du Journal officiel qui le publie).
 
@@ -41,5 +41,5 @@ Francois ORTOLI.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

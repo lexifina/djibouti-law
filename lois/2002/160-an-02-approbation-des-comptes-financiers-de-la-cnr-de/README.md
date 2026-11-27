@@ -1,6 +1,6 @@
 # Loi n° 160/AN/02/4ème L portant approbation des comptes financiers : de la CNR, de l’ONTD, de l’ONED, de l’OPS, du CERD et de la SID pour les exercices des années 1998, 1999 et 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-la-cnr-de-lontd-de-loned-de-lops-du-cerd-et-de-la-sid-pour-les-exercices-des-annees-1998-1999-et-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-la-cnr-de-lontd-de-loned-de-lops-du-cerd-et-de-la-sid-pour-les-exercices-des-annees-1998-1999-et-2000/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

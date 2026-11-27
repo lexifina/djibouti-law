@@ -1,6 +1,6 @@
 # Décret n° 08-373-1927 Ratification pour les colonies et pays sous mandat des actes de la conférence télégraphique de Paris.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 373 du 31/12/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-373-1927-ratification-pour-les-colonies-et-pays-sous-mandat-des-actes-de-la-conference-telegraphique-de-paris/>
+Décret · Journal officiel de la République de Djibouti, n° 373 du 31/12/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-373-1927-ratification-pour-les-colonies-et-pays-sous-mandat-des-actes-de-la-conference-telegraphique-de-paris/>
 
 En vigueur : 1927-12-31 (date du Journal officiel qui le publie).
 

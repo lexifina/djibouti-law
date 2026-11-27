@@ -1,6 +1,6 @@
 # Décret n° 8-343-1925 Hommes exclus de l’armée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 343 du 30/06/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-343-1925-hommes-exclus-de-larmee/>
+Décret · Journal officiel de la République de Djibouti, n° 343 du 30/06/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-343-1925-hommes-exclus-de-larmee/>
 
 En vigueur : 1925-06-30 (date du Journal officiel qui le publie).
 

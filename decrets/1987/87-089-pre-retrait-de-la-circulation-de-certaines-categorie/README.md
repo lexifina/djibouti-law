@@ -1,6 +1,6 @@
 # Décret n° 87-089/PRE portant retrait de la circulation de certaines catégories de billets.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-089-pre-portant-retrait-de-la-circulation-de-certaines-categories-de-billets/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-089-pre-portant-retrait-de-la-circulation-de-certaines-categories-de-billets/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°6 Décret portant extension aux colonies et territoires sous mandat français du Togo et du Cameroun, à l’exception des Antilles et de la Réunion, de la loi du 4 février 1934, relative au Code civil
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 457 du 31/12/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n6-decret-portant-extension-aux-colonies-et-territoires-sous-mandat-francais-du-togo-et-du-cameroun-a-lexception-des-antilles-et-de-la-reunion-de-la-loi-du-4-fevrier-1934-re/>
+Décret · Journal officiel de la République de Djibouti, n° 457 du 31/12/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n6-decret-portant-extension-aux-colonies-et-territoires-sous-mandat-francais-du-togo-et-du-cameroun-a-lexception-des-antilles-et-de-la-reunion-de-la-loi-du-4-fevrier-1934-re/>
 
 En vigueur : 1934-12-31 (date du Journal officiel qui le publie).
 

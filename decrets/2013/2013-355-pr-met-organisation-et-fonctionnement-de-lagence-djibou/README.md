@@ -1,6 +1,6 @@
 # Décret n° 2013-355/PR/MET portant organisation et fonctionnement de l’Agence Djiboutienne des Routes (ADR).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-355-pr-met-portant-organisation-et-fonctionnement-de-lagence-djiboutienne-des-routes-adr/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-355-pr-met-portant-organisation-et-fonctionnement-de-lagence-djiboutienne-des-routes-adr/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

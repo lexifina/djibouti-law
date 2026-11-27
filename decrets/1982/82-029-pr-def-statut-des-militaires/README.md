@@ -1,6 +1,6 @@
 # Décret n° 82-029/PR/DEF portant statut des militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-029-pr-def-portant-statut-des-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-029-pr-def-portant-statut-des-militaires/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 
@@ -64,4 +64,4 @@ HASSpr GOULED APTIDON
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

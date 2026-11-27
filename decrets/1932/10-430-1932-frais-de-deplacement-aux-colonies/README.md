@@ -1,6 +1,6 @@
 # Décret n° 10-430-1932 Frais de déplacement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 430 du 30/09/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-430-1932-frais-de-deplacement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 430 du 30/09/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-430-1932-frais-de-deplacement-aux-colonies/>
 
 En vigueur : 1932-09-30 (date du Journal officiel qui le publie).
 

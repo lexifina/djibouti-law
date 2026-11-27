@@ -1,6 +1,6 @@
 # Arrêté n° 2016-454/PR/MB portant expropriation d’une parcelle de terrain urbain bâti sise au lotissement la Plaine.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-454-pr-mb-portant-expropriation-dune-parcelle-de-terrain-urbain-bati-sise-au-lotissement-la-plaine/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-454-pr-mb-portant-expropriation-dune-parcelle-de-terrain-urbain-bati-sise-au-lotissement-la-plaine/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 

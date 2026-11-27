@@ -1,6 +1,6 @@
 # Décret n° 71-186 DU 11 MARS 1971 relatif aux attributions du Ministre d’Etat chargé äes départements et territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-186-du-11-mars-1971-relatif-aux-attributions-du-ministre-detat-charge-aes-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-186-du-11-mars-1971-relatif-aux-attributions-du-ministre-detat-charge-aes-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1971-03-25 (date du Journal officiel qui le publie).
 

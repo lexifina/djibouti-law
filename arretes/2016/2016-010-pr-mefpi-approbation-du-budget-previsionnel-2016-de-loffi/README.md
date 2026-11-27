@@ -1,6 +1,6 @@
 # Arrêté n° 2016-010/PR/MEFPI portant approbation du Budget Prévisionnel 2016 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-010-pr-mefpi-portant-approbation-du-budget-previsionnel-2016-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-010-pr-mefpi-portant-approbation-du-budget-previsionnel-2016-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

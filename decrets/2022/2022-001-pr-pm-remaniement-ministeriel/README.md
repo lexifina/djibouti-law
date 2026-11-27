@@ -1,6 +1,6 @@
 # Décret n° 2022-001/PR/PM portant Remaniement Ministériel
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 13/01/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-001-pr-pm-portant-remaniement-ministeriel/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 13/01/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-001-pr-pm-portant-remaniement-ministeriel/>
 
 En vigueur : 2022-01-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

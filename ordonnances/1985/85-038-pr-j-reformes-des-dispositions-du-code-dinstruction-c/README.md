@@ -1,6 +1,6 @@
 # Ordonnance n° 85/038/PR/J Portant réformes des dispositions du Code d’Instruction criminelle relative aux mandats de justice, à la détention préventive et aux demandes et décisions de mise en liberté en cours d’information et avant jugement au fond.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-038-pr-j-portant-reformes-des-dispositions-du-code-dinstruction-criminelle-relative-aux-mandats-de-justice-a-la-detention-preventive-et-aux-demandes-et-decisions-de-mise-en-lib/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-038-pr-j-portant-reformes-des-dispositions-du-code-dinstruction-criminelle-relative-aux-mandats-de-justice-a-la-detention-preventive-et-aux-demandes-et-decisions-de-mise-en-lib/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

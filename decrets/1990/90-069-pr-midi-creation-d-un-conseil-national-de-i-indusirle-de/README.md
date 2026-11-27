@@ -1,6 +1,6 @@
 # Décret n° 90-069/PR/MIDI portant création d’un conseil national de I’Indusirle de l’énergie et des mines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-069-pr-midi-portant-creation-dun-conseil-national-de-iindusirle-de-lenergie-et-des-mines/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-069-pr-midi-portant-creation-dun-conseil-national-de-iindusirle-de-lenergie-et-des-mines/>
 
 En vigueur : 1990-06-30 (date du Journal officiel qui le publie).
 
@@ -23,7 +23,7 @@ HASSAN GOULED APTION
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

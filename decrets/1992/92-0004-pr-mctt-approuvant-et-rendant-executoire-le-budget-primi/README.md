@@ -1,6 +1,6 @@
 # Décret n° 92‑0004/PR/MCTT Approuvant et rendant exécutoire le budget primitif 1992 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910004-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1992-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910004-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1992-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1992-01-15 (date du Journal officiel qui le publie).
 

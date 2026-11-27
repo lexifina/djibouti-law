@@ -1,6 +1,6 @@
 # Décret n° 47-2023 rendant applicable aux Territoires de îa France d’Outre-Mer l’ordonnance n° 4.5- 2Î84 du 24 septembre 1945 relative à l’exercice et à l’organisation des professions de médecin, de chirurgien-dentiste et de sage-femme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2023-rendant-applicable-aux-territoires-de-ia-france-doutre-mer-lordonnance-n-4-5-2i84-du-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2023-rendant-applicable-aux-territoires-de-ia-france-doutre-mer-lordonnance-n-4-5-2i84-du-24-septembre-1945-relative-a-lexercice-et-a-lorganisation-des-professions-de/>
 
 En vigueur : 1951-07-01 (date du Journal officiel qui le publie).
 

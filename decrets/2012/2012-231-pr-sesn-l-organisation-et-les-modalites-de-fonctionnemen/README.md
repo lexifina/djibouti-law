@@ -1,8 +1,8 @@
 # Décret n° 2012-231/PR/SESN fixant l’organisation et les modalités de fonctionnement du Fonds de Solidarité Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-231-pr-sesn-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-fonds-de-solidarite-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-231-pr-sesn-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-fonds-de-solidarite-nationale/>
 
-En vigueur : 2012-10-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-10-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -51,4 +51,4 @@ ISMAÏL OMAR GUELLEH
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

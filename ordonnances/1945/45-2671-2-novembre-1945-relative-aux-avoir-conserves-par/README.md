@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2671 du 2 novembre 1945 relative aux avoir» conservés par des Français dans les coffres ou dans des paquets clos à l’étranger
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2671-du-2-novembre-1945-relative-aux-avoir-conserves-par-des-francais-dans-les-coffres-ou-dans-des-paquets-clos-a-letranger/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2671-du-2-novembre-1945-relative-aux-avoir-conserves-par-des-francais-dans-les-coffres-ou-dans-des-paquets-clos-a-letranger/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

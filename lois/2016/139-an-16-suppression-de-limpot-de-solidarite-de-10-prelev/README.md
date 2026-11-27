@@ -1,6 +1,6 @@
 # Loi n° 139/AN/16/7ème L portant suppression de l’impôt de solidarité de 10% prélevé sur les pensions des retraités militaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-16-7eme-l-portant-suppression-de-limpot-de-solidarite-de-10-preleve-sur-les-pensions-des-retraites-militaires/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-16-7eme-l-portant-suppression-de-limpot-de-solidarite-de-10-preleve-sur-les-pensions-des-retraites-militaires/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 182/AN/25/9éme L Portant ratification de l’Accord de financement au Projet d’Entreprenariat des Jeunes pour l’Adaptation au Changement Climatique (PEJACC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-25-9eme-l-portant-ratification-de-laccord-de-financement-au-projet-dentreprenariat-des-jeunes-pour-ladaptation-au-changement-climatique-pejacc/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-25-9eme-l-portant-ratification-de-laccord-de-financement-au-projet-dentreprenariat-des-jeunes-pour-ladaptation-au-changement-climatique-pejacc/>
 
-En vigueur : 2025-07-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-07-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

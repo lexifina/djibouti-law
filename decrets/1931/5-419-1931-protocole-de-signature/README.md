@@ -1,6 +1,6 @@
 # Décret n° 5-419-1931 PROTOCOLE DE SIGNATURE
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 419 du 31/10/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-419-1931-protocole-de-signature/>
+Décret · Journal officiel de la République de Djibouti, n° 419 du 31/10/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-419-1931-protocole-de-signature/>
 
 En vigueur : 1931-10-31 (date du Journal officiel qui le publie).
 

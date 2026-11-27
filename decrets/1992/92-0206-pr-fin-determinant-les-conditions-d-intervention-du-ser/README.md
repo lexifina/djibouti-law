@@ -1,6 +1,6 @@
 # Décret n° 92-0206/PR/FIN déterminant les conditions d’intervention du Service des Contributions Indirectes en dehors des heures légales de travail où des lieux prévus par les règlements.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0206-pr-fin-determinant-les-conditions-dintervention-du-service-des-contributions-indirectes-en-dehors-des-heures-legales-de-travail-ou-des-lieux-prevus-par-les-reglements/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0206-pr-fin-determinant-les-conditions-dintervention-du-service-des-contributions-indirectes-en-dehors-des-heures-legales-de-travail-ou-des-lieux-prevus-par-les-reglements/>
 
 En vigueur : 1992-03-15 (date du Journal officiel qui le publie).
 

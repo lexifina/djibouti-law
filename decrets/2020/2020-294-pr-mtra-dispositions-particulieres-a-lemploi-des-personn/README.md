@@ -1,6 +1,6 @@
 # Décret n° 2020-294/PR/MTRA portant dispositions particulières à l’Emploi des Personnes Handicapées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-294-pr-mtra-portant-dispositions-particulieres-a-lemploi-des-personnes-handicapees/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-294-pr-mtra-portant-dispositions-particulieres-a-lemploi-des-personnes-handicapees/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 51-1093 étendant aux territoires d’outre-mer, au Togo et au Cameroun, les dispositions de la loi n° 48-1979 du 31 décembre 1948 modifiant l’article 13 de la loi du 22 juillet 1867 sur la contrainte par corps.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-51-1093-etendant-aux-territoires-doutre-mer-au-togo-et-au-cameroun-les-dispositions-de-la-loi-n-48-1979-du-31-decembre-1948-modifiant-larticle-13-de-la-loi-du-22-juillet-1867/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/loi-n-51-1093-etendant-aux-territoires-doutre-mer-au-togo-et-au-cameroun-les-dispositions-de-la-loi-n-48-1979-du-31-decembre-1948-modifiant-larticle-13-de-la-loi-du-22-juillet-1867/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

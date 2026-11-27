@@ -1,6 +1,6 @@
 # Décret n° 2013-035/PRE portant suppression du poste d’agent comptable au Port de Djibouti SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-035-pre-portant-suppression-du-poste-dagent-comptable-au-port-de-djibouti-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-035-pre-portant-suppression-du-poste-dagent-comptable-au-port-de-djibouti-sa/>
 
 En vigueur : 2013-03-31 (date du Journal officiel qui le publie).
 

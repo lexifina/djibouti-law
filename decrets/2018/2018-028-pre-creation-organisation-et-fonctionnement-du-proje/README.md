@@ -1,6 +1,6 @@
 # Décret n° 2018-028/PRE portant création, organisation et fonctionnement du Projet d’Appui à la Modernisation de l’Administration Publique (PAMAP).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-028-pre-portant-creation-organisation-et-fonctionnement-du-projet-dappui-a-la-modernisation-de-ladministration-publique-pamap/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-028-pre-portant-creation-organisation-et-fonctionnement-du-projet-dappui-a-la-modernisation-de-ladministration-publique-pamap/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

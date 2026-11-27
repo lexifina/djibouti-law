@@ -1,6 +1,6 @@
 # Décret n° 2025-164/PR/MTFPS déterminant les conditions de certaines positions des Fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-164-pr-mtfps-determinant-les-conditions-de-certaines-positions-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-164-pr-mtfps-determinant-les-conditions-de-certaines-positions-des-fonctionnaires/>
 
 En vigueur : 2025-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -70,4 +70,4 @@ ISMAÏL OMAR GUELLEH
 | [art-039.md](art-039.md) | Article 39 |
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

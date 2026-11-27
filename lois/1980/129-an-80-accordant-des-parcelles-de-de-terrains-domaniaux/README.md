@@ -1,6 +1,6 @@
 # Loi n° 129/AN/80 accordant des parcelles de de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-80-accordant-des-parcelles-de-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-80-accordant-des-parcelles-de-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

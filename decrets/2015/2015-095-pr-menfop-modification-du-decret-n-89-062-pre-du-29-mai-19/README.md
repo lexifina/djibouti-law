@@ -1,8 +1,8 @@
 # Décret n° 2015-095/PR/MENFOP portant modification du décret n° 89-062/PRE du 29 Mai 1989 portant statut particulier des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-095-pr-menfop-portant-modification-du-decret-n89-062-pre-du-29-mai-1989-portant-statut-particulier-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-095-pr-menfop-portant-modification-du-decret-n89-062-pre-du-29-mai-1989-portant-statut-particulier-des-fonctionnaires/>
 
-En vigueur : 2015-04-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-04-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

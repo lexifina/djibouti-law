@@ -1,6 +1,6 @@
 # Loi n° 239/AN/87/1ère L modifiant les dispositions des articles 6 et 7 de la loi n° 47/AN/78 du 18/12/78 instaurant une taxe différentielle sur les automobiles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n239-an-87-1ere-l-modifiant-les-dispositions-des-articles-6-et-7-de-la-loi-n47-an-78-du-18-12-78-instaurant-une-taxe-differentielle-sur-les-automobiles/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/04/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n239-an-87-1ere-l-modifiant-les-dispositions-des-articles-6-et-7-de-la-loi-n47-an-78-du-18-12-78-instaurant-une-taxe-differentielle-sur-les-automobiles/>
 
 En vigueur : 1987-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 154/AN/02/4ème L portant codification du fonctionnement de l’OPS et du régime général de retraite des travailleurs salariés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-salaries/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-02-4eme-l-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite-des-travailleurs-salaries/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 
@@ -143,4 +143,4 @@ ISMAÏL OMAR GUELLEH
 | [art-112.md](art-112.md) | Article 112 |
 | [art-113.md](art-113.md) | Article 113 |
 | [art-114.md](art-114.md) | Article 114 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

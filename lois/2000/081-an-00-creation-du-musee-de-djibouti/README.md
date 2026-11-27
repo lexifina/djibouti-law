@@ -1,6 +1,6 @@
 # Loi n° 81/AN/00/4ème L portant création du Musée de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-00-4eme-l-portant-creation-du-musee-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n81-an-00-4eme-l-portant-creation-du-musee-de-djibouti/>
 
 En vigueur : 2000-04-15 (date du Journal officiel qui le publie).
 

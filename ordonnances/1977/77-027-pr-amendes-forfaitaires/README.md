@@ -1,6 +1,6 @@
 # Ordonnance n° 77-027/PR Relative aux amendes forfaitaires.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 26/09/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-027-pr-relative-aux-amendes-forfaitaires/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 26/09/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-027-pr-relative-aux-amendes-forfaitaires/>
 
 En vigueur : 1977-09-26 (date du Journal officiel qui le publie).
 

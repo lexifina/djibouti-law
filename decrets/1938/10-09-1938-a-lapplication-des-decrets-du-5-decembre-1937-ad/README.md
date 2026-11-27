@@ -1,6 +1,6 @@
 # Décret n° 10/09/1938 relatif à l’application des décrets du 5 décembre 1937 adaptant aux territoires relevant du munistère des colonies, autres que la Martinique, la Guadeloupe, la Gyuane dE Réunion, les dispositions de la loi d’amnistie du 12 juillet 1937.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-09-1938-relatif-a-lapplication-des-decrets-du-5-decembre-1937-adaptant-aux-territoires-relevant-du-munistere-des-colonies-autres-que-la-martinique-la-guadeloupe-la-gyuane-de-re/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-09-1938-relatif-a-lapplication-des-decrets-du-5-decembre-1937-adaptant-aux-territoires-relevant-du-munistere-des-colonies-autres-que-la-martinique-la-guadeloupe-la-gyuane-de-re/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 

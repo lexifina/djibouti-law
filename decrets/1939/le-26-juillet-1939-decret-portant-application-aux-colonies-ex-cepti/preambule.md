@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 art, 1er; Est rendu applicable, sous réserve des dispositions des articles 2 et 3 ci dessous, aux colonies, exception faite des Antilles et de la Réunion, ainsi qu’aux pays de protectorat et aux territoires sous mandat relevant du ministère des colonies, l’article 1 du décret-loi du 16 juillet 1933 majorant au profit de l’Etat le taux de certaines amendes pénales et modifiant les articles 319, 320, 400 ($ 2), 405 «et 406 du code pénal tel qu’il a été aménagé par l’article 1% du décret-loi subséquent du 30 octobre 1935.
 Art, 2, — Les articles susvisés, à l’exception toutefois de l’article 400 ($ 2). seront applicables en Indochine aux indigènes et asintiques assimilés justiciables des tribunaux francais.

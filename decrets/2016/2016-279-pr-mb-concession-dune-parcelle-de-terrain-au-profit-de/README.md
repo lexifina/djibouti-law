@@ -1,6 +1,6 @@
 # Décret n° 2016-279/PR/MB portant concession d’une parcelle de terrain au profit de TOUCHROAD INTERNATIONAL HOLDINGS GROUP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-279-pr-mb-portant-concession-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-279-pr-mb-portant-concession-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
 
 En vigueur : 2016-10-31 (date du Journal officiel qui le publie).
 

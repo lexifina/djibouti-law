@@ -1,6 +1,6 @@
 # Décret n° 2016-241/PRE portant approbation des statuts de la fondation » Fondation Droit à un logement « .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-241-pre-portant-approbation-des-statuts-de-la-fondation-fondation-droit-a-un-logement/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-241-pre-portant-approbation-des-statuts-de-la-fondation-fondation-droit-a-un-logement/>
 
 En vigueur : 2016-09-15 (date du Journal officiel qui le publie).
 

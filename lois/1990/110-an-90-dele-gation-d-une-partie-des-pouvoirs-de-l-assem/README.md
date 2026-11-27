@@ -1,6 +1,6 @@
 # Loi n° 110/AN/90/2eL portant délé gation d’une partie des pouvoirs de l’’Assemblee nationale à la commission permanente jusqu’d l’ouverture de la ire session ordinaire 1990.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-90-2el-portant-dele-gation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqud-louverture-de-la-ire-session-ordin/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-90-2el-portant-dele-gation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqud-louverture-de-la-ire-session-ordin/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 

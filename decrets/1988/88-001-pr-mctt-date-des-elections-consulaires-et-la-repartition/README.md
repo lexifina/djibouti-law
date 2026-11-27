@@ -1,6 +1,6 @@
 # Décret n° 88-001/PR/MCTT fixant la date des Élections Consulaires et la répartition des Sièges à Pourvoir entre résidents nationaux et étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-001-pr-mctt-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-001-pr-mctt-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
 
 En vigueur : 1988-01-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2006-0184/PR/MET fixant les conditions d’exercice de la profession de transporteur urbain et interurbain et instituant un licence professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0184-pr-met-fixant-les-conditions-dexercice-de-la-profession-de-transporteur-urbain-et-interurbain-et-instituant-un-licence-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0184-pr-met-fixant-les-conditions-dexercice-de-la-profession-de-transporteur-urbain-et-interurbain-et-instituant-un-licence-professionnelle/>
 
-En vigueur : 2006-07-23 (date fixÃ©e par le texte).
+En vigueur : 2006-07-23 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2004-0069/PRE/MEFPP modifiant le décret n° 2004-0051/PRE/DEF Portant octroi d’une prime d’alimentation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0069-pre-mefpp-modifiant-le-decret-n2004-0051-pre-def-portant-octroi-dune-prime-dalimentation/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0069-pre-mefpp-modifiant-le-decret-n2004-0051-pre-def-portant-octroi-dune-prime-dalimentation/>
 
 En vigueur : 2004-04-30 (date du Journal officiel qui le publie).
 

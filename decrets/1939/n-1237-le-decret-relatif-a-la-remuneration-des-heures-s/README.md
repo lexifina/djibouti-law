@@ -1,6 +1,6 @@
 # Décret n° n°1237 Le décret relatif à la rémunération des heures supplémentaires dans les territoires relevant du ministère des colonies autres que les Antilles, la Réunion, la Guyane et la Nouvelle Calédonie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n1237-le-decret-relatif-a-la-remuneration-des-heures-supplementaires-dans-les-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-la-reunion-la-guyane-et-l/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n1237-le-decret-relatif-a-la-remuneration-des-heures-supplementaires-dans-les-territoires-relevant-du-ministere-des-colonies-autres-que-les-antilles-la-reunion-la-guyane-et-l/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 
@@ -21,6 +21,6 @@ george mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1— |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

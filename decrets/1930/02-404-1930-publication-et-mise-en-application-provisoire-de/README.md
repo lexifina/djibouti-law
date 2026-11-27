@@ -1,6 +1,6 @@
 # Décret n° 02-404-1930 Publication et mise en application provisoire de la troisième prorogation de l’accord commercial entre la France et la Grèce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-404-1930-publication-et-mise-en-application-provisoire-de-la-troisieme-prorogation-de-laccord-commercial-entre-la-france-et-la-grece/>
+Décret · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-404-1930-publication-et-mise-en-application-provisoire-de-la-troisieme-prorogation-de-laccord-commercial-entre-la-france-et-la-grece/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 

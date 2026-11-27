@@ -1,6 +1,6 @@
 # Décret n° 71-344 instituant une prime spéciale d’équipement hôtelier dans les territoires d’outre-mer (J.O.R.E. du 8 mai 1971, p. 4401)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-344-instituant-une-prime-speciale-dequipement-hotelier-dans-les-territoires-doutre-mer-j-o-r-e-du-8-mai-1971-p-4401/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-344-instituant-une-prime-speciale-dequipement-hotelier-dans-les-territoires-doutre-mer-j-o-r-e-du-8-mai-1971-p-4401/>
 
 En vigueur : 1971-07-10 (date du Journal officiel qui le publie).
 

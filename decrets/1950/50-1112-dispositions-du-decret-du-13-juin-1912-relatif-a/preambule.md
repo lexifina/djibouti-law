@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1— Les. dispositions des articles 8, 3.0 et 11 du décret du 13′ juin 1912, modifié L par le décret du 10 mars 194S, sont abrogées et remplacées par les dispositions suivantes :
 « Art 8. — En cas de déplacement temporaire, les frais accessoires de voyage donnent lieu a l’attribution d’une indemnité pour frais de mission ou d’une indemnité, pour frais de tournée on d’intérim :
 « a) Les indemnités pour frais de mission sont allouées, soit pour les déplacements de caractère accidentel effectués par les fonctionnaires en dehors de leurs attributions normales, soit pour les déplacements effectués hors des limites de la circonscription territoriale de leur compétence;

@@ -1,8 +1,8 @@
 # Décret n° 2009-030/PRE instituant un contrôle des services en matière de sécurité et de protection des navires et des équipages.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-030-pre-instituant-un-controle-des-services-en-matiere-de-securite-et-de-protection-des-navires-et-des-equipages/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-030-pre-instituant-un-controle-des-services-en-matiere-de-securite-et-de-protection-des-navires-et-des-equipages/>
 
-En vigueur : 2009-02-12 (date fixÃ©e par le texte).
+En vigueur : 2009-02-12 (date fixée par le texte).
 
 ## Visas
 

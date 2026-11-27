@@ -1,6 +1,6 @@
 # Décret n° 79-052/PR/EN reconnaissant d’utilité publique l’Association du théâtre des Salines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-052-pr-en-reconnaissant-dutilite-publique-lassociation-du-theatre-des-salines/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-052-pr-en-reconnaissant-dutilite-publique-lassociation-du-theatre-des-salines/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

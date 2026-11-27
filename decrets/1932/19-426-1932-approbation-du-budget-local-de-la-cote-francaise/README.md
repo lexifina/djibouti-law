@@ -1,6 +1,6 @@
 # Décret n° 19-426-1932 approbation du budget local de la Côte française des Somalis pour l’exercice 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-426-1932-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-426-1932-approbation-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1932/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

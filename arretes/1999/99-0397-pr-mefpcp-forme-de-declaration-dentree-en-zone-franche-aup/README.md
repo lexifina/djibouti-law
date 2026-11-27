@@ -1,6 +1,6 @@
 # Arrêté n° 99-0397/PR/MEFPCP fixant la forme de déclaration d’entrée en zone franche auprès de la sous-direction des recettes indirectes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0397-pr-mefpcp-fixant-la-forme-de-declaration-dentree-en-zone-franche-aupres-de-la-sous-direction-des-recettes-indirectes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/arrete-n99-0397-pr-mefpcp-fixant-la-forme-de-declaration-dentree-en-zone-franche-aupres-de-la-sous-direction-des-recettes-indirectes/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

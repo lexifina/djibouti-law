@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0727/PR/MAEM relatif aux critères chimiques auxquels doivent satisfaire certaines denrées animales ou d’origine animale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0727-pr-maem-relatif-aux-criteres-chimiques-auxquels-doivent-satisfaire-certaines-denrees-animales-ou-dorigine-animale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0727-pr-maem-relatif-aux-criteres-chimiques-auxquels-doivent-satisfaire-certaines-denrees-animales-ou-dorigine-animale/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 74-932 modifiant le décret n° 58-1277 du 22 décembre 1958 portant règlement d’administration publique pour l’application de Pordonnance n° 58-1270 du 22 décembre 1958 portant loi organique relative au statut de la magistrature (JORF n° 262 du 8 novembre 1974 page 11 308) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 26/12/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-932-modifiant-le-decret-n-58-1277-du-22-decembre-1958-portant-reglement-dadministration-publique-pour-lapplication-de-pordonnance-n-58-1270-du-22-decembre-195/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 26/12/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-932-modifiant-le-decret-n-58-1277-du-22-decembre-1958-portant-reglement-dadministration-publique-pour-lapplication-de-pordonnance-n-58-1270-du-22-decembre-195/>
 
 En vigueur : 1974-12-26 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 83-813/PR/MCTT portant prorogation du délai de perception de la vignette E.P.H. 1982.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-813-pr-mctt-portant-prorogation-du-delai-de-perception-de-la-vignette-e-p-h-1982/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-813-pr-mctt-portant-prorogation-du-delai-de-perception-de-la-vignette-e-p-h-1982/>
 
-En vigueur : 1983-06-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1983-06-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -31,4 +31,4 @@ HASSAN GOULED APTIDON.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

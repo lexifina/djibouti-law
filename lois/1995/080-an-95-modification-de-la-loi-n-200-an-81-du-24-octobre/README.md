@@ -1,6 +1,6 @@
 # Loi n° 80/AN/95/3e L portant modification de la loi n° 200/AN/81 du 24 octobre 1981 portant Code de la Nationalité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-95-3e-l-portant-modification-de-la-loi-n200-an-81-du-24-octobre-1981-portant-code-de-la-nationalite/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-95-3e-l-portant-modification-de-la-loi-n200-an-81-du-24-octobre-1981-portant-code-de-la-nationalite/>
 
 En vigueur : 1995-05-31 (date du Journal officiel qui le publie).
 

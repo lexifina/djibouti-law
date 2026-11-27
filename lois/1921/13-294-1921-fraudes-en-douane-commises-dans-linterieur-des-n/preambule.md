@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Si, indépendamment des objets des objets regulierement manifestés ou composant la cargaison, et des provisions de bord, dûment représentes avant visite, il est découvert, à bord d’un navire se trouvant dans les limites des ports et rades de commerce, des objets prohibes, taxés à 20 fr, et plus les 100 kilos, ou passibles de taxes intérieures, la confiscation ne pourra être prononcée qu’à l’égard de ces objets, et le aapitaine sera condamné à une amende égale à leur valeur et de 500 fr. au minimun.

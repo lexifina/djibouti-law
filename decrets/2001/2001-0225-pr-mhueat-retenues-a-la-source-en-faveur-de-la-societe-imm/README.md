@@ -1,6 +1,6 @@
 # Décret n° 2001-0225/PR/MHUEAT portant retenues à la source en faveur de la Société Immobilière de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0225-pr-mhueat-portant-retenues-a-la-source-en-faveur-de-la-societe-immobiliere-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0225-pr-mhueat-portant-retenues-a-la-source-en-faveur-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2001-11-29 (date du Journal officiel qui le publie).
 

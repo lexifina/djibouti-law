@@ -1,6 +1,6 @@
 # Arrêté n° 2018-079/PR/MB portant indemnisation d’un bien immobilier transféré.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-079-pr-mb-portant-indemnisation-dun-bien-immobilier-transfere/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-079-pr-mb-portant-indemnisation-dun-bien-immobilier-transfere/>
 
 En vigueur : 2018-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

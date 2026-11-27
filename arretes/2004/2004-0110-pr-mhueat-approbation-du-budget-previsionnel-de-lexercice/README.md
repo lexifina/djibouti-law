@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0110/PR/MHUEAT portant approbation du Budget Prévisionnel de l’Exercice 2004 de la Société Immobilière de Djibouti (S.I.D).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0110-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2004-de-la-societe-immobiliere-de-djibouti-s-i-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0110-pr-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2004-de-la-societe-immobiliere-de-djibouti-s-i-d/>
 
 En vigueur : 2004-02-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2019-209/PR/MUET portant approbation du Schéma Directeur de Développement du Tourisme Durable pour la période 2019-2024.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-209-pr-muet-portant-approbation-du-schema-directeur-de-developpement-du-tourisme-durable-pour-la-periode-2019-2024/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-209-pr-muet-portant-approbation-du-schema-directeur-de-developpement-du-tourisme-durable-pour-la-periode-2019-2024/>
 
 En vigueur : 2019-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

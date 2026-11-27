@@ -1,6 +1,6 @@
 # Loi n° 42/AN/08/6émeL portant refonte du code Générale des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-08-6emel-portant-refonte-du-code-generale-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 15/11/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-08-6emel-portant-refonte-du-code-generale-des-impots/>
 
 En vigueur : 2009-11-15 (date du Journal officiel qui le publie).
 
@@ -98,4 +98,4 @@ Le Conseil des Ministres entendu en sa séance du 16 Décembre 2008.
 | [art-073.md](art-073.md) | Art.73 |
 | [art-074.md](art-074.md) | Art.74 |
 | [art-075.md](art-075.md) | Art.75 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

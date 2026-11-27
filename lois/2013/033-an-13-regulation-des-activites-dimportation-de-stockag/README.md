@@ -1,6 +1,6 @@
 # Loi n° 33/AN/13/7ème L portant régulation des activités d’importation, de stockage, de transport et de distribution des hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-13-7eme-l-portant-regulation-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n33-an-13-7eme-l-portant-regulation-des-activites-dimportation-de-stockage-de-transport-et-de-distribution-des-hydrocarbures/>
 
 En vigueur : 2014-01-30 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

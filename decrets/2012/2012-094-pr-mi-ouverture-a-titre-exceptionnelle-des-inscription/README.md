@@ -1,6 +1,6 @@
 # Décret n° 2012-094/PR/MI portant ouverture à titre exceptionnelle des inscriptions sur les listes électorales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-094-pr-mi-portant-ouverture-a-titre-exceptionnelle-des-inscriptions-sur-les-listes-electorales/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-094-pr-mi-portant-ouverture-a-titre-exceptionnelle-des-inscriptions-sur-les-listes-electorales/>
 
 En vigueur : 2012-04-30 (date du Journal officiel qui le publie).
 

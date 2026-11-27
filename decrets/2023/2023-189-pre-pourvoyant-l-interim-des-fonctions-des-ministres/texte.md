@@ -1,1 +1,0 @@
-Par décret n°2023-189/PRE, du Président de la République, chef du Gouvernement, en date du 09 juillet 2023, pendant la durée de l’absence de S.E.M. ALI HASSAN BAHDON, l’intérim des fonctions du Ministre de la Justice et des Affaires Pénitentiaires, chargé des Droits de l’Homme sera assuré par S.E.M ISMAN IBRAHIM ROBLEH, Ministre du Budget, cumulativement avec ses fonctions.

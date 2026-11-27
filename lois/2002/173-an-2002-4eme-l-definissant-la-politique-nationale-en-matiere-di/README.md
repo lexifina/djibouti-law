@@ -1,6 +1,6 @@
 # Loi n° 173/AN/2002/4ème L définissant la politique nationale en matière d’intégration de la femme dans le développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-2002-4eme-l-definissant-la-politique-nationale-en-matiere-dintegration-de-la-femme-dans-le-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-2002-4eme-l-definissant-la-politique-nationale-en-matiere-dintegration-de-la-femme-dans-le-developpement/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

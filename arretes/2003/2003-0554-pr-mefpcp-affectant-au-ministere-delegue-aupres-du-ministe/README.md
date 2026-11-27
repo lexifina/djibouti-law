@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0554/PR/MEFPCP affectant au Ministère Délégué auprès du Ministère de la Justice, chargé des Biens Wakfs et des Affaires Musulmanes une parcelle de terrain au Lotissement Héron.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0554-pr-mefpcp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-au-lotissement-heron/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0554-pr-mefpcp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-au-lotissement-heron/>
 
 En vigueur : 2003-07-31 (date du Journal officiel qui le publie).
 

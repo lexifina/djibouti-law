@@ -1,6 +1,6 @@
 # Décret n° 2023-176/PR/MCT régissant l’exercice des agences de voyages et autres opérateurs de services touristiques en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-176-pr-mct-regissant-lexercice-des-agences-de-voyages-et-autres-operateurs-de-services-touristiques-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-176-pr-mct-regissant-lexercice-des-agences-de-voyages-et-autres-operateurs-de-services-touristiques-en-republique-de-djibouti/>
 
 En vigueur : 2023-06-29 (date du Journal officiel qui le publie).
 
@@ -66,4 +66,4 @@ Le Conseil des Ministres entendu en sa séance du 33 Mai 2023.
 | [art-036.md](art-036.md) | ARTICLE 36 |
 | [art-037.md](art-037.md) | ARTICLE 37 |
 | [art-038.md](art-038.md) | ARTICLE 38 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

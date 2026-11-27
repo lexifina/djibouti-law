@@ -1,6 +1,6 @@
 # Décret n° 2007-0151/PR/MAECI portant sur la création d’un Comité National de Coordination et de suivi de la mise en oeuvre du projet de “Réseau Panafricain de services en lignes”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0151-pr-maeci-portant-sur-la-creation-dun-comite-national-de-coordination-et-de-suivi-de-la-mise-en-oeuvre-du-projet-de-reseau-panafricain-de-services-en-lignes/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0151-pr-maeci-portant-sur-la-creation-dun-comite-national-de-coordination-et-de-suivi-de-la-mise-en-oeuvre-du-projet-de-reseau-panafricain-de-services-en-lignes/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2001-0182/PR/MEFPCP portant modification de la structure du Comité National de Privatisation et renouvelant ses membres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0182-pr-mefpcp-portant-modification-de-la-structure-du-comite-national-de-privatisation-et-renouvelant-ses-membres/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/08/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0182-pr-mefpcp-portant-modification-de-la-structure-du-comite-national-de-privatisation-et-renouvelant-ses-membres/>
 
-En vigueur : 2001-08-28 (date fixÃ©e par le texte).
+En vigueur : 2001-08-28 (date fixée par le texte).
 
 ## Visas
 

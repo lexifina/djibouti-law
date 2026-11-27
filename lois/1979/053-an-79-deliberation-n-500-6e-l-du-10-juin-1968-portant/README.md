@@ -1,6 +1,6 @@
 # Loi n° 53/AN/79 modifiant la délibération n° 500 /6e L du 10 juin 1968 portant réglementation des loteries.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-79-modifiant-la-deliberation-n500-6e-l-du-10-juin-1968-portant-reglementation-des-loteries/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n53-an-79-modifiant-la-deliberation-n500-6e-l-du-10-juin-1968-portant-reglementation-des-loteries/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

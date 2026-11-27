@@ -1,6 +1,6 @@
 # Décret n° 78-020/PR portant création d’un comité national d’assistance aux réfugiés et aux sinistrés ainsi qu’un office national chargé de l’exécution des mesures destinées en leur faveur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-020-pr-portant-creation-dun-comite-national-dassistance-aux-refugies-et-aux-sinistres-ainsi-quun-office-national-charge-de-lexecution-des-mesures-destinees-en-leur-faveur/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 27/03/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-020-pr-portant-creation-dun-comite-national-dassistance-aux-refugies-et-aux-sinistres-ainsi-quun-office-national-charge-de-lexecution-des-mesures-destinees-en-leur-faveur/>
 
 En vigueur : 1978-03-27 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2015-023/PR/MJDH portant rectification du décret n° 2011-217/PR/MEFIP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-023-pr-mjdh-portant-rectification-du-decret-n2011-217-pr-mefip/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-023-pr-mjdh-portant-rectification-du-decret-n2011-217-pr-mefip/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

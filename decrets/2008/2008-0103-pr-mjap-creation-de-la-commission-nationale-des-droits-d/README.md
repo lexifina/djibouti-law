@@ -1,8 +1,8 @@
 # Décret n° 2008-0103/PR/MJAP portant création de la Commission Nationale des Droits de l’Homme (CNDH).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0103-pr-mjap-portant-creation-de-la-commission-nationale-des-droits-de-lhomme-cndh/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0103-pr-mjap-portant-creation-de-la-commission-nationale-des-droits-de-lhomme-cndh/>
 
-En vigueur : 2008-04-23 (date fixÃ©e par le texte).
+En vigueur : 2008-04-23 (date fixée par le texte).
 
 ## Visas
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

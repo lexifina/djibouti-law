@@ -1,6 +1,6 @@
 # Décret n° 91-117/PRE portant approbation du cahier de charge pour le projet de privatisation de la laitere de djibouti (LDJ).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/09/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-117-pre-portant-approbation-du-cahier-de-charge-pour-le-projet-de-privatisation-de-la-laitere-de-djibouti-ldj/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/09/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-117-pre-portant-approbation-du-cahier-de-charge-pour-le-projet-de-privatisation-de-la-laitere-de-djibouti-ldj/>
 
 En vigueur : 1991-09-15 (date du Journal officiel qui le publie).
 

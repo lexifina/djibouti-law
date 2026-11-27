@@ -1,6 +1,6 @@
 # Loi n° 144/AN/24/9ème L approuvant les rapports financiers de la CAMME pour l’année 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 27/02/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-24-9eme-l-approuvant-les-rapports-financiers-de-la-camme-pour-lannee-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 04 du 27/02/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-24-9eme-l-approuvant-les-rapports-financiers-de-la-camme-pour-lannee-2023/>
 
 En vigueur : 2025-02-28 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0194/PR/MFFPCP portant composition et attributions du Comité Technique du Recensement et des Comités Régionaux et Locaux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0194-pr-mffpcp-portant-composition-et-attributions-du-comite-technique-du-recensement-et-des-comites-regionaux-et-locaux/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0194-pr-mffpcp-portant-composition-et-attributions-du-comite-technique-du-recensement-et-des-comites-regionaux-et-locaux/>
 
 En vigueur : 2007-02-28 (date du Journal officiel qui le publie).
 

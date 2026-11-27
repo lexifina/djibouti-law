@@ -1,6 +1,6 @@
 # Décret n° 11/AN/92/2e L portant approbation du lotissement extension Héron 48 parcelles à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n11-an-92-2e-l-portant-approbation-du-lotissement-extension-heron-48-parcelles-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n11-an-92-2e-l-portant-approbation-du-lotissement-extension-heron-48-parcelles-a-djibouti/>
 
 En vigueur : 1992-12-31 (date du Journal officiel qui le publie).
 

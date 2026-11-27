@@ -1,6 +1,6 @@
 # Loi n° 73-10 relative à la police des aérodromes, modifiant et complétant le code de l’aviation civile (première partie, législative) [J.O.R.F. n° 4 du 5 janvier 1973. p. 230] .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-73-10-relative-a-la-police-des-aerodromes-modifiant-et-completant-le-code-de-laviation-civile-premiere-partie-legislative-j-o-r-f-n-4-du-5-janvier-1973-p-230/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 10/03/1973 · <https://www.journalofficiel.dj/texte-juridique/loi-n-73-10-relative-a-la-police-des-aerodromes-modifiant-et-completant-le-code-de-laviation-civile-premiere-partie-legislative-j-o-r-f-n-4-du-5-janvier-1973-p-230/>
 
 En vigueur : 1973-03-10 (date du Journal officiel qui le publie).
 

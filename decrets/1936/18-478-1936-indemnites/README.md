@@ -1,6 +1,6 @@
 # Décret n° 18-478-1936 Indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-478-1936-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-478-1936-indemnites/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

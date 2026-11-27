@@ -1,6 +1,6 @@
 # Décret n° 46-2462 Gxant la date à laquelle cessera de s’ap pliquer le décret-loi du 1 er septembre 1939 relatif aux actions de justice et aux prescriptions et délai de procédure intéressant les mobilisés
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2462-gxant-la-date-a-laquelle-cessera-de-sap-pliquer-le-decret-loi-du-1-er-septembre-1939-relatif-aux-actions-de-justice-et-aux-prescriptions-et-delai-de-procedure-interess/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2462-gxant-la-date-a-laquelle-cessera-de-sap-pliquer-le-decret-loi-du-1-er-septembre-1939-relatif-aux-actions-de-justice-et-aux-prescriptions-et-delai-de-procedure-interess/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

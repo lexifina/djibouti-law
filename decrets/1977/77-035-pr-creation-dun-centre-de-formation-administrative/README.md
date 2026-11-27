@@ -1,6 +1,6 @@
 # Décret n° 77-035/PR portant création d’un Centre de formation administrative.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 24/10/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-035-pr-portant-creation-dun-centre-de-formation-administrative/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 24/10/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-035-pr-portant-creation-dun-centre-de-formation-administrative/>
 
 En vigueur : 1977-10-24 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1987 du 1er septembre 1945 relatif à l’attribution du complément de solde aux ingénieurs des services des Travaux publics, Mines et Techniques industrielles des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1987-du-1er-septembre-1945-relatif-a-lattribution-du-complement-de-solde-aux-ingenieurs-des-services-des-travaux-publics-mines-et-techniques-industrielles-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1987-du-1er-septembre-1945-relatif-a-lattribution-du-complement-de-solde-aux-ingenieurs-des-services-des-travaux-publics-mines-et-techniques-industrielles-des-colonies/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

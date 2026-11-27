@@ -1,6 +1,6 @@
 # Décret n° n°18 Décret portant règlement de la situation des fonctionnaires et agents quittant prématurément le service outre-mer après avoir bénéficié du passage gratuit
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 428 du 31/07/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n18-decret-portant-reglement-de-la-situation-des-fonctionnaires-et-agents-quittant-prematurement-le-service-outre-mer-apres-avoir-beneficie-du-passage-gratuit/>
+Décret · Journal officiel de la République de Djibouti, n° 428 du 31/07/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n18-decret-portant-reglement-de-la-situation-des-fonctionnaires-et-agents-quittant-prematurement-le-service-outre-mer-apres-avoir-beneficie-du-passage-gratuit/>
 
 En vigueur : 1932-07-31 (date du Journal officiel qui le publie).
 

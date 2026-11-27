@@ -1,6 +1,6 @@
 # Décret n° 46-2689 ten dant à fixer les indemnités susceptibles d’être accordées aux agents1 du contrôle du chemin de fer franco-éthiopien pendant la durée de leur séjour hors d’Europe.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2689-ten-dant-a-fixer-les-indemnites-susceptibles-detre-accordees-aux-agents1-du-controle-du-chemin-de-fer-franco-ethiopien-pendant-la-duree-de-leur-sejour-hors-de/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2689-ten-dant-a-fixer-les-indemnites-susceptibles-detre-accordees-aux-agents1-du-controle-du-chemin-de-fer-franco-ethiopien-pendant-la-duree-de-leur-sejour-hors-de/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

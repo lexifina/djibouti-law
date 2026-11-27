@@ -1,6 +1,6 @@
 # Loi n° 10/AN/03/5ème L portant ratification de la Convention sur la conservation des espèces migratrices appartenant à la faune sauvage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-03-5eme-l-portant-ratification-de-la-convention-sur-la-conservation-des-especes-migratrices-appartenant-a-la-faune-sauvage/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-03-5eme-l-portant-ratification-de-la-convention-sur-la-conservation-des-especes-migratrices-appartenant-a-la-faune-sauvage/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

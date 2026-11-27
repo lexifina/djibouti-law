@@ -1,6 +1,6 @@
 # Loi n° 200/AN/07/5ème L portant organisation de l’Administration du Ministère de l’Agriculture, de l’Elevage et de la Mer, chargé des Ressources Hydrauliques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-07-5eme-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hydrauliques/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-07-5eme-l-portant-organisation-de-ladministration-du-ministere-de-lagriculture-de-lelevage-et-de-la-mer-charge-des-ressources-hydrauliques/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-044.md](art-044.md) | Article 44 |
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 117/AN/90/2e L Se portant modification de la lol n° 193/AN/86/1re L du 3 février 1986 c éatlo et organisation le Secrétarlat général a l’Information.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-90-2e-l-se-portant-modification-de-la-lol-n-193-an-86-1re-l-du-3-fevrier-1986-c-eatlo-et-organisation-le-secretarlat-general-a-linformation/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-90-2e-l-se-portant-modification-de-la-lol-n-193-an-86-1re-l-du-3-fevrier-1986-c-eatlo-et-organisation-le-secretarlat-general-a-linformation/>
 
 En vigueur : 1990-06-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |

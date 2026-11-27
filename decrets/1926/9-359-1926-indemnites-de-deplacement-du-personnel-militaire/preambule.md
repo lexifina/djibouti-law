@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. Le tarif inséré à l’article 1 du décret du 7 décembre 1921 est abrogé et remplacé, en ce qui concerne seulement les indemnités partielles et journalières, par le tarif ci-après:
 | GRADES.
 | INDEMNITÉ PARTIELLE DE

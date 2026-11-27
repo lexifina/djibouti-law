@@ -1,6 +1,6 @@
 # Décret n° 8 juin 1939 Décret portant incorporation de pour charges de famille au tableau faisant suite à l’article 15 du décret du 29 décembre 1903, sur la solde des troupes à la charge du département des colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-portant-incorporation-de-pour-charges-de-famille-au-tableau-faisant-suite-a-larticle-15-du-decret-du-29-decembre-1903-sur-la-solde-des-troupes-a-la-charge-du-dep/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-juin-1939-decret-portant-incorporation-de-pour-charges-de-famille-au-tableau-faisant-suite-a-larticle-15-du-decret-du-29-decembre-1903-sur-la-solde-des-troupes-a-la-charge-du-dep/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

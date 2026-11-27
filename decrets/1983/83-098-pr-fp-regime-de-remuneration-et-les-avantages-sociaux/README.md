@@ -1,6 +1,6 @@
 # Décret n° 83-098/PR/FP fixant le régime de rémunération et les avantages sociaux alloués aux fonctionnaires des administrations et établissements publics administratifs de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-098-pr-fp-fixant-le-regime-de-remuneration-et-les-avantages-sociaux-alloues-aux-fonctionnaires-des-administrations-et-etablissements-publics-administratifs-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-098-pr-fp-fixant-le-regime-de-remuneration-et-les-avantages-sociaux-alloues-aux-fonctionnaires-des-administrations-et-etablissements-publics-administratifs-de-letat/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ HASSAN GOULED APTIDON
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

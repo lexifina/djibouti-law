@@ -1,6 +1,6 @@
 # Arrêté n° 2020-032/PR/MI déclarant d’utilité publique la pose de cameras de surveillance dans la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-032-pr-mi-declarant-dutilite-publique-la-pose-de-cameras-de-surveillance-dans-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 27/02/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-032-pr-mi-declarant-dutilite-publique-la-pose-de-cameras-de-surveillance-dans-la-ville-de-djibouti/>
 
 En vigueur : 2020-02-28 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

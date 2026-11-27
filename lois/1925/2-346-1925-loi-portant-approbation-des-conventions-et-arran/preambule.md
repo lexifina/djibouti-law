@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Le Président de la République est autorisé à ratifier et, s’il y a lieu, à faire exécuter :
 La convention postale universelle;
 L’arrangement concernant l’échange des lettres el des boîles avec valeur déclarée;

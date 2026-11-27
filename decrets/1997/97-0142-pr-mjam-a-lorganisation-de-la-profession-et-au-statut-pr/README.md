@@ -1,6 +1,6 @@
 # Décret n° 97-0142/PR/MJAM RELATIF À L’ORGANISATION DE LA PROFESSION ET AU STATUT PROFESSIONNEL DES COMMISSAIRES AUX COMPTES DE SOCIETES.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/10/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0142-pr-mjam-relatif-a-lorganisation-de-la-profession-et-au-statut-professionnel-des-commissaires-aux-comptes-de-societes/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/10/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0142-pr-mjam-relatif-a-lorganisation-de-la-profession-et-au-statut-professionnel-des-commissaires-aux-comptes-de-societes/>
 
 En vigueur : 1997-10-15 (date du Journal officiel qui le publie).
 

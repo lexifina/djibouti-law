@@ -1,6 +1,6 @@
 # Arrêté n° 2018-139/PR/MB portant attribution d’une parcelle de terrain à profit à la société CCECC
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-139-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-profit-a-la-societe-ccecc/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-139-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-profit-a-la-societe-ccecc/>
 
 En vigueur : 2018-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

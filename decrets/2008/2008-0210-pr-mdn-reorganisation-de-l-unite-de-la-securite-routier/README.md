@@ -1,8 +1,8 @@
 # Décret n° 2008-0210/PR/MDN portant réorganisation de l’unité de la Sécurité Routière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0210-pr-mdn-portant-reorganisation-de-lunite-de-la-securite-routiere/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0210-pr-mdn-portant-reorganisation-de-lunite-de-la-securite-routiere/>
 
-En vigueur : 2008-08-24 (date fixÃ©e par le texte).
+En vigueur : 2008-08-24 (date fixée par le texte).
 
 ## Visas
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

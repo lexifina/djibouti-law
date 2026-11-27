@@ -1,6 +1,6 @@
 # Décret n° 73-376 portant application de la loi n° 72-458 du 2 juin 1972 relative à l’état civil dans le Territoire français des Afars et des Issas (JORF n° 77 du samedi 31 mars 1973, page 3580).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-376-portant-application-de-la-loi-n-72-458-du-2-juin-1972-relative-a-letat-civil-dans-le-territoire-francais-des-afars-et-des-issas-jorf-n-77-du-samedi-31-mars/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-376-portant-application-de-la-loi-n-72-458-du-2-juin-1972-relative-a-letat-civil-dans-le-territoire-francais-des-afars-et-des-issas-jorf-n-77-du-samedi-31-mars/>
 
 En vigueur : 1973-04-10 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Xavier DENIAU.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

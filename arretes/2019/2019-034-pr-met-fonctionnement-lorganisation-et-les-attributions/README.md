@@ -1,8 +1,8 @@
 # Arrêté n° 2019-034/PR/MET fixant le fonctionnement, l’organisation et les attributions de la Commission d’enquête.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-034-pr-met-fixant-le-fonctionnement-lorganisation-et-les-attributions-de-la-commission-denquete/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-034-pr-met-fixant-le-fonctionnement-lorganisation-et-les-attributions-de-la-commission-denquete/>
 
-En vigueur : 2019-01-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-01-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

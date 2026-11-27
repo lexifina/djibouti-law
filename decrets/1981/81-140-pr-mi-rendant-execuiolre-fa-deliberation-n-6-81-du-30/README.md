@@ -1,6 +1,6 @@
 # Décret n° 81-140/PR/MI rendant exécuiolre fa délibération n° 6/81 du 30 novembre 1981 du conseil d’administration de loffice des Posies et Télécommunications. portant approbation de Ia troisiéme décision modificative du budget 1981 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-140-pr-mi-rendant-execuiolre-fa-deliberation-n-6-81-du-30-novembre-1981-du-conseil-dadministration-de-loffice-des-posies-et-telecommunications-portant-approbation-de/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-140-pr-mi-rendant-execuiolre-fa-deliberation-n-6-81-du-30-novembre-1981-du-conseil-dadministration-de-loffice-des-posies-et-telecommunications-portant-approbation-de/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 

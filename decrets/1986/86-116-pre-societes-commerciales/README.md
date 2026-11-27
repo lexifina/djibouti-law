@@ -1,6 +1,6 @@
 # Décret n° 86-116/PRE relatif aux Sociétés commerciales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 31/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-116-pre-relatif-aux-societes-commerciales/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 31/12/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-116-pre-relatif-aux-societes-commerciales/>
 
 En vigueur : 1986-12-31 (date du Journal officiel qui le publie).
 

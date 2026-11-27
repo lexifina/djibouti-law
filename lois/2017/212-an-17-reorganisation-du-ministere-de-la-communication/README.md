@@ -1,6 +1,6 @@
 # Loi n° 212/AN/17/7ème L portant réorganisation du Ministère de la Communication, chargé des Postes et des Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-17-7eme-l-portant-reorganisation-du-ministere-de-la-communication-charge-des-postes-et-des-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n212-an-17-7eme-l-portant-reorganisation-du-ministere-de-la-communication-charge-des-postes-et-des-telecommunications/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

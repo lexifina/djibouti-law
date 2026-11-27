@@ -1,6 +1,6 @@
 # Loi n° 17 novembre 1941 modifiant les articles 1er, 10, 14, 15, 17. 22 et 21 de la loi du 22 juillet 1911 relative aux entreprises, biens et valeur» appartenant aux Juif».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-17-novembre-1941-modifiant-les-articles-1er-10-14-15-17-22-et-21-de-la-loi-du-22-juillet-1911-relative-aux-entreprises-biens-et-valeur-appartenant-aux-juif/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-17-novembre-1941-modifiant-les-articles-1er-10-14-15-17-22-et-21-de-la-loi-du-22-juillet-1911-relative-aux-entreprises-biens-et-valeur-appartenant-aux-juif/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

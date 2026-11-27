@@ -1,6 +1,6 @@
 # Décret n° 2009-0155/PR/MDN portant réoganisation de la Marine Nationale Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0155-pr-mdn-portant-reoganisation-de-la-marine-nationale-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0155-pr-mdn-portant-reoganisation-de-la-marine-nationale-djiboutienne/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 

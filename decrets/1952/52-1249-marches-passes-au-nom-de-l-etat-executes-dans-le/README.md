@@ -1,6 +1,6 @@
 # Décret n° 52-1249 relatif aux marchés passés au nom de l’Etat, exécutés dans les territoires relevant du ministère de la France d’outre-mer et dans les Etats associés, modifiant et complétant le décret n° 49-500 du 11 avril 1949.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1249-relatif-aux-marches-passes-au-nom-de-letat-executes-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-et-dans-les-etats-associes-modifiant/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1249-relatif-aux-marches-passes-au-nom-de-letat-executes-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-et-dans-les-etats-associes-modifiant/>
 
 En vigueur : 1953-01-01 (date du Journal officiel qui le publie).
 

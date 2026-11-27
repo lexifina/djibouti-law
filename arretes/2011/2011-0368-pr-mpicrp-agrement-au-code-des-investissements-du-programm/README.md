@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0368/PR/MPICRP portant Agrément au Code des Investissements du programme d’investissement de la Société « Advertising & Communication Service (ACS) ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0368-pr-mpicrp-portant-agrement-au-code-des-investissements-du-programme-dinvestissement-de-la-societe-advertising-communication-service-acs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0368-pr-mpicrp-portant-agrement-au-code-des-investissements-du-programme-dinvestissement-de-la-societe-advertising-communication-service-acs/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

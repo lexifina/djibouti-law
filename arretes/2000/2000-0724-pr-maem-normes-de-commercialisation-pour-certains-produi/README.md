@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0724/PR/MAEM relatif aux normes de commercialisation pour certains produits de la pêche frais ou réfrigérés et destinés à l’exportation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0724-pr-maem-relatif-aux-normes-de-commercialisation-pour-certains-produits-de-la-peche-frais-ou-refrigeres-et-destines-a-lexportation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0724-pr-maem-relatif-aux-normes-de-commercialisation-pour-certains-produits-de-la-peche-frais-ou-refrigeres-et-destines-a-lexportation/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 

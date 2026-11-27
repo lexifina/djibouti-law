@@ -1,6 +1,6 @@
 # Décret n° 52-662 complétant le décret du 30 novemhre 1928 instituant des juridictions spéciales et le régime de la liberté surveillée pour lés mineurs dans les Territoires relevant du Ministère de la France d’Outre-Mer .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-662-completant-le-decret-du-30-novemhre-1928-instituant-des-juridictions-speciales-et-le-regime-de-la-liberte-surveillee-pour-les-mineurs-dans-les-territoires-relevant-du-ministere/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/07/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-662-completant-le-decret-du-30-novemhre-1928-instituant-des-juridictions-speciales-et-le-regime-de-la-liberte-surveillee-pour-les-mineurs-dans-les-territoires-relevant-du-ministere/>
 
 En vigueur : 1952-07-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 183/AN/22/8ème L portant approbation des comptes financiers définitifs du Palais du Peuple de l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-22-8eme-l-portant-approbation-des-comptes-financiers-definitifs-du-palais-du-peuple-de-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n183-an-22-8eme-l-portant-approbation-des-comptes-financiers-definitifs-du-palais-du-peuple-de-lexercice-2021/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

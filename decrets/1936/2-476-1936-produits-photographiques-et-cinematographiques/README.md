@@ -1,6 +1,6 @@
 # Décret n° 2-476-1936 Produits photographiques et cinématographiques,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-476-1936-produits-photographiques-et-cinematographiques/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-476-1936-produits-photographiques-et-cinematographiques/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

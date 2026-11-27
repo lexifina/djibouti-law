@@ -1,6 +1,6 @@
 # Décret n° 2021-093/PR/MAMCBW portant organisation et fonctionnement du Musée National de Djibouti (MND).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 13/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-093-pr-mamcbw-portant-organisation-et-fonctionnement-du-musee-national-de-djibouti-mnd/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 13/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-093-pr-mamcbw-portant-organisation-et-fonctionnement-du-musee-national-de-djibouti-mnd/>
 
 En vigueur : 2021-05-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -84,4 +84,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

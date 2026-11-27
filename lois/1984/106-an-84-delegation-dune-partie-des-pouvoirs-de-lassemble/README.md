@@ -1,6 +1,6 @@
 # Loi n° 106/AN/84/1ère L portant délégation d’une partie des Pouvoirs de l’Assemblée Nationale à la Commission Permanente, jusqu’à l’ouverture de la 2ème session ordinaire de 1984 dite « SESSION BUDGETAIRE »
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-84-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1984-dite-sessio/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-84-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1984-dite-sessio/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 

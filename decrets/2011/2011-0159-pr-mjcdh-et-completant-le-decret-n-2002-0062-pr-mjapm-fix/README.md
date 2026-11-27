@@ -1,8 +1,8 @@
 # Décret n° 2011-0159/PR/MJCDH modifiant et complétant le décret n° 2002-0062/PR/MJAPM fixant les modalités d’application de la loi organique n° 9/AN/01/4ème L portant Statut de la Magistrature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0159-pr-mjcdh-modifiant-et-completant-le-decret-n2002-0062-pr-mjapm-fixant-les-modalites-dapplication-de-la-loi-organique-n9-an-01-4eme-l-portant-statut-de-la/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0159-pr-mjcdh-modifiant-et-completant-le-decret-n2002-0062-pr-mjapm-fixant-les-modalites-dapplication-de-la-loi-organique-n9-an-01-4eme-l-portant-statut-de-la/>
 
-En vigueur : 2011-08-28 (date fixÃ©e par le texte).
+En vigueur : 2011-08-28 (date fixée par le texte).
 
 ## Visas
 
@@ -56,4 +56,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

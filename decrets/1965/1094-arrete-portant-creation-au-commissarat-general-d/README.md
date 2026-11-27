@@ -1,6 +1,6 @@
 # Décret n° 1094 Arrêté portant création au Commissarat général du plan d’équipement et de la productivité d’un Comité cen- tral des territoires d’Outre-Mer pour le Ve Plan (J.O.R.F. du 12 décembre 1964, p. 11059) [Arrêté de promul- sation n° 1742 du 16 décembre 1964.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/01/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1094-arrete-portant-creation-au-commissarat-general-du-plan-dequipement-et-de-la-productivite-dun-comite-cen-tral-des-territoires-doutre-mer-pour-le-ve-plan-j-o-r-f-du/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/01/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1094-arrete-portant-creation-au-commissarat-general-du-plan-dequipement-et-de-la-productivite-dun-comite-cen-tral-des-territoires-doutre-mer-pour-le-ve-plan-j-o-r-f-du/>
 
 En vigueur : 1965-01-01 (date du Journal officiel qui le publie).
 

@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 ORDONNE
 Chapitre 1 : CONSTRUCTION-DISPOSITIONS GENERALS

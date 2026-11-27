@@ -1,6 +1,6 @@
 # Loi n° 38/AN/83/ 1ère L relative à la Discipline des Notaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-83-1ere-l-relative-a-la-discipline-des-notaires/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-83-1ere-l-relative-a-la-discipline-des-notaires/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ VU La Délibération N° 315/7è L déterminant le Statuts du Notariat publié p
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

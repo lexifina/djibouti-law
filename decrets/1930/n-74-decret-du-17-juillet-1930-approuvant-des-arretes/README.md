@@ -1,6 +1,6 @@
 # Décret n° n°74 Décret du 17 juillet 1930 approuvant des arrêtés du gouverneur de la Côte française des Somalis portant ouverture de crédits supplémentaires au budget local pour l’exercice 1929, relevant à la somme de 700,000 francs
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n74-decret-du-17-juillet-1930-approuvant-des-arretes-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-budget-local-pour-lexercice/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n74-decret-du-17-juillet-1930-approuvant-des-arretes-du-gouverneur-de-la-cote-francaise-des-somalis-portant-ouverture-de-credits-supplementaires-au-budget-local-pour-lexercice/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

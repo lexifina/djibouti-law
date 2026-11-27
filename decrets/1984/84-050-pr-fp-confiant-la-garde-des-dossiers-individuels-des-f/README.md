@@ -1,6 +1,6 @@
 # Décret n° 84-050/PR/FP confiant la garde des dossiers Individuels des fonctionnaires au Ministère de la Fonction publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-050-pr-fp-confiant-la-garde-des-dossiers-individuels-des-fonctionnaires-au-ministere-de-la-fonction-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/05/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-050-pr-fp-confiant-la-garde-des-dossiers-individuels-des-fonctionnaires-au-ministere-de-la-fonction-publique/>
 
 En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres entendu dans sa séance du 15 mai 1984.
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

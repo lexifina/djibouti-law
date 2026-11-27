@@ -1,6 +1,6 @@
 # Loi n° 60/AN/14/7ème L portant ratification de l’accord de financement du projet de construction du Port de Tadjourah avec le Fonds de l’OPEP pour le Développement International (OFID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-du-port-de-tadjourah-avec-le-fonds-de-lopep-pour-le-developpement-international-ofid/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-14-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-du-port-de-tadjourah-avec-le-fonds-de-lopep-pour-le-developpement-international-ofid/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 

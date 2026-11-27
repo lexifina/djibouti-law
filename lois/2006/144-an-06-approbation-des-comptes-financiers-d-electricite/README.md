@@ -1,6 +1,6 @@
 # Loi n° 144/AN/06/5ème L portant approbation des comptes financiers d’Électricité de Djibouti (E.D.D.) pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-06-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-e-d-d-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-06-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-e-d-d-pour-lexercice-2004/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 

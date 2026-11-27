@@ -1,8 +1,8 @@
 # Arrêté n° 2014-748/PR/MENSUR fixant la composition de la commission supérieure des équivalences de diplômes de l’enseignement supérieur.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-748-pr-mensur-fixant-la-composition-de-la-commission-superieure-des-equivalences-de-diplomes-de-lenseignement-superieur/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-748-pr-mensur-fixant-la-composition-de-la-commission-superieure-des-equivalences-de-diplomes-de-lenseignement-superieur/>
 
-En vigueur : 2014-12-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-12-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

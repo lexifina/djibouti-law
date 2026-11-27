@@ -1,6 +1,6 @@
 # Loi Organique n° 3/AN/93/3eme L relative à l’organisation et au fonctionnement du Conseil Supérieur de la Magistrature.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 18/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n3-an-93-3eme-l-relative-a-lorganisation-et-au-fonctionnement-du-conseil-superieur-de-la-magistrature/>
+Loi organique · Journal officiel de la République de Djibouti, n° 3 du 18/04/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n3-an-93-3eme-l-relative-a-lorganisation-et-au-fonctionnement-du-conseil-superieur-de-la-magistrature/>
 
 En vigueur : 1993-04-18 (date du Journal officiel qui le publie).
 
@@ -17,7 +17,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
@@ -39,4 +39,4 @@ HASSAN GOULED APTIDON
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

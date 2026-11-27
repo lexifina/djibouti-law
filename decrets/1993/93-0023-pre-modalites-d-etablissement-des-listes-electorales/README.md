@@ -1,6 +1,6 @@
 # Décret n° 93-0023/PRE fixant les modalités d’établissement des listes électorales ainsi que les conditions de délivrance et de validité des cartes d’électeurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0023-pre-fixant-les-modalites-detablissement-des-listes-electorales-ainsi-que-les-conditions-de-delivrance-et-de-validite-des-cartes-delecteurs/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0023-pre-fixant-les-modalites-detablissement-des-listes-electorales-ainsi-que-les-conditions-de-delivrance-et-de-validite-des-cartes-delecteurs/>
 
 En vigueur : 1993-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2561 modifiant les dispositions du code civil relatives à la présomption de décès et autorisant l’établissement de certains actes de décès.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2561-modifiant-les-dispositions-du-code-civil-relatives-a-la-presomption-de-deces-et-autorisant-letablissement-de-certains-actes-de-deces/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2561-modifiant-les-dispositions-du-code-civil-relatives-a-la-presomption-de-deces-et-autorisant-letablissement-de-certains-actes-de-deces/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

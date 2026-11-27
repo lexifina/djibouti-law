@@ -1,6 +1,6 @@
 # Décret n° 46-2437 Au lieu de : « du présent arrêté », lire : « du présent décret »; 18″ ligne, au lieu de : « présent décert », lire : « présent décret » : 23″ ligne, au lieu de : « d’admnisite du 13 juil let 1933 », lire : « d’amnistie du 13 juil let 1933).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2437-au-lieu-de-du-present-arrete-lire-du-present-decret-18-ligne-au-lieu-de-present-decert-lire-present-decret/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2437-au-lieu-de-du-present-arrete-lire-du-present-decret-18-ligne-au-lieu-de-present-decert-lire-present-decret/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ Le Secrétaire d'Etat, à la Présidence du Conseil, André Colin.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

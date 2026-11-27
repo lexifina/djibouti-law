@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 EXPOSÉ DES MOTIFS,
 L’article 356 du Code pénal prévoit, lorsque du moins le ravisseur est majeur, l’application d’une peine de travaux forcés à temps pour réprimer l’enlèvement d’une fille mineure de seize ans avec le consentement de celle-ci.
 Lorsque le ravisseur est mineur de vingt et un ans, la peine est d’un emprisonnement de deux à cinq ans.

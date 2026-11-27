@@ -1,8 +1,8 @@
 # Décret n° 2004-0015/PRE portant Création du Centre Régional d’Exportation de Bétail.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0015-pre-portant-creation-du-centre-regional-dexportation-de-betail/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0015-pre-portant-creation-du-centre-regional-dexportation-de-betail/>
 
-En vigueur : 2004-01-27 (date fixÃ©e par le texte).
+En vigueur : 2004-01-27 (date fixée par le texte).
 
 ## Visas
 

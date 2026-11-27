@@ -1,6 +1,6 @@
 # Décret n° 2005-0122/PR/MID portant cession du Marché de Ryad.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0122-pr-mid-portant-cession-du-marche-de-ryad/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0122-pr-mid-portant-cession-du-marche-de-ryad/>
 
 En vigueur : 2005-07-31 (date du Journal officiel qui le publie).
 

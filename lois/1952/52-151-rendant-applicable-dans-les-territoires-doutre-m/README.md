@@ -1,6 +1,6 @@
 # Loi n° 52-151 rendant applicable dans les Territoires d’Outre-Mer, au Cameroun et au Toro. l’article 248 du Code général.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-52-151-rendant-applicable-dans-les-territoires-doutre-mer-au-cameroun-et-au-toro-larticle-248-du-code-general/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/loi-n-52-151-rendant-applicable-dans-les-territoires-doutre-mer-au-cameroun-et-au-toro-larticle-248-du-code-general/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 

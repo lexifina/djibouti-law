@@ -1,8 +1,8 @@
 # Décret n° 2018-348/PRE approuvant les statuts de la Société de Gestion du Terminal à Conteneur de Doraleh (SGTD S.A).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-348-pre-approuvant-les-statuts-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-348-pre-approuvant-les-statuts-de-la-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd-s-a/>
 
-En vigueur : 2018-11-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-11-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2017-025/PR/MET portant approbation du budget prévisionnel 2017 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-025-pr-met-portant-approbation-du-budget-previsionnel-2017-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-025-pr-met-portant-approbation-du-budget-previsionnel-2017-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

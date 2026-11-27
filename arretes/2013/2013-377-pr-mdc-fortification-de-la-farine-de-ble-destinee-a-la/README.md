@@ -1,6 +1,6 @@
 # Arrêté n° 2013-377/PR/MDC portant fortification de la farine de blé destinée à la consommation humaine en République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-377-pr-mdc-portant-fortification-de-la-farine-de-ble-destinee-a-la-consommation-humaine-en-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-377-pr-mdc-portant-fortification-de-la-farine-de-ble-destinee-a-la-consommation-humaine-en-republique-de-djibouti/>
 
 En vigueur : 2013-06-30 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

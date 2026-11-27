@@ -1,8 +1,8 @@
 # Loi n° 181/AN/25/9ème L portant ratification par la République de Djibouti de l’Accord se rapportant à la Convention des Nations Unies sur le droit de la mer et portant sur la conservation et l’utilisation durable de la diversité biologique marine des zones ne relevant pas de la juridiction nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-25-9eme-l-portant-ratification-par-la-republique-de-djibouti-de-laccord-se-rapportant-a-la-convention-des-nations-unies-sur-le-droit-de-la-mer-et-portant-sur-la-conservation-et-l/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-25-9eme-l-portant-ratification-par-la-republique-de-djibouti-de-laccord-se-rapportant-a-la-convention-des-nations-unies-sur-le-droit-de-la-mer-et-portant-sur-la-conservation-et-l/>
 
-En vigueur : 2025-07-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-07-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

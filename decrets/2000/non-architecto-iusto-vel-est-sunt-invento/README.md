@@ -1,8 +1,8 @@
 # Décret n° Non architecto iusto Vel est sunt invento
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-nnon-architecto-iusto-vel-est-sunt-invento/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-nnon-architecto-iusto-vel-est-sunt-invento/>
 
-En vigueur : 2000-01-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-01-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

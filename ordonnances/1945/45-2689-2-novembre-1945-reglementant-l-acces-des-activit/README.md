@@ -1,6 +1,6 @@
 # Ordonnance n° 45 2689 du 2 novembre 1945 réglementant l’accès des activités ouvertes aux non originaires dans certains territoires relevant du ministère des colonies et les conditions d’admission et de résidence dans lesdits territoires
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2689-du-2-novembre-1945-reglementant-lacces-des-activites-ouvertes-aux-non-originaires-dans-certains-territoires-relevant-du-ministere-des-colonies-et-les-conditions-d/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2689-du-2-novembre-1945-reglementant-lacces-des-activites-ouvertes-aux-non-originaires-dans-certains-territoires-relevant-du-ministere-des-colonies-et-les-conditions-d/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

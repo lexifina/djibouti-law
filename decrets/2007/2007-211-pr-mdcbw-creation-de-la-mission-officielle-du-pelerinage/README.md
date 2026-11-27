@@ -1,6 +1,6 @@
 # Décret n° 2007-211/PR/MDCBW portant création de la mission officielle du Pèlerinage pour l’année 2007.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-211-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2007/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-211-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2007/>
 
 En vigueur : 2007-11-15 (date du Journal officiel qui le publie).
 

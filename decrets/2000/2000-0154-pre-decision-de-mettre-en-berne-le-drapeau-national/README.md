@@ -1,6 +1,6 @@
 # Décret n° 2000-0154/PRE portant décision de mettre en berne le drapeau national en raison du décès du Président Hafez El-Assad.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0154-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-du-president-hafez-el-assad/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0154-pre-portant-decision-de-mettre-en-berne-le-drapeau-national-en-raison-du-deces-du-president-hafez-el-assad/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 

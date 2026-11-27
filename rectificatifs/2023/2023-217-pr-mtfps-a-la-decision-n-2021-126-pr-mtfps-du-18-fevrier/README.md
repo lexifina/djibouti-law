@@ -1,6 +1,6 @@
 # 2023-217/PR/MTFPS à la Décision n° 2021-126/PR/MTFPS du 18 février 2021 portant engagement des 07 Coopérants Cubains au Ministère de l’Education Nationale et de la Formation Professionnelle.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-217-pr-mtfps-a-la-decision-n-2021-126-pr-mtfps-du-18-fevrier-2021-portant-engagement-des-07-cooperants-cubains-au-ministere-de-leducation-nationale-et-de-la-formation-professionnel/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-217-pr-mtfps-a-la-decision-n-2021-126-pr-mtfps-du-18-fevrier-2021-portant-engagement-des-07-cooperants-cubains-au-ministere-de-leducation-nationale-et-de-la-formation-professionnel/>
 
 En vigueur : 2023-06-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

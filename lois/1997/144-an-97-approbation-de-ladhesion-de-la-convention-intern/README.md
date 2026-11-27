@@ -1,6 +1,6 @@
 # Loi n° 144/AN/97/3ème L portant approbation de l’Adhésion de la Convention Internationale de 1990 sur la Préparation, la Lutte et la Coopération en matière de Pollution par les Hydrocarbures (OPRC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-97-3eme-l-portant-approbation-de-ladhesion-de-la-convention-internationale-de-1990-sur-la-preparation-la-lutte-et-la-cooperation-en-matiere-de-pollution-par-les-hydrocarbures-op/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-97-3eme-l-portant-approbation-de-ladhesion-de-la-convention-internationale-de-1990-sur-la-preparation-la-lutte-et-la-cooperation-en-matiere-de-pollution-par-les-hydrocarbures-op/>
 
 En vigueur : 1997-11-30 (date du Journal officiel qui le publie).
 

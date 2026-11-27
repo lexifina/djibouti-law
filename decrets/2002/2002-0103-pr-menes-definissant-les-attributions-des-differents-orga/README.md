@@ -1,6 +1,6 @@
 # Décret n° 2002-0103/PR/MENES définissant les attributions des différents organes de MENESUP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0103-pr-menes-definissant-les-attributions-des-differents-organes-de-menesup/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0103-pr-menes-definissant-les-attributions-des-differents-organes-de-menesup/>
 
 En vigueur : 2002-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 40-413-1931 Magistrature coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 413 du 30/04/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-40-413-1931-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 413 du 30/04/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-40-413-1931-magistrature-coloniale/>
 
 En vigueur : 1931-04-30 (date du Journal officiel qui le publie).
 

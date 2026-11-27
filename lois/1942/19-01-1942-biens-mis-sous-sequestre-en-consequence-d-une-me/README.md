@@ -1,6 +1,6 @@
 # Loi n° 19/01/1942 relative aux biens mis sous séquestre en conséquence d’une mesure de sûreté générale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 547 du 30/06/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-19-01-1942-relative-aux-biens-mis-sous-sequestre-en-consequence-dune-mesure-de-surete-generale/>
+Loi · Journal officiel de la République de Djibouti, n° 547 du 30/06/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-19-01-1942-relative-aux-biens-mis-sous-sequestre-en-consequence-dune-mesure-de-surete-generale/>
 
 En vigueur : 1942-06-30 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ PUCHEU.
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

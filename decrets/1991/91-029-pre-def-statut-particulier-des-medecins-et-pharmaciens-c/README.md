@@ -1,6 +1,6 @@
 # Décret n° 91-029/PRE/DEF Relatif au statut particulier des Médecins et Pharmaciens Chimistes militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/03/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-029-pre-def-relatif-au-statut-particulier-des-medecins-et-pharmaciens-chimistes-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 16/03/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-029-pre-def-relatif-au-statut-particulier-des-medecins-et-pharmaciens-chimistes-militaires/>
 
 En vigueur : 1991-03-16 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ HASSAN GOULED APTIDON
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

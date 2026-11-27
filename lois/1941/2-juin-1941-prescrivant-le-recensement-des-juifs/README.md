@@ -1,6 +1,6 @@
 # Loi n° 2 juin 1941 prescrivant le recensement des Juifs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-juin-1941-prescrivant-le-recensement-des-juifs/>
+Loi · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-juin-1941-prescrivant-le-recensement-des-juifs/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

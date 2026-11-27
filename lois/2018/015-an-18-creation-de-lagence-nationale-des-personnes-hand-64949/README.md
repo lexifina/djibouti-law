@@ -1,8 +1,8 @@
 # Loi n° 015/AN/18/8ème L portant création de l’Agence Nationale des Personnes Handicapées
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n015-an-18-8eme-l-portant-creation-de-lagence-nationale-des-personnes-handicapees/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n015-an-18-8eme-l-portant-creation-de-lagence-nationale-des-personnes-handicapees/>
 
-En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-06-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

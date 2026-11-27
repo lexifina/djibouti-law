@@ -1,6 +1,6 @@
 # Décret n° 2001-0224/PR/MEFPP portant adoption et application du Plan Comptable de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 29/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0224-pr-mefpp-portant-adoption-et-application-du-plan-comptable-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 29/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0224-pr-mefpp-portant-adoption-et-application-du-plan-comptable-de-letat/>
 
 En vigueur : 2001-11-29 (date du Journal officiel qui le publie).
 

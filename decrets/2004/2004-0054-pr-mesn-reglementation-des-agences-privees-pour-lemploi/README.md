@@ -1,8 +1,8 @@
 # Décret n° 2004-0054/PR/MESN portant réglementation des agences privées pour l’emploi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0054-pr-mesn-portant-reglementation-des-agences-privees-pour-lemploi/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0054-pr-mesn-portant-reglementation-des-agences-privees-pour-lemploi/>
 
-En vigueur : 2004-04-01 (date fixÃ©e par le texte).
+En vigueur : 2004-04-01 (date fixée par le texte).
 
 ## Visas
 

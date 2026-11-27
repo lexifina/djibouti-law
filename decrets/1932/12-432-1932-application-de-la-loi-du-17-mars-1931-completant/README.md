@@ -1,6 +1,6 @@
 # Décret n° 12-432-1932 Application de la loi du 17 mars 1931 complétant l’article 244 du Code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 432 du 30/11/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-432-1932-application-de-la-loi-du-17-mars-1931-completant-larticle-244-du-code-civil/>
+Décret · Journal officiel de la République de Djibouti, n° 432 du 30/11/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-432-1932-application-de-la-loi-du-17-mars-1931-completant-larticle-244-du-code-civil/>
 
 En vigueur : 1932-11-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Camille CHAUTEMPS.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Décret n° le 2 novembre 1938 relatif à l’importation des farines de froment.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-novembre-1938-relatif-a-limportation-des-farines-de-froment/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-2-novembre-1938-relatif-a-limportation-des-farines-de-froment/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

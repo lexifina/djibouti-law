@@ -1,6 +1,6 @@
 # Décret n° 4-387-1929 Application aux colonies de la loi du 4 février 1928 relative aux seconds mariages.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 387 du 28/02/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-387-1929-application-aux-colonies-de-la-loi-du-4-fevrier-1928-relative-aux-seconds-mariages/>
+Décret · Journal officiel de la République de Djibouti, n° 387 du 28/02/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-387-1929-application-aux-colonies-de-la-loi-du-4-fevrier-1928-relative-aux-seconds-mariages/>
 
 En vigueur : 1929-02-28 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Louis Barthou.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

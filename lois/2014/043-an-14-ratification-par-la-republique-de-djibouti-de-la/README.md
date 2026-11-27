@@ -1,6 +1,6 @@
 # Loi n° 43/AN/14/7ème L portant ratification par la République de Djibouti de l’Amendement de Doha au Protocole de Kyoto sur le changement climatique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-14-7eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-doha-au-protocole-de-kyoto-sur-le-changement-climatique/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-14-7eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-doha-au-protocole-de-kyoto-sur-le-changement-climatique/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 117/AN/15/7ème L portant modification de la Loi n° 177/AN/91/2ème L du 10 octobre 1991 portant organisation de la propriété foncière.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-15-7eme-l-portant-modification-de-la-loi-n177-an-91-2eme-l-du-10-octobre-1991-portant-organisation-de-la-propriete-fonciere/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n117-an-15-7eme-l-portant-modification-de-la-loi-n177-an-91-2eme-l-du-10-octobre-1991-portant-organisation-de-la-propriete-fonciere/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

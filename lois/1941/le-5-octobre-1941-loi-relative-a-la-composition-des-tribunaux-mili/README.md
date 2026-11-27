@@ -1,6 +1,6 @@
 # Loi n° le 5 octobre 1941 La loi relative à la composition des tribunaux militaires permanents jusqu’à la date de cessation légale du temps de guerre
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 539 du 31/10/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-le-5-octobre-1941-la-loi-relative-a-la-composition-des-tribunaux-militaires-permanents-jusqua-la-date-de-cessation-legale-du-temps-de-guerre/>
+Loi · Journal officiel de la République de Djibouti, n° 539 du 31/10/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-le-5-octobre-1941-la-loi-relative-a-la-composition-des-tribunaux-militaires-permanents-jusqua-la-date-de-cessation-legale-du-temps-de-guerre/>
 
 En vigueur : 1941-10-31 (date du Journal officiel qui le publie).
 

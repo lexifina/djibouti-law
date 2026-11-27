@@ -1,6 +1,6 @@
 # Décret n° n°40 les articles 29 et 30 de la loi de finances du 29 avril 1921, édictant des pénalités à de a des contrefacteurs des bons et jetons émis par les chambres de commerce et les auteurs de la fonte ou de la démonétisation des monnaies ayant cours en France.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 295 du 30/06/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n40-les-articles-29-et-30-de-la-loi-de-finances-du-29-avril-1921-edictant-des-penalites-a-de-a-des-contrefacteurs-des-bons-et-jetons-emis-par-les-chambres-de-commerce-et-les-a/>
+Décret · Journal officiel de la République de Djibouti, n° 295 du 30/06/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n40-les-articles-29-et-30-de-la-loi-de-finances-du-29-avril-1921-edictant-des-penalites-a-de-a-des-contrefacteurs-des-bons-et-jetons-emis-par-les-chambres-de-commerce-et-les-a/>
 
 En vigueur : 1921-06-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ A.sarrut.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Décret n° 2025-122/PR/MVUH portant approbation des Plans Détaillés d’Aménagement Urbain (PDAUs) des chefs-lieux des régions d’Ali-Sabieh, d’Arta, de Dikhil, d’Obock et de Tadjourah.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-122-pr-mvuh-portant-approbation-des-plans-detailles-damenagement-urbain-pdaus-des-chefs-lieux-des-regions-dali-sabieh-darta-de-dikhil-dobock-et-de-tadjourah/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 29/05/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-122-pr-mvuh-portant-approbation-des-plans-detailles-damenagement-urbain-pdaus-des-chefs-lieux-des-regions-dali-sabieh-darta-de-dikhil-dobock-et-de-tadjourah/>
 
-En vigueur : 2025-05-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-05-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

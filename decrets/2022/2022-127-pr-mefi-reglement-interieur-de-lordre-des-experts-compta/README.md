@@ -1,8 +1,8 @@
 # Décret n° 2022-127/PR/MEFI portant Règlement Intérieur de l’Ordre des Experts-Comptables de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-127-pr-mefi-portant-reglement-interieur-de-lordre-des-experts-comptables-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-127-pr-mefi-portant-reglement-interieur-de-lordre-des-experts-comptables-de-djibouti/>
 
-En vigueur : 2022-06-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-06-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -88,4 +88,4 @@ ISMAÏL OMAR GUELLEH
 | [art-060.md](art-060.md) | ARTICLE 60 |
 | [art-061.md](art-061.md) | ARTICLE 61 |
 | [art-062.md](art-062.md) | ARTICLE 62 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

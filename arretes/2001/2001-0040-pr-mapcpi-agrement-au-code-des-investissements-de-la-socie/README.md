@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0040/PR/MAPCPI portant Agrément au Code des Investissements de la Société «SIGOTA – S.A.R.L.».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0040-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-sigota-s-a-r-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0040-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-sigota-s-a-r-l/>
 
 En vigueur : 2001-01-15 (date du Journal officiel qui le publie).
 

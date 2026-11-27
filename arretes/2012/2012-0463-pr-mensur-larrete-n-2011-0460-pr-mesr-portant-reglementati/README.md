@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0463/PR/MENSUR modifiant l’Arrêté n° 2011-0460/PR/MESR portant réglementation propre au diplôme national menant au titre de diplôme universitaire de technologie mention « Statistiques et traitement informatique de données ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0463-pr-mensur-modifiant-larrete-n2011-0460-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-stati/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0463-pr-mensur-modifiant-larrete-n2011-0460-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-titre-de-diplome-universitaire-de-technologie-mention-stati/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

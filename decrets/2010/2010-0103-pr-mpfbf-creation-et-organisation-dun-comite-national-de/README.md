@@ -1,6 +1,6 @@
 # Décret n° 2010-0103/PR/MPFBF portant création et organisation d’un Comité National de Pilotage et d’un Comité Technique pour l’élaboration, la mise en oeuvre et le suivi évaluation du Plan Stratégique National pour l’Enfance à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0103-pr-mpfbf-portant-creation-et-organisation-dun-comite-national-de-pilotage-et-dun-comite-technique-pour-lelaboration-la-mise-en-oeuvre-et-le-suivi-evaluation-du-plan-stra/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0103-pr-mpfbf-portant-creation-et-organisation-dun-comite-national-de-pilotage-et-dun-comite-technique-pour-lelaboration-la-mise-en-oeuvre-et-le-suivi-evaluation-du-plan-stra/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 

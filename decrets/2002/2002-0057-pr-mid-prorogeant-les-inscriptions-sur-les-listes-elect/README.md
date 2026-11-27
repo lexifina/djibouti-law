@@ -1,6 +1,6 @@
 # Décret n° 2002-0057/PR/MID prorogeant les inscriptions sur les listes Electorales et réduisant la période de contrôle des listes électorales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0057-pr-mid-prorogeant-les-inscriptions-sur-les-listes-electorales-et-reduisant-la-periode-de-controle-des-listes-electorales/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0057-pr-mid-prorogeant-les-inscriptions-sur-les-listes-electorales-et-reduisant-la-periode-de-controle-des-listes-electorales/>
 
 En vigueur : 2002-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 77-060/PR portant création et organisation du Comité Constitutionnel et de Municipalités.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-060-pr-portant-creation-et-organisation-du-comite-constitutionnel-et-de-municipalites/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-060-pr-portant-creation-et-organisation-du-comite-constitutionnel-et-de-municipalites/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ HASSAN GOULED APTIDON
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

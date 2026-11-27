@@ -1,6 +1,6 @@
 # Décret n° 84-021/PR/FP portant définition des attributions des Services du Ministère des Travaux Publics, de l’Urbanisme et du Logement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-021-pr-fp-portant-definition-des-attributions-des-services-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-021-pr-fp-portant-definition-des-attributions-des-services-du-ministere-des-travaux-publics-de-lurbanisme-et-du-logement/>
 
 En vigueur : 1984-04-15 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres, entendu dans sa séance du 13 mars 1984.
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 14-422-1932 réglementation minière et les dispositions spéciales applicables aux hydrocarbures liquides dans Les colonies et territoires sous mandat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 422 du 31/01/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-422-1932-reglementation-miniere-et-les-dispositions-speciales-applicables-aux-hydrocarbures-liquides-dans-les-colonies-et-territoires-sous-mandat/>
+Décret · Journal officiel de la République de Djibouti, n° 422 du 31/01/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-422-1932-reglementation-miniere-et-les-dispositions-speciales-applicables-aux-hydrocarbures-liquides-dans-les-colonies-et-territoires-sous-mandat/>
 
 En vigueur : 1932-01-31 (date du Journal officiel qui le publie).
 

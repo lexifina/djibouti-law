@@ -1,6 +1,6 @@
 # Décret n° 06-291-1921 8 janvier 1921
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 291 du 31/01/1921 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-291-1921-8-janvier-1921/>
+Décret · Journal officiel de la République de Djibouti, n° 291 du 31/01/1921 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-291-1921-8-janvier-1921/>
 
 En vigueur : 1921-01-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Le Ministre des colonies.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1 — |
+| [art-001.md](art-001.md) | Art.1 |
 | [art-002.md](art-002.md) | Art. 2 |

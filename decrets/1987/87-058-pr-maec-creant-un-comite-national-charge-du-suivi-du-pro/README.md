@@ -1,6 +1,6 @@
 # Décret n° 87-058/PR/MAEC créant un comite national charge du suivi du programme prioritaire de redressement économique de l’Afrique (1986-1990).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-058-pr-maec-creant-un-comite-national-charge-du-suivi-du-programme-prioritaire-de-redressement-economique-de-lafrique-1986-1990/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-058-pr-maec-creant-un-comite-national-charge-du-suivi-du-programme-prioritaire-de-redressement-economique-de-lafrique-1986-1990/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

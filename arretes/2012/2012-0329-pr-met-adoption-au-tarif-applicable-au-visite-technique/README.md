@@ -1,8 +1,8 @@
 # Arrêté n° 2012-0329/PR/MET portant adoption au tarif applicable au visite technique des véhicules.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0329-pr-met-portant-adoption-au-tarif-applicable-au-visite-technique-des-vehicules/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0329-pr-met-portant-adoption-au-tarif-applicable-au-visite-technique-des-vehicules/>
 
-En vigueur : 2012-05-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-05-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

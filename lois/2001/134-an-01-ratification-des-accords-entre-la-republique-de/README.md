@@ -1,6 +1,6 @@
 # Loi n° 134/AN/01/4ème L portant ratification des Accords entre la République de Djibouti et la Banque Islamique de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-01-4eme-l-portant-ratification-des-accords-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-01-4eme-l-portant-ratification-des-accords-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

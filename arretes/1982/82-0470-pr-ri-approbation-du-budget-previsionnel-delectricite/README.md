@@ -1,6 +1,6 @@
 # Arrêté n° 82-0470/PR/RI portant approbation du budget prévisionnel d’Électricité de Djibouti de 1982.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0470-pr-ri-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-de-1982/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0470-pr-ri-portant-approbation-du-budget-previsionnel-delectricite-de-djibouti-de-1982/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

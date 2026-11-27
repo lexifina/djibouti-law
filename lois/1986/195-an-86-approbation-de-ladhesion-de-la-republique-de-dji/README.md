@@ -1,6 +1,6 @@
 # Loi n° 195/AN/86/1ère L portant approbation de l’adhésion de la République de Djibouti au traité instituant la zone d’échanges préférentiels pour les états de l’Afrique de l’est et l’Afrique austral.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 16/02/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-86-1ere-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-traite-instituant-la-zone-dechanges-preferentiels-pour-les-etats-de-lafrique-de-lest-et-lafrique/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 16/02/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-86-1ere-l-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-traite-instituant-la-zone-dechanges-preferentiels-pour-les-etats-de-lafrique-de-lest-et-lafrique/>
 
 En vigueur : 1986-02-16 (date du Journal officiel qui le publie).
 

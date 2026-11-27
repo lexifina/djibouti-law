@@ -1,6 +1,6 @@
 # Loi n° 103/AN/24/9ème L relatif à la prévention et à la lutte contre la corruption et les infractions assimilées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-24-9eme-l-relatif-a-la-prevention-et-a-la-lutte-contre-la-corruption-et-les-infractions-assimilees/>
+Loi · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-24-9eme-l-relatif-a-la-prevention-et-a-la-lutte-contre-la-corruption-et-les-infractions-assimilees/>
 
 En vigueur : 2024-03-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -114,4 +114,4 @@ ISMAÏL OMAR GUELLEH
 | [art-072.md](art-072.md) | Article 72 |
 | [art-073.md](art-073.md) | Article 73 |
 | [art-074.md](art-074.md) | Article 74 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

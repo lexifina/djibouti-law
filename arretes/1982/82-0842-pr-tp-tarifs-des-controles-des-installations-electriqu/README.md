@@ -1,6 +1,6 @@
 # Arrêté n° 82-0842/PR/TP fixant les tarifs des contrôles des installations électriques intérieurs.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0842-pr-tp-fixant-les-tarifs-des-controles-des-installations-electriques-interieurs/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0842-pr-tp-fixant-les-tarifs-des-controles-des-installations-electriques-interieurs/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

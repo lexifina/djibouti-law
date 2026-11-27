@@ -1,6 +1,6 @@
 # Arrêté n° 2013-101/PR/MENFP approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2013 du CRIPEN.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-101-pr-menfp-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-cripen/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-101-pr-menfp-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-cripen/>
 
 En vigueur : 2013-02-14 (date du Journal officiel qui le publie).
 

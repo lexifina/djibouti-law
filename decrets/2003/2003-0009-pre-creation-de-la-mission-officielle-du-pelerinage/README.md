@@ -1,6 +1,6 @@
 # Décret n° 2003-0009/PRE portant création de la mission officielle du Pèlerinage pour l’année 2003.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0009-pre-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2003/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0009-pre-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2003/>
 
 En vigueur : 2003-01-15 (date du Journal officiel qui le publie).
 

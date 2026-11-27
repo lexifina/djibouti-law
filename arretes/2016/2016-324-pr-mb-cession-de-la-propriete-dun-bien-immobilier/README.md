@@ -1,6 +1,6 @@
 # Arrêté n° 2016-324/PR/MB portant la cession de la propriété d’un bien immobilier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-324-pr-mb-portant-la-cession-de-la-propriete-dun-bien-immobilier/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-324-pr-mb-portant-la-cession-de-la-propriete-dun-bien-immobilier/>
 
 En vigueur : 2016-05-15 (date du Journal officiel qui le publie).
 

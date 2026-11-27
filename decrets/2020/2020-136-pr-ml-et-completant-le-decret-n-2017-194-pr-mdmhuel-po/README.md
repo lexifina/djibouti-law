@@ -1,6 +1,6 @@
 # Décret n° 2020-136/PR/ML modifiant et complétant le Décret n° 2017-194/PR/MDMHUEL portant Déclaration d’Utilité Publique du périmètre d’étude des Projets de Développement Urbain Intégré 2 à Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-136-pr-ml-modifiant-et-completant-le-decret-n2017-194-pr-mdmhuel-portant-declaration-dutilite-publique-du-perimetre-detude-des-projets-de-developpement-urbain-integre-2-a/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-136-pr-ml-modifiant-et-completant-le-decret-n2017-194-pr-mdmhuel-portant-declaration-dutilite-publique-du-perimetre-detude-des-projets-de-developpement-urbain-integre-2-a/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2002-0020/PRE portant création d’un Fonds de Recherche Scientifique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0020-pre-portant-creation-dun-fonds-de-recherche-scientifique/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 14/02/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0020-pre-portant-creation-dun-fonds-de-recherche-scientifique/>
 
-En vigueur : 2002-02-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-02-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

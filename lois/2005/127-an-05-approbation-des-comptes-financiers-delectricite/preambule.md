@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Les comptes financiers d’Électricité de Djibouti pour l’exercice 2003 s’établissent comme suit (en FD) :
 – En produits…………………………….. 10 340 695 078 FDJ
 – En charges…………………………….. 10 016 604 317 FDJ

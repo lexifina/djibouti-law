@@ -1,6 +1,6 @@
 # Loi n° 90/AN/24/9ème L portant ratification de l’Accord de promotion et de protection des Investissements avec la République du Kenya.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 21/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-24-9eme-l-portant-ratification-de-laccord-de-promotion-et-de-protection-des-investissements-avec-la-republique-du-kenya/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 21/04/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-24-9eme-l-portant-ratification-de-laccord-de-promotion-et-de-protection-des-investissements-avec-la-republique-du-kenya/>
 
 En vigueur : 2024-04-22 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

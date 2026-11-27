@@ -1,6 +1,6 @@
 # Décret n° 2011-035/PR/MCI instituant la nomenclature unique des métiers artisanaux de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-035-pr-mci-instituant-la-nomenclature-unique-des-metiers-artisanaux-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-035-pr-mci-instituant-la-nomenclature-unique-des-metiers-artisanaux-de-djibouti/>
 
 En vigueur : 2011-03-15 (date du Journal officiel qui le publie).
 

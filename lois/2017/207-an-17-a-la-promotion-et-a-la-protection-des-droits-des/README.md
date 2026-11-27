@@ -1,6 +1,6 @@
 # Loi n° 207/AN/17/7ème L relative à la promotion et à la protection des droits des personnes à besoins spéciaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-a-besoins-speciaux/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-17-7eme-l-relative-a-la-promotion-et-a-la-protection-des-droits-des-personnes-a-besoins-speciaux/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 
@@ -125,4 +125,4 @@ ISMAÏL OMAR GUELLEH
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

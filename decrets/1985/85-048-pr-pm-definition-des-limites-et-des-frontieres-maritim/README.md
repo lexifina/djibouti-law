@@ -1,6 +1,6 @@
 # Décret n° 85-048/PR/PM portant définition des limites et des frontières maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-048-pr-pm-portant-definition-des-limites-et-des-frontieres-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/05/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-048-pr-pm-portant-definition-des-limites-et-des-frontieres-maritimes/>
 
 En vigueur : 1985-05-30 (date du Journal officiel qui le publie).
 

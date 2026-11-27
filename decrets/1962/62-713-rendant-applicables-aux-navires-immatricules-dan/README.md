@@ -1,6 +1,6 @@
 # Décret n° 62-713 rendant applicables aux navires immatriculés dans les territoires d’0utre-Mer de la République certains décrets sur la sauve Ngarde de la vie humaine en mer et l’habitabilité à bord des mavires de commerce, de pêche et de plaisance d’une jauge brute inférieure à 500 tonneaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-713-rendant-applicables-aux-navires-immatricules-dans-les-territoires-d0utre-mer-de-la-republique-certains-decrets-sur-la-sauve-ngarde-de-la-vie-humaine-en-mer-et-l/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-713-rendant-applicables-aux-navires-immatricules-dans-les-territoires-d0utre-mer-de-la-republique-certains-decrets-sur-la-sauve-ngarde-de-la-vie-humaine-en-mer-et-l/>
 
 En vigueur : 1962-07-31 (date du Journal officiel qui le publie).
 

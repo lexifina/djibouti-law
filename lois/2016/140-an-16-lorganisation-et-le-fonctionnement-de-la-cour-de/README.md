@@ -1,6 +1,6 @@
 # Loi n° 140/AN/16/7ème L modifiant l’organisation et le fonctionnement de la Cour des Comptes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-16-7eme-l-modifiant-lorganisation-et-le-fonctionnement-de-la-cour-des-comptes/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-16-7eme-l-modifiant-lorganisation-et-le-fonctionnement-de-la-cour-des-comptes/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 
@@ -192,4 +192,4 @@ ISMAÏL OMAR GUELLEH
 | [art-133.md](art-133.md) | Article 133 |
 | [art-134.md](art-134.md) | Article 134 |
 | [art-135.md](art-135.md) | Article 135 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

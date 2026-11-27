@@ -1,8 +1,8 @@
 # Décret n° 2018-146/PR/MAPCI portant réglementation des formalités de création d’entreprises.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-146-pr-mapci-portant-reglementation-des-formalites-de-creation-dentreprises/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-146-pr-mapci-portant-reglementation-des-formalites-de-creation-dentreprises/>
 
-En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-04-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2004-0307/PR/MCI portant création d’un Forum National de Développement et de la Politique Commerciale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0307-pr-mci-portant-creation-dun-forum-national-de-developpement-et-de-la-politique-commerciale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0307-pr-mci-portant-creation-dun-forum-national-de-developpement-et-de-la-politique-commerciale/>
 
-En vigueur : 2004-04-22 (date fixÃ©e par le texte).
+En vigueur : 2004-04-22 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 82-044/PR/PORT portant organisation et compétence du service des Affaires Maritimes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/06/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-044-pr-port-portant-organisation-et-competence-du-service-des-affaires-maritimes/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 08/06/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-044-pr-port-portant-organisation-et-competence-du-service-des-affaires-maritimes/>
 
 En vigueur : 1982-06-08 (date du Journal officiel qui le publie).
 

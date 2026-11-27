@@ -1,8 +1,8 @@
 # Décret n° 2013-231/PR/MTRA Portant intégration à titre exceptionnel des instituteurs conventionnés dans les cadres de la Fonction publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-231-pr-mtra-portant-integration-a-titre-exceptionnel-des-instituteurs-conventionnes-dans-les-cadres-de-la-fonction-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-231-pr-mtra-portant-integration-a-titre-exceptionnel-des-instituteurs-conventionnes-dans-les-cadres-de-la-fonction-publique/>
 
-En vigueur : 2013-08-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-08-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

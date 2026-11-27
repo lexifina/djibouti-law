@@ -1,6 +1,6 @@
 # Décret n° 3 janvier 1924. 3 janvier 1924.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 534 du 31/05/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-janvier-1924-3-janvier-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 534 du 31/05/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-janvier-1924-3-janvier-1924/>
 
 En vigueur : 1941-05-31 (date du Journal officiel qui le publie).
 

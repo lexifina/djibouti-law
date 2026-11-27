@@ -1,6 +1,6 @@
 # Décret n° 47-1452 portant prorogation des délais de dépôt des demandes d’indemnisation de perte et des déclarations de bénéfice résultant de la modification des taux de change dans la zone franc
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1452-portant-prorogation-des-delais-de-depot-des-demandes-dindemnisation-de-perte-et-des-declarations-de-benefice-resultant-de-la-modification-des-taux-de-change-dans-la-zo/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1452-portant-prorogation-des-delais-de-depot-des-demandes-dindemnisation-de-perte-et-des-declarations-de-benefice-resultant-de-la-modification-des-taux-de-change-dans-la-zo/>
 
 En vigueur : 1947-08-31 (date du Journal officiel qui le publie).
 

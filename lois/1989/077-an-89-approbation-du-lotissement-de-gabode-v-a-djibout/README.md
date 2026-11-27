@@ -1,6 +1,6 @@
 # Loi n° 77/AN/89/2ème L portant approbation du lotissement de « Gabode V » à Djibouti
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-89-2eme-l-portant-approbation-du-lotissement-de-gabode-v-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-89-2eme-l-portant-approbation-du-lotissement-de-gabode-v-a-djibouti/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

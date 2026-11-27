@@ -1,6 +1,6 @@
 # Loi n° 166/AN/25/9ème L Portant approbation des comptes financiers de l’Aéroport International de Djibouti pour l’exercice 2022.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2022/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 30/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2022/>
 
 En vigueur : 2025-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

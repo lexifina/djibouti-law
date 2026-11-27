@@ -1,6 +1,6 @@
 # Loi n° 35/AN/09/6ème L portant Statut du Personnel de la Sécurité Pénitentiaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-09-6eme-l-portant-statut-du-personnel-de-la-securite-penitentiaire/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-09-6eme-l-portant-statut-du-personnel-de-la-securite-penitentiaire/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 
@@ -53,4 +53,4 @@ Le Conseil des Ministres entendu en sa séance du 11 Novembre 2008.
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

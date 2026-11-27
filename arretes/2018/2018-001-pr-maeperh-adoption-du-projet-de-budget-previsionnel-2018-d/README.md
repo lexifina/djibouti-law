@@ -1,6 +1,6 @@
 # Arrêté n° 2018-001/PR/MAEPERH portant adoption du projet de budget prévisionnel 2018 du Laboratoire National d’Analyses Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-001-pr-maeperh-portant-adoption-du-projet-de-budget-previsionnel-2018-du-laboratoire-national-danalyses-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-001-pr-maeperh-portant-adoption-du-projet-de-budget-previsionnel-2018-du-laboratoire-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ ISMAÏL OMAR GUELLEH
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

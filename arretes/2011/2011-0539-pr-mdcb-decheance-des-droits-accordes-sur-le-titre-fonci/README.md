@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0539/PR/MDCB portant déchéance des droits accordés sur le titre foncier n° 9678 sise au PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0539-pr-mdcb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n9678-sise-au-pk-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0539-pr-mdcb-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n9678-sise-au-pk-12/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2012-0119/PR/MAMBW rectifiant certaines dispositions du Décret n° 0242-2007/PR/MAMBW portant organisation de la Direction des Biens Waqfs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0119-pr-mambw-rectifiant-certaines-dispositions-du-decret-n0242-2007-pr-mambw-portant-organisation-de-la-direction-des-biens-waqfs/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0119-pr-mambw-rectifiant-certaines-dispositions-du-decret-n0242-2007-pr-mambw-portant-organisation-de-la-direction-des-biens-waqfs/>
 
-En vigueur : 2012-06-04 (date fixÃ©e par le texte).
+En vigueur : 2012-06-04 (date fixée par le texte).
 
 ## Visas
 

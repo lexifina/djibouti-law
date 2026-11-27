@@ -1,6 +1,6 @@
 # Loi n° 108/AN/00/4ème L portant réforme du code général des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-00-4eme-l-portant-reforme-du-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-00-4eme-l-portant-reforme-du-code-general-des-impots/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

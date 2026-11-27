@@ -1,8 +1,8 @@
 # Décret n° 99-0213/PR/MET portant création d’un Comité National de Facilitation des Transports.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0213-pr-met-portant-creation-dun-comite-national-de-facilitation-des-transports/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0213-pr-met-portant-creation-dun-comite-national-de-facilitation-des-transports/>
 
-En vigueur : 1999-10-30 (date fixÃ©e par le texte).
+En vigueur : 1999-10-30 (date fixée par le texte).
 
 ## Visas
 

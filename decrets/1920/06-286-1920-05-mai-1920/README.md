@@ -1,6 +1,6 @@
 # Décret n° 06-286-1920 05 mai 1920
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 286 du 30/08/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-286-1920-05-mai-1920/>
+Décret · Journal officiel de la République de Djibouti, n° 286 du 30/08/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-286-1920-05-mai-1920/>
 
 En vigueur : 1920-08-30 (date du Journal officiel qui le publie).
 

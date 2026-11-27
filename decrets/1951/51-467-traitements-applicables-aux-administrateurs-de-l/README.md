@@ -1,6 +1,6 @@
 # Décret n° 51-467 fixant les traitements applicables aux administrateurs de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-467-fixant-les-traitements-applicables-aux-administrateurs-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-467-fixant-les-traitements-applicables-aux-administrateurs-de-la-france-doutre-mer/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

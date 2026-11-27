@@ -1,6 +1,6 @@
 # Décret n° n°55 Décret du 7 août 1930 portant règlement d’administration publique pour l’application des article 197 à 199 de la loi de finances du 16 avril 1930 instituant l’allocation du combattant
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-decret-du-7-aout-1930-portant-reglement-dadministration-publique-pour-lapplication-des-article-197-a-199-de-la-loi-de-finances-du-16-avril-1930-instituant-lallocation-d/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-decret-du-7-aout-1930-portant-reglement-dadministration-publique-pour-lapplication-des-article-197-a-199-de-la-loi-de-finances-du-16-avril-1930-instituant-lallocation-d/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 
@@ -41,7 +41,7 @@ andre mallarme
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1 — |
+| [art-001.md](art-001.md) | Art.1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

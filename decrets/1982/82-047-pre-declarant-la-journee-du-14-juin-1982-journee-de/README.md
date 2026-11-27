@@ -1,6 +1,6 @@
 # Décret n° 82-047/PRE déclarant la journée du 14 juin 1982 journée de Deuil national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-047-pre-declarant-la-journee-du-14-juin-1982-journee-de-deuil-national/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-047-pre-declarant-la-journee-du-14-juin-1982-journee-de-deuil-national/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

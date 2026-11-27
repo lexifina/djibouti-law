@@ -1,6 +1,6 @@
 # Loi n° 152/AN/24/9ème L portant approbation des comptes financiers de l’exercice 2022 de l’Université de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 13/03/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2022-de-luniversite-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 13/03/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-24-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2022-de-luniversite-de-djibouti/>
 
 En vigueur : 2025-03-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

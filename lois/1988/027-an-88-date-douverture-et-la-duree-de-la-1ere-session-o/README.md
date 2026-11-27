@@ -1,6 +1,6 @@
 # Loi n° 27/AN/88/2ème L Fixant la date d’Ouverture et la durée de la 1ère Session Ordinaire de 1988
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-88-2eme-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1988/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 14/04/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-88-2eme-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1988/>
 
 En vigueur : 1988-04-14 (date du Journal officiel qui le publie).
 

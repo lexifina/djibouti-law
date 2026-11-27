@@ -1,8 +1,8 @@
 # Décret n° 2006-0020/PRE portant création, organisation et objet du Comité de Réflexion sur la Microfinance (CREM).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0020-pre-portant-creation-organisation-et-objet-du-comite-de-reflexion-sur-la-microfinance-crem/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0020-pre-portant-creation-organisation-et-objet-du-comite-de-reflexion-sur-la-microfinance-crem/>
 
-En vigueur : 2006-01-22 (date fixÃ©e par le texte).
+En vigueur : 2006-01-22 (date fixée par le texte).
 
 ## Visas
 

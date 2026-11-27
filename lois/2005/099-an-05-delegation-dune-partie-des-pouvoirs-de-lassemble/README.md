@@ -1,6 +1,6 @@
 # Loi n° 99/AN/05/5ème L Portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’Ouverture de la 1ère Session Ordinaire de 2005.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-05-5eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2005/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-05-5eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordinaire-de-2005/>
 
 En vigueur : 2005-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2017-008/PR/MDCL portant adoption du budget Prévisionnel 2017 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-008-pr-mdcl-portant-adoption-du-budget-previsionnel-2017-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-008-pr-mdcl-portant-adoption-du-budget-previsionnel-2017-du-fonds-de-lhabitat/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

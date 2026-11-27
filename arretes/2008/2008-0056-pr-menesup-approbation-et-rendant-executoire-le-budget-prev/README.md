@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0056/PR/MENESUP portant approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2008 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0056-pr-menesup-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2008-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0056-pr-menesup-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2008-de-luniversite-de-djibouti/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

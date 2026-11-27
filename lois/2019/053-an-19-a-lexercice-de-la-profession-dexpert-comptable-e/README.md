@@ -1,8 +1,8 @@
 # Loi n° 053/AN/19/8ème L relative à l’exercice de la profession d’Expert-comptable et au fonctionnement de l’Ordre des Experts-Comptables de Djibouti (OECD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n053-an-19-8eme-l-relative-a-lexercice-de-la-profession-dexpert-comptable-et-au-fonctionnement-de-lordre-des-experts-comptables-de-djibouti-oecd/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n053-an-19-8eme-l-relative-a-lexercice-de-la-profession-dexpert-comptable-et-au-fonctionnement-de-lordre-des-experts-comptables-de-djibouti-oecd/>
 
-En vigueur : 2019-07-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -202,4 +202,4 @@ ISMAÏL OMAR GUELLEH
 | [art-149.md](art-149.md) | Article 149 |
 | [art-150.md](art-150.md) | Article 150 |
 | [art-151.md](art-151.md) | Article 151 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2011-003/PR/MEFPCP portant création et organisation de l’Agence Comptable des Hôpitaux de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-003-pr-mefpcp-portant-creation-et-organisation-de-lagence-comptable-des-hopitaux-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-003-pr-mefpcp-portant-creation-et-organisation-de-lagence-comptable-des-hopitaux-de-djibouti/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

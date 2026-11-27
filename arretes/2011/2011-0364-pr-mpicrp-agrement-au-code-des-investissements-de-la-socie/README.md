@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0364/PR/MPICRP portant Agrément au Code des Investissements de la Société « TJM SARL ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0364-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-tjm-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0364-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-tjm-sarl/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

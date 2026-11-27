@@ -1,6 +1,6 @@
 # Loi n° 97/AN/84/1reL portant modification de la loi n° 63/AN/ 83 /1re L réglementant la profession des comptables et des experts comptables.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-84-1rel-portant-modification-de-la-loi-n-63-an-83-1re-l-reglementant-la-profession-des-comptables-et-des-experts-comptables/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/05/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-84-1rel-portant-modification-de-la-loi-n-63-an-83-1re-l-reglementant-la-profession-des-comptables-et-des-experts-comptables/>
 
 En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
 

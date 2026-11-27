@@ -1,6 +1,6 @@
 # Décret n° 17 septembre 1940 Règlement des importations de marchandises en provenance de Belgique, du Danemark, du Luxembourg, de Norvège, des Pays-Bas, de Pologne et de Tchécoslovaquie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-septembre-1940-reglement-des-importations-de-marchandises-en-provenance-de-belgique-du-danemark-du-luxembourg-de-norvege-des-pays-bas-de-pologne-et-de-tchecoslovaquie/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-septembre-1940-reglement-des-importations-de-marchandises-en-provenance-de-belgique-du-danemark-du-luxembourg-de-norvege-des-pays-bas-de-pologne-et-de-tchecoslovaquie/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

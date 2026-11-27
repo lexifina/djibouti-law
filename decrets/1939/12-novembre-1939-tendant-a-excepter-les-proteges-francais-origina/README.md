@@ -1,6 +1,6 @@
 # Décret n° 12 novembre 1939 tendant à excepter les protèges français, originaires de territoires relevant du ministère des colonies, des dispositions de l’article 20 du décret du 12 novembre 1938 sur la situation et la police des Ctrangers,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-novembre-1939-tendant-a-excepter-les-proteges-francais-originaires-de-territoires-relevant-du-ministere-des-colonies-des-dispositions-de-larticle-20-du-decret-du-12-novembre-193/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-novembre-1939-tendant-a-excepter-les-proteges-francais-originaires-de-territoires-relevant-du-ministere-des-colonies-des-dispositions-de-larticle-20-du-decret-du-12-novembre-193/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

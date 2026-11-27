@@ -1,6 +1,6 @@
 # Décret n° 92-072/PRE/DEF portant disposition particulière au profit des personnels d’activité ou rappelés
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-072-pre-def-portant-disposition-particuliere-au-profit-des-personnels-dactivite-ou-rappeles/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-072-pre-def-portant-disposition-particuliere-au-profit-des-personnels-dactivite-ou-rappeles/>
 
 En vigueur : 1992-06-30 (date du Journal officiel qui le publie).
 

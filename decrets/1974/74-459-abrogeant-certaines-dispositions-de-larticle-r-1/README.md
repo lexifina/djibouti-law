@@ -1,6 +1,6 @@
 # Décret n° 74-459 ABROGEANT CERTAINES DISPOSITIONS DE L’ARTICLE R* 1” DU CODE ELECTORAL
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-459-abrogeant-certaines-dispositions-de-larticle-r-1-du-code-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-459-abrogeant-certaines-dispositions-de-larticle-r-1-du-code-electoral/>
 
 En vigueur : 1974-06-25 (date du Journal officiel qui le publie).
 

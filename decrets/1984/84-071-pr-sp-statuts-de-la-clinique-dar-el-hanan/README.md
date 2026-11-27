@@ -1,6 +1,6 @@
 # Décret n° 84-071/PR/SP portant statuts de la clinique « DAR-EL-HANAN »
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-071-pr-sp-portant-statuts-de-la-clinique-dar-el-hanan/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/07/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-071-pr-sp-portant-statuts-de-la-clinique-dar-el-hanan/>
 
 En vigueur : 1984-07-15 (date du Journal officiel qui le publie).
 
@@ -29,7 +29,7 @@ LE CONSEIL DES MINISTRES ENTENDU EN SA SEANCE DU 19 JUIN 1984.
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [art-013.md](art-013.md) | Article 13 – |
+| [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
@@ -40,4 +40,4 @@ LE CONSEIL DES MINISTRES ENTENDU EN SA SEANCE DU 19 JUIN 1984.
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 88/AN/84/1re L portant code des investissements.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-84-1re-l-portant-code-des-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-84-1re-l-portant-code-des-investissements/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ VU les délibérations n°494/6ème L et 117/8ème L des 24 mai 1968 et 27 mai 1
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,7 +1,7 @@
 # Loi n° 15/AN/13/7ème L portant ratification de l’accord de financement du projet de l’amélioration de l’utilisation des services de santé de qualité pour la santé maternelle et infantile et les maladies transmissibles (VIH/SIDA,
 Tuberculose et Paludisme) avec l’IDA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-lamelioration-de-lutilisation-des-services-de-sante-de-qualite-pour-la-sante-maternelle-et-infantile-et-le/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-lamelioration-de-lutilisation-des-services-de-sante-de-qualite-pour-la-sante-maternelle-et-infantile-et-le/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

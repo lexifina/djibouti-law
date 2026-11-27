@@ -1,6 +1,6 @@
 # 2023-243/PRE pourvoyant l’intérm des fonctions du Secrétaire Général du Gouvernement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-243-pre-pourvoyant-linterm-des-fonctions-du-secretaire-general-du-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-243-pre-pourvoyant-linterm-des-fonctions-du-secretaire-general-du-gouvernement/>
 
 En vigueur : 2023-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

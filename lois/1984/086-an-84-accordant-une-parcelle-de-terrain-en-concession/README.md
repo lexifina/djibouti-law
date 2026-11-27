@@ -1,6 +1,6 @@
 # Loi n° 86/AN/84/1re L accordant une parcelle de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-84-1re-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n86-an-84-1re-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

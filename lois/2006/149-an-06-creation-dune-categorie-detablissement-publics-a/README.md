@@ -1,6 +1,6 @@
 # Loi n° 149/AN/06/5ème L portant création d’une catégorie d’établissement publics à caractère scientifique, pédagogique et technologie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-06-5eme-l-portant-creation-dune-categorie-detablissement-publics-a-caractere-scientifique-pedagogique-et-technologie/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-06-5eme-l-portant-creation-dune-categorie-detablissement-publics-a-caractere-scientifique-pedagogique-et-technologie/>
 
 En vigueur : 2006-08-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2019-196/PR/MET portant Création de la Gendarmerie des Transports Ferroviaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-196-pr-met-portant-creation-de-la-gendarmerie-des-transports-ferroviaires/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-196-pr-met-portant-creation-de-la-gendarmerie-des-transports-ferroviaires/>
 
-En vigueur : 2019-07-29 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-07-29 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

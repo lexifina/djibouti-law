@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0548/PRE portant création d’une Commission Nationale d’harmonisation et de codification des textes juridiques et réglementaires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0548-pre-portant-creation-dune-commission-nationale-dharmonisation-et-de-codification-des-textes-juridiques-et-reglementaires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0548-pre-portant-creation-dune-commission-nationale-dharmonisation-et-de-codification-des-textes-juridiques-et-reglementaires/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

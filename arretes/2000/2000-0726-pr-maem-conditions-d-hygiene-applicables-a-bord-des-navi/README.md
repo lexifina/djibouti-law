@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0726/PR/MAEM relatif aux conditions d’hygiène applicables à bord des navires de pêche et des navires-usines.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0726-pr-maem-relatif-aux-conditions-dhygiene-applicables-a-bord-des-navires-de-peche-et-des-navires-usines/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0726-pr-maem-relatif-aux-conditions-dhygiene-applicables-a-bord-des-navires-de-peche-et-des-navires-usines/>
 
 En vigueur : 2000-09-30 (date du Journal officiel qui le publie).
 

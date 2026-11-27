@@ -1,4 +1,4 @@
-# Article unique —
+# Article unique
 L’article 161 du Code pénal est complété comme suit :
 « Sera puni d’un emprisonnement de six mois à deux ans et d’une amende de 10.000
 à 100.000 francs, ou de l’une de ces deux peines seulement, sans préjudice de l’application, le cas échéant, des peines plus fortes prévues par le mrésent Cocle et leg lois spéciales, quiconque :

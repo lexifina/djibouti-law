@@ -1,6 +1,6 @@
 # Décret n° 75-143 du 3 mars 1975 portant publication de l’accord de 1971 sur les navires à passagers qui effectuent des transports spéciaux (ensemble un règlement et deux appendices),signé à Londres le 6 octobre 1971 (1).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 26/05/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-143-du-3-mars-1975-portant-publication-de-laccord-de-1971-sur-les-navires-a-passagers-qui-effectuent-des-transports-speciaux-ensemble-un-reglement-et-deux-appendicessigne-a-lon/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 26/05/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-143-du-3-mars-1975-portant-publication-de-laccord-de-1971-sur-les-navires-a-passagers-qui-effectuent-des-transports-speciaux-ensemble-un-reglement-et-deux-appendicessigne-a-lon/>
 
 En vigueur : 1975-05-26 (date du Journal officiel qui le publie).
 

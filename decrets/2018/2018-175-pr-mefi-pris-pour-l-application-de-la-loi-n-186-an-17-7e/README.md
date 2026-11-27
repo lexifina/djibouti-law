@@ -1,8 +1,8 @@
 # Décret n° 2018-175/PR/MEFI pris pour l’application de la Loi n° 186/AN/17/7ème L relative aux Partenariats Public Privé et portant mise en place de la Commission de Régulation des PPP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-175-pr-mefi-pris-pour-lapplication-de-la-loi-n186-an-17-7eme-l-relative-aux-partenariats-public-prive-et-portant-mise-en-place-de-la-commission-de-regulation-des-ppp/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-175-pr-mefi-pris-pour-lapplication-de-la-loi-n186-an-17-7eme-l-relative-aux-partenariats-public-prive-et-portant-mise-en-place-de-la-commission-de-regulation-des-ppp/>
 
-En vigueur : 2018-05-14 (date fixÃ©e par le texte).
+En vigueur : 2018-05-14 (date fixée par le texte).
 
 ## Visas
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

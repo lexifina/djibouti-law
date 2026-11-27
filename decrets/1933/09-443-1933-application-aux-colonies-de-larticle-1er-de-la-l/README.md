@@ -1,6 +1,6 @@
 # Décret n° 09-443-1933 Application aux colonies de l’article 1er de la loi du 27 décembre 1916 aggravant les peines réprimant le vagabondage spécial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 443 du 31/10/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-443-1933-application-aux-colonies-de-larticle-1er-de-la-loi-du-27-decembre-1916-aggravant-les-peines-reprimant-le-vagabondage-special/>
+Décret · Journal officiel de la République de Djibouti, n° 443 du 31/10/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-443-1933-application-aux-colonies-de-larticle-1er-de-la-loi-du-27-decembre-1916-aggravant-les-peines-reprimant-le-vagabondage-special/>
 
 En vigueur : 1933-10-31 (date du Journal officiel qui le publie).
 
@@ -27,6 +27,6 @@ Eugène PÉNANCIER.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

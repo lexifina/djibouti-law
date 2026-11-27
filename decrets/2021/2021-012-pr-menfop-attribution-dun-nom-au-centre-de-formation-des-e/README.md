@@ -1,6 +1,6 @@
 # Décret n° 2021-012/PR/MENFOP portant attribution d’un nom au centre de formation des enseignants de l’enseignement Fondamental.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-012-pr-menfop-portant-attribution-dun-nom-au-centre-de-formation-des-enseignants-de-lenseignement-fondamental/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-012-pr-menfop-portant-attribution-dun-nom-au-centre-de-formation-des-enseignants-de-lenseignement-fondamental/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

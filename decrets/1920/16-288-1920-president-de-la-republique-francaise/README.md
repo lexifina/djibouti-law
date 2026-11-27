@@ -1,6 +1,6 @@
 # Décret n° 16-288-1920 Le Président de la République française,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 288 du 31/10/1920 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-288-1920-le-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 288 du 31/10/1920 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-288-1920-le-president-de-la-republique-francaise/>
 
 En vigueur : 1920-10-31 (date du Journal officiel qui le publie).
 

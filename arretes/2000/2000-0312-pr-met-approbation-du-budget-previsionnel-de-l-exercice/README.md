@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0312/PR/MET portant approbation du budget prévisionnel de l’exercice 2000 du Port Autonome International de Djibouti (P.A.I.D).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0312-pr-met-portant-approbation-du-budget-previsionnel-de-lexercice-2000-du-port-autonome-international-de-djibouti-p-a-i-d/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0312-pr-met-portant-approbation-du-budget-previsionnel-de-lexercice-2000-du-port-autonome-international-de-djibouti-p-a-i-d/>
 
 En vigueur : 2000-04-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ ISMAÏL OMAR GUELLEH
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

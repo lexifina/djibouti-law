@@ -1,6 +1,6 @@
 # Décret n° n°357 Le décret rendant applicable aux colonies et territoires relevant du Ministère des colonies In loi du 20 janvier 1940 prononçant la déchéance de certains élus
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n357-le-decret-rendant-applicable-aux-colonies-et-territoires-relevant-du-ministere-des-colonies-in-loi-du-20-janvier-1940-prononcant-la-decheance-de-certains-elus/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n357-le-decret-rendant-applicable-aux-colonies-et-territoires-relevant-du-ministere-des-colonies-in-loi-du-20-janvier-1940-prononcant-la-decheance-de-certains-elus/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

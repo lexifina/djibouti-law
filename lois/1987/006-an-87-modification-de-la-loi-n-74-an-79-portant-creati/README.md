@@ -1,8 +1,8 @@
 # Loi n° 6/AN/87/2ème L portant modification de la loi n° 74/AN/79 portant création de la pharmacie de l’indépendance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/10/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n6-an-87-2eme-l-portant-modification-de-la-loi-n-74-an-79-portant-creation-de-la-pharmacie-de-lindependance/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/10/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n6-an-87-2eme-l-portant-modification-de-la-loi-n-74-an-79-portant-creation-de-la-pharmacie-de-lindependance/>
 
-En vigueur : 1987-09-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-09-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

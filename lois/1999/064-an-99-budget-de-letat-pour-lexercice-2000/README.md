@@ -1,6 +1,6 @@
 # Loi de finances n° 64/AN/99/4ème L budget de l’État pour l’exercice 2000.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n64-an-99-4eme-l-budget-de-letat-pour-lexercice-2000/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n64-an-99-4eme-l-budget-de-letat-pour-lexercice-2000/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

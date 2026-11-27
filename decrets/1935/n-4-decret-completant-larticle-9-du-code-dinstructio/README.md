@@ -1,6 +1,6 @@
 # Décret n° n°4 Décret complétant l’article 9 du Code d’instruction criminelle et confiant aux commandants de cercle, aux chefs de poste et à leurs adjoints, et, le cas échéant, aux gradés de la gendarmerie et aux gendarmes chefs de poste, les fonctions d’officier de police Judicaire (Côte francaise des Somalis).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-decret-completant-larticle-9-du-code-dinstruction-criminelle-et-confiant-aux-commandants-de-cercle-aux-chefs-de-poste-et-a-leurs-adjoints-et-le-cas-echeant-aux-grades/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-decret-completant-larticle-9-du-code-dinstruction-criminelle-et-confiant-aux-commandants-de-cercle-aux-chefs-de-poste-et-a-leurs-adjoints-et-le-cas-echeant-aux-grades/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

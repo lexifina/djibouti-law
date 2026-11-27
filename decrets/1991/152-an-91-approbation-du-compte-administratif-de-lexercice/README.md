@@ -1,6 +1,6 @@
 # Décret n° 152/AN/91/2e L portant approbation du compte administratif de l’exercice 1989 de l’Office national du Tourisme et de l’Artisanat (ONTA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n152-an-91-2e-l-portant-approbation-du-compte-administratif-de-lexercice-1989-de-loffice-national-du-tourisme-et-de-lartisanat-onta/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n152-an-91-2e-l-portant-approbation-du-compte-administratif-de-lexercice-1989-de-loffice-national-du-tourisme-et-de-lartisanat-onta/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

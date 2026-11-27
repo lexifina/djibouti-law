@@ -1,6 +1,6 @@
 # Décret n° le 19 février 1940. le 19 février 1940.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 520 du 31/03/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-19-fevrier-1940-le-19-fevrier-1940-2/>
+Décret · Journal officiel de la République de Djibouti, n° 520 du 31/03/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-19-fevrier-1940-le-19-fevrier-1940-2/>
 
 En vigueur : 1940-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 71-417 prorogeant la durée d’exercice de la mission interministérielle pour le développement du tourisme dans les départe- ments et territoires d’outre-mer (J.O.R.F. du 9 juin 1971, p. 5547).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-417-prorogeant-la-duree-dexercice-de-la-mission-interministerielle-pour-le-developpement-du-tourisme-dans-les-departe-ments-et-territoires-doutre-mer-j-o-r-f-du-9-juin-1971/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-417-prorogeant-la-duree-dexercice-de-la-mission-interministerielle-pour-le-developpement-du-tourisme-dans-les-departe-ments-et-territoires-doutre-mer-j-o-r-f-du-9-juin-1971/>
 
 En vigueur : 1971-06-25 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0025/PR/MEFPP portant attribution et organisation du Ministère de l’Économie, des Finances et de la Planification, chargé de la Privatisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0025-pr-mefpp-portant-attribution-et-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/03/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0025-pr-mefpp-portant-attribution-et-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation/>
 
 En vigueur : 1999-03-15 (date du Journal officiel qui le publie).
 
@@ -140,4 +140,4 @@ EL HADJ HASSAN GOULED APTIDON
 | [art-112.md](art-112.md) | Article 112 |
 | [art-113.md](art-113.md) | Article 113 |
 | [art-114.md](art-114.md) | Article 114 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

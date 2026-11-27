@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0248/PR/MHUE portant adoption du Budget Prévisionnel 2009 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0248-pr-mhue-portant-adoption-du-budget-previsionnel-2009-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0248-pr-mhue-portant-adoption-du-budget-previsionnel-2009-du-fonds-de-lhabitat/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

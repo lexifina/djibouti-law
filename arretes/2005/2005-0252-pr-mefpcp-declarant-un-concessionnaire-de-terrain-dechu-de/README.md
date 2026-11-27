@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0252/PR/MEFPCP déclarant un concessionnaire de terrain déchu de son droit de concession provisoire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0252-pr-mefpcp-declarant-un-concessionnaire-de-terrain-dechu-de-son-droit-de-concession-provisoire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0252-pr-mefpcp-declarant-un-concessionnaire-de-terrain-dechu-de-son-droit-de-concession-provisoire/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

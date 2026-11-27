@@ -1,6 +1,6 @@
 # Loi n° 185/AN/17/7ème L portant approbation des Comptes financiers d’Electricité de Djibouti pour l’exercice 2014.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-17-7eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2014/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-17-7eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-pour-lexercice-2014/>
 
 En vigueur : 2017-04-30 (date du Journal officiel qui le publie).
 

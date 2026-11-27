@@ -1,6 +1,6 @@
 # Décret n° du 11 février 1941 modifiant le der nier alinéa de l’article 1er du décret du 18 mai 1939 autorisant le règlement par virements de banque et par chèques des dépenses et des créances de l’Etat, de la colonie et des collectivités et établissements publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 531 du 28/02/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-11-fevrier-1941-modifiant-le-der-nier-alinea-de-larticle-1er-du-decret-du-18-mai-1939-autorisant-le-reglement-par-virements-de-banque-et-par-cheques-des-depenses-et-des-cre/>
+Décret · Journal officiel de la République de Djibouti, n° 531 du 28/02/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-11-fevrier-1941-modifiant-le-der-nier-alinea-de-larticle-1er-du-decret-du-18-mai-1939-autorisant-le-reglement-par-virements-de-banque-et-par-cheques-des-depenses-et-des-cre/>
 
 En vigueur : 1941-02-28 (date du Journal officiel qui le publie).
 

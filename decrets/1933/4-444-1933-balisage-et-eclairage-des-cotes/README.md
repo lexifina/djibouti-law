@@ -1,6 +1,6 @@
 # Décret n° 4-444-1933 Balisage et éclairage des côtes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 444 du 30/11/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-444-1933-balisage-et-eclairage-des-cotes/>
+Décret · Journal officiel de la République de Djibouti, n° 444 du 30/11/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-444-1933-balisage-et-eclairage-des-cotes/>
 
 En vigueur : 1933-11-30 (date du Journal officiel qui le publie).
 

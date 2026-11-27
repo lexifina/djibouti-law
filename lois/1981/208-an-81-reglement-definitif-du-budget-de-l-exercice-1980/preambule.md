@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Les recettes réalisées et les dépenses ordonnancées au titre du budget de |’Etat de |’ 1980 sont arrétées définitivement comme suit:
 BUDGET DE BORE GUN EN.
 Prévisions de recette ………………………13 207 645 000

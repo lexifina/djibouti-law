@@ -1,6 +1,6 @@
 # Décret n° 2000-0140/PR/MESN portant création d’un comité de supervision du Fonds Social de Développement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0140-pr-mesn-portant-creation-dun-comite-de-supervision-du-fonds-social-de-developpement/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0140-pr-mesn-portant-creation-dun-comite-de-supervision-du-fonds-social-de-developpement/>
 
 En vigueur : 2000-05-31 (date du Journal officiel qui le publie).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

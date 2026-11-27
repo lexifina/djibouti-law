@@ -1,6 +1,6 @@
 # Décret n° 2006-0083/PR/MJAPM portant application de la loi n° 196/AN/02/4ème L sur le blanchiment, la confiscation et la coopération internationale en matière de produits du crime et portant organisation et modalités de fonctionnement du Service de Renseignements Financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0083-pr-mjapm-portant-application-de-la-loi-n196-an-02-4eme-l-sur-le-blanchiment-la-confiscation-et-la-cooperation-internationale-en-matiere-de-produits-du-crime-et-portant-o/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0083-pr-mjapm-portant-application-de-la-loi-n196-an-02-4eme-l-sur-le-blanchiment-la-confiscation-et-la-cooperation-internationale-en-matiere-de-produits-du-crime-et-portant-o/>
 
 En vigueur : 2006-04-01 (date du Journal officiel qui le publie).
 

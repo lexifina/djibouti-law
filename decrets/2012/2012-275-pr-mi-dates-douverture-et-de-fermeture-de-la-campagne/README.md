@@ -1,6 +1,6 @@
 # Décret n° 2012-275/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les Élections Législatives du 22 Février 2013.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-275-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-22-fevrier-2013/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-275-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-legislatives-du-22-fevrier-2013/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 

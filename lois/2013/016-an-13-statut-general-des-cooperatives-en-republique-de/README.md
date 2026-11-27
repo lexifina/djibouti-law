@@ -1,7 +1,7 @@
 # Loi n° 16/AN/13/7ème L fixant le statut général
 des coopératives en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-13-7eme-l-fixant-le-statut-general-des-cooperatives-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-13-7eme-l-fixant-le-statut-general-des-cooperatives-en-republique-de-djibouti/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

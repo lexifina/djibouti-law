@@ -1,6 +1,6 @@
 # Loi n° 167/AN/16/7ème L portant ratification du Statut de l’Organisation pour le Développement de la Femme dans les Etats Membres de l’OCI.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-16-7eme-l-portant-ratification-du-statut-de-lorganisation-pour-le-developpement-de-la-femme-dans-les-etats-membres-de-loci/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-16-7eme-l-portant-ratification-du-statut-de-lorganisation-pour-le-developpement-de-la-femme-dans-les-etats-membres-de-loci/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

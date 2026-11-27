@@ -1,6 +1,6 @@
 # Décret n° 24/03/1939 portant organisation du cadre général des services vétérinaires des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 509 du 30/04/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-03-1939-portant-organisation-du-cadre-general-des-services-veterinaires-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 509 du 30/04/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-03-1939-portant-organisation-du-cadre-general-des-services-veterinaires-des-colonies/>
 
 En vigueur : 1939-04-30 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ Georges MANDEL.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

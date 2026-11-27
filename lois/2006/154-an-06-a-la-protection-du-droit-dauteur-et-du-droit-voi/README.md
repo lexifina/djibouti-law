@@ -1,6 +1,6 @@
 # Loi n° 154/AN/06/5ème L relative à la protection du droit d’auteur et du droit voisin.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-06-5eme-l-relative-a-la-protection-du-droit-dauteur-et-du-droit-voisin/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-06-5eme-l-relative-a-la-protection-du-droit-dauteur-et-du-droit-voisin/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 
@@ -144,4 +144,4 @@ Ismaïl Omar Guelleh
 | [art-116.md](art-116.md) | Article 116 |
 | [art-117.md](art-117.md) | Article 117 |
 | [art-118.md](art-118.md) | Article 118 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

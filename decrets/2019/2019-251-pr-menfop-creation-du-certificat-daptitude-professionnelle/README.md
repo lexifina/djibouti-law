@@ -1,6 +1,6 @@
 # Décret n° 2019-251/PR/MENFOP portant création du Certificat d’Aptitude Professionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-251-pr-menfop-portant-creation-du-certificat-daptitude-professionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-251-pr-menfop-portant-creation-du-certificat-daptitude-professionnelle/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

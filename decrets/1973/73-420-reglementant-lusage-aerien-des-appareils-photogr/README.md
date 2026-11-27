@@ -1,6 +1,6 @@
 # Décret n° 73-420 réglementant l’usage aérien des appareïls photographiques, cinématographiques, de télédétection et d’enregistrement de données de toute nature (JORF n° 81 du 5 avril 1973, page 3885).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-420-reglementant-lusage-aerien-des-appareils-photographiques-cinematographiques-de-teledetection-et-denregistrement-de-donnees-de-toute-nature-jorf-n-81-du-5-avril-1973/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-420-reglementant-lusage-aerien-des-appareils-photographiques-cinematographiques-de-teledetection-et-denregistrement-de-donnees-de-toute-nature-jorf-n-81-du-5-avril-1973/>
 
 En vigueur : 1973-05-25 (date du Journal officiel qui le publie).
 

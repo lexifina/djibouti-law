@@ -1,6 +1,6 @@
 # Décret n° 3 novembre 1939. modifiant l’article 2 du décret du 1° septembre 1959 relatif aux actions en justice et aux prescriptions et délais de procédure intéressant les mobilisés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-modifiant-larticle-2-du-decret-du-1-septembre-1959-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mobilises/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-modifiant-larticle-2-du-decret-du-1-septembre-1959-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mobilises/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Georges MANDEL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

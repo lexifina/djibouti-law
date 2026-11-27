@@ -1,6 +1,6 @@
 # Décret n° 2023-010/PR/MB relatif à l’octroi d’une parcelle de terrain au profit de Touchroad International Holdings Group.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-010-pr-mb-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-010-pr-mb-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
 
 En vigueur : 2023-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -27,4 +27,4 @@ SUR Proposition du Ministère du Budget.
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2019-119/PR/MB portant attribution des parcelles de terrain bâtis sis à BALBALA PK13.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-119-pr-mb-portant-attribution-des-parcelles-de-terrain-batis-sis-a-balbala-pk13/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-119-pr-mb-portant-attribution-des-parcelles-de-terrain-batis-sis-a-balbala-pk13/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

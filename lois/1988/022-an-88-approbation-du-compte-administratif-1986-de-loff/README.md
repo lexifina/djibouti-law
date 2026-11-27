@@ -1,6 +1,6 @@
 # Loi n° 22/AN/88/2ème L portant approbation du compte administratif 1986 de l’Office Nationale du Tourisme et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-88-2eme-l-portant-approbation-du-compte-administratif-1986-de-loffice-nationale-du-tourisme-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-88-2eme-l-portant-approbation-du-compte-administratif-1986-de-loffice-nationale-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

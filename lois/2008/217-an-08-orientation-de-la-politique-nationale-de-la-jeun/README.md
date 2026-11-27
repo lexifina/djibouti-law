@@ -1,6 +1,6 @@
 # Loi n° 217/AN/08/5ème L portant orientation de la Politique Nationale de la Jeunesse, des Sports et des Loisirs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-08-5eme-l-portant-orientation-de-la-politique-nationale-de-la-jeunesse-des-sports-et-des-loisirs/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-08-5eme-l-portant-orientation-de-la-politique-nationale-de-la-jeunesse-des-sports-et-des-loisirs/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

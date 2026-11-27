@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0757/PR/MHUEAT portant création du Comité national Intersectoriel de pilotage du projet de lutte antivectorielle intégrée.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0757-pr-mhueat-portant-creation-du-comite-national-intersectoriel-de-pilotage-du-projet-de-lutte-antivectorielle-integree/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0757-pr-mhueat-portant-creation-du-comite-national-intersectoriel-de-pilotage-du-projet-de-lutte-antivectorielle-integree/>
 
 En vigueur : 2006-10-31 (date du Journal officiel qui le publie).
 

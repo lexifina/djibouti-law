@@ -1,6 +1,6 @@
 # Décret n° 11 juin 1938 modifiant le régime des études de l’Ecole nationale de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-juin-1938-modifiant-le-regime-des-etudes-de-lecole-nationale-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-juin-1938-modifiant-le-regime-des-etudes-de-lecole-nationale-de-la-france-doutre-mer/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

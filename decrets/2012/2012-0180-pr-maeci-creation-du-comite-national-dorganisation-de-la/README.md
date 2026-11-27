@@ -1,6 +1,6 @@
 # Décret n° 2012-0180/PR/MAECI portant création du Comité National d’Organisation de la 39ème Conférence des Ministres des Affaires Etrangères de l’Organisation de Coopération Islamique (OCI), du 15 au 17 Novembre 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0180-pr-maeci-portant-creation-du-comite-national-dorganisation-de-la-39eme-conference-des-ministres-des-affaires-etrangeres-de-lorganisation-de-cooperation-islamique-oci-du/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/08/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0180-pr-maeci-portant-creation-du-comite-national-dorganisation-de-la-39eme-conference-des-ministres-des-affaires-etrangeres-de-lorganisation-de-cooperation-islamique-oci-du/>
 
 En vigueur : 2012-08-30 (date du Journal officiel qui le publie).
 

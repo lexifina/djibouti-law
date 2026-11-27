@@ -1,6 +1,6 @@
 # Loi n° 207/AN/07/5ème L portant règlement définitif du Budget de l’Etat de l’Exercice 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-07-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n207-an-07-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2006/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

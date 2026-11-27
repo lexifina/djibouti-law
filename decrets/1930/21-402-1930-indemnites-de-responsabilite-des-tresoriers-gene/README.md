@@ -1,6 +1,6 @@
 # Décret n° 21-402-1930 Indemnités de responsabilité des trésoriers généraux et trésoriers payeurs des colonies autres que l’Indochine et l’Inde.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 402 du 31/05/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-402-1930-indemnites-de-responsabilite-des-tresoriers-generaux-et-tresoriers-payeurs-des-colonies-autres-que-lindochine-et-linde/>
+Décret · Journal officiel de la République de Djibouti, n° 402 du 31/05/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-402-1930-indemnites-de-responsabilite-des-tresoriers-generaux-et-tresoriers-payeurs-des-colonies-autres-que-lindochine-et-linde/>
 
 En vigueur : 1930-05-31 (date du Journal officiel qui le publie).
 

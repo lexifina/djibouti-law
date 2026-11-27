@@ -1,6 +1,6 @@
 # Décret n° 98-0070/PR/MCI portant approbation du Budget Prévisionnel de l’Exercice 1998 de l’ONAC.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0070-pr-mci-portant-approbation-du-budget-previsionnel-de-lexercice-1998-de-lonac/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0070-pr-mci-portant-approbation-du-budget-previsionnel-de-lexercice-1998-de-lonac/>
 
 En vigueur : 1998-06-30 (date du Journal officiel qui le publie).
 

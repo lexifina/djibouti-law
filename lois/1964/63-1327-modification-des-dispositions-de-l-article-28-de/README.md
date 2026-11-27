@@ -1,6 +1,6 @@
 # Loi n° 63-1327 portant modification des dispositions de l’article 28 de la Constitution.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/07/1964 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-63-1327-portant-modification-des-dispositions-de-larticle-28-de-la-constitution/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 01/07/1964 · <https://www.journalofficiel.dj/texte-juridique/loi-n-63-1327-portant-modification-des-dispositions-de-larticle-28-de-la-constitution/>
 
 En vigueur : 1964-07-01 (date du Journal officiel qui le publie).
 

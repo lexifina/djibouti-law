@@ -1,8 +1,8 @@
 # Décret n° 2007-0099/PR/MID portant transfert et répartition de compétences entre l’Etat et les Collectivités Territoriales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0099-pr-mid-portant-transfert-et-repartition-de-competences-entre-letat-et-les-collectivites-territoriales/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0099-pr-mid-portant-transfert-et-repartition-de-competences-entre-letat-et-les-collectivites-territoriales/>
 
-En vigueur : 2007-05-03 (date fixÃ©e par le texte).
+En vigueur : 2007-05-03 (date fixée par le texte).
 
 ## Visas
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

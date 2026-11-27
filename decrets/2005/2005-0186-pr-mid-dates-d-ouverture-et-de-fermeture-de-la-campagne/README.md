@@ -1,6 +1,6 @@
 # Décret n° 2005-0186/PR/MID Fixant les dates d’ouverture et de fermeture de la campagne électorale pour les élections régionales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0186-pr-mid-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0186-pr-mid-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

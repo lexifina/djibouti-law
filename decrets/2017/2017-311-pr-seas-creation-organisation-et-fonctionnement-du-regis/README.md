@@ -1,8 +1,8 @@
 # Décret n° 2017-311/PR/SEAS portant création organisation et fonctionnement du Registre Social.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 28/09/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-311-pr-seas-portant-creation-organisation-et-fonctionnement-du-registre-social/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 28/09/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-311-pr-seas-portant-creation-organisation-et-fonctionnement-du-registre-social/>
 
-En vigueur : 2017-09-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-09-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

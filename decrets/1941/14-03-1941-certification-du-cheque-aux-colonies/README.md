@@ -1,6 +1,6 @@
 # Décret n° 14/03/1941 Certification du chèque aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-03-1941-certification-du-cheque-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-03-1941-certification-du-cheque-aux-colonies/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

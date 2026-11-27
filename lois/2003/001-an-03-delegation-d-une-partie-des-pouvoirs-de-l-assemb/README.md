@@ -1,6 +1,6 @@
 # Loi n° 1/AN/03/5ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’ouverture de la 1ère Session Ordinaire 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-03-5eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordina/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n1-an-03-5eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1ere-session-ordina/>
 
 En vigueur : 2003-02-15 (date du Journal officiel qui le publie).
 

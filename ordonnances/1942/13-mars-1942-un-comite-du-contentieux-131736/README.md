@@ -1,6 +1,6 @@
 # Ordonnance n° 13 mars 1942 instituant un Comité du Contentieux.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-13-mars-1942-instituant-un-comite-du-contentieux/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-13-mars-1942-instituant-un-comite-du-contentieux/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 90/AN/20/8ème L portant ratification de l’accord de financement concessionnel relatif au projet de la centrale électrique de Damerjog.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 29/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-20-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-relatif-au-projet-de-la-centrale-electrique-de-damerjog/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 29/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-20-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-relatif-au-projet-de-la-centrale-electrique-de-damerjog/>
 
-En vigueur : 2020-07-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-07-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

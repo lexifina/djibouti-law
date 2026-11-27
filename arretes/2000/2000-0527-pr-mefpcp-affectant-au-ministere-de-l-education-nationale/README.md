@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0527/PR/MEFPCP affectant au Ministère de l’Éducation Nationale une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0527-pr-mefpcp-affectant-au-ministere-de-leducation-nationale-une-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0527-pr-mefpcp-affectant-au-ministere-de-leducation-nationale-une-parcelle-de-terrain/>
 
 En vigueur : 2000-07-31 (date du Journal officiel qui le publie).
 

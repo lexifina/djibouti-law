@@ -1,6 +1,6 @@
 # Décret n° 3-476-1936 Granits pour revêtements de façades et pour monuments funéraires,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-476-1936-granits-pour-revetements-de-facades-et-pour-monuments-funeraires/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-476-1936-granits-pour-revetements-de-facades-et-pour-monuments-funeraires/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

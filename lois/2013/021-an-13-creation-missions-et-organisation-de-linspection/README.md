@@ -1,6 +1,6 @@
 # Loi n° 21/AN/13/7ème L portant création, missions et organisation de l’Inspection de la concurrence, de la consommation et de la répression des fraudes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-13-7eme-l-portant-creation-missions-et-organisation-de-linspection-de-la-concurrence-de-la-consommation-et-de-la-repression-des-fraudes/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n21-an-13-7eme-l-portant-creation-missions-et-organisation-de-linspection-de-la-concurrence-de-la-consommation-et-de-la-repression-des-fraudes/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 

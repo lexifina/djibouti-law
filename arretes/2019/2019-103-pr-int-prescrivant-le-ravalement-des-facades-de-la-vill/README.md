@@ -1,6 +1,6 @@
 # Arrêté n° 2019-103/PR/INT prescrivant le ravalement des façades de la Ville de Djibouti à l’occasion du 42ème anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 13/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-103-pr-int-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-42eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 13/06/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-103-pr-int-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-42eme-anniversaire-de-lindependance/>
 
 En vigueur : 2019-06-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

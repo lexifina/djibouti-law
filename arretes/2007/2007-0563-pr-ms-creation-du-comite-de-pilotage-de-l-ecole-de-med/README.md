@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0563/PR/MS portant création du Comité de Pilotage de l’Ecole de Médecine de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0563-pr-ms-portant-creation-du-comite-de-pilotage-de-lecole-de-medecine-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0563-pr-ms-portant-creation-du-comite-de-pilotage-de-lecole-de-medecine-de-djibouti/>
 
 En vigueur : 2007-07-15 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

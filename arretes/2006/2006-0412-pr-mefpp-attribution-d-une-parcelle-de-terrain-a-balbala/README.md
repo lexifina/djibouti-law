@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0412/PR/MEFPP portant attribution d’une parcelle de terrain à Balbala, au Ministère de la Santé en vue de l’édification d’un hôpital dénommé “Al Saoudi Al Al-Mani”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0412-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-a-balbala-au-ministere-de-la-sante-en-vue-de-ledification-dun-hopital-denomme-al-saou/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0412-pr-mefpp-portant-attribution-dune-parcelle-de-terrain-a-balbala-au-ministere-de-la-sante-en-vue-de-ledification-dun-hopital-denomme-al-saou/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

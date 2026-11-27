@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Article ler : – Il est fait concession provisoire aux personnes dénommées, ci-dessous des lots de terrains domaniaux ci-après désignés, tel au surplus qu’ils apparaissent au plan joint et dont la mise en valeur exigée et le prix figurent dans le tableau suivant :
 |
 BENEFICIAIRES

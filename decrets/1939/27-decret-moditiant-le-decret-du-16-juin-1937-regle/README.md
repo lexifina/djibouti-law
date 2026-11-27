@@ -1,6 +1,6 @@
 # Décret n° 27 Le décret moditiant le décret du 16 juin 1937, règlementant l’accession des sen NY de
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-le-decret-moditiant-le-decret-du-16-juin-1937-reglementant-laccession-des-sen-ny-de/>
+Décret · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-le-decret-moditiant-le-decret-du-16-juin-1937-reglementant-laccession-des-sen-ny-de/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-059/PR/MERN portant exonération du Projet “Réhabilitation et Renforcement des capacités de production de la centrale électrique de TADJOURAH”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 29/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-059-pr-mern-portant-exoneration-du-projet-rehabilitation-et-renforcement-des-capacites-de-production-de-la-centrale-electrique-de-tadjourah/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 29/03/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-059-pr-mern-portant-exoneration-du-projet-rehabilitation-et-renforcement-des-capacites-de-production-de-la-centrale-electrique-de-tadjourah/>
 
 En vigueur : 2018-03-29 (date du Journal officiel qui le publie).
 

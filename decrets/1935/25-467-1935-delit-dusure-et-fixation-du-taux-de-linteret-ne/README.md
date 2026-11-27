@@ -1,6 +1,6 @@
 # Décret n° 25-467-1935 Délit d’usure et fixation du taux de l’intérêt ne légal et du taux maximum de l’intérêt conventionnel dans les colonies autres que la Martinique. la Guadeloupe, la Réunion et l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-467-1935-delit-dusure-et-fixation-du-taux-de-linteret-ne-legal-et-du-taux-maximum-de-linteret-conventionnel-dans-les-colonies-autres-que-la-martinique-la-guadeloupe-la-reuni/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-467-1935-delit-dusure-et-fixation-du-taux-de-linteret-ne-legal-et-du-taux-maximum-de-linteret-conventionnel-dans-les-colonies-autres-que-la-martinique-la-guadeloupe-la-reuni/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 

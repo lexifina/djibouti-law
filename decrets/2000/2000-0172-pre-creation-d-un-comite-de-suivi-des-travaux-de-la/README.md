@@ -1,8 +1,8 @@
 # Décret n° 2000-0172/PRE portant création d’un comité de suivi des travaux de la table ronde du Koweït.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0172-pre-portant-creation-dun-comite-de-suivi-des-travaux-de-la-table-ronde-du-koweit/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0172-pre-portant-creation-dun-comite-de-suivi-des-travaux-de-la-table-ronde-du-koweit/>
 
-En vigueur : 2000-06-18 (date fixÃ©e par le texte).
+En vigueur : 2000-06-18 (date fixée par le texte).
 
 ## Visas
 

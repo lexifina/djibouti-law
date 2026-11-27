@@ -1,6 +1,6 @@
 # Décret n° 10 octobre 1941 Exportations des capitaux. Opérations de change et commerce de l’or
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-octobre-1941-exportations-des-capitaux-operations-de-change-et-commerce-de-lor/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-octobre-1941-exportations-des-capitaux-operations-de-change-et-commerce-de-lor/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 
@@ -17,5 +17,5 @@ PH. PETAIN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er– |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

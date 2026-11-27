@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0750/PR/MDC approuvant et rendant exécutoire le Budget prévisionnel 2013 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0750-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2013-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0750-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2013-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

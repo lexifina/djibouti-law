@@ -1,6 +1,6 @@
 # Décret n° 29 novembre 1939 portant modification du décret du 9 septembre 1939 relatif à l’exportation des capitaux. aux opérations de change et au commerce de l’or aux colonies et territoires africains sous mandat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-portant-modification-du-decret-du-9-septembre-1939-relatif-a-lexportation-des-capitaux-aux-operations-de-change-et-au-commerce-de-lor-aux-colonies-et-territoires/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-portant-modification-du-decret-du-9-septembre-1939-relatif-a-lexportation-des-capitaux-aux-operations-de-change-et-au-commerce-de-lor-aux-colonies-et-territoires/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ paul REYNAUD.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

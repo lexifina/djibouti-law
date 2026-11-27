@@ -1,8 +1,8 @@
 # Décret n° 2002-0180/PR/MEFPCP portant création d’un Cadre Institutionnel de Suivi et de Pilotage du Programme de Réformes Economiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0180-pr-mefpcp-portant-creation-dun-cadre-institutionnel-de-suivi-et-de-pilotage-du-programme-de-reformes-economiques/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0180-pr-mefpcp-portant-creation-dun-cadre-institutionnel-de-suivi-et-de-pilotage-du-programme-de-reformes-economiques/>
 
-En vigueur : 2002-09-09 (date fixÃ©e par le texte).
+En vigueur : 2002-09-09 (date fixée par le texte).
 
 ## Visas
 

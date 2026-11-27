@@ -1,6 +1,6 @@
 # Décret n° 2021-194/PR/MEFF portant création et organisation de la plateforme nationale de protection de l’enfant en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-194-pr-meff-portant-creation-et-organisation-de-la-plateforme-nationale-de-protection-de-lenfant-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-194-pr-meff-portant-creation-et-organisation-de-la-plateforme-nationale-de-protection-de-lenfant-en-republique-de-djibouti/>
 
 En vigueur : 2021-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

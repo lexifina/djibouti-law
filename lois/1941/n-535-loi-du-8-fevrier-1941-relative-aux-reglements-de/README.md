@@ -1,6 +1,6 @@
 # Loi n° n° 535 la loi du 8 février 1941 relative aux règlements de certaines dettes en monnaies étrangères.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 537 du 31/08/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n-535-la-loi-du-8-fevrier-1941-relative-aux-reglements-de-certaines-dettes-en-monnaies-etrangeres/>
+Loi · Journal officiel de la République de Djibouti, n° 537 du 31/08/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n-535-la-loi-du-8-fevrier-1941-relative-aux-reglements-de-certaines-dettes-en-monnaies-etrangeres/>
 
 En vigueur : 1941-08-31 (date du Journal officiel qui le publie).
 

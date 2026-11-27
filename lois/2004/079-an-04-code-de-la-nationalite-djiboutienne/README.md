@@ -1,6 +1,6 @@
 # Loi n° 79/AN/04/5ème L portant Code de la Nationalité Djiboutienne.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-04-5eme-l-portant-code-de-la-nationalite-djiboutienne/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-04-5eme-l-portant-code-de-la-nationalite-djiboutienne/>
 
 En vigueur : 2004-10-31 (date du Journal officiel qui le publie).
 
@@ -63,4 +63,4 @@ ISMAÏL OMAR GUELLEH
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 6-141-1908 portant application à toutes les Colonies françaises dudit décret.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 141 du 01/08/1908 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-141-1908-portant-application-a-toutes-les-colonies-francaises-dudit-decret/>
+Décret · Journal officiel de la République de Djibouti, n° 141 du 01/08/1908 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-141-1908-portant-application-a-toutes-les-colonies-francaises-dudit-decret/>
 
 En vigueur : 1908-08-01 (date du Journal officiel qui le publie).
 

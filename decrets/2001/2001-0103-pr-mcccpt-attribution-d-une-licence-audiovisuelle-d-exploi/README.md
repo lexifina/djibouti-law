@@ -1,6 +1,6 @@
 # Décret n° 2001-0103/PR/MCCCPT portant attribution d’une licence audiovisuelle d’exploitation d’un réseau de télédistribution en système MMDS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0103-pr-mcccpt-portant-attribution-dune-licence-audiovisuelle-dexploitation-dun-reseau-de-teledistribution-en-systeme-mmds/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0103-pr-mcccpt-portant-attribution-dune-licence-audiovisuelle-dexploitation-dun-reseau-de-teledistribution-en-systeme-mmds/>
 
 En vigueur : 2001-05-31 (date du Journal officiel qui le publie).
 

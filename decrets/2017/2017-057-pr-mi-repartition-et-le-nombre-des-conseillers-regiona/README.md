@@ -1,6 +1,6 @@
 # Décret n° 2017-057/PR/MI fixant la répartition et le nombre des Conseillers Régionaux et Communaux pour les Elections Régionales et Communales du 24 février 2017 et 17 mars 2017.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-057-pr-mi-fixant-la-repartition-et-le-nombre-des-conseillers-regionaux-et-communaux-pour-les-elections-regionales-et-communales-du-24-fevrier-2017-et-17-mars-2017/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-057-pr-mi-fixant-la-repartition-et-le-nombre-des-conseillers-regionaux-et-communaux-pour-les-elections-regionales-et-communales-du-24-fevrier-2017-et-17-mars-2017/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 

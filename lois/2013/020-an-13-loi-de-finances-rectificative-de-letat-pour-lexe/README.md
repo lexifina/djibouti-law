@@ -1,6 +1,6 @@
 # Loi n° 20/AN/13/7ème L portant Loi de Finances rectificative de l’Etat pour l’exercice budgétaire 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-13-7eme-l-portant-loi-de-finances-rectificative-de-letat-pour-lexercice-budgetaire-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-13-7eme-l-portant-loi-de-finances-rectificative-de-letat-pour-lexercice-budgetaire-2013/>
 
 En vigueur : 2013-12-15 (date du Journal officiel qui le publie).
 

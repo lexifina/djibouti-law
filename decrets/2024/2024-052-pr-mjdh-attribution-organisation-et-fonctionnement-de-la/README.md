@@ -1,6 +1,6 @@
 # Décret n° 2024-052/PR/MJDH portant attribution, organisation et fonctionnement de l’Agence Nationale des Renseignements Financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-052-pr-mjdh-portant-attribution-organisation-et-fonctionnement-de-lagence-nationale-des-renseignements-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-052-pr-mjdh-portant-attribution-organisation-et-fonctionnement-de-lagence-nationale-des-renseignements-financiers/>
 
 En vigueur : 2024-03-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

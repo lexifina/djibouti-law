@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0035/PR/MENESUP Modifiant l’Arrêté n° 2002-0749/PR/MEN concernant l’autorisation d’ouvrir et de diriger une école privée d’enseignement Fondamental et Secondaire Général dite : « Al-Farouk ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0035-pr-menesup-modifiant-larrete-n2002-0749-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-denseignement-fondamental-et-secondaire-general-dit/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0035-pr-menesup-modifiant-larrete-n2002-0749-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-denseignement-fondamental-et-secondaire-general-dit/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

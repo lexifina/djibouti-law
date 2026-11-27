@@ -1,6 +1,6 @@
 # Loi n° 47/AN/08/6ème L portant adhésion de la République de Djibouti à l’Autorité Arabe pour les Investissements Agricoles et le Développement (AAIAD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-08-6eme-l-portant-adhesion-de-la-republique-de-djibouti-a-lautorite-arabe-pour-les-investissements-agricoles-et-le-developpement-aaiad/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n47-an-08-6eme-l-portant-adhesion-de-la-republique-de-djibouti-a-lautorite-arabe-pour-les-investissements-agricoles-et-le-developpement-aaiad/>
 
 En vigueur : 2009-04-15 (date du Journal officiel qui le publie).
 

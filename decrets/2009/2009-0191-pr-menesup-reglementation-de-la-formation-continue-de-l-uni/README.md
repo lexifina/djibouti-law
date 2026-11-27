@@ -1,6 +1,6 @@
 # Décret n° 2009-0191/PR/MENESUP portant réglementation de la Formation Continue de l’Université de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0191-pr-menesup-portant-reglementation-de-la-formation-continue-de-luniversite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0191-pr-menesup-portant-reglementation-de-la-formation-continue-de-luniversite-de-djibouti/>
 
 En vigueur : 2009-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 3-266-1918 21 Septembre 1918
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 266 du 31/12/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-266-1918-21-septembre-1918/>
+Décret · Journal officiel de la République de Djibouti, n° 266 du 31/12/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-266-1918-21-septembre-1918/>
 
 En vigueur : 1918-12-31 (date du Journal officiel qui le publie).
 

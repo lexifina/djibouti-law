@@ -1,6 +1,6 @@
 # Décret n° 08-190-1912 1 février 1897.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 190 du 30/09/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-08-190-1912-1-fevrier-1897/>
+Décret · Journal officiel de la République de Djibouti, n° 190 du 30/09/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-08-190-1912-1-fevrier-1897/>
 
 En vigueur : 1912-09-30 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ J. DARLAN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Ordonnance n° 78-062 portant création d’un Tribunal de Sûreté de la République.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-062-portant-creation-dun-tribunal-de-surete-de-la-republique/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-062-portant-creation-dun-tribunal-de-surete-de-la-republique/>
 
-En vigueur : 1978-08-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1978-08-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 84/AN/10/6ème L portant adoption des comptes financiers de l’Organisme de Protection Sociale pour l’Exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-10-6eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n84-an-10-6eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2008/>
 
 En vigueur : 2010-06-15 (date du Journal officiel qui le publie).
 

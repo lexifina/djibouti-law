@@ -1,6 +1,6 @@
 # Loi n° 127/AN/21/8ème L complétant la Loi n° 42/AN/99/4èmeL portant création de l’établissement public dénommé Radio Télévision de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-21-8eme-l-completant-la-loi-n42-an-99-4emel-portant-creation-de-letablissement-public-denomme-radio-television-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n127-an-21-8eme-l-completant-la-loi-n42-an-99-4emel-portant-creation-de-letablissement-public-denomme-radio-television-de-djibouti/>
 
 En vigueur : 2021-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

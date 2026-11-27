@@ -1,6 +1,6 @@
 # Ordonnance n° 87-054/PR/FIN portant reconstitution du fonds de réserve institué par la loi n° 130/AN/84 du 30 décembre 1984.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-054-pr-fin-portant-reconstitution-du-fonds-de-reserve-institue-par-la-loi-n130-an-84-du-30-decembre-1984/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-054-pr-fin-portant-reconstitution-du-fonds-de-reserve-institue-par-la-loi-n130-an-84-du-30-decembre-1984/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

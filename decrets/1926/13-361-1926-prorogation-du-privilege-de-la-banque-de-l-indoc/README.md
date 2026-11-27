@@ -1,6 +1,6 @@
 # Décret n° 13-361-1926 Prorogation du privilège de la Banque de l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 361 du 31/12/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-361-1926-prorogation-du-privilege-de-la-banque-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 361 du 31/12/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-361-1926-prorogation-du-privilege-de-la-banque-de-lindochine/>
 
 En vigueur : 1926-12-31 (date du Journal officiel qui le publie).
 

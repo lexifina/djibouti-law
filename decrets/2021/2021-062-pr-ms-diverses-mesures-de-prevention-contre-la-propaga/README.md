@@ -1,6 +1,6 @@
 # Décret n° 2021-062/PR/MS instituant diverses mesures de prévention contre la propagation du COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-062-pr-ms-instituant-diverses-mesures-de-prevention-contre-la-propagation-du-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-062-pr-ms-instituant-diverses-mesures-de-prevention-contre-la-propagation-du-covid-19/>
 
 En vigueur : 2021-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

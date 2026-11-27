@@ -1,6 +1,6 @@
 # Décret n° 96-0106/PRE Donnant an groupe Middle East Bank du Dubaï l’immunité totale contre la poursuite de toute revendication.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n96-0106-pre-donnant-an-groupe-middle-east-bank-du-dubai-limmunite-totale-contre-la-poursuite-de-toute-revendication/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1996 · <https://www.journalofficiel.dj/texte-juridique/decret-n96-0106-pre-donnant-an-groupe-middle-east-bank-du-dubai-limmunite-totale-contre-la-poursuite-de-toute-revendication/>
 
 En vigueur : 1996-09-30 (date du Journal officiel qui le publie).
 

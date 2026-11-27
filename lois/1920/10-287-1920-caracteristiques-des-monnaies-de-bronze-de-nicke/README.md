@@ -1,6 +1,6 @@
 # Loi n° 10-287-1920 modifiant les caractéristiques des monnaies de bronze de nickel, donnant cours légal à ces monnaies dans les colonies françaises soumises au régime monétaire de la métropole et autorisant la frappe d’un nouveau contingent.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 287 du 30/09/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-10-287-1920-modifiant-les-caracteristiques-des-monnaies-de-bronze-de-nickel-donnant-cours-legal-a-ces-monnaies-dans-les-colonies-francaises-soumises-au-regime-monetaire-de-la-metropole-e/>
+Loi · Journal officiel de la République de Djibouti, n° 287 du 30/09/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-10-287-1920-modifiant-les-caracteristiques-des-monnaies-de-bronze-de-nickel-donnant-cours-legal-a-ces-monnaies-dans-les-colonies-francaises-soumises-au-regime-monetaire-de-la-metropole-e/>
 
 En vigueur : 1920-09-30 (date du Journal officiel qui le publie).
 

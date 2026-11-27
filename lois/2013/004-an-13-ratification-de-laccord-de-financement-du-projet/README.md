@@ -1,6 +1,6 @@
 # Loi n° 04/AN/13/7ème L portant ratification de l’accord de financement du projet de construction d’un terminal pour l’exportation du sel du Lac Assai avec l’Exim Bank of China
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n04-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-dun-terminal-pour-lexportation-du-sel-du-lac-assai-avec-lexim-bank-of-china/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n04-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-dun-terminal-pour-lexportation-du-sel-du-lac-assai-avec-lexim-bank-of-china/>
 
 En vigueur : 2013-03-31 (date du Journal officiel qui le publie).
 

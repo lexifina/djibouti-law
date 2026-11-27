@@ -1,6 +1,6 @@
 # Loi n° 95/AN/20/8ème L portant réorganisation du Ministère des Affaires Musulmanes, de la Culture et des Biens Waqfs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-20-8eme-l-portant-reorganisation-du-ministere-des-affaires-musulmanes-de-la-culture-et-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-20-8eme-l-portant-reorganisation-du-ministere-des-affaires-musulmanes-de-la-culture-et-des-biens-waqfs/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -148,4 +148,4 @@ ISMAÏL OMAR GUELLEH
 | [art-065.md](art-065.md) | Article 65 |
 | [art-066.md](art-066.md) | Article 66 |
 | [art-067.md](art-067.md) | Article 67 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

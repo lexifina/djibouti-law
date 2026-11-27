@@ -1,6 +1,6 @@
 # Décret n° 16 novembre 1939 relatif à la solde et aux indemnités des sous-lieutenants et aspirants de service aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-novembre-1939-relatif-a-la-solde-et-aux-indemnites-des-sous-lieutenants-et-aspirants-de-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-novembre-1939-relatif-a-la-solde-et-aux-indemnites-des-sous-lieutenants-et-aspirants-de-service-aux-colonies/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 

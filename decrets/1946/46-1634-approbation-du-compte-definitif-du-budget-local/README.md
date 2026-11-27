@@ -1,6 +1,6 @@
 # Décret n° 46-1634 portant approbation du compte définitif du budget local de la Côte française des Somalis (exercice 1944).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1634-portant-approbation-du-compte-definitif-du-budget-local-de-la-cote-francaise-des-somalis-exercice-1944/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1634-portant-approbation-du-compte-definitif-du-budget-local-de-la-cote-francaise-des-somalis-exercice-1944/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

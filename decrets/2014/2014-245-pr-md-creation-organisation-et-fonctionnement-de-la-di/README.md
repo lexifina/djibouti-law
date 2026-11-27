@@ -1,8 +1,8 @@
 # Décret n° 2014-245/PR/MD portant création, organisation et fonctionnement de la Direction Centrale du Service de Santé des Armées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-245-pr-md-portant-creation-organisation-et-fonctionnement-de-la-direction-centrale-du-service-de-sante-des-armees/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-245-pr-md-portant-creation-organisation-et-fonctionnement-de-la-direction-centrale-du-service-de-sante-des-armees/>
 
-En vigueur : 2014-09-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-09-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -57,4 +57,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

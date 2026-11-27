@@ -1,6 +1,6 @@
 # Décret n° 02-466-1935 Contribution exceptionnelle sur les revenus.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 466 du 30/09/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-466-1935-contribution-exceptionnelle-sur-les-revenus/>
+Décret · Journal officiel de la République de Djibouti, n° 466 du 30/09/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-466-1935-contribution-exceptionnelle-sur-les-revenus/>
 
 En vigueur : 1935-09-30 (date du Journal officiel qui le publie).
 

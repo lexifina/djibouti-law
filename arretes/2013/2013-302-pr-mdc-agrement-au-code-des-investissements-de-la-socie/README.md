@@ -1,6 +1,6 @@
 # Arrêté n° 2013-302/PR/MDC portant Agrément au Code des Investissements de la société “Djibouti Power Light” pour un projet de production de l’énergie renouvelable.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-302-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-power-light-pour-un-projet-de-production-de-lenergie-renouvelable/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-302-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-power-light-pour-un-projet-de-production-de-lenergie-renouvelable/>
 
 En vigueur : 2013-05-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 88-026/PRE/EPH approuvant et rendant exécutoire le budget primitif 1988 de l’Établissement Public des Hydrocarbures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-026-pre-eph-approuvant-et-rendant-executoire-le-budget-primitif-1988-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 14/04/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-026-pre-eph-approuvant-et-rendant-executoire-le-budget-primitif-1988-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1988-04-14 (date du Journal officiel qui le publie).
 

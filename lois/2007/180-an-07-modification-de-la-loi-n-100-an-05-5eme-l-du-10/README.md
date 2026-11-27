@@ -1,6 +1,6 @@
 # Loi n° 180/AN/07/5ème L portant modification de la Loi n° 100/AN/05/5ème L du 10 avril 2005 relative à la procédure de la cession amiable.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-07-5eme-l-portant-modification-de-la-loi-n100-an-05-5eme-l-du-10-avril-2005-relative-a-la-procedure-de-la-cession-amiable/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-07-5eme-l-portant-modification-de-la-loi-n100-an-05-5eme-l-du-10-avril-2005-relative-a-la-procedure-de-la-cession-amiable/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

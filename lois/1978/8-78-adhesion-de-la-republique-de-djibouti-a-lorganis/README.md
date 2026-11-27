@@ -1,6 +1,6 @@
 # Loi n° 8/78 portant adhésion de la République de Djibouti à l’Organisation de l’Unité Africaine.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 13/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-78-portant-adhesion-de-la-republique-de-djibouti-a-lorganisation-de-lunite-africaine/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 13/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-78-portant-adhesion-de-la-republique-de-djibouti-a-lorganisation-de-lunite-africaine/>
 
 En vigueur : 1978-03-13 (date du Journal officiel qui le publie).
 

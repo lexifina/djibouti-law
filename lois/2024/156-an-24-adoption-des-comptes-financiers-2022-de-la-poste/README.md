@@ -1,6 +1,6 @@
 # Loi n° 156/AN/24/9ème L portant adoption des comptes financiers 2022 de la Poste de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-24-9eme-l-portant-adoption-des-comptes-financiers-2022-de-la-poste-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-24-9eme-l-portant-adoption-des-comptes-financiers-2022-de-la-poste-de-djibouti/>
 
 En vigueur : 2025-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

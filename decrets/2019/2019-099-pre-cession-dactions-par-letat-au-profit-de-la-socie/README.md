@@ -1,8 +1,8 @@
 # Décret n° 2019-099/PRE portant cession d’actions par l’Etat au profit de la société Port de Djibouti S.A.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-099-pre-portant-cession-dactions-par-letat-au-profit-de-la-societe-port-de-djibouti-s-a/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-099-pre-portant-cession-dactions-par-letat-au-profit-de-la-societe-port-de-djibouti-s-a/>
 
-En vigueur : 2019-05-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-05-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

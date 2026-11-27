@@ -1,6 +1,6 @@
 # Décret n° 21/05/1941 portant application aux colonies d’une loi relative aux administrateurs de certaines Sociétés d’intérêt public.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-05-1941-portant-application-aux-colonies-dune-loi-relative-aux-administrateurs-de-certaines-societes-dinteret-public/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-05-1941-portant-application-aux-colonies-dune-loi-relative-aux-administrateurs-de-certaines-societes-dinteret-public/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

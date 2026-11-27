@@ -1,6 +1,6 @@
 # Décret n° 2009-0226/PR/MDN portant création de la Direction des relations internationales de l’Armée djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0226-pr-mdn-portant-creation-de-la-direction-des-relations-internationales-de-larmee-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0226-pr-mdn-portant-creation-de-la-direction-des-relations-internationales-de-larmee-djiboutienne/>
 
 En vigueur : 2009-10-15 (date du Journal officiel qui le publie).
 

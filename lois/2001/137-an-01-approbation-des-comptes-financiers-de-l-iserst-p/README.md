@@ -1,6 +1,6 @@
 # Loi n° 137/AN/01/4ème L portant approbation des comptes financiers de l’ISERST pour l’année 1999.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-01-4eme-l-portant-approbation-des-comptes-financiers-de-liserst-pour-lannee-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-01-4eme-l-portant-approbation-des-comptes-financiers-de-liserst-pour-lannee-1999/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0581/PR/MENESUP portant modification de l’Arrêté n° 2004-0280/PR/MENESUP portant composition et définition des missions des Inspecteurs de l’Education Nationale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0581-pr-menesup-portant-modification-de-larrete-n2004-0280-pr-menesup-portant-composition-et-definition-des-missions-des-inspecteurs-de-leducation-nationale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0581-pr-menesup-portant-modification-de-larrete-n2004-0280-pr-menesup-portant-composition-et-definition-des-missions-des-inspecteurs-de-leducation-nationale/>
 
 En vigueur : 2010-09-15 (date du Journal officiel qui le publie).
 

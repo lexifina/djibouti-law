@@ -1,6 +1,6 @@
 # Arrêté n° 2014-751/PR/SESN portant approbation et rendant exécutoire le budget prévisionnel de l’exercice 2015 de l’Agence Djiboutienne de Développement Social.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-751-pr-sesn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-de-lagence-djiboutienne-de-developpement-social/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-751-pr-sesn-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-de-lagence-djiboutienne-de-developpement-social/>
 
 En vigueur : 2014-12-31 (date du Journal officiel qui le publie).
 

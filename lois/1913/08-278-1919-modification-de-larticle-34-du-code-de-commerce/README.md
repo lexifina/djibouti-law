@@ -1,6 +1,6 @@
 # Loi n° 08-278-1919 portant modification de l’article 34 du code de commerce et des articles 27 et 31 de la loi du 24 juillet 4867 sur les sociétés par actions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 278 du 31/12/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-08-278-1919-portant-modification-de-larticle-34-du-code-de-commerce-et-des-articles-27-et-31-de-la-loi-du-24-juillet-4867-sur-les-societes-par-actions/>
+Loi · Journal officiel de la République de Djibouti, n° 278 du 31/12/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-08-278-1919-portant-modification-de-larticle-34-du-code-de-commerce-et-des-articles-27-et-31-de-la-loi-du-24-juillet-4867-sur-les-societes-par-actions/>
 
 En vigueur : 1919-12-31 (date du Journal officiel qui le publie).
 

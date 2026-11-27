@@ -1,6 +1,6 @@
 # Décret n° 14-458-1935 Approbation du budget local de la Côte française des Somalis (exercice _ 1935).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-458-1935-approbation-du-budget-local-de-la-cote-francaise-des-somalis-exercice-_-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-458-1935-approbation-du-budget-local-de-la-cote-francaise-des-somalis-exercice-_-1935/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ Louis rollin
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

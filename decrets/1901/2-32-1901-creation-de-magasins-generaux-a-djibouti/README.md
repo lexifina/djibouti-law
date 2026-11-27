@@ -1,6 +1,6 @@
 # Décret n° 2-32-1901 concernant la création de magasins généraux à Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 32 du 01/04/1901 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-32-1901-concernant-la-creation-de-magasins-generaux-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 32 du 01/04/1901 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-32-1901-concernant-la-creation-de-magasins-generaux-a-djibouti/>
 
 En vigueur : 1901-04-01 (date du Journal officiel qui le publie).
 

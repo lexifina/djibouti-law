@@ -1,6 +1,6 @@
 # Décret n° 13-466-1935 Modification du tarif douanier de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 466 du 30/09/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-466-1935-modification-du-tarif-douanier-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 466 du 30/09/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-466-1935-modification-du-tarif-douanier-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1935-09-30 (date du Journal officiel qui le publie).
 

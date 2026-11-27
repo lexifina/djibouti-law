@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0774/PR/MEFPCP attribuant à la Grande Jamahiriya Arabe Libyenne, une parcelle de terrain sise au Lotissement du Héron.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0774-pr-mefpcp-attribuant-a-la-grande-jamahiriya-arabe-libyenne-une-parcelle-de-terrain-sise-au-lotissement-du-heron/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0774-pr-mefpcp-attribuant-a-la-grande-jamahiriya-arabe-libyenne-une-parcelle-de-terrain-sise-au-lotissement-du-heron/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 

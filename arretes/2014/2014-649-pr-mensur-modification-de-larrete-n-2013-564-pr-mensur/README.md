@@ -1,6 +1,6 @@
 # Arrêté n° 2014-649/PR/MENSUR portant modification de l’arrêté n° 2013-564/PR/MENSUR.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-649-pr-mensur-portant-modification-de-larrete-n2013-564-pr-mensur/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-649-pr-mensur-portant-modification-de-larrete-n2013-564-pr-mensur/>
 
 En vigueur : 2014-11-15 (date du Journal officiel qui le publie).
 

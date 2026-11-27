@@ -1,6 +1,6 @@
 # Arrêté n° 2007-1008/PR/MCC portant création d’un Comité National Directeur chargé du suivi du Cadre Intégré Renforcé et des plans d’action pour le développement artisanal et industriel.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-1008-pr-mcc-portant-creation-dun-comite-national-directeur-charge-du-suivi-du-cadre-integre-renforce-et-des-plans-daction-pour-le-developpement-artisanal-et-indust/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-1008-pr-mcc-portant-creation-dun-comite-national-directeur-charge-du-suivi-du-cadre-integre-renforce-et-des-plans-daction-pour-le-developpement-artisanal-et-indust/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

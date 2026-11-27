@@ -1,6 +1,6 @@
 # Décret n° 2021-095/PR/MAMCBW fixant les modalités d’organisation et de fonctionnement de la Bibliothèque et des Archives Nationales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 13/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-095-pr-mamcbw-fixant-les-modalites-dorganisation-et-de-fonctionnement-de-la-bibliotheque-et-des-archives-nationales/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 13/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-095-pr-mamcbw-fixant-les-modalites-dorganisation-et-de-fonctionnement-de-la-bibliotheque-et-des-archives-nationales/>
 
 En vigueur : 2021-05-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -112,4 +112,4 @@ ISMAÏL OMAR GUELLEH
 | [art-050.md](art-050.md) | Article 50 |
 | [art-051.md](art-051.md) | Article 51 |
 | [art-052.md](art-052.md) | Article 52 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

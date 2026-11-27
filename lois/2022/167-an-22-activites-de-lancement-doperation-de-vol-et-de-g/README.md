@@ -1,8 +1,8 @@
 # Loi n° 167/AN/22/8ème L relative aux activités de lancement, d’opération de vol et de guidage d’objets spatiaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-22-8eme-l-relative-aux-activites-de-lancement-doperation-de-vol-et-de-guidage-dobjets-spatiaux/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-22-8eme-l-relative-aux-activites-de-lancement-doperation-de-vol-et-de-guidage-dobjets-spatiaux/>
 
-En vigueur : 2022-11-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-11-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

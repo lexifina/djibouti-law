@@ -1,6 +1,6 @@
 # Loi n° 100/AN/20/8ème L portantes création de l’Agence Djiboutienne des Normes et de la Qualité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-20-8eme-l-portantes-creation-de-lagence-djiboutienne-des-normes-et-de-la-qualite/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-20-8eme-l-portantes-creation-de-lagence-djiboutienne-des-normes-et-de-la-qualite/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

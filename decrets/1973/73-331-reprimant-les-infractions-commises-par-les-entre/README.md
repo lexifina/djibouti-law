@@ -1,6 +1,6 @@
 # Décret n° 73-331 réprimant les infractions commises par les entreprises de transport aérien à certaines dispositions du livre III du code de l’aviation civile (1 et 2e partie).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 25/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-331-reprimant-les-infractions-commises-par-les-entreprises-de-transport-aerien-a-certaines-dispositions-du-livre-iii-du-code-de-laviation-civile-1-et-2e-partie/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 25/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-331-reprimant-les-infractions-commises-par-les-entreprises-de-transport-aerien-a-certaines-dispositions-du-livre-iii-du-code-de-laviation-civile-1-et-2e-partie/>
 
 En vigueur : 1973-04-25 (date du Journal officiel qui le publie).
 

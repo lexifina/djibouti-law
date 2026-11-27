@@ -1,6 +1,6 @@
 # Décret n° 85-040/PR/PM Fixant les conditions d’exercice du commandement et des fonctions d’officier et créant un certificat de capacité et un certificat de motoriste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-040-pr-pm-fixant-les-conditions-dexercice-du-commandement-et-des-fonctions-dofficier-et-creant-un-certificat-de-capacite-et-un-certificat-de-motoriste/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-040-pr-pm-fixant-les-conditions-dexercice-du-commandement-et-des-fonctions-dofficier-et-creant-un-certificat-de-capacite-et-un-certificat-de-motoriste/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

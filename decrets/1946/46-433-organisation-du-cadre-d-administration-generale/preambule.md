@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE Ier.
 DISPOSITIONS GÉNÉRALES.
 Objet du décret.

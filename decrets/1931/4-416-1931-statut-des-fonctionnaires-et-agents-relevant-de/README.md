@@ -1,6 +1,6 @@
 # Décret n° 4-416-1931 Statut des fonctionnaires et agents relevant de l’administration métropolitaine et en service dans les station radiotélégraphiques coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-416-1931-statut-des-fonctionnaires-et-agents-relevant-de-ladministration-metropolitaine-et-en-service-dans-les-station-radiotelegraphiques-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-416-1931-statut-des-fonctionnaires-et-agents-relevant-de-ladministration-metropolitaine-et-en-service-dans-les-station-radiotelegraphiques-coloniales/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

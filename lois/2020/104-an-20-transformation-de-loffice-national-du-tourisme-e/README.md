@@ -1,8 +1,8 @@
 # Loi n° 104/AN/20/8ème L portant transformation de l’Office National du Tourisme et création de l’Agence Nationale du Tourisme (ANT).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-20-8eme-l-portant-transformation-de-loffice-national-du-tourisme-et-creation-de-lagence-nationale-du-tourisme-ant/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-20-8eme-l-portant-transformation-de-loffice-national-du-tourisme-et-creation-de-lagence-nationale-du-tourisme-ant/>
 
-En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -86,4 +86,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

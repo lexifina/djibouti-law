@@ -1,6 +1,6 @@
 # Rectificatif n° 129/AN/90/2eL à la loi81/AN/89/2e L acordant une parcelle domania en concession provisoire.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1990 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n129-an-90-2el-a-la-loi81-an-89-2e-l-acordant-une-parcelle-domania-en-concession-provisoire/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 14 du 31/07/1990 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n129-an-90-2el-a-la-loi81-an-89-2e-l-acordant-une-parcelle-domania-en-concession-provisoire/>
 
 En vigueur : 1990-07-31 (date du Journal officiel qui le publie).
 
@@ -22,5 +22,5 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

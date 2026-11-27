@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0650/PR/MJCDH modifiant et complétant l’arrêté n° 90-1114/PR/J du 23 octobre 1990 portant création d’une commission de réforme judiciaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0650-pr-mjcdh-modifiant-et-completant-larrete-n90-1114-pr-j-du-23-octobre-1990-portant-creation-dune-commission-de-reforme-judiciaire/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0650-pr-mjcdh-modifiant-et-completant-larrete-n90-1114-pr-j-du-23-octobre-1990-portant-creation-dune-commission-de-reforme-judiciaire/>
 
 En vigueur : 2011-08-31 (date du Journal officiel qui le publie).
 

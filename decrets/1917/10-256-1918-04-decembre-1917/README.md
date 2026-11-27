@@ -1,6 +1,6 @@
 # Décret n° 10-256-1918 04 Décembre 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 256 du 28/02/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-256-1918-04-decembre-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 256 du 28/02/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-256-1918-04-decembre-1917/>
 
 En vigueur : 1918-02-28 (date du Journal officiel qui le publie).
 
@@ -33,5 +33,5 @@ CLÉMENTEL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [art-002.md](art-002.md) | Art. 2– |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | Art. 2 |

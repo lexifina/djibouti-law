@@ -1,6 +1,6 @@
 # Loi n° 98/AN/10/6ème L portant rectificatif de la loi n° 76/AN/10/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Arabe pour le Développement Economique et Social (FADES).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-10-6eme-l-portant-rectificatif-de-la-loi-n76-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpemen/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 30/09/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-10-6eme-l-portant-rectificatif-de-la-loi-n76-an-10-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-arabe-pour-le-developpemen/>
 
 En vigueur : 2010-09-30 (date du Journal officiel qui le publie).
 

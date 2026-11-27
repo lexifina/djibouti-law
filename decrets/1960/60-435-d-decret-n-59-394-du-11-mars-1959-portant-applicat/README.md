@@ -1,6 +1,6 @@
 # Décret n° 60-435 d modifiant le décret n° 59-394 du 11 mars 1959 portant application de l’ordonnance n° 59-227 du 4 février 1959 relative à l’élection des députés à l’Assemblée nationale représentant les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-435-d-modifiant-le-decret-n-59-394-du-11-mars-1959-portant-application-de-lordonnance-n-59-227-du-4-fevrier-1959-relative-a-lelection-des-deputes-a-lassemblee-nati/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-435-d-modifiant-le-decret-n-59-394-du-11-mars-1959-portant-application-de-lordonnance-n-59-227-du-4-fevrier-1959-relative-a-lelection-des-deputes-a-lassemblee-nati/>
 
 En vigueur : 1960-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-260/PR/MPF portant Organisation et Fonctionnement du Centre d’Action Sociale pour l’Autonomisation des Femmes (CASAF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-260-pr-mpf-portant-organisation-et-fonctionnement-du-centre-daction-sociale-pour-lautonomisation-des-femmes-casaf/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-260-pr-mpf-portant-organisation-et-fonctionnement-du-centre-daction-sociale-pour-lautonomisation-des-femmes-casaf/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

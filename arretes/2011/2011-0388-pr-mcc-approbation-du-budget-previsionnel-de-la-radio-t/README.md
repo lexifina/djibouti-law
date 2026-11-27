@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0388/PR/MCC portant approbation du Budget prévisionnel de la Radio-Télévision de Djibouti pour l’Exercice 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0388-pr-mcc-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0388-pr-mcc-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2011/>
 
 En vigueur : 2011-05-31 (date du Journal officiel qui le publie).
 

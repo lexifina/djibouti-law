@@ -1,6 +1,6 @@
 # Décret n° 2015-121/PR/DEF portant modification du décret n° 2014-245/PR/MD du 14 septembre 2014.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-121-pr-def-portant-modification-du-decret-n-2014-245-pr-md-du-14-septembre-2014/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-121-pr-def-portant-modification-du-decret-n-2014-245-pr-md-du-14-septembre-2014/>
 
 En vigueur : 2015-04-30 (date du Journal officiel qui le publie).
 

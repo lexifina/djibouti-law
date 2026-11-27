@@ -1,6 +1,6 @@
 # Décret n° le 29 juin 1938 portant attribution de l’indemnité journalière de service aéronautique aux militaires de l’armée de terre en service aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-29-juin-1938-portant-attribution-de-lindemnite-journaliere-de-service-aeronautique-aux-militaires-de-larmee-de-terre-en-service-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-29-juin-1938-portant-attribution-de-lindemnite-journaliere-de-service-aeronautique-aux-militaires-de-larmee-de-terre-en-service-aux-colonies/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

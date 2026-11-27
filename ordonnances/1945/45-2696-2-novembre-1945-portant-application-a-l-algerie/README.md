@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2696 du 2 novembre 1945 portant application à l’Algérie et aux territoires relevant du ministère des colonies de l’ordonnance n 45-802 du 20 avril 1945 instituant le contrôle médical des prisonniers, travailleurs et déportés rapatriés et de l’ordonnance n° 45-1069 du 26 mai 1945 relative à l’aide médicale temporaire en faveur des prisonniers et déportés
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2696-du-2-novembre-1945-portant-application-a-lalgerie-et-aux-territoires-relevant-du-ministere-des-colonies-de-lordonnance-n-45-802-du-20-avril-1945-instituan/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2696-du-2-novembre-1945-portant-application-a-lalgerie-et-aux-territoires-relevant-du-ministere-des-colonies-de-lordonnance-n-45-802-du-20-avril-1945-instituan/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°10 Décret. portant règlement d’administration publique pour l’application de la loi du 18 août 1936, relative à la limite d’âge des fonctionnaires coloniaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-decret-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-du-18-aout-1936-relative-a-la-limite-dage-des-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-decret-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-du-18-aout-1936-relative-a-la-limite-dage-des-fonctionnaires-coloniaux/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ vincent aurios
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

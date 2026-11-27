@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0739/PR/MID Portant création dans chaque District d’une commission chargée de la distribution des cartes électorales en vue des Élections régionales et communales.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0739-pr-mid-portant-creation-dans-chaque-district-dune-commission-chargee-de-la-distribution-des-cartes-electorales-en-vue-des-elections-regionales-et-communales/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0739-pr-mid-portant-creation-dans-chaque-district-dune-commission-chargee-de-la-distribution-des-cartes-electorales-en-vue-des-elections-regionales-et-communales/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

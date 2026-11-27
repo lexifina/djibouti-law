@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0409/PR/MID prescrivant le Ravalement des Façades de la Ville de Djibouti à l’occasion du 29ème Anniversaire de l’Indépendance et de l’Organisation du 11ème Sommet des Chefs d’Etat et du Gouvernement du COMESA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0409-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-29eme-anniversaire-de-lindependance-et-de-lorganisation-du-11eme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0409-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-29eme-anniversaire-de-lindependance-et-de-lorganisation-du-11eme/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

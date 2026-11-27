@@ -1,6 +1,6 @@
 # Décret n° 2003-0067/PR/MEF portant création d’une commission nationale chargé de l’élaboration d’une nouvelle réglementation comptable.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0067-pr-mef-portant-creation-dune-commission-nationale-charge-de-lelaboration-dune-nouvelle-reglementation-comptable/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0067-pr-mef-portant-creation-dune-commission-nationale-charge-de-lelaboration-dune-nouvelle-reglementation-comptable/>
 
 En vigueur : 2003-04-30 (date du Journal officiel qui le publie).
 

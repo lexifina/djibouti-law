@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0108/PR/MJSLT portant création du Comité National d’Organisation de la quatorzième édition du Semi Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0108-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-quatorzieme-edition-du-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0108-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-quatorzieme-edition-du-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

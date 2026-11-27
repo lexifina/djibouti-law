@@ -1,8 +1,8 @@
 # Décret n° 2025-319/PR/MEFI rendant exécutoire la norme professionnelle définissant les principes et diligences applicables à la mission de présentation des comptes réalisé par l’expert-comptable libéral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-319-pr-mefi-rendant-executoire-la-norme-professionnelle-definissant-les-principes-et-diligences-applicables-a-la-mission-de-presentation-des-comptes-realise-par-lexpert-comp/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-319-pr-mefi-rendant-executoire-la-norme-professionnelle-definissant-les-principes-et-diligences-applicables-a-la-mission-de-presentation-des-comptes-realise-par-lexpert-comp/>
 
-En vigueur : 2025-11-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-11-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

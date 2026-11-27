@@ -1,6 +1,6 @@
 # Décret n° 2005-0083/PR/MENESUP fixant les modalités de création et de fonctionnement des Établissements Privés d’Enseignement Fondamental, Secondaire ou Supérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0083-pr-menesup-fixant-les-modalites-de-creation-et-de-fonctionnement-des-etablissements-prives-denseignement-fondamental-secondaire-ou-superieur/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0083-pr-menesup-fixant-les-modalites-de-creation-et-de-fonctionnement-des-etablissements-prives-denseignement-fondamental-secondaire-ou-superieur/>
 
 En vigueur : 2005-06-15 (date du Journal officiel qui le publie).
 
@@ -64,4 +64,4 @@ ISMAÏL OMAR GUELLEH
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

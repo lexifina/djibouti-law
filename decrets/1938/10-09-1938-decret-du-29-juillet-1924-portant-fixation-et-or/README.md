@@ -1,6 +1,6 @@
 # Décret n° 10/09/1938 modifiant le décret du 29 juillet 1924 portant fixation et organisation du domaine public et des servitudes d’utilité publique à la Cote française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-09-1938-modifiant-le-decret-du-29-juillet-1924-portant-fixation-et-organisation-du-domaine-public-et-des-servitudes-dutilite-publique-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-09-1938-modifiant-le-decret-du-29-juillet-1924-portant-fixation-et-organisation-du-domaine-public-et-des-servitudes-dutilite-publique-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Georges MANDEL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

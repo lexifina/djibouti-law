@@ -1,6 +1,6 @@
 # Loi n° 46/AN/99/4ème L portant approbation du compte financier de l’exercice 1997 de l’Office National du Tourisme et de l’Artisanat (O.N.T.A).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n46-an-99-4eme-l-portant-approbation-du-compte-financier-de-lexercice-1997-de-loffice-national-du-tourisme-et-de-lartisanat-o-n-t-a/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n46-an-99-4eme-l-portant-approbation-du-compte-financier-de-lexercice-1997-de-loffice-national-du-tourisme-et-de-lartisanat-o-n-t-a/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 

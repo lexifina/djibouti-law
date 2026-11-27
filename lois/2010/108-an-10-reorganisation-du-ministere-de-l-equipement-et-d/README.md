@@ -1,6 +1,6 @@
 # Loi n° 108/AN/10/6ème L portant réorganisation du Ministère de l’Equipement et des Transports et fixant leurs attributions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-10-6eme-l-portant-reorganisation-du-ministere-de-lequipement-et-des-transports-et-fixant-leurs-attributions/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-10-6eme-l-portant-reorganisation-du-ministere-de-lequipement-et-des-transports-et-fixant-leurs-attributions/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 
@@ -89,4 +89,4 @@ ORGANIGRAMME DU MINISTERE
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
 | [art-054.md](art-054.md) | Article 54 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

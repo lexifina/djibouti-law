@@ -1,6 +1,6 @@
 # Loi n° 201/AN/07/5ème L fixant les conditions d’entrée et de séjour en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-07-5eme-l-fixant-les-conditions-dentree-et-de-sejour-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n201-an-07-5eme-l-fixant-les-conditions-dentree-et-de-sejour-en-republique-de-djibouti/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 
@@ -40,4 +40,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

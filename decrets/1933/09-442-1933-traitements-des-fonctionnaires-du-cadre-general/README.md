@@ -1,6 +1,6 @@
 # Décret n° 09-442-1933 Traitements des fonctionnaires du cadre général des travaux publics et des mines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-442-1933-traitements-des-fonctionnaires-du-cadre-general-des-travaux-publics-et-des-mines/>
+Décret · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-442-1933-traitements-des-fonctionnaires-du-cadre-general-des-travaux-publics-et-des-mines/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 

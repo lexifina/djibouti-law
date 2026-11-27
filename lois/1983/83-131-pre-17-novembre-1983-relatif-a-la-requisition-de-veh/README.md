@@ -1,6 +1,6 @@
 # Loi n° 83-131/PRE DU 17 NOVEMBRE 1983 relatif à la réquisition de véhicules privés pour les besoins de la Conférence des Donateurs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-131-pre-du-17-novembre-1983-relatif-a-la-requisition-de-vehicules-prives-pour-les-besoins-de-la-conference-des-donateurs/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/11/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-131-pre-du-17-novembre-1983-relatif-a-la-requisition-de-vehicules-prives-pour-les-besoins-de-la-conference-des-donateurs/>
 
 En vigueur : 1983-11-30 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ HASSAN GOULED APTIDON
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

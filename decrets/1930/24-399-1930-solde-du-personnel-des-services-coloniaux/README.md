@@ -1,6 +1,6 @@
 # Décret n° 24-399-1930 Solde du personnel des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 399 du 01/02/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-399-1930-solde-du-personnel-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 399 du 01/02/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-399-1930-solde-du-personnel-des-services-coloniaux/>
 
 En vigueur : 1930-02-01 (date du Journal officiel qui le publie).
 

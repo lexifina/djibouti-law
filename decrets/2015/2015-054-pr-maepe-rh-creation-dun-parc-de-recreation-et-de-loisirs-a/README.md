@@ -1,6 +1,6 @@
 # Décret n° 2015-054/PR/MAEPE-RH portant création d’un parc de récréation et de loisirs à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-054-pr-maepe-rh-portant-creation-dun-parc-de-recreation-et-de-loisirs-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-054-pr-maepe-rh-portant-creation-dun-parc-de-recreation-et-de-loisirs-a-djibouti/>
 
 En vigueur : 2015-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2016-806/PR/MENSUR relatif au Diplôme de secrétaire médicale et médico-sociale et fixant ses modalités de délivrance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-806-pr-mensur-relatif-au-diplome-de-secretaire-medicale-et-medico-sociale-et-fixant-ses-modalites-de-delivrance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-806-pr-mensur-relatif-au-diplome-de-secretaire-medicale-et-medico-sociale-et-fixant-ses-modalites-de-delivrance/>
 
 En vigueur : 2016-12-15 (date du Journal officiel qui le publie).
 

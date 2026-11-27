@@ -1,6 +1,6 @@
 # Arrêté n° 2018-030/PR/MI fixant les membres des Bureaux de votes pour les élections législatives du 23 février 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 19/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-030-pr-mi-fixant-les-membres-des-bureaux-de-votes-pour-les-elections-legislatives-du-23-fevrier-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 19/02/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-030-pr-mi-fixant-les-membres-des-bureaux-de-votes-pour-les-elections-legislatives-du-23-fevrier-2018/>
 
 En vigueur : 2018-02-19 (date du Journal officiel qui le publie).
 

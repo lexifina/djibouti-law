@@ -1,6 +1,6 @@
 # Décret n° 2017-327/PR/MTRA fixant les conditions de fond et de forme, les effets et les mesures de contrôle de l’exécution du contrat d’apprentissage.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-327-pr-mtra-fixant-les-conditions-de-fond-et-de-forme-les-effets-et-les-mesures-de-controle-de-lexecution-du-contrat-dapprentissage/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-327-pr-mtra-fixant-les-conditions-de-fond-et-de-forme-les-effets-et-les-mesures-de-controle-de-lexecution-du-contrat-dapprentissage/>
 
 En vigueur : 2017-10-15 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

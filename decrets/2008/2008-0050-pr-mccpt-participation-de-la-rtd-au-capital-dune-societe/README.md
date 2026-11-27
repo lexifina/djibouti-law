@@ -1,6 +1,6 @@
 # Décret n° 2008-0050/PR/MCCPT portant participation de la RTD au capital d’une société privée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0050-pr-mccpt-portant-participation-de-la-rtd-au-capital-dune-societe-privee/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0050-pr-mccpt-portant-participation-de-la-rtd-au-capital-dune-societe-privee/>
 
 En vigueur : 2008-02-28 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 143/AN/16/7ème L portant Code de la bonne gouvernance des entreprises publiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-16-7eme-l-portant-code-de-la-bonne-gouvernance-des-entreprises-publiques/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 14/04/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-16-7eme-l-portant-code-de-la-bonne-gouvernance-des-entreprises-publiques/>
 
-En vigueur : 2016-04-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-04-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

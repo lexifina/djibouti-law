@@ -1,6 +1,6 @@
 # Décret n° 989 portant réparation du préjudice pur les mesures arbitraires prises contre les fonctionnaires coloniaux
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/06/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-989-portant-reparation-du-prejudice-pur-les-mesures-arbitraires-prises-contre-les-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/06/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-989-portant-reparation-du-prejudice-pur-les-mesures-arbitraires-prises-contre-les-fonctionnaires-coloniaux/>
 
 En vigueur : 1943-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 1 Le décret étendant aux marchés passés dans la métropole et dans les territoires algériens, pour le compile des colonies, pays de protectorat et terriloires sous mandat, les dispositions du décret du 12 décembre 1936 concernant le financement des marchés de l’Etat et des collectivités publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-le-decret-etendant-aux-marches-passes-dans-la-metropole-et-dans-les-territoires-algeriens-pour-le-compile-des-colonies-pays-de-protectorat-et-terriloires-sous-mandat-les-disposi/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-le-decret-etendant-aux-marches-passes-dans-la-metropole-et-dans-les-territoires-algeriens-pour-le-compile-des-colonies-pays-de-protectorat-et-terriloires-sous-mandat-les-disposi/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

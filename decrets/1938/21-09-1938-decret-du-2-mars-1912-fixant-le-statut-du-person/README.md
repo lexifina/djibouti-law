@@ -1,6 +1,6 @@
 # Décret n° 21/09/1938 modifiant le décret du 2 mars 1912 fixant le statut du personnel métropolitain des douanes aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-09-1938-modifiant-le-decret-du-2-mars-1912-fixant-le-statut-du-personnel-metropolitain-des-douanes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-09-1938-modifiant-le-decret-du-2-mars-1912-fixant-le-statut-du-personnel-metropolitain-des-douanes-aux-colonies/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 

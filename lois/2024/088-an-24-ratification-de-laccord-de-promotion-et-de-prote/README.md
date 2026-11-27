@@ -1,6 +1,6 @@
 # Loi n° 88/AN/24/9ème L portant ratification de l’Accord de promotion et de protection des Investissements avec la République du Maroc.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 21/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-24-9eme-l-portant-ratification-de-laccord-de-promotion-et-de-protection-des-investissements-avec-la-republique-du-maroc/>
+Loi · Journal officiel de la République de Djibouti, n° 05 du 21/04/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n88-an-24-9eme-l-portant-ratification-de-laccord-de-promotion-et-de-protection-des-investissements-avec-la-republique-du-maroc/>
 
 En vigueur : 2024-04-22 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

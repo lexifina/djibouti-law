@@ -1,6 +1,6 @@
 # Décret n° 72-555 relatif à l’emploi des fonctionnaires des corps recrutés par la voie de l’école nationale d’administration et des administrateurs des postes et télécommunications
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-555-relatif-a-lemploi-des-fonctionnaires-des-corps-recrutes-par-la-voie-de-lecole-nationale-dadministration-et-des-administrateurs-des-postes-et-telecommunicatio/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-555-relatif-a-lemploi-des-fonctionnaires-des-corps-recrutes-par-la-voie-de-lecole-nationale-dadministration-et-des-administrateurs-des-postes-et-telecommunicatio/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

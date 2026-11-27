@@ -1,6 +1,6 @@
 # Décret n° 6-133-1907 portant application du décret du 30 octobre; 102 aux membres du personnel de l’Instruction Publique exerçant, avant cette date, leurs fonctions aux Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 133 du 01/12/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-133-1907-portant-application-du-decret-du-30-octobre-102-aux-membres-du-personnel-de-linstruction-publique-exercant-avant-cette-date-leurs-fonctions-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 133 du 01/12/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-133-1907-portant-application-du-decret-du-30-octobre-102-aux-membres-du-personnel-de-linstruction-publique-exercant-avant-cette-date-leurs-fonctions-aux-colonies/>
 
 En vigueur : 1907-12-01 (date du Journal officiel qui le publie).
 

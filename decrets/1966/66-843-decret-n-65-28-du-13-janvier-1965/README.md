@@ -1,6 +1,6 @@
 # Décret n° 66-843 modifiant le décret n° 65-28 du 13 janvier 1965
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-843-modifiant-le-decret-n-65-28-du-13-janvier-1965/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-843-modifiant-le-decret-n-65-28-du-13-janvier-1965/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

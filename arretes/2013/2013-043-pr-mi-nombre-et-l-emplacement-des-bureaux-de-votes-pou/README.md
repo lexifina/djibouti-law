@@ -1,6 +1,6 @@
 # Arrêté n° 2013-043/PR/MI fixant le nombre et l’emplacement des Bureaux de votes pour les élections législatives du 22 février 2013
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-043-pr-mi-fixant-le-nombre-et-lemplacement-des-bureaux-de-votes-pour-les-elections-legislatives-du-22-fevrier-2013/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 05/02/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-043-pr-mi-fixant-le-nombre-et-lemplacement-des-bureaux-de-votes-pour-les-elections-legislatives-du-22-fevrier-2013/>
 
 En vigueur : 2013-02-05 (date du Journal officiel qui le publie).
 

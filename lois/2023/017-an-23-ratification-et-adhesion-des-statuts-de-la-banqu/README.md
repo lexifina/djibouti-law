@@ -1,6 +1,6 @@
 # Loi n° 17/AN/23/9ème L portant ratification et adhésion des statuts de la Banque Asiatique d’Investissement pour les Infrastructures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 03/12/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-23-9eme-l-portant-ratification-et-adhesion-des-statuts-de-la-banque-asiatique-dinvestissement-pour-les-infrastructures/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 03/12/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-23-9eme-l-portant-ratification-et-adhesion-des-statuts-de-la-banque-asiatique-dinvestissement-pour-les-infrastructures/>
 
 En vigueur : 2023-12-04 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

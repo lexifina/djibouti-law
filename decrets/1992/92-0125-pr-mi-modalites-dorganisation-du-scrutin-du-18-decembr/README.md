@@ -1,6 +1,6 @@
 # Décret n° 92‑0125/PR/MI fixant les modalités d’organisation du scrutin du 18 décembre 1992 portant élection des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910125-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-18-decembre-1992-portant-election-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92%e2%80%910125-pr-mi-fixant-les-modalites-dorganisation-du-scrutin-du-18-decembre-1992-portant-election-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 1992-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 50-1240 modifiant, en ce qui concerne les territoires relevant du Ministère de la France d’outre-mer, le décret du 27 décembre 1928 portant t règlement de police sanitaire maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1240-modifiant-en-ce-qui-concerne-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-le-decret-du-27-decembre-1928-portant-t-reglement-de-police-sanitaire-maritime-2/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1240-modifiant-en-ce-qui-concerne-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-le-decret-du-27-decembre-1928-portant-t-reglement-de-police-sanitaire-maritime-2/>
 
 En vigueur : 1950-10-01 (date du Journal officiel qui le publie).
 

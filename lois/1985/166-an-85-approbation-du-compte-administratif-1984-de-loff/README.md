@@ -1,6 +1,6 @@
 # Loi n° 166/AN/85/1ère L portant approbation du compte administratif 1984 de l’Office de Développement du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-85-1ere-l-portant-approbation-du-compte-administratif-1984-de-loffice-de-developpement-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-85-1ere-l-portant-approbation-du-compte-administratif-1984-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

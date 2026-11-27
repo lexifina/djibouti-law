@@ -1,6 +1,6 @@
 # Ordonnance n° 77-062/PR/FIN autorisant un prélèvement sur la caisse de réserve du budget annexe du Port de commerce de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-062-pr-fin-autorisant-un-prelevement-sur-la-caisse-de-reserve-du-budget-annexe-du-port-de-commerce-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-062-pr-fin-autorisant-un-prelevement-sur-la-caisse-de-reserve-du-budget-annexe-du-port-de-commerce-de-djibouti/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 

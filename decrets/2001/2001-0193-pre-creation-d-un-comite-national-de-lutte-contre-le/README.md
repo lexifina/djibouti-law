@@ -1,6 +1,6 @@
 # Décret n° 2001-0193/PRE portant création d’un Comité National de Lutte contre le Terrorisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0193-pre-portant-creation-dun-comite-national-de-lutte-contre-le-terrorisme/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0193-pre-portant-creation-dun-comite-national-de-lutte-contre-le-terrorisme/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 

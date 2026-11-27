@@ -1,6 +1,6 @@
 # Loi n° 03-97-1904 Texte de la loi. 4
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 97 du 01/12/1904 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-03-97-1904-texte-de-la-loi-4/>
+Loi · Journal officiel de la République de Djibouti, n° 97 du 01/12/1904 · <https://www.journalofficiel.dj/texte-juridique/loi-n-03-97-1904-texte-de-la-loi-4/>
 
 En vigueur : 1904-12-01 (date du Journal officiel qui le publie).
 

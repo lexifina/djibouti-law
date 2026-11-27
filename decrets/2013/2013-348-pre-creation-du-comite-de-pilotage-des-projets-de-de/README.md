@@ -1,6 +1,6 @@
 # Décret n° 2013-348/PRE portant création du comité de pilotage des projets de développement de la Géothermie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-348-pre-portant-creation-du-comite-de-pilotage-des-projets-de-developpement-de-la-geothermie/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-348-pre-portant-creation-du-comite-de-pilotage-des-projets-de-developpement-de-la-geothermie/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

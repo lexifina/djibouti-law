@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0297/PRE relatif à la mise en place du collectif “Japon-Solidarité” et désignation des membres du collectif.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0297-pre-relatif-a-la-mise-en-place-du-collectif-japon-solidarite-et-designation-des-membres-du-collectif/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0297-pre-relatif-a-la-mise-en-place-du-collectif-japon-solidarite-et-designation-des-membres-du-collectif/>
 
 En vigueur : 2011-03-31 (date du Journal officiel qui le publie).
 

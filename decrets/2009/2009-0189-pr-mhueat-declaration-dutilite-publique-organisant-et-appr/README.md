@@ -1,6 +1,6 @@
 # Décret n° 2009-0189/PR/MHUEAT portant déclaration d’utilité publique, organisant et approuvant la mise en oeuvre du Plan d’Aménagement Urbain, d’Equipement et de Développement Social des quartiers 12, 14 et 15 de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0189-pr-mhueat-portant-declaration-dutilite-publique-organisant-et-approuvant-la-mise-en-oeuvre-du-plan-damenagement-urbain-dequipement-et-de-developpement-social-des-quarti/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0189-pr-mhueat-portant-declaration-dutilite-publique-organisant-et-approuvant-la-mise-en-oeuvre-du-plan-damenagement-urbain-dequipement-et-de-developpement-social-des-quarti/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ Le Conseil des Ministres entendu en sa séance du 14/07/09
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

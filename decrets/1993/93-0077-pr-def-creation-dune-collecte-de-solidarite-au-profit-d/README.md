@@ -1,6 +1,6 @@
 # Décret n° 93-0077/PR/DEF portant création d’une collecte de solidarité au profit des handicapés et victimes de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0077-pr-def-portant-creation-dune-collecte-de-solidarite-au-profit-des-handicapes-et-victimes-de-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0077-pr-def-portant-creation-dune-collecte-de-solidarite-au-profit-des-handicapes-et-victimes-de-guerre/>
 
 En vigueur : 1993-08-15 (date du Journal officiel qui le publie).
 

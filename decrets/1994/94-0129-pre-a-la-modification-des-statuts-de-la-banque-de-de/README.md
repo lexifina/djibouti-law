@@ -1,6 +1,6 @@
 # Décret n° 94-0129/PRE relatif à la modification des statuts de la Banque de Développement de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 15/10/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0129-pre-relatif-a-la-modification-des-statuts-de-la-banque-de-developpement-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 15/10/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0129-pre-relatif-a-la-modification-des-statuts-de-la-banque-de-developpement-de-djibouti/>
 
 En vigueur : 1994-10-15 (date du Journal officiel qui le publie).
 

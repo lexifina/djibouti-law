@@ -1,6 +1,6 @@
 # Décret n° 48-1959 tendant à rendre applicables aux territoires relevant du ministère de la France d’outre mer autres que l’Indochine les dispositions de l’acte, dit loi du 22 septembre 1942, relatif aux effets du mariage quant aux droits et aux devoirs des époux, validé par l’ordonnance du 9 octobre 1945.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1959-tendant-a-rendre-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine-les-dispositions-de-lacte-dit-loi-du-22-se/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-1959-tendant-a-rendre-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine-les-dispositions-de-lacte-dit-loi-du-22-se/>
 
 En vigueur : 1949-02-28 (date du Journal officiel qui le publie).
 

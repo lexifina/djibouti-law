@@ -1,6 +1,6 @@
 # Décret n° 84-022/PR portant statuts de la société Laiterie d’Etat de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-022-pr-portant-statuts-de-la-societe-laiterie-detat-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/04/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-022-pr-portant-statuts-de-la-societe-laiterie-detat-de-djibouti/>
 
 En vigueur : 1984-04-01 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Conseil des Ministres entendu en sa séance du 21 février 1984.
 | [art-015.md](art-015.md) | Art. 15 |
 | [art-016.md](art-016.md) | Art. 16 |
 | [art-017.md](art-017.md) | Art. 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

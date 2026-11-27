@@ -1,6 +1,6 @@
 # Décret n° 88-018/PR/FIN pour l’application de la loi n° 21/AN/88/2è L du 28 janvier 1988 relative à la souscription obligatoire de certificats de dépôt au Trésor National.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 24/02/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-018-pr-fin-pour-lapplication-de-la-loi-n21-an-88-2e-l-du-28-janvier-1988-relative-a-la-souscription-obligatoire-de-certificats-de-depot-au-tresor-national/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 24/02/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-018-pr-fin-pour-lapplication-de-la-loi-n21-an-88-2e-l-du-28-janvier-1988-relative-a-la-souscription-obligatoire-de-certificats-de-depot-au-tresor-national/>
 
 En vigueur : 1988-02-24 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2-171-1911 portant modification de l’article 33 du décret du 3 juillet 1897 sur les indemnités de déplacement et les passages du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 171 du 01/02/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-171-1911-portant-modification-de-larticle-33-du-decret-du-3-juillet-1897-sur-les-indemnites-de-deplacement-et-les-passages-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 171 du 01/02/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-171-1911-portant-modification-de-larticle-33-du-decret-du-3-juillet-1897-sur-les-indemnites-de-deplacement-et-les-passages-du-personnel-colonial/>
 
 En vigueur : 1911-02-01 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Signé : Georges TROUILLOT:
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

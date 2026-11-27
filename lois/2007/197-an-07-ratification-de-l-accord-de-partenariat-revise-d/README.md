@@ -1,6 +1,6 @@
 # Loi n° 197/AN/07/5ème L portant ratification de l’Accord de partenariat révisé de Cotonou entre le Groupe ACP et l’Union Européenne.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-07-5eme-l-portant-ratification-de-laccord-de-partenariat-revise-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-07-5eme-l-portant-ratification-de-laccord-de-partenariat-revise-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

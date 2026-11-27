@@ -1,6 +1,6 @@
 # Décret n° n°98 Décret du 1° décembre 1930 fixant les conditions d’application à l’Algérie, aux colonies, aux pays de protectorat et aux territoires sous mandat, du décret du 4 novembre 1950 portant règlement d’administration publique pour l’application de l’article 201 de la loi de finances du 16 avril 1950 concernant l’allocation du combattant
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 410 du 31/01/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n98-decret-du-1-decembre-1930-fixant-les-conditions-dapplication-a-lalgerie-aux-colonies-aux-pays-de-protectorat-et-aux-territoires-sous-mandat-du-decret-du-4-novemb/>
+Décret · Journal officiel de la République de Djibouti, n° 410 du 31/01/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n98-decret-du-1-decembre-1930-fixant-les-conditions-dapplication-a-lalgerie-aux-colonies-aux-pays-de-protectorat-et-aux-territoires-sous-mandat-du-decret-du-4-novemb/>
 
 En vigueur : 1931-01-31 (date du Journal officiel qui le publie).
 

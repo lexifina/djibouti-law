@@ -1,6 +1,6 @@
 # Décret n° 81-139/PR/MI portant création du Bureau central du Recensement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-139-pr-mi-portant-creation-du-bureau-central-du-recensement/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-139-pr-mi-portant-creation-du-bureau-central-du-recensement/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Le Conseil des Ministres ente en sa 19 décembre 1981
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

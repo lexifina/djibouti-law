@@ -1,6 +1,6 @@
 # Décret n° 18-387-1929 Règlement de police sanitaire maritime aux colonies, pays de protectorat et territoires sous mandat, rattachés au ministère des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 387 du 28/02/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-387-1929-reglement-de-police-sanitaire-maritime-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-rattaches-au-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 387 du 28/02/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-387-1929-reglement-de-police-sanitaire-maritime-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-rattaches-au-ministere-des-colonies/>
 
 En vigueur : 1929-02-28 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ André Maginot.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art.1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

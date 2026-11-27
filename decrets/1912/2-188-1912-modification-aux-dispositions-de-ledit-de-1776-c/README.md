@@ -1,6 +1,6 @@
 # Décret n° 2-188-1912 portant modification aux dispositions de l’édit de 1776 constituant le dépôt des papiers publics des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 188 du 01/07/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-188-1912-portant-modification-aux-dispositions-de-ledit-de-1776-constituant-le-depot-des-papiers-publics-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 188 du 01/07/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-188-1912-portant-modification-aux-dispositions-de-ledit-de-1776-constituant-le-depot-des-papiers-publics-des-colonies/>
 
 En vigueur : 1912-07-01 (date du Journal officiel qui le publie).
 

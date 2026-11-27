@@ -1,6 +1,6 @@
 # Décret n° 85-081/PRE/MIDI relatif à la double signature des documents de règlement des dépenses de l’Office National des Eaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-081-pre-midi-relatif-a-la-double-signature-des-documents-de-reglement-des-depenses-de-loffice-national-des-eaux/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-081-pre-midi-relatif-a-la-double-signature-des-documents-de-reglement-des-depenses-de-loffice-national-des-eaux/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

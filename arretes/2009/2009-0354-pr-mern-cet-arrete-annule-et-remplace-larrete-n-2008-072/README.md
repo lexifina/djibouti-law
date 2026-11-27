@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0354/PR/MERN. Cet arrêté annule et remplace l’Arrêté n° 2008-0726/PR/SGP/2008 du 09/10/2008 portant exonération des matériels importés pour le Projet d’Interconnexion.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0354-pr-mern-cet-arrete-annule-et-remplace-larrete-n2008-0726-pr-sgp-2008-du-09-10-2008-portant-exoneration-des-materiels-importes-pour-le-projet-dinterconnexion/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 14/05/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0354-pr-mern-cet-arrete-annule-et-remplace-larrete-n2008-0726-pr-sgp-2008-du-09-10-2008-portant-exoneration-des-materiels-importes-pour-le-projet-dinterconnexion/>
 
 En vigueur : 2009-05-14 (date du Journal officiel qui le publie).
 

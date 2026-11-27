@@ -1,6 +1,6 @@
 # Décret n° 81-132/PR instituant une nouvelle nomenclature tarifaire et statistique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 27/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-132-pr-instituant-une-nouvelle-nomenclature-tarifaire-et-statistique/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 27/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-132-pr-instituant-une-nouvelle-nomenclature-tarifaire-et-statistique/>
 
 En vigueur : 1981-12-27 (date du Journal officiel qui le publie).
 

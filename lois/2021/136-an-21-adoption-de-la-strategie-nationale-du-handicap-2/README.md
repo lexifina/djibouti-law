@@ -1,6 +1,6 @@
 # Loi n° 136/AN/21/8ème L portant adoption de la Stratégie Nationale du Handicap 2021-2025 de la République de Djibouti
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-21-8eme-l-portant-adoption-de-la-strategie-nationale-du-handicap-2021-2025-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-21-8eme-l-portant-adoption-de-la-strategie-nationale-du-handicap-2021-2025-de-la-republique-de-djibouti/>
 
 En vigueur : 2021-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

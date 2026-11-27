@@ -1,6 +1,6 @@
 # Loi n° 22 décembre 1966 LOI de finances rectificative pour 1966 (n » 66-948 du 22 décembre 1966) (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-22-decembre-1966-loi-de-finances-rectificative-pour-1966-n-66-948-du-22-decembre-1966-1/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 01/03/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-22-decembre-1966-loi-de-finances-rectificative-pour-1966-n-66-948-du-22-decembre-1966-1/>
 
 En vigueur : 1967-03-01 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ L’Assemblée nationale et le Sénat ont adopté, Le Président de la Républiq
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

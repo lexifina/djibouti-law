@@ -1,6 +1,6 @@
 # Décret n° 19 novembre 1941 19 novembre 1941
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 541 du 31/12/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-novembre-1941-19-novembre-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 541 du 31/12/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-novembre-1941-19-novembre-1941/>
 
 En vigueur : 1941-12-31 (date du Journal officiel qui le publie).
 

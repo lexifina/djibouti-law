@@ -1,6 +1,6 @@
 # Décret n° 11-345-1925 Taxes applicables aux correspondances à destination de l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 345 du 31/08/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-345-1925-taxes-applicables-aux-correspondances-a-destination-de-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 345 du 31/08/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-345-1925-taxes-applicables-aux-correspondances-a-destination-de-letranger/>
 
 En vigueur : 1925-08-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ J. CAILLAUX.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [art-013.md](art-013.md) | Art. 13 — |
+| [art-013.md](art-013.md) | Art. 13 |

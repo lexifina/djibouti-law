@@ -1,6 +1,6 @@
 # Loi n° 122/AN/16/7ème L portant approbation des comptes financiers de la Caisse Nationale de Sécurité Sociale pour l’exercice 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-16-7eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-16-7eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2013/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 

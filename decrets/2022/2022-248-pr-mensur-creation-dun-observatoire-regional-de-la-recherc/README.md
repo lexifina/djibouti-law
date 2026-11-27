@@ -1,8 +1,8 @@
 # Décret n° 2022-248/PR/MENSUR portant création d’un Observatoire Régional de la Recherche pour l’Environnement et le Climat (ORREC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 29/09/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-248-pr-mensur-portant-creation-dun-observatoire-regional-de-la-recherche-pour-lenvironnement-et-le-climat-orrec/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 29/09/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-248-pr-mensur-portant-creation-dun-observatoire-regional-de-la-recherche-pour-lenvironnement-et-le-climat-orrec/>
 
-En vigueur : 2022-09-22 (date fixÃ©e par le texte).
+En vigueur : 2022-09-22 (date fixée par le texte).
 
 ## Visas
 

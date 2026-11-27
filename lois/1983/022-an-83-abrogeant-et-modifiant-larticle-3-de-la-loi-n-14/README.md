@@ -1,6 +1,6 @@
 # Loi n° 22/AN/83/1ère L abrogeant et modifiant l’article 3 de la loi n° 140/AN/80 du 16 Novembre 1980 portant réglementation de la qualité d’expert.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-83-1ere-l-abrogeant-et-modifiant-larticle-3-de-la-loi-n-140-an-80-du-16-novembre-1980-portant-reglementation-de-la-qualite-dexpert/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n22-an-83-1ere-l-abrogeant-et-modifiant-larticle-3-de-la-loi-n-140-an-80-du-16-novembre-1980-portant-reglementation-de-la-qualite-dexpert/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

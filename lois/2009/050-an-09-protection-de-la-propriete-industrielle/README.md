@@ -1,8 +1,8 @@
 # Loi n° 50/AN/09/6ème L Portant Protection de la Propriété Industrielle
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-09-6eme-l-portant-protection-de-la-propriete-industrielle/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n50-an-09-6eme-l-portant-protection-de-la-propriete-industrielle/>
 
-En vigueur : 2009-07-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2009-07-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -200,4 +200,4 @@ Le Conseil des Ministres entendu en sa séance du 27 Janvier 2009.
 | [art-166.md](art-166.md) | Article 166 |
 | [art-167.md](art-167.md) | Article 167 |
 | [art-168.md](art-168.md) | Article 168 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Décret n° 2017-355/PRE portant création du Comité Interministériel de Coordination du processus de rédaction et de soumission des rapports périodiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-355-pre-portant-creation-du-comite-interministeriel-de-coordination-du-processus-de-redaction-et-de-soumission-des-rapports-periodiques/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-355-pre-portant-creation-du-comite-interministeriel-de-coordination-du-processus-de-redaction-et-de-soumission-des-rapports-periodiques/>
 
-En vigueur : 2017-11-02 (date fixÃ©e par le texte).
+En vigueur : 2017-11-02 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 4-171-1911 le 31 août 1910.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 171 du 01/02/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-171-1911-le-31-aout-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 171 du 01/02/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-171-1911-le-31-aout-1910/>
 
 En vigueur : 1911-02-01 (date du Journal officiel qui le publie).
 

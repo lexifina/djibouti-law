@@ -1,6 +1,6 @@
 # Décret n° 83-080/PR/MCTT approuvant et rendant exécutoire un avenant au budget primitif 1983 de l’Office de Développement du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-080-pr-mctt-approuvant-et-rendant-executoire-un-avenant-au-budget-primitif-1983-de-loffice-de-developpement-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-080-pr-mctt-approuvant-et-rendant-executoire-un-avenant-au-budget-primitif-1983-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 

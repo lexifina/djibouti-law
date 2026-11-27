@@ -1,6 +1,6 @@
 # Loi n° 110/AN/84/1reL portant ratification de l’accord sur le Fonds commun pour les produits de base
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-84-1rel-portant-ratification-de-laccord-sur-le-fonds-commun-pour-les-produits-de-base/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-84-1rel-portant-ratification-de-laccord-sur-le-fonds-commun-pour-les-produits-de-base/>
 
 En vigueur : 1984-11-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Rectificatif n° 2002-0582/PR/MENESUP à la décision n° 2002-0470/PR/MENESUP du 23 juin 2002 fixant les périodes d’interruption des classes pour l’année 2002-2003 et la rentrée 2003-2004.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2002-0582-pr-menesup-a-la-decision-n2002-0470-pr-menesup-du-23-juin-2002-fixant-les-periodes-dinterruption-des-classes-pour-lannee-2002-2003-et-la-rentree-2/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n2002-0582-pr-menesup-a-la-decision-n2002-0470-pr-menesup-du-23-juin-2002-fixant-les-periodes-dinterruption-des-classes-pour-lannee-2002-2003-et-la-rentree-2/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

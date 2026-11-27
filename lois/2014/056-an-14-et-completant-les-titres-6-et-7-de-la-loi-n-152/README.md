@@ -1,6 +1,6 @@
 # Loi n° 56/AN/14/7ème L modifiant et complétant les titres 6 et 7 de la Loi n° 152/AN/02/4ème L portant Code de la Famille.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-14-7eme-l-modifiant-et-completant-les-titres-6-et-7-de-la-loi-n152-an-02-4eme-l-portant-code-de-la-famille/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-14-7eme-l-modifiant-et-completant-les-titres-6-et-7-de-la-loi-n152-an-02-4eme-l-portant-code-de-la-famille/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-081.md](art-081.md) | Article 81 |
 | [art-082.md](art-082.md) | Article 82 |
 | [art-083.md](art-083.md) | Article 83 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

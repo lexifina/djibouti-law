@@ -1,6 +1,6 @@
 # Loi n° 152/AN/06/5ème L portant création de la Société d’Économie Mixte “Doraleh Container Terminal”.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-06-5eme-l-portant-creation-de-la-societe-deconomie-mixte-doraleh-container-terminal/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-06-5eme-l-portant-creation-de-la-societe-deconomie-mixte-doraleh-container-terminal/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

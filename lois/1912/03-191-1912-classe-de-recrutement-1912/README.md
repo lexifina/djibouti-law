@@ -1,6 +1,6 @@
 # Loi n° 03-191-1912 classe de Recrutement 1912.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 191 du 01/10/1912 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-03-191-1912-classe-de-recrutement-1912/>
+Loi · Journal officiel de la République de Djibouti, n° 191 du 01/10/1912 · <https://www.journalofficiel.dj/texte-juridique/loi-n-03-191-1912-classe-de-recrutement-1912/>
 
 En vigueur : 1912-10-01 (date du Journal officiel qui le publie).
 

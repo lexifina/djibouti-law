@@ -1,6 +1,6 @@
 # Arrêté n° 2019-163/PR/MERN portant exonération du Projet “Ghoubet Substation Project Design, Supply and Construction”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-163-pr-mern-portant-exoneration-du-projet-ghoubet-substation-project-design-supply-and-construction/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-163-pr-mern-portant-exoneration-du-projet-ghoubet-substation-project-design-supply-and-construction/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

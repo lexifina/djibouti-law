@@ -1,6 +1,6 @@
 # Décret n° 2022-041/PR/MI portant création de la Commission de propagande chargée de donner son avis sur les prix des documents des Elections Régionales et Communales du 11 Mars et 01 Avril 2022.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 02/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-041-pr-mi-portant-creation-de-la-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-des-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 02/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-041-pr-mi-portant-creation-de-la-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-des-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
 
 En vigueur : 2022-03-03 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

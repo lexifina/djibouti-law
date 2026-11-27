@@ -1,6 +1,6 @@
 # Décret n° 15 avril 1938 autorisant le Gouverneur de la Côte française des Somali à créer une commune mixte à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-avril-1938-autorisant-le-gouverneur-de-la-cote-francaise-des-somali-a-creer-une-commune-mixte-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-avril-1938-autorisant-le-gouverneur-de-la-cote-francaise-des-somali-a-creer-une-commune-mixte-a-djibouti/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 
@@ -21,6 +21,6 @@ Georges Maxpe
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

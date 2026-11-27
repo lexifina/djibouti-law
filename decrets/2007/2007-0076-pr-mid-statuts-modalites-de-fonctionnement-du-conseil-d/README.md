@@ -1,8 +1,8 @@
 # Décret n° 2007-0076/PR/MID portant statuts, modalités de fonctionnement du conseil d’administration et de l’organisation de l’Office de la Voirie de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0076-pr-mid-portant-statuts-modalites-de-fonctionnement-du-conseil-dadministration-et-de-lorganisation-de-loffice-de-la-voirie-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0076-pr-mid-portant-statuts-modalites-de-fonctionnement-du-conseil-dadministration-et-de-lorganisation-de-loffice-de-la-voirie-de-djibouti/>
 
-En vigueur : 2007-03-26 (date fixÃ©e par le texte).
+En vigueur : 2007-03-26 (date fixée par le texte).
 
 ## Visas
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 172 étend aux territoires relevant du Secrétariat d’Etat aux colonies les dispositions du décret du 6 avril 1940, relatif à l’interdiction de transfert de correspondance à travers les frontières.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 527 du 31/10/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-172-etend-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-du-decret-du-6-avril-1940-relatif-a-linterdiction-de-transfert-de-correspondance-a-travers-le/>
+Décret · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-172-etend-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-du-decret-du-6-avril-1940-relatif-a-linterdiction-de-transfert-de-correspondance-a-travers-le/>
 
 En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
 

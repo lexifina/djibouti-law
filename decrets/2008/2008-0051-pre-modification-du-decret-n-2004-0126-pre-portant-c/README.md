@@ -1,8 +1,8 @@
 # Décret n° 2008-0051/PRE portant modification du Décret n° 2004-0126/PRE portant création de la Fondation Diwan Az Zakat et renouvellement des membres Conseil d’Administration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0051-pre-portant-modification-du-decret-n2004-0126-pre-portant-creation-de-la-fondation-diwan-az-zakat-et-renouvellement-des-membres-conseil-dadministration/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0051-pre-portant-modification-du-decret-n2004-0126-pre-portant-creation-de-la-fondation-diwan-az-zakat-et-renouvellement-des-membres-conseil-dadministration/>
 
-En vigueur : 2008-02-17 (date fixÃ©e par le texte).
+En vigueur : 2008-02-17 (date fixée par le texte).
 
 ## Visas
 

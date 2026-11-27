@@ -1,8 +1,8 @@
 # Décret n° 2003-0031/PR/MCC portant approbation des nouveaux tarifs des services de télécommunications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0031-pr-mcc-portant-approbation-des-nouveaux-tarifs-des-services-de-telecommunications/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 27/02/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0031-pr-mcc-portant-approbation-des-nouveaux-tarifs-des-services-de-telecommunications/>
 
-En vigueur : 2003-03-01 (date fixÃ©e par le texte).
+En vigueur : 2003-03-01 (date fixée par le texte).
 
 ## Visas
 

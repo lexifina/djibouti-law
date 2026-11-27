@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0078/PR/MJSLT approuvant et rendant exécutoire le Budget Prévisionnel 2001 de l’Office Nationale du Tourisme de Djibouti (ONTD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0078-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2001-de-loffice-nationale-du-tourisme-de-djibouti-ontd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0078-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2001-de-loffice-nationale-du-tourisme-de-djibouti-ontd/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

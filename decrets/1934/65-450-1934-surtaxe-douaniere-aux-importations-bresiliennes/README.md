@@ -1,6 +1,6 @@
 # Décret n° 65-450-1934 Surtaxe douanière aux importations brésiliennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-450-1934-surtaxe-douaniere-aux-importations-bresiliennes/>
+Décret · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-450-1934-surtaxe-douaniere-aux-importations-bresiliennes/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

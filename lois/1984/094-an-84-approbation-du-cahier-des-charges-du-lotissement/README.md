@@ -1,6 +1,6 @@
 # Loi n° 94/AN/84/1ère L portant approbation du cahier des charges du lotissement « Gachamale ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-84-1ere-l-portant-approbation-du-cahier-des-charges-du-lotissement-gachamale/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-84-1ere-l-portant-approbation-du-cahier-des-charges-du-lotissement-gachamale/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 

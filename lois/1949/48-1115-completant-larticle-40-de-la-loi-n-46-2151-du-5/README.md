@@ -1,6 +1,6 @@
 # Loi n° 48-1115 complétant l’article 40 de la loi n° 46-2151 du 5 octobre 1946 relative à l’élection des membres de l’Assemblée nationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1949 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1115-completant-larticle-40-de-la-loi-n-46-2151-du-5-octobre-1946-relative-a-lelection-des-membres-de-lassemblee-nationale/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1949 · <https://www.journalofficiel.dj/texte-juridique/loi-n-48-1115-completant-larticle-40-de-la-loi-n-46-2151-du-5-octobre-1946-relative-a-lelection-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 1949-01-31 (date du Journal officiel qui le publie).
 

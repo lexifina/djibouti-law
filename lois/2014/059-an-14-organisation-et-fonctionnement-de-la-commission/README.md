@@ -1,6 +1,6 @@
 # Loi n° 59/AN/14/7ème L Portant organisation et fonctionnement de la Commission Nationale de Droit de l’Homme (CNDH).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-14-7eme-l-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-droit-de-lhomme-cndh/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-14-7eme-l-portant-organisation-et-fonctionnement-de-la-commission-nationale-de-droit-de-lhomme-cndh/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 
@@ -72,4 +72,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

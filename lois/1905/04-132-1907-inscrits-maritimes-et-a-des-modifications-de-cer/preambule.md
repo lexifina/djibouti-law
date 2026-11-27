@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE PREMIER
 Constitution, ressources, charges de la caisse.

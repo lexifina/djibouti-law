@@ -1,8 +1,8 @@
 # Décret n° 2024-297/PRE portant création du corps des Inspecteurs de l’Autorité Nationale de Sécurité et de Sûreté Nucléaires, Radiologiques, Chimiques et Biologiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21du 14/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-297-pre-portant-creation-du-corps-des-inspecteurs-de-lautorite-nationale-de-securite-et-de-surete-nucleaires-radiologiques-chimiques-et-biologiques/>
+Décret · Journal officiel de la République de Djibouti, n° 21du 14/11/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-297-pre-portant-creation-du-corps-des-inspecteurs-de-lautorite-nationale-de-securite-et-de-surete-nucleaires-radiologiques-chimiques-et-biologiques/>
 
-En vigueur : 2024-11-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-11-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -43,4 +43,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

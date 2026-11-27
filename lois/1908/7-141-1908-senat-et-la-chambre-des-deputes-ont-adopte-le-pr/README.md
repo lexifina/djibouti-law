@@ -1,6 +1,6 @@
 # Loi n° 7-141-1908 Le Sénat et la Chambre des députés ont adopté Le Président de la République promulgue la loi dont la teneur suit :
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 141 du 01/08/1908 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-7-141-1908-le-senat-et-la-chambre-des-deputes-ont-adopte-le-president-de-la-republique-promulgue-la-loi-dont-la-teneur-suit/>
+Loi · Journal officiel de la République de Djibouti, n° 141 du 01/08/1908 · <https://www.journalofficiel.dj/texte-juridique/loi-n-7-141-1908-le-senat-et-la-chambre-des-deputes-ont-adopte-le-president-de-la-republique-promulgue-la-loi-dont-la-teneur-suit/>
 
 En vigueur : 1908-08-01 (date du Journal officiel qui le publie).
 

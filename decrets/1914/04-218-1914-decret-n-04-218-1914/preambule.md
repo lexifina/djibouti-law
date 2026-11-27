@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er. La déclaration signée à Londres le 26 Février 1909, relative au droit de la guerre maritime, sera appliquée durant la guerre actuelle sous réserve des additions et modifications suivantes:
 I
 Sont considérés comme contrebande absolue les objets suivants:

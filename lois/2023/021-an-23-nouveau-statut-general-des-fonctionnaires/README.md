@@ -1,6 +1,6 @@
 # Loi n° 21/AN/23/9ème L portant nouveau Statut Général des Fonctionnaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 01 du 28/01/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-21-an-23-9eme-l-portant-nouveau-statut-general-des-fonctionnaires/>
+Loi · Journal officiel de la République de Djibouti, n° 01 du 28/01/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n-21-an-23-9eme-l-portant-nouveau-statut-general-des-fonctionnaires/>
 
 En vigueur : 2024-01-28 (date du Journal officiel qui le publie).
 
@@ -132,4 +132,4 @@ ISMAÏL OMAR GUELLEH
 | [art-098.md](art-098.md) | Article 98 |
 | [art-099.md](art-099.md) | Article 99 |
 | [art-100.md](art-100.md) | Article 100 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

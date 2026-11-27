@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1″, Les lettres dont la teneur suit, échangées à Angora, le 29 août 1929, entre le Ministre de France et le Ministre ture des affaires étrangères, seront insérées au Journal officiel.
 Les dispositions qui y sont prévues entreront en application à dater du 29 août 1929, en attendant leur approbation par le Sénat et la Chambre des députés.
 MODUS VIVENDI COMMERCIAL ENTRE LA FRANCE ET LA TURQUIE.

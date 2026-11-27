@@ -1,6 +1,6 @@
 # Loi n° 11/06/1942 réglant à titre provisoire les transcriptions de certains jugements et arrêts de divorce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 548 du 31/07/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-06-1942-reglant-a-titre-provisoire-les-transcriptions-de-certains-jugements-et-arrets-de-divorce/>
+Loi · Journal officiel de la République de Djibouti, n° 548 du 31/07/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-06-1942-reglant-a-titre-provisoire-les-transcriptions-de-certains-jugements-et-arrets-de-divorce/>
 
 En vigueur : 1942-07-31 (date du Journal officiel qui le publie).
 

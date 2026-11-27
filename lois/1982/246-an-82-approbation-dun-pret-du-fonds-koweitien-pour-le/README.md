@@ -1,6 +1,6 @@
 # Loi n° 246/AN/82 portant approbation d’un prêt du Fonds Koweitien pour le Développement Economique Arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n246-an-82-portant-approbation-dun-pret-du-fonds-koweitien-pour-le-developpement-economique-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n246-an-82-portant-approbation-dun-pret-du-fonds-koweitien-pour-le-developpement-economique-arabe/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

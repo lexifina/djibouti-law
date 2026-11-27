@@ -1,6 +1,6 @@
 # Décret n° 7-354-1926 approuvant le compte définitif des recettes et des dépenses de la Côte française des Somalis pour l’exercice 1924 (arrêté de promulgation du 25 mai 1925).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 354 du 31/05/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-354-1926-approuvant-le-compte-definitif-des-recettes-et-des-depenses-de-la-cote-francaise-des-somalis-pour-lexercice-1924-arrete-de-promulgation-du-25-mai-1925/>
+Décret · Journal officiel de la République de Djibouti, n° 354 du 31/05/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-354-1926-approuvant-le-compte-definitif-des-recettes-et-des-depenses-de-la-cote-francaise-des-somalis-pour-lexercice-1924-arrete-de-promulgation-du-25-mai-1925/>
 
 En vigueur : 1926-05-31 (date du Journal officiel qui le publie).
 

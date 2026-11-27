@@ -1,6 +1,6 @@
 # Décret n° 2024-093/PR/MB portant modification du Décret n° 2023-010/PRE du 17 janvier 2023 relatif à l’octroi d’une parcelle de terrain au profit de Touchroad International Holdings Group.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-093-pr-mb-portant-modification-du-decret-n2023-010-pre-du-17-janvier-2023-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
+Décret · Journal officiel de la République de Djibouti, n° 08 du 30/04/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-093-pr-mb-portant-modification-du-decret-n2023-010-pre-du-17-janvier-2023-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
 
 En vigueur : 2024-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

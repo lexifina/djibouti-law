@@ -1,6 +1,6 @@
 # Décret n° n°57 Décret du 27 juillet 1930 portant relèvement des tarifs de soldes des militaires de toutes armes payés sur les budgets généraux, locaux, spéciaux, annexes et autres des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n57-decret-du-27-juillet-1930-portant-relevement-des-tarifs-de-soldes-des-militaires-de-toutes-armes-payes-sur-les-budgets-generaux-locaux-speciaux-annexes-et-autres-des-colon/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n57-decret-du-27-juillet-1930-portant-relevement-des-tarifs-de-soldes-des-militaires-de-toutes-armes-payes-sur-les-budgets-generaux-locaux-speciaux-annexes-et-autres-des-colon/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

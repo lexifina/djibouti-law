@@ -1,6 +1,6 @@
 # Arrêté n° 2015-506/PR/MAEPE-RH portant création, composition, rôle et fonctionnement des structures organisationnelles prévues dans l’accord de financement du programme d’appui à la réduction de la vulnérabilité dans les zones de pêche côtières (PRAREV-PÊCHE).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-506-pr-maepe-rh-portant-creation-composition-role-et-fonctionnement-des-structures-organisationnelles-prevues-dans-laccord-de-financement-du-programme-dappui-a/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-506-pr-maepe-rh-portant-creation-composition-role-et-fonctionnement-des-structures-organisationnelles-prevues-dans-laccord-de-financement-du-programme-dappui-a/>
 
 En vigueur : 2015-08-15 (date du Journal officiel qui le publie).
 

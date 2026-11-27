@@ -1,6 +1,6 @@
 # Décret n° 2010-0198/PR/MS portant organisation et fonctionnement de l’Hôpital Dar El Hanan.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0198-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-dar-el-hanan/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0198-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-dar-el-hanan/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 

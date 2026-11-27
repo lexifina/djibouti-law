@@ -1,6 +1,6 @@
 # Loi n° 144/AN/85/1ere L portant modification et remaniement des ressources budgétaires redevance pour occupation du domaine public
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-redevance-pour-occupation-du-domaine-public/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n144-an-85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-redevance-pour-occupation-du-domaine-public/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

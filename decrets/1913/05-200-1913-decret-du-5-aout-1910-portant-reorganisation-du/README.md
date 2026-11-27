@@ -1,6 +1,6 @@
 # Décret n° 05-200-1913 modifiant le décret du 5 août 1910 portant réorganisation du personnel des Travaux publics et des Mines des Colonies autre que l’Indochine, la Martinique, La Guade- loupe et ia Réunion,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 200 du 30/06/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-200-1913-modifiant-le-decret-du-5-aout-1910-portant-reorganisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies-autre-que-lindochine-la-martinique-la-guade-loupe-e/>
+Décret · Journal officiel de la République de Djibouti, n° 200 du 30/06/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-200-1913-modifiant-le-decret-du-5-aout-1910-portant-reorganisation-du-personnel-des-travaux-publics-et-des-mines-des-colonies-autre-que-lindochine-la-martinique-la-guade-loupe-e/>
 
 En vigueur : 1913-06-30 (date du Journal officiel qui le publie).
 
@@ -21,7 +21,7 @@ J. MOREL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

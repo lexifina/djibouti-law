@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I
 DROIT SYNDICAL ET DROIT DE GRÈVE DES FONCTIONNAIRES
 Chapitre I

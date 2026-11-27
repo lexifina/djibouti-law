@@ -1,6 +1,6 @@
 # Loi n° 95/AN/841reL fixant la date d’ouverture et la durée de la 1re Session ordinaire de 1984.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-841rel-fixant-la-date-douverture-et-la-duree-de-la-1re-session-ordinaire-de-1984/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-841rel-fixant-la-date-douverture-et-la-duree-de-la-1re-session-ordinaire-de-1984/>
 
 En vigueur : 1984-04-30 (date du Journal officiel qui le publie).
 

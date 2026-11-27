@@ -1,6 +1,6 @@
 # Rectificatif n° 1 Rectificatif au Journal Officiel de la Cole Française des Somalis du mois de .février 1939 concernant le décret portant institution aux Colonies de Conseils d’administration des missions religieuses.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 508 du 31/03/1939 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1-rectificatif-au-journal-officiel-de-la-cole-francaise-des-somalis-du-mois-de-fevrier-1939-concernant-le-decret-portant-institution-aux-colonies-de-conseils-dadministration-d/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 508 du 31/03/1939 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1-rectificatif-au-journal-officiel-de-la-cole-francaise-des-somalis-du-mois-de-fevrier-1939-concernant-le-decret-portant-institution-aux-colonies-de-conseils-dadministration-d/>
 
 En vigueur : 1939-03-31 (date du Journal officiel qui le publie).
 

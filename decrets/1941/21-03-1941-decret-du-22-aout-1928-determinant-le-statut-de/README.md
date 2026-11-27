@@ -1,6 +1,6 @@
 # Décret n° 21/03/1941 modifiant le décret du 22 août 1928 déterminant le statut de la magistrature coloniale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-03-1941-modifiant-le-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-03-1941-modifiant-le-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

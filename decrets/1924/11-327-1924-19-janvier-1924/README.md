@@ -1,6 +1,6 @@
 # Décret n° 11-327-1924 le 19 janvier 1924
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 327 du 29/02/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-327-1924-le-19-janvier-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 327 du 29/02/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-327-1924-le-19-janvier-1924/>
 
 En vigueur : 1924-02-29 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Ch. DE LASTEYRIE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

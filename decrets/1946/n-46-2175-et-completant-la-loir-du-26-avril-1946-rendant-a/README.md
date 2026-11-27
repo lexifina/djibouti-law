@@ -1,6 +1,6 @@
 # Décret n° n° 46-2175 modifiant et complétant la loir du 26 avril 1946 rendant applicables pour 1946 aux Assemblées prévues par la Constitution les inéligibilités relatives aux élection de1945
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2175-modifiant-et-completant-la-loir-du-26-avril-1946-rendant-applicables-pour-1946-aux-assemblees-prevues-par-la-constitution-les-ineligibilites-relatives-aux-election-de/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2175-modifiant-et-completant-la-loir-du-26-avril-1946-rendant-applicables-pour-1946-aux-assemblees-prevues-par-la-constitution-les-ineligibilites-relatives-aux-election-de/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

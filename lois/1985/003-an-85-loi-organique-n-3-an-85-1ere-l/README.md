@@ -1,6 +1,6 @@
 # Loi Organique n° 3/AN/85/1ère L
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n3-an-85-1ere-l/>
+Loi organique · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n3-an-85-1ere-l/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0369/PR/MEFPCP portant rectification de l’Arrêté n° 2005-0863/PR/MEFPCP d’une parcelle de terrain sise au quartier 7 au profit du Ministère de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0369-pr-mefpcp-portant-rectification-de-larrete-n2005-0863-pr-mefpcp-dune-parcelle-de-terrain-sise-au-quartier-7-au-profit-du-ministere-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0369-pr-mefpcp-portant-rectification-de-larrete-n2005-0863-pr-mefpcp-dune-parcelle-de-terrain-sise-au-quartier-7-au-profit-du-ministere-de-la-sante/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

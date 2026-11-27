@@ -1,6 +1,6 @@
 # Décret n° 2014-270/PR/SEJS portant statut des sportifs de haut niveau.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-270-pr-sejs-portant-statut-des-sportifs-de-haut-niveau/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-270-pr-sejs-portant-statut-des-sportifs-de-haut-niveau/>
 
 En vigueur : 2014-09-30 (date du Journal officiel qui le publie).
 

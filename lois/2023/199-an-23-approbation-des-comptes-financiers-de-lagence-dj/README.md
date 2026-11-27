@@ -1,8 +1,8 @@
 # Loi n° 199/AN/23/8ème L portant approbation des Comptes Financiers de l’Agence Djiboutienne des Routes pour l’exercice 2021.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-des-routes-pour-lexercice-2021/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-lagence-djiboutienne-des-routes-pour-lexercice-2021/>
 
-En vigueur : 2023-02-20 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-02-20 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

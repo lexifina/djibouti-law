@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 ORGANISATION DU SERVICE.

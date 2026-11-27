@@ -1,6 +1,6 @@
 # Décret n° 06-256-1918 05 octobre 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 256 du 28/02/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-256-1918-05-octobre-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 256 du 28/02/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-256-1918-05-octobre-1917/>
 
 En vigueur : 1918-02-28 (date du Journal officiel qui le publie).
 
@@ -26,6 +26,6 @@ RENE BESNARD.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-004.md](art-004.md) | Art.4– |
+| [art-004.md](art-004.md) | Art.4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

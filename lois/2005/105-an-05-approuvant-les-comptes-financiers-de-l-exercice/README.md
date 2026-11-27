@@ -1,6 +1,6 @@
 # Loi n° 105/AN/05/5ème L approuvant les comptes financiers de l’Exercice 2003 du Fonds de l’Habitat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-05-5eme-l-approuvant-les-comptes-financiers-de-lexercice-2003-du-fonds-de-lhabitat/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-05-5eme-l-approuvant-les-comptes-financiers-de-lexercice-2003-du-fonds-de-lhabitat/>
 
 En vigueur : 2005-04-16 (date du Journal officiel qui le publie).
 

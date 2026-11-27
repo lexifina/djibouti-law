@@ -1,6 +1,6 @@
 # Loi n° 28/AN/18/8ème L portant ratification de l’Accord de prêt pour le projet d’appui à l’entreprenariat des femmes et des jeunes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-18-8eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-a-lentreprenariat-des-femmes-et-des-jeunes/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 29/11/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-18-8eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-a-lentreprenariat-des-femmes-et-des-jeunes/>
 
 En vigueur : 2018-11-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

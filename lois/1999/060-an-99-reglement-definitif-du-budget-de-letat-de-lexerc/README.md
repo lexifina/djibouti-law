@@ -1,6 +1,6 @@
 # Loi de finances n° 60/AN/99/4ème L portant règlement définitif du Budget de l’État de l’exercice 1998.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/12/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n60-an-99-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1998/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 8 du 30/12/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n60-an-99-4eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1998/>
 
 En vigueur : 1999-12-30 (date du Journal officiel qui le publie).
 

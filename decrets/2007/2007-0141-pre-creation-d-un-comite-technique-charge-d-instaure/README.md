@@ -1,6 +1,6 @@
 # Décret n° 2007-0141/PRE portant création d’un comité technique chargé d’instaurer un barème intermédiaire à solde progressive.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0141-pre-portant-creation-dun-comite-technique-charge-dinstaurer-un-bareme-intermediaire-a-solde-progressive/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0141-pre-portant-creation-dun-comite-technique-charge-dinstaurer-un-bareme-intermediaire-a-solde-progressive/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

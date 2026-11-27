@@ -1,6 +1,6 @@
 # Loi n° 18-232-1926 concernant la légitimation des enfants adultérins,
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-18-232-1926-concernant-la-legitimation-des-enfants-adulterins/>
+Loi · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/loi-n-18-232-1926-concernant-la-legitimation-des-enfants-adulterins/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 

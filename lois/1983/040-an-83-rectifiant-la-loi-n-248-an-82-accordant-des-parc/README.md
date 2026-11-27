@@ -1,6 +1,6 @@
 # Loi n° 40/AN/83/1ère L rectifiant la loi n° 248/AN/82 accordant des parcelles de terrains domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-83-1ere-l-rectifiant-la-loi-n-248-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-83-1ere-l-rectifiant-la-loi-n-248-an-82-accordant-des-parcelles-de-terrains-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

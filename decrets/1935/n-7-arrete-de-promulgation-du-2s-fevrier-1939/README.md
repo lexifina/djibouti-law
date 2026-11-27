@@ -1,6 +1,6 @@
 # Décret n° n°7 (Arrêté de promulgation du 2S février 1939.)..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 459 du 28/02/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-arrete-de-promulgation-du-2s-fevrier-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 459 du 28/02/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-arrete-de-promulgation-du-2s-fevrier-1939/>
 
 En vigueur : 1935-02-28 (date du Journal officiel qui le publie).
 

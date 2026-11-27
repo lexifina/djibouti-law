@@ -1,6 +1,6 @@
 # Loi n° 95/AN/89/2ème L portant approbation d’un prêt entre la République de Djibouti et le Fonds Africain de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-89-2eme-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-89-2eme-l-portant-approbation-dun-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

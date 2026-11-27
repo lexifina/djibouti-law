@@ -1,6 +1,6 @@
 # Loi n° 140/AN/97/3ème L portant aménagement du Code de Travail de 1952.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-97-3eme-l-portant-amenagement-du-code-de-travail-de-1952/>
+Loi · Journal officiel de la République de Djibouti, n° 18 du 30/09/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-97-3eme-l-portant-amenagement-du-code-de-travail-de-1952/>
 
 En vigueur : 1997-09-30 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ HASSAN GOULEDAPTIDON
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

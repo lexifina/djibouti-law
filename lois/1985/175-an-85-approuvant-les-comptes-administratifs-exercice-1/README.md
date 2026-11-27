@@ -1,6 +1,6 @@
 # Loi n° 175/AN/85/1ère L approuvant les comptes administratifs, exercice 1983 et 1984, de l’Établissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-85-1ere-l-approuvant-les-comptes-administratifs-exercice-1983-et-1984-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-85-1ere-l-approuvant-les-comptes-administratifs-exercice-1983-et-1984-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

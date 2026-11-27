@@ -1,6 +1,6 @@
 # Décret n° 60-974 Réforme du baccalauréat de l’enseignement du second degré
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 31/07/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-974-reforme-du-baccalaureat-de-lenseignement-du-second-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 31/07/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-974-reforme-du-baccalaureat-de-lenseignement-du-second-degre/>
 
 En vigueur : 1961-07-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ En vigueur : 1961-07-31 (date du Journal officiel qui le publie).
 | [art-017.md](art-017.md) | Art. 17 |
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

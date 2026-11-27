@@ -1,6 +1,6 @@
 # Décret n° 92-0003 / PRE / DEF Modifiant le décret 91-167/PRE/DEF, portant sur les droits à solde des personnels mobilisés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0003-pre-def-modifiant-le-decret-91-167-pre-def-portant-sur-les-droits-a-solde-des-personnels-mobilises/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0003-pre-def-modifiant-le-decret-91-167-pre-def-portant-sur-les-droits-a-solde-des-personnels-mobilises/>
 
 En vigueur : 1992-01-15 (date du Journal officiel qui le publie).
 

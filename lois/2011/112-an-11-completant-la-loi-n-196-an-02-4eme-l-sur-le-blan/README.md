@@ -1,6 +1,6 @@
 # Loi n° 112/AN/11/6ème L complétant la loi n° 196/AN/02/4ème L sur le blanchiment, la confiscation et la coopération internationale en matière de produit du crime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-11-6eme-l-completant-la-loi-n196-an-02-4eme-l-sur-le-blanchiment-la-confiscation-et-la-cooperation-internationale-en-matiere-de-produit-du-crime/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-11-6eme-l-completant-la-loi-n196-an-02-4eme-l-sur-le-blanchiment-la-confiscation-et-la-cooperation-internationale-en-matiere-de-produit-du-crime/>
 
 En vigueur : 2011-05-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

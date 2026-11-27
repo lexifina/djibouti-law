@@ -1,6 +1,6 @@
 # Rectificatif n° 35-450-1934 Effectif et hiérarchie du personnel des administrateurs des colonies (rectificatif).
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 450 du 31/05/1934 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-35-450-1934-effectif-et-hierarchie-du-personnel-des-administrateurs-des-colonies-rectificatif/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 450 du 31/05/1934 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-35-450-1934-effectif-et-hierarchie-du-personnel-des-administrateurs-des-colonies-rectificatif/>
 
 En vigueur : 1934-05-31 (date du Journal officiel qui le publie).
 

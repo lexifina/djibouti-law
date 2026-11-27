@@ -1,6 +1,6 @@
 # Décret n° 68-1040 portant règlement d’administration publique pour application Particle 38 de la loi n° 66-948 du 22 décembre 1966 étendant à certains territoires d’outre-mer la réglementation métropolitaine concernant le fonds de garantie et certaines dispositions relatives à l’institution d’un obligation d’assurance en matière de circulation de véhicules.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1040-portant-reglement-dadministration-publique-pour-application-particle-38-de-la-loi-n-66-948-du-22-decembre-1966-etendant-a-certains-territoires-doutre-mer-la-reglement/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1040-portant-reglement-dadministration-publique-pour-application-particle-38-de-la-loi-n-66-948-du-22-decembre-1966-etendant-a-certains-territoires-doutre-mer-la-reglement/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 

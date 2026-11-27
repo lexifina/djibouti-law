@@ -1,6 +1,6 @@
 # Loi n° 66-1022 modifiant et combplétant le Code électoral
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-66-1022-modifiant-et-combpletant-le-code-electoral/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/02/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-66-1022-modifiant-et-combpletant-le-code-electoral/>
 
 En vigueur : 1967-02-01 (date du Journal officiel qui le publie).
 

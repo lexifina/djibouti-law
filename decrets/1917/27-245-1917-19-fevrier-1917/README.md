@@ -1,6 +1,6 @@
 # Décret n° 27-245-1917 19 février 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 245 du 31/03/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-245-1917-19-fevrier-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 245 du 31/03/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-245-1917-19-fevrier-1917/>
 
 En vigueur : 1917-03-31 (date du Journal officiel qui le publie).
 

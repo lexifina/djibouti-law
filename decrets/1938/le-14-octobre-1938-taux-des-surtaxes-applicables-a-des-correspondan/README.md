@@ -1,6 +1,6 @@
 # Décret n° le 14 octobre 1938 modifiant le taux des surtaxes applicables à des correspondances-avion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-14-octobre-1938-modifiant-le-taux-des-surtaxes-applicables-a-des-correspondances-avion/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-14-octobre-1938-modifiant-le-taux-des-surtaxes-applicables-a-des-correspondances-avion/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 09-203-1913 26/10/1912
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 203 du 30/09/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-203-1913-26-10-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 203 du 30/09/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-203-1913-26-10-1912/>
 
 En vigueur : 1913-09-30 (date du Journal officiel qui le publie).
 

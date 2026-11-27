@@ -1,6 +1,6 @@
 # Ordonnance n° 77-022/PR/J modifiant l’article 9 du Code d’Instruction Criminelle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 29/08/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-022-pr-j-modifiant-larticle-9-du-code-dinstruction-criminelle/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 6 du 29/08/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-022-pr-j-modifiant-larticle-9-du-code-dinstruction-criminelle/>
 
 En vigueur : 1977-08-29 (date du Journal officiel qui le publie).
 

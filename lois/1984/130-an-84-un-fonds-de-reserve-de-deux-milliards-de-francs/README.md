@@ -1,6 +1,6 @@
 # Loi n° 130/AN/84/1re L instituant un fonds de réserve de deux milliards de francs Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-84-1re-l-instituant-un-fonds-de-reserve-de-deux-milliards-de-francs-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 31/12/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-84-1re-l-instituant-un-fonds-de-reserve-de-deux-milliards-de-francs-djibouti/>
 
 En vigueur : 1984-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-154/PRE portant exonération de la TIC au profit du projet de mise à niveau des réseaux locaux des ministères.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-154-pre-portant-exoneration-de-la-tic-au-profit-du-projet-de-mise-a-niveau-des-reseaux-locaux-des-ministeres/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-154-pre-portant-exoneration-de-la-tic-au-profit-du-projet-de-mise-a-niveau-des-reseaux-locaux-des-ministeres/>
 
 En vigueur : 2018-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

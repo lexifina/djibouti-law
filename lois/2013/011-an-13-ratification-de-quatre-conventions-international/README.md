@@ -2,7 +2,7 @@
 conventions internationales et un Protocole relatifs
 à la pollution maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-13-7eme-l-portant-ratification-de-quatre-conventions-internationales-et-un-protocole-relatifs-a-la-pollution-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-an-13-7eme-l-portant-ratification-de-quatre-conventions-internationales-et-un-protocole-relatifs-a-la-pollution-maritime/>
 
 En vigueur : 2013-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 204/AN/86/1ère L portant modification du règlement général du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/06/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-86-1ere-l-portant-modification-du-reglement-general-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/06/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n204-an-86-1ere-l-portant-modification-du-reglement-general-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1986-06-15 (date du Journal officiel qui le publie).
 

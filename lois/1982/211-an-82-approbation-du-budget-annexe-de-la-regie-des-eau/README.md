@@ -1,6 +1,6 @@
 # Loi n° 211/AN/82 portant approbation du budget annexe de la Régie des Eaux pour l’exercice 1982.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-82-portant-approbation-du-budget-annexe-de-la-regie-des-eaux-pour-lexercice-1982/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n211-an-82-portant-approbation-du-budget-annexe-de-la-regie-des-eaux-pour-lexercice-1982/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

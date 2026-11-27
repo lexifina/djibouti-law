@@ -1,6 +1,6 @@
 # Décret n° 2017-040/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les élections régionales et communales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 05/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-040-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 05/02/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-040-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales/>
 
 En vigueur : 2017-02-05 (date du Journal officiel qui le publie).
 

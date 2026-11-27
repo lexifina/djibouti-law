@@ -1,6 +1,6 @@
 # Décret n° 64-349 relatif aux radiocommunications intéressant les services aéronautiques dans les territoires d’outre-mer (J.O.R.F. du 24 avril 1964 p. 3636; arrêté de promulgation n° 577 du 30 avril 1964).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-349-relatif-aux-radiocommunications-interessant-les-services-aeronautiques-dans-les-territoires-doutre-mer-j-o-r-f-du-24-avril-1964-p-3636-arrete-de-promulgation-n-577-d/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-349-relatif-aux-radiocommunications-interessant-les-services-aeronautiques-dans-les-territoires-doutre-mer-j-o-r-f-du-24-avril-1964-p-3636-arrete-de-promulgation-n-577-d/>
 
 En vigueur : 1964-06-01 (date du Journal officiel qui le publie).
 
@@ -59,4 +59,4 @@ Jacques MARETIE.
 | [art-027.md](art-027.md) | Art. 27 |
 | [art-028.md](art-028.md) | Art. 28 |
 | [art-029.md](art-029.md) | Art. 29 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

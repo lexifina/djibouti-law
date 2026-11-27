@@ -1,6 +1,6 @@
 # Décret n° 24-462-1935 Discipline des greffiers des colonies, pays de protectorat et territoires relevant du ministère des colonies, autres que l’Indochine, la Martinique, la Guadeloupe et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-462-1935-discipline-des-greffiers-des-colonies-pays-de-protectorat-et-territoires-relevant-du-ministere-des-colonies-autres-que-lindochine-la-martinique-la-guadeloupe-e/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-462-1935-discipline-des-greffiers-des-colonies-pays-de-protectorat-et-territoires-relevant-du-ministere-des-colonies-autres-que-lindochine-la-martinique-la-guadeloupe-e/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

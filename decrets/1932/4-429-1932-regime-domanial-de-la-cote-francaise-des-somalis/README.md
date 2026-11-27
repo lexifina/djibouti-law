@@ -1,6 +1,6 @@
 # Décret n° 4-429-1932 Régime domanial de la Côte française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 429 du 31/08/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-429-1932-regime-domanial-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 429 du 31/08/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-429-1932-regime-domanial-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1932-08-31 (date du Journal officiel qui le publie).
 

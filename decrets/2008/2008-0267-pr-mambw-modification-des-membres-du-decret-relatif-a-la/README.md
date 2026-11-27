@@ -1,6 +1,6 @@
 # Décret n° 2008-0267/PR/MAMBW portant modification des membres du décret relatif à la création de la mission officielle du Pèlerinage pour l’année 2008.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0267-pr-mambw-portant-modification-des-membres-du-decret-relatif-a-la-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2008/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0267-pr-mambw-portant-modification-des-membres-du-decret-relatif-a-la-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2008/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

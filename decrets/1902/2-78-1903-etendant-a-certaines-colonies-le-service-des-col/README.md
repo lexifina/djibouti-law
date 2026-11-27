@@ -1,6 +1,6 @@
 # Décret n° 2-78-1903 étendant à certaines colonies le service des colis postaux de 5 à 10 Kilos et des colis postaux avec valeur déclarée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 78 du 01/03/1903 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-78-1903-etendant-a-certaines-colonies-le-service-des-colis-postaux-de-5-a-10-kilos-et-des-colis-postaux-avec-valeur-declaree/>
+Décret · Journal officiel de la République de Djibouti, n° 78 du 01/03/1903 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-78-1903-etendant-a-certaines-colonies-le-service-des-colis-postaux-de-5-a-10-kilos-et-des-colis-postaux-avec-valeur-declaree/>
 
 En vigueur : 1903-03-01 (date du Journal officiel qui le publie).
 

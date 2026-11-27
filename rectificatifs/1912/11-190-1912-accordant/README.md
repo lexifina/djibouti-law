@@ -1,6 +1,6 @@
 # Erratum n° 11-190-1912 accordant
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 190 du 30/09/1912 Â· <https://www.journalofficiel.dj/texte-juridique/erratum-n-11-190-1912-accordant/>
+Erratum · Journal officiel de la République de Djibouti, n° 190 du 30/09/1912 · <https://www.journalofficiel.dj/texte-juridique/erratum-n-11-190-1912-accordant/>
 
 En vigueur : 1912-09-30 (date du Journal officiel qui le publie).
 

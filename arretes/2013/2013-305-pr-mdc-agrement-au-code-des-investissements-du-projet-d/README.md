@@ -1,6 +1,6 @@
 # Arrêté n° 2013-305/PR/MDC portant Agrément au Code des Investissements du projet de travaux de BTP et de logement sociaux de la société “GROUP AL-BURUUJ SARL”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-305-pr-mdc-portant-agrement-au-code-des-investissements-du-projet-de-travaux-de-btp-et-de-logement-sociaux-de-la-societe-group-al-buruuj-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-305-pr-mdc-portant-agrement-au-code-des-investissements-du-projet-de-travaux-de-btp-et-de-logement-sociaux-de-la-societe-group-al-buruuj-sarl/>
 
 En vigueur : 2013-05-30 (date du Journal officiel qui le publie).
 

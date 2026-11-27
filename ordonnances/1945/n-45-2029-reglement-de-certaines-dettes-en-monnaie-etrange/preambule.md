@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Les evenements des dernières années ont eu pour effet de rendre impossible le règlement de la plupart des dettes libellées en monnaie étrangère et contractées à l’égard de personnes résidant à l’étranger Pour remédier aux conséquences de cette situation, un acte dit loi du 8 février 1941 a obligé ies personnes résidant en France à acquitter des dettes rentrant dans les catégories énumérées par des décisions de l’Office des changes, en versant la contre-valeur de ces dettes en francs français entre les mains de cet organisme, C’etait prévu que les versements ainsi effectués libéraient définitivement les débiteurs.
 Des dispositions générales de l’Office des vaques,.
 Il n’y a plus lieu aujourd’hui de laisser ces dispositions en vigueur pour l’avenir. La reprise des relations financières avec les principaux pays étrangers doit en effet entrainer le retour au régime normal des paiements entre la France et ces pays.

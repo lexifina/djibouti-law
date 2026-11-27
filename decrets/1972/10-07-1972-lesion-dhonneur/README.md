@@ -1,6 +1,6 @@
 # Décret n° 10/07/1972 Lésion d’Honneur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-07-1972-lesion-dhonneur/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-07-1972-lesion-dhonneur/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

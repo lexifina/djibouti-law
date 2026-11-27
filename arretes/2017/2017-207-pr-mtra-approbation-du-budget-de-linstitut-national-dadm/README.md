@@ -1,6 +1,6 @@
 # Arrêté n° 2017-207/PR/MTRA portant approbation du Budget de l’Institut National d’Administration Publique de l’Exercice 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-207-pr-mtra-portant-approbation-du-budget-de-linstitut-national-dadministration-publique-de-lexercice-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-207-pr-mtra-portant-approbation-du-budget-de-linstitut-national-dadministration-publique-de-lexercice-2018/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

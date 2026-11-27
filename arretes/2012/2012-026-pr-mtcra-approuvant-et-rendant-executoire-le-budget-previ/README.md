@@ -1,6 +1,6 @@
 # Arrêté n° 2012-026/PR/MTCRA approuvant et rendant exécutoire le budget prévisionnel de l’an 2012 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-026-pr-mtcra-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2012-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertio/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-026-pr-mtcra-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2012-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertio/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

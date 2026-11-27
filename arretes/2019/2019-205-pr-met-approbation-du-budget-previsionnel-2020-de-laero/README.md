@@ -1,6 +1,6 @@
 # Arrêté n° 2019-205/PR/MET portant approbation du budget prévisionnel 2020 de l’Aéroport International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-205-pr-met-portant-approbation-du-budget-previsionnel-2020-de-laeroport-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-205-pr-met-portant-approbation-du-budget-previsionnel-2020-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

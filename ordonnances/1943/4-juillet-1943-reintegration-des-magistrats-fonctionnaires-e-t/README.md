@@ -1,6 +1,6 @@
 # Ordonnance n° 4 juillet 1943 concernant la réintégration des magistrats, fonctionnaires e t agents civils et militaire s révoqués, mis à la retraite d office, licencies ou rétrogrades.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-4-juillet-1943-concernant-la-reintegration-des-magistrats-fonctionnaires-e-t-agents-civils-et-militaire-s-revoques-mis-a-la-retraite-d-office-licencies-ou-retrogrades/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-4-juillet-1943-concernant-la-reintegration-des-magistrats-fonctionnaires-e-t-agents-civils-et-militaire-s-revoques-mis-a-la-retraite-d-office-licencies-ou-retrogrades/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 
@@ -51,4 +51,4 @@ IL BONNET
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [art-010.md](art-010.md) | Art. 10– |
+| [art-010.md](art-010.md) | Art. 10 |

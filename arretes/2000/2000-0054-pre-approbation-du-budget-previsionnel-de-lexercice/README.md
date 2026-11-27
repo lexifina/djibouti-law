@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0054/PRE portant approbation du budget prévisionnel de l’exercice 2000 l’Etablissement Public du Palais du Peuple.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0054-pre-portant-approbation-du-budget-previsionnel-de-lexercice-2000-letablissement-public-du-palais-du-peuple/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0054-pre-portant-approbation-du-budget-previsionnel-de-lexercice-2000-letablissement-public-du-palais-du-peuple/>
 
 En vigueur : 2000-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 130 /90/2eL portant délégation d’une partie des pouvoirs de l’Assemblee nationale a la Commission permanente jusqu’a l’ouverture de la deuxiéme session ordinaire dite «session budgétaire»
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-90-2el-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordi/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-90-2el-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordi/>
 
 En vigueur : 1990-07-31 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ HASSAN GOULED aPTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |

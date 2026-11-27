@@ -1,6 +1,6 @@
 # Décret n° 2-415-1931 Organisation de la propriété foncière à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 415 du 30/06/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-415-1931-organisation-de-la-propriete-fonciere-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 415 du 30/06/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-415-1931-organisation-de-la-propriete-fonciere-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1931-06-30 (date du Journal officiel qui le publie).
 

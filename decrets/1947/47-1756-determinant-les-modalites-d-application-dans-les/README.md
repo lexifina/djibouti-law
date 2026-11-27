@@ -1,6 +1,6 @@
 # Décret n° 47-1756 déterminant les modalités d’application dans les territoires d’outre-mer de la loi n° 46-2385 du 27 octobre 1946 sur la composition et l’élection de l’Assemblée de l’Union française
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1756-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-de-la-loi-n-46-2385-du-27-octobre-1946-sur-la-composition-et-lelection-d/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1756-determinant-les-modalites-dapplication-dans-les-territoires-doutre-mer-de-la-loi-n-46-2385-du-27-octobre-1946-sur-la-composition-et-lelection-d/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ Marins MOUTET
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

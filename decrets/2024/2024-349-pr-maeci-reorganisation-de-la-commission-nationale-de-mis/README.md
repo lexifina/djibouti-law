@@ -1,8 +1,8 @@
 # Décret n° 2024-349/PR/MAECI portant réorganisation de la Commission Nationale de mise en œuvre du Mécanisme Africain d’Evaluation par les Pairs (MAEP).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-349-pr-maeci-portant-reorganisation-de-la-commission-nationale-de-mise-en-oeuvre-du-mecanisme-africain-devaluation-par-les-pairs-maep/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-349-pr-maeci-portant-reorganisation-de-la-commission-nationale-de-mise-en-oeuvre-du-mecanisme-africain-devaluation-par-les-pairs-maep/>
 
-En vigueur : 2024-12-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-12-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

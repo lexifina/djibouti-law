@@ -1,6 +1,6 @@
 # Décret n° 2008-0262/PR/MJSLT portant mise en place du Comité chargé de la Détection des jeunes athlètes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0262-pr-mjslt-portant-mise-en-place-du-comite-charge-de-la-detection-des-jeunes-athletes/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0262-pr-mjslt-portant-mise-en-place-du-comite-charge-de-la-detection-des-jeunes-athletes/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

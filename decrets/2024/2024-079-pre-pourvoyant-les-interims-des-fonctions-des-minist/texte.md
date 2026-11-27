@@ -1,2 +1,0 @@
-Par décret n°2024-079/PRE, du Président de la République, chef du Gouvernement, en date du 17 avril 2024, pendant la durée de l’absence de S.E.M. YONIS ALI GUEDI, l’intérim des fonctions du Ministre de l’Energie, chargé des Ressources Naturelles sera assuré par S.E.M MOHAMED WARSAMA DIRIEH, Ministre du Commerce et du Tourisme cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

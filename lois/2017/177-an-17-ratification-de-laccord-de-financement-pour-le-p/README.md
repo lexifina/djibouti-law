@@ -1,6 +1,6 @@
 # Loi n° 177/AN/17/7ème L portant ratification de l’accord de financement pour le projet de développement pour la gouvernance du secteur privé et du secteur financier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-17-7eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-pour-la-gouvernance-du-secteur-prive-et-du-secteur-financier/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-17-7eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-pour-la-gouvernance-du-secteur-prive-et-du-secteur-financier/>
 
 En vigueur : 2017-04-30 (date du Journal officiel qui le publie).
 

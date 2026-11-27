@@ -1,8 +1,8 @@
 # Décret n° 2001-0018/PR/MS fixant les bonifications indiciaires de cadre allouées aux techniciens supérieurs de Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0018-pr-ms-fixant-les-bonifications-indiciaires-de-cadre-allouees-aux-techniciens-superieurs-de-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0018-pr-ms-fixant-les-bonifications-indiciaires-de-cadre-allouees-aux-techniciens-superieurs-de-sante/>
 
-En vigueur : 2001-01-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2001-01-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 141/AN/01/4ème L complétant la loi n° 116/AN/01/4ème L du 21 janvier 2001 portant réorganisation et changement de la dénomination de l’ISERST en Centre d’Etudes et de Recherches Scientifiques de Djibouti (C.E.R.D.).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-01-4eme-l-completant-la-loi-n116-an-01-4eme-l-du-21-janvier-2001-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-detudes-et-de-re/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 15/10/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n141-an-01-4eme-l-completant-la-loi-n116-an-01-4eme-l-du-21-janvier-2001-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-detudes-et-de-re/>
 
 En vigueur : 2001-10-15 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

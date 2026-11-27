@@ -1,6 +1,6 @@
 # Décret n° 74-220 portant réglementation du service des chèques postaux dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-220-portant-reglementation-du-service-des-cheques-postaux-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 10/04/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-220-portant-reglementation-du-service-des-cheques-postaux-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1974-04-10 (date du Journal officiel qui le publie).
 

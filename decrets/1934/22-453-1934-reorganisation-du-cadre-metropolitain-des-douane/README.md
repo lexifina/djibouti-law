@@ -1,6 +1,6 @@
 # Décret n° 22/453/1934 Réorganisation du cadre métropolitain des douanes de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 453 du 31/08/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-453-1934-reorganisation-du-cadre-metropolitain-des-douanes-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 453 du 31/08/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-453-1934-reorganisation-du-cadre-metropolitain-des-douanes-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1934-08-31 (date du Journal officiel qui le publie).
 

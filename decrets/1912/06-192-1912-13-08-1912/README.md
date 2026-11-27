@@ -1,6 +1,6 @@
 # Décret n° 06-192-1912 13/08/1912
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 192 du 01/11/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-192-1912-13-08-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 192 du 01/11/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-192-1912-13-08-1912/>
 
 En vigueur : 1912-11-01 (date du Journal officiel qui le publie).
 

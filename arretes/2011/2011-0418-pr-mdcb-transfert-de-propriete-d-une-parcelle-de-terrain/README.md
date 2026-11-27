@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0418/PR/MDCB portant transfert de propriété d’une parcelle de terrain entre Djibouti Télécom et la Direction des Domaines.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0418-pr-mdcb-portant-transfert-de-propriete-dune-parcelle-de-terrain-entre-djibouti-telecom-et-la-direction-des-domaines/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0418-pr-mdcb-portant-transfert-de-propriete-dune-parcelle-de-terrain-entre-djibouti-telecom-et-la-direction-des-domaines/>
 
 En vigueur : 2011-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0379/PR/MERN Approuvant et rendant exécutoire le budget prévisionnel l’an 2005 de la Société Internationale des Hydrocarbures de Djibouti (SIHD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0379-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-lan-2005-de-la-societe-internationale-des-hydrocarbures-de-djibouti-sihd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0379-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-lan-2005-de-la-societe-internationale-des-hydrocarbures-de-djibouti-sihd/>
 
 En vigueur : 2005-06-15 (date du Journal officiel qui le publie).
 

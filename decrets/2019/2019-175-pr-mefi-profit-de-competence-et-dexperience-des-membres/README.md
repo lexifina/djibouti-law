@@ -1,6 +1,6 @@
 # Décret n° 2019-175/PR/MEFI fixant le profit de compétence et d’expérience des membres du Conseil d’administration des Entreprises Publiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-175-pr-mefi-fixant-le-profit-de-competence-et-dexperience-des-membres-du-conseil-dadministration-des-entreprises-publiques/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-175-pr-mefi-fixant-le-profit-de-competence-et-dexperience-des-membres-du-conseil-dadministration-des-entreprises-publiques/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -26,4 +26,4 @@ ABDOULKADER KAMIL MOHAMED
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

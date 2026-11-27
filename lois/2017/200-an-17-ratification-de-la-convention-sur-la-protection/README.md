@@ -1,6 +1,6 @@
 # Loi n° 200/AN/17/7ème L portant ratification de la Convention sur la protection des biens culturels en cas de conflits armé de 1954 et de ses 2 protocoles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-17-7eme-l-portant-ratification-de-la-convention-sur-la-protection-des-biens-culturels-en-cas-de-conflits-arme-de-1954-et-de-ses-2-protocoles/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-17-7eme-l-portant-ratification-de-la-convention-sur-la-protection-des-biens-culturels-en-cas-de-conflits-arme-de-1954-et-de-ses-2-protocoles/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

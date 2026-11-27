@@ -1,6 +1,6 @@
 # Loi n° 159/AN/06/5ème L portant ratification de l’Accord sur les cautions de garantie pour le trafic de transit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-06-5eme-l-portant-ratification-de-laccord-sur-les-cautions-de-garantie-pour-le-trafic-de-transit/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-06-5eme-l-portant-ratification-de-laccord-sur-les-cautions-de-garantie-pour-le-trafic-de-transit/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

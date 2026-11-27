@@ -1,6 +1,6 @@
 # Loi n° 123/AN/21/8ème L portant ratification de l’Accord de financement pour le projet de renforcement de la résilience économique des entreprises vulnérables en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-21-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-renforcement-de-la-resilience-economique-des-entreprises-vulnerables-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-21-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-renforcement-de-la-resilience-economique-des-entreprises-vulnerables-en-republique-de-djibouti/>
 
 En vigueur : 2021-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

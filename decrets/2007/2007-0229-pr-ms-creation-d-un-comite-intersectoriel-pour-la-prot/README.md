@@ -1,6 +1,6 @@
 # Décret n° 2007-0229/PR/MS portant création d’un Comité Intersectoriel pour la Protection de la Santé contre le Tabagisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0229-pr-ms-portant-creation-dun-comite-intersectoriel-pour-la-protection-de-la-sante-contre-le-tabagisme/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0229-pr-ms-portant-creation-dun-comite-intersectoriel-pour-la-protection-de-la-sante-contre-le-tabagisme/>
 
 En vigueur : 2007-12-15 (date du Journal officiel qui le publie).
 

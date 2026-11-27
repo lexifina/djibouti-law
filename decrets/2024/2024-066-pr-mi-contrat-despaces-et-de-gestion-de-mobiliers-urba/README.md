@@ -1,6 +1,6 @@
 # Décret n° 2024-066/PR/MI portant contrat d’espaces et de gestion de mobiliers urbains.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 31/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-066-pr-mi-portant-contrat-despaces-et-de-gestion-de-mobiliers-urbains/>
+Décret · Journal officiel de la République de Djibouti, n° 06 du 31/03/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-066-pr-mi-portant-contrat-despaces-et-de-gestion-de-mobiliers-urbains/>
 
 En vigueur : 2024-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

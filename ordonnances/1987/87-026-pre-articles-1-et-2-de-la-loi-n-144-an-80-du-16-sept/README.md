@@ -1,8 +1,8 @@
 # Ordonnance n° 87-026/PRE modifiant les articles 1 et 2 de la loi n° 144/AN/80 du 16 septembre 1980 portant Code Pénitentiaire.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/04/1987 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-026-pre-modifiant-les-articles-1-et-2-de-la-loi-n144-an-80-du-16-septembre-1980-portant-code-penitentiaire/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 6 du 30/04/1987 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-026-pre-modifiant-les-articles-1-et-2-de-la-loi-n144-an-80-du-16-septembre-1980-portant-code-penitentiaire/>
 
-En vigueur : 1987-03-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-03-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

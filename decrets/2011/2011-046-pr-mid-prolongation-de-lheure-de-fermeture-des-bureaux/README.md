@@ -1,6 +1,6 @@
 # Décret n° 2011-046/PR/MID portant prolongation de l’heure de fermeture des bureaux de vote sur l’ensemble du Territoire de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-046-pr-mid-portant-prolongation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 17/04/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-046-pr-mid-portant-prolongation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
 
 En vigueur : 2011-04-17 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 168/AN/22/8ème L portant création du Fonds de Soutien pour le Handicap (FSH).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-22-8eme-l-portant-creation-du-fonds-de-soutien-pour-le-handicap-fsh/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-22-8eme-l-portant-creation-du-fonds-de-soutien-pour-le-handicap-fsh/>
 
 En vigueur : 2022-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -38,4 +38,4 @@ ISMAÏL OMAR GUELLEH
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

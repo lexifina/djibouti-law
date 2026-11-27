@@ -1,6 +1,6 @@
 # Décret n° 02-446-1934 interministériel déterminant les conditions d’application et de procédure de l’article 24 de la loi du 31 mars 1928 (allocations aux familles dont les soutiens indispensables sont appelés sous le drapeaux) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 446 du 01/01/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-446-1934-interministeriel-determinant-les-conditions-dapplication-et-de-procedure-de-larticle-24-de-la-loi-du-31-mars-1928-allocations-aux-familles-dont-les-soutiens-indispensa/>
+Décret · Journal officiel de la République de Djibouti, n° 446 du 01/01/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-446-1934-interministeriel-determinant-les-conditions-dapplication-et-de-procedure-de-larticle-24-de-la-loi-du-31-mars-1928-allocations-aux-familles-dont-les-soutiens-indispensa/>
 
 En vigueur : 1934-01-01 (date du Journal officiel qui le publie).
 
@@ -49,4 +49,4 @@ André FALLIÈRES.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

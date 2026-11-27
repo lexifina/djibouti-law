@@ -1,6 +1,6 @@
 # Décret n° 2019-176/PR/MEFI définissant les critères d’indépendances des administrateurs d’Entreprises publiques et les procédures relatives aux conflits d’intérêts des administrateurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-176-pr-mefi-definissant-les-criteres-dindependances-des-administrateurs-dentreprises-publiques-et-les-procedures-relatives-aux-conflits-dinterets-des-administrateurs/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-176-pr-mefi-definissant-les-criteres-dindependances-des-administrateurs-dentreprises-publiques-et-les-procedures-relatives-aux-conflits-dinterets-des-administrateurs/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

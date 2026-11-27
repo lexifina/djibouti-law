@@ -1,6 +1,6 @@
 # Décret n° 90-0686 / PR / MCTT Fixant les orix CAF des hydrocarbures vendus au détail Le président de la République, chef du‘gouvernement ; Vu les lois constitutionnelles n° s LR / 77-001 et LR/ 77-002 en date du 27 juin
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-0686-pr-mctt-fixant-les-orix-caf-des-hydrocarbures-vendus-au-detail-le-president-de-la-republique-chef-dugouvernement-vu-les-lois-constitutionnelles-ns-lr-77-0/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-0686-pr-mctt-fixant-les-orix-caf-des-hydrocarbures-vendus-au-detail-le-president-de-la-republique-chef-dugouvernement-vu-les-lois-constitutionnelles-ns-lr-77-0/>
 
 En vigueur : 1990-07-31 (date du Journal officiel qui le publie).
 
@@ -26,6 +26,6 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

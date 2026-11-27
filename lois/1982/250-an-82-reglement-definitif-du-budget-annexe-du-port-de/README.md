@@ -1,6 +1,6 @@
 # Loi de finances n° 250/AN/82 portant règlement définitif du budget annexe du port de commerce de Djibouti, pour l’exercice 1980.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 08/06/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n250-an-82-portant-reglement-definitif-du-budget-annexe-du-port-de-commerce-de-djibouti-pour-lexercice-1980/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 3 du 08/06/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n250-an-82-portant-reglement-definitif-du-budget-annexe-du-port-de-commerce-de-djibouti-pour-lexercice-1980/>
 
 En vigueur : 1982-06-08 (date du Journal officiel qui le publie).
 

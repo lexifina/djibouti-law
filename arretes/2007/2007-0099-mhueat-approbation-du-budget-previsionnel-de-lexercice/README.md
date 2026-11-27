@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0099/MHUEAT portant approbation du Budget prévisionnel de l’Exercice 2007 de la Société Immobilière de Djibouti (SID).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0099-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2007-de-la-societe-immobiliere-de-djibouti-sid/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0099-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2007-de-la-societe-immobiliere-de-djibouti-sid/>
 
 En vigueur : 2007-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0179/PR/MCCPT portant approbation du budget prévisionnel de la Radio-Télévision de Djibouti pour l’Exercice 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0179-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2005/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0179-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2005/>
 
 En vigueur : 2005-03-15 (date du Journal officiel qui le publie).
 

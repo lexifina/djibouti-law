@@ -1,6 +1,6 @@
 # Loi n° 174/AN/12/6ème L portant ratification d’un accord cadre sur le système de préférence commerciale entre les États Membres de l’Organisation de la Coopération Islamique (O.C.I).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-12-6eme-l-portant-ratification-dun-accord-cadre-sur-le-systeme-de-preference-commerciale-entre-les-etats-membres-de-lorganisation-de-la-cooperation-islamique-o-c/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n174-an-12-6eme-l-portant-ratification-dun-accord-cadre-sur-le-systeme-de-preference-commerciale-entre-les-etats-membres-de-lorganisation-de-la-cooperation-islamique-o-c/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

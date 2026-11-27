@@ -1,6 +1,6 @@
 # Arrêté n° 97-0168/PR/MTT rendant exécutoire la résolution n° 01 du 06 janvier 1997 du Conseil d’Administration de l’Aéroport de Djibouti, portant approbation du Compte Prévisionnel de l’exercice 1997.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0168-pr-mtt-rendant-executoire-la-resolution-n01-du-06-janvier-1997-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-compte-previsionnel-de-lexe/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 27/02/1997 · <https://www.journalofficiel.dj/texte-juridique/arrete-n97-0168-pr-mtt-rendant-executoire-la-resolution-n01-du-06-janvier-1997-du-conseil-dadministration-de-laeroport-de-djibouti-portant-approbation-du-compte-previsionnel-de-lexe/>
 
 En vigueur : 1997-02-27 (date du Journal officiel qui le publie).
 

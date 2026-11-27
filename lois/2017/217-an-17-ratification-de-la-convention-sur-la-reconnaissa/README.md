@@ -1,6 +1,6 @@
 # Loi n° 217/AN/17/7ème L portant ratification de la Convention sur la reconnaissance des études et des certifications, diplômes, grades et autres titres de l’enseignement supérieur dans les Etats d’Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-17-7eme-l-portant-ratification-de-la-convention-sur-la-reconnaissance-des-etudes-et-des-certifications-diplomes-grades-et-autres-titres-de-lenseignement-superieur-dans-les-eta/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-17-7eme-l-portant-ratification-de-la-convention-sur-la-reconnaissance-des-etudes-et-des-certifications-diplomes-grades-et-autres-titres-de-lenseignement-superieur-dans-les-eta/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

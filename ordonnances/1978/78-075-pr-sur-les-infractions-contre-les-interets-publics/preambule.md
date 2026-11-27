@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Article. ler : Sont amnistiées les infractions, commises avant la date de promulgation de la présente ordonnance, prévues aux articles 142, alinéa 3, 143, alinéa 2, 145, à 149, 153 à 164, 169 à 183, du Code pénal, sous réserve du droit de l’État, des personnes de droit public, des tiers, de poursuivre la réparation des préjudices qu’elles ont subi et de recouvrer les droits, valeurs, taxes et redevances omis ou détournés.

@@ -1,6 +1,6 @@
 # Loi de finances n° 6/AN/82 du budget annexe de la Régie des Eaux l’exercice 1982.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n6-an-82-du-budget-annexe-de-la-regie-des-eaux-lexercice-1982/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n6-an-82-du-budget-annexe-de-la-regie-des-eaux-lexercice-1982/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

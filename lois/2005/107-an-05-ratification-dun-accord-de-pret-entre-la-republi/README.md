@@ -1,6 +1,6 @@
 # Loi n° 107/AN/05/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement (BID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-05-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

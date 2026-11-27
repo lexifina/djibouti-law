@@ -1,8 +1,8 @@
 # Décret n° 2017-141/PR/MHUE portant obligation des inspections et des contrôles de qualité des constructions en dur et de souscription à une assurance pour des constructions de grande envergure.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-141-pr-mhue-portant-obligation-des-inspections-et-des-controles-de-qualite-des-constructions-en-dur-et-de-souscription-a-une-assurance-pour-des-constructions-de-grande-envergure/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-141-pr-mhue-portant-obligation-des-inspections-et-des-controles-de-qualite-des-constructions-en-dur-et-de-souscription-a-une-assurance-pour-des-constructions-de-grande-envergure/>
 
-En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-04-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

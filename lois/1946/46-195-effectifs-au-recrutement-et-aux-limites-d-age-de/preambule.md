@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE Ier.
 EFFECTIFS ET RECRUTEMENT.

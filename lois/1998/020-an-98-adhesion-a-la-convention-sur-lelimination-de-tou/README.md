@@ -1,6 +1,6 @@
 # Loi n° 20/AN/98/4ème L portant adhésion à la Convention sur l’élimination de toutes les formes de discrimination à l’égard des femmes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-98-4eme-l-portant-adhesion-a-la-convention-sur-lelimination-de-toutes-les-formes-de-discrimination-a-legard-des-femmes/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-98-4eme-l-portant-adhesion-a-la-convention-sur-lelimination-de-toutes-les-formes-de-discrimination-a-legard-des-femmes/>
 
 En vigueur : 1998-05-31 (date du Journal officiel qui le publie).
 

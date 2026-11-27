@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITTRE Ier.
 DISPOSITIONS GERERALES.

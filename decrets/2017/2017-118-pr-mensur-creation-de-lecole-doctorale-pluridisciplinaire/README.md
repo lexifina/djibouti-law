@@ -1,6 +1,6 @@
 # Décret n° 2017-118/PR/MENSUR portant création de l’Ecole Doctorale Pluridisciplinaire de l’Université de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-118-pr-mensur-portant-creation-de-lecole-doctorale-pluridisciplinaire-de-luniversite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-118-pr-mensur-portant-creation-de-lecole-doctorale-pluridisciplinaire-de-luniversite-de-djibouti/>
 
 En vigueur : 2017-03-30 (date du Journal officiel qui le publie).
 

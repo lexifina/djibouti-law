@@ -1,6 +1,6 @@
 # Décret n° 2002-0233/PRE portant autorisation de mise en concession du bac de «L’UNITE».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 16/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0233-pre-portant-autorisation-de-mise-en-concession-du-bac-de-lunite/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 16/11/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0233-pre-portant-autorisation-de-mise-en-concession-du-bac-de-lunite/>
 
 En vigueur : 2002-11-16 (date du Journal officiel qui le publie).
 

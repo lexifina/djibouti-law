@@ -1,8 +1,8 @@
 # Décret n° du 31 mars 1939 portant approbation et publication de l’accord de payement conclu entre la France et la Pologne le 27 mars 1939.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-31-mars-1939-portant-approbation-et-publication-de-laccord-de-payement-conclu-entre-la-france-et-la-pologne-le-27-mars-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-31-mars-1939-portant-approbation-et-publication-de-laccord-de-payement-conclu-entre-la-france-et-la-pologne-le-27-mars-1939/>
 
-En vigueur : 1939-04-01 (date fixÃ©e par le texte).
+En vigueur : 1939-04-01 (date fixée par le texte).
 
 ## Visas
 

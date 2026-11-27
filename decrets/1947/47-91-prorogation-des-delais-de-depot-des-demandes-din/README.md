@@ -1,6 +1,6 @@
 # Décret n° 47-91 portant prorogation des délais de dépôt des demandes d’indemnisation de perle et des déclarations de bénéfice résultant de la modification des taux de change dans la zone franc.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-91-portant-prorogation-des-delais-de-depot-des-demandes-dindemnisation-de-perle-et-des-declarations-de-benefice-resultant-de-la-modification-des-taux-de-change-dans-la-zone-franc/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-91-portant-prorogation-des-delais-de-depot-des-demandes-dindemnisation-de-perle-et-des-declarations-de-benefice-resultant-de-la-modification-des-taux-de-change-dans-la-zone-franc/>
 
 En vigueur : 1947-02-28 (date du Journal officiel qui le publie).
 

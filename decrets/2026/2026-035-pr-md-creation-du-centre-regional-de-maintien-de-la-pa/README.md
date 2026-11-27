@@ -1,6 +1,6 @@
 # Décret n° 2026-035/PR/MD portant création du Centre Régional de Maintien de la Paix MARYAMA (C.R.M.P.M).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 15/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-035-pr-md-portant-creation-du-centre-regional-de-maintien-de-la-paix-maryama-c-r-m-p-m/>
+Décret · Journal officiel de la République de Djibouti, n° 03 du 15/02/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-035-pr-md-portant-creation-du-centre-regional-de-maintien-de-la-paix-maryama-c-r-m-p-m/>
 
 En vigueur : 2026-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

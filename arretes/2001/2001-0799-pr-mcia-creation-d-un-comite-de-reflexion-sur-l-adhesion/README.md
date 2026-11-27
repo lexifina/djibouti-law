@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0799/PR/MCIA portant création d’un Comité de Réflexion sur l’adhésion de Djibouti au traité de l’OHADA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0799-pr-mcia-portant-creation-dun-comite-de-reflexion-sur-ladhesion-de-djibouti-au-traite-de-lohada/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0799-pr-mcia-portant-creation-dun-comite-de-reflexion-sur-ladhesion-de-djibouti-au-traite-de-lohada/>
 
 En vigueur : 2001-10-31 (date du Journal officiel qui le publie).
 

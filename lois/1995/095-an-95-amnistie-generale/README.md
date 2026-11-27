@@ -1,6 +1,6 @@
 # Loi n° 95/AN/95/3e L Portant amnistie générale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-95-3e-l-portant-amnistie-generale/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n95-an-95-3e-l-portant-amnistie-generale/>
 
 En vigueur : 1996-04-15 (date du Journal officiel qui le publie).
 

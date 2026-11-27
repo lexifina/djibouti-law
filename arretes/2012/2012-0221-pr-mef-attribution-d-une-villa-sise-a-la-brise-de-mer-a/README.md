@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0221/PR/MEF portant attribution d’une villa sise à la brise de Mer au Docteur Omar Osman Rabeh.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0221-pr-mef-portant-attribution-dune-villa-sise-a-la-brise-de-mer-au-docteur-omar-osman-rabeh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0221-pr-mef-portant-attribution-dune-villa-sise-a-la-brise-de-mer-au-docteur-omar-osman-rabeh/>
 
 En vigueur : 2012-04-15 (date du Journal officiel qui le publie).
 

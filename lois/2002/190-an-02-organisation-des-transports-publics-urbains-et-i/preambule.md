@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 – Preambule –
 Définitions
 Au sens de la présente Loi, les définitions suivantes s’appliquent :

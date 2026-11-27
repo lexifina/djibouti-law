@@ -1,6 +1,6 @@
 # Loi n° 72-594 portant modification de l’ordonnance n° 59-244 du 4 février 1959 relative au statut général des fonctionnaires
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-594-portant-modification-de-lordonnance-n-59-244-du-4-fevrier-1959-relative-au-statut-general-des-fonctionnaires/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-594-portant-modification-de-lordonnance-n-59-244-du-4-fevrier-1959-relative-au-statut-general-des-fonctionnaires/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

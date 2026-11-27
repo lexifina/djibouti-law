@@ -1,6 +1,6 @@
 # Loi n° 175/AN/02/4ème L portant approbation d’un Accord de Prêt entre la République de Djibouti et le Fonds Africain de Développement (FAD) sur le prêt supplémentaire pour le Projet de Développement intégré de la Pêche.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-02-4eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad-sur-le-pret-supplementaire-pour-le-projet-de-dev/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-02-4eme-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-fad-sur-le-pret-supplementaire-pour-le-projet-de-dev/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

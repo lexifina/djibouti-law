@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art. Ier. Sont abrogées pour la durée îles hostilités les dispositions île 1 article onze, paragraphe b, du décret du 1er septembre 1939, étendues aux personnels civils des colonies par le décret du 12 septembre 1939, et relatives à l’avancement îles fonctionnaires et agents rétribués sur les budgets généraux, locaux ou spéciaux des colonies.
 En conséquence, les fonctionnaires et agents, rappelés ou maintenus en activité, recouvrent les droits attachés à la position d’activité, notamment le droit à la solde, le droit à l’avancement et le droit à la pension. Ils sont replacés dans la situation des fonctionnaires et agents civils dont le décret du 20 mai 1941 a fixé le satut.

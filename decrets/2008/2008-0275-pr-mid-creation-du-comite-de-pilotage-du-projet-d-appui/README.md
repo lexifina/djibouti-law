@@ -1,8 +1,8 @@
 # Décret n° 2008-0275/PR/MID portant création du Comité de Pilotage du Projet d’Appui à la Décentralisation et aux Collectivités Locales (PADCL).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0275-pr-mid-portant-creation-du-comite-de-pilotage-du-projet-dappui-a-la-decentralisation-et-aux-collectivites-locales-padcl/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0275-pr-mid-portant-creation-du-comite-de-pilotage-du-projet-dappui-a-la-decentralisation-et-aux-collectivites-locales-padcl/>
 
-En vigueur : 2008-11-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2008-11-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

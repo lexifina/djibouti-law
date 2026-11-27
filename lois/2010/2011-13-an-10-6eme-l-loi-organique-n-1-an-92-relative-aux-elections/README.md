@@ -1,6 +1,6 @@
 # Loi n° 2011-13/AN/10/6ème L modifiant la Loi Organique n° 1/AN/92 relative aux élections.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2011-13-an-10-6eme-l-modifiant-la-loi-organique-n1-an-92-relative-aux-elections/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n2011-13-an-10-6eme-l-modifiant-la-loi-organique-n1-an-92-relative-aux-elections/>
 
 En vigueur : 2011-02-15 (date du Journal officiel qui le publie).
 

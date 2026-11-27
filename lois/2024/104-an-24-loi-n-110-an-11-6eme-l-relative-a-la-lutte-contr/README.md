@@ -1,8 +1,8 @@
 # Loi n° 104/AN/24/9ème L modifiant la Loi n° 110/AN/11/6ème L relative à la lutte contre le financement du terrorisme
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-24-9eme-l-modifiant-la-loi-n110-an-11-6eme-l-relative-a-la-lutte-contre-le-financement-du-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-24-9eme-l-modifiant-la-loi-n110-an-11-6eme-l-relative-a-la-lutte-contre-le-financement-du-terrorisme/>
 
-En vigueur : 2024-03-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-03-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -68,4 +68,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

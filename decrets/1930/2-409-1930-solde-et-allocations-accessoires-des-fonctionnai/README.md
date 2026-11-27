@@ -1,6 +1,6 @@
 # Décret n° 2-409-1930 Solde et allocations accessoires des fonctionnaires, employés et agents des services coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-409-1930-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-409-1930-solde-et-allocations-accessoires-des-fonctionnaires-employes-et-agents-des-services-coloniaux/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 

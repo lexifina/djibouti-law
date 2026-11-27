@@ -1,6 +1,6 @@
 # Loi n° 149/AN/11/6ème L portant modification de la loi n° 174/AN/02/4ème L portant décentralisation et statut des régions et de l’article 6 de la Loi n° 122/AN/05/5ème L portant sur le statut de la ville de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-11-6eme-l-portant-modification-de-la-loi-n174-an-02-4eme-l-portant-decentralisation-et-statut-des-regions-et-de-larticle-6-de-la-loi-n122-an-05-5eme-l-portant-s/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n149-an-11-6eme-l-portant-modification-de-la-loi-n174-an-02-4eme-l-portant-decentralisation-et-statut-des-regions-et-de-larticle-6-de-la-loi-n122-an-05-5eme-l-portant-s/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

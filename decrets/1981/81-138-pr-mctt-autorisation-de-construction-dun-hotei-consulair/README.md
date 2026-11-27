@@ -1,6 +1,6 @@
 # Décret n° 81-138/PR/MCTT portant autorisation de construction d’un hotei consulaire par la Chambre internationale de Commerce et d’Industrie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-138-pr-mctt-portant-autorisation-de-construction-dun-hotei-consulaire-par-la-chambre-internationale-de-commerce-et-dindustrie/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-138-pr-mctt-portant-autorisation-de-construction-dun-hotei-consulaire-par-la-chambre-internationale-de-commerce-et-dindustrie/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 

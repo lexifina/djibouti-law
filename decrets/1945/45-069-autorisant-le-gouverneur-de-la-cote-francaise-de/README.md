@@ -1,6 +1,6 @@
 # Décret n° 45.069 autorisant le Gouverneur de la Côte Française des Somalis à procéder à titre exceptionnel à la révision et à l’établissement des listes électorales pour l’année 1946 en vue des élections au Conseil représentatif
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-069-autorisant-le-gouverneur-de-la-cote-francaise-des-somalis-a-proceder-a-titre-exceptionnel-a-la-revision-et-a-letablissement-des-listes-electorales-pour-lannee-2/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-069-autorisant-le-gouverneur-de-la-cote-francaise-des-somalis-a-proceder-a-titre-exceptionnel-a-la-revision-et-a-letablissement-des-listes-electorales-pour-lannee-2/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

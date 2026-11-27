@@ -1,6 +1,6 @@
 # Loi n° 232/AN/82 portant création du grade de major dans le corps de la Force nationale de Sécurité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-82-portant-creation-du-grade-de-major-dans-le-corps-de-la-force-nationale-de-securite/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n232-an-82-portant-creation-du-grade-de-major-dans-le-corps-de-la-force-nationale-de-securite/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

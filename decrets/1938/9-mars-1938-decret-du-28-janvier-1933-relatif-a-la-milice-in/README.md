@@ -1,6 +1,6 @@
 # Décret n° 9 mars 1938 modifiant le décret du 28 janvier 1933 relatif à la milice indigène de la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 497 du 30/04/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mars-1938-modifiant-le-decret-du-28-janvier-1933-relatif-a-la-milice-indigene-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 497 du 30/04/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-mars-1938-modifiant-le-decret-du-28-janvier-1933-relatif-a-la-milice-indigene-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-04-30 (date du Journal officiel qui le publie).
 

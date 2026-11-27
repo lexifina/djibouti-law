@@ -1,6 +1,6 @@
 # Ordonnance n° 77-070/PR portant création de la Banque nationale de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-070-pr-portant-creation-de-la-banque-nationale-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-070-pr-portant-creation-de-la-banque-nationale-de-djibouti/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 

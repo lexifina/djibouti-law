@@ -1,6 +1,6 @@
 # Décret n° 6-205-1913 déterminant, pour la Côte Française des Somalis, les limites des catégories de navigation maritime et le tonnage marides embarcations armées au bornage « Journal Officiel » du 4 novembre 1913).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 205 du 30/11/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-205-1913-determinant-pour-la-cote-francaise-des-somalis-les-limites-des-categories-de-navigation-maritime-et-le-tonnage-marides-embarcations-armees-au-bornage-journal-officie/>
+Décret · Journal officiel de la République de Djibouti, n° 205 du 30/11/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-205-1913-determinant-pour-la-cote-francaise-des-somalis-les-limites-des-categories-de-navigation-maritime-et-le-tonnage-marides-embarcations-armees-au-bornage-journal-officie/>
 
 En vigueur : 1913-11-30 (date du Journal officiel qui le publie).
 
@@ -26,6 +26,6 @@ J. MOREL.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article premier |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Décret n° 46-16614 complétant le décret du 31 mai 1916 pris pour l’application aux départements et aux territoires relevant du ministère de la France d’outre-mer. autres «pic l’Indochine, de la loi du 10 mai 1916 portant fixation de la date légale de ces nation des hostilités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-16614-completant-le-decret-du-31-mai-1916-pris-pour-lapplication-aux-departements-et-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-pic-lin/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-16614-completant-le-decret-du-31-mai-1916-pris-pour-lapplication-aux-departements-et-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-pic-lin/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

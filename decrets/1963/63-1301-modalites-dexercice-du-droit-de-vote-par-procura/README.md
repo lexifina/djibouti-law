@@ -1,6 +1,6 @@
 # Décret n° 63-1301 relatif aux modalités d’exercice du droit- de vote par procuration.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-1301-relatif-aux-modalites-dexercice-du-droit-de-vote-par-procuration/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-1301-relatif-aux-modalites-dexercice-du-droit-de-vote-par-procuration/>
 
 En vigueur : 1964-03-01 (date du Journal officiel qui le publie).
 

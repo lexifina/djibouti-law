@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0098/PR/MJSLT portant Création d’un Comité National d’Organisation du Conseil National de la Jeunesse.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0098-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-conseil-national-de-la-jeunesse/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0098-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-conseil-national-de-la-jeunesse/>
 
 En vigueur : 2007-01-31 (date du Journal officiel qui le publie).
 

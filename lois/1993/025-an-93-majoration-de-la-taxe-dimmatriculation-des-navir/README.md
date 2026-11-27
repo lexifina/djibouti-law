@@ -1,6 +1,6 @@
 # Loi n° 25/AN/93/3ème L portant majoration de la taxe d’immatriculation des navires de plaisance et des engins de sport propulsés par un moteur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-93-3eme-l-portant-majoration-de-la-taxe-dimmatriculation-des-navires-de-plaisance-et-des-engins-de-sport-propulses-par-un-moteur/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-93-3eme-l-portant-majoration-de-la-taxe-dimmatriculation-des-navires-de-plaisance-et-des-engins-de-sport-propulses-par-un-moteur/>
 
 En vigueur : 1993-06-30 (date du Journal officiel qui le publie).
 

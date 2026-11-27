@@ -1,6 +1,6 @@
 # Décret n° 726 relatif à la constitution du Comité National.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-726-relatif-a-la-constitution-du-comite-national/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-726-relatif-a-la-constitution-du-comite-national/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

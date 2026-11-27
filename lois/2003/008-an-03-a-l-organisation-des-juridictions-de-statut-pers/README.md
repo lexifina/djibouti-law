@@ -1,6 +1,6 @@
 # Loi n° 8/AN/03/5ème L relative à l’organisation des juridictions de statut personnel, à leurs compétences et aux règles de procédures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-03-5eme-l-relative-a-lorganisation-des-juridictions-de-statut-personnel-a-leurs-competences-et-aux-regles-de-procedures/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-03-5eme-l-relative-a-lorganisation-des-juridictions-de-statut-personnel-a-leurs-competences-et-aux-regles-de-procedures/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

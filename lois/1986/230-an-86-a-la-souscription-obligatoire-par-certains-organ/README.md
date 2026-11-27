@@ -1,6 +1,6 @@
 # Loi n° 230/AN/86/1re L relative à la souscription obligatoire par certains organismes de certificats de dépôt par le Trésor national.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n230-an-86-1re-l-relative-a-la-souscription-obligatoire-par-certains-organismes-de-certificats-de-depot-par-le-tresor-national/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n230-an-86-1re-l-relative-a-la-souscription-obligatoire-par-certains-organismes-de-certificats-de-depot-par-le-tresor-national/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Amendement n° 38-426-1932 1° le nombre de membres à élire au comité colonial d’anciens combattants; 2° la période pendant laquelle sont reçues les déclarations de candidatures; 3e la date de dépouillement du scrutin.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-38-426-1932-1-le-nombre-de-membres-a-elire-au-comite-colonial-danciens-combattants-2-la-periode-pendant-laquelle-sont-recues-les-declarations-de-candidatures-3e-la/>
+Amendement · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-38-426-1932-1-le-nombre-de-membres-a-elire-au-comite-colonial-danciens-combattants-2-la-periode-pendant-laquelle-sont-recues-les-declarations-de-candidatures-3e-la/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

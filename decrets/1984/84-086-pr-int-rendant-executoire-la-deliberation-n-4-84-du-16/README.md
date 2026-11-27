@@ -1,6 +1,6 @@
 # Décret n° 84-086/PR/INT Rendant exécutoire la délibération n° 4/84 du 16 Juin 1984 du Conseil d’Administration de l’Office des Postes et des Télécommunications portant approbation de la deuxième décision modificative du budget de l’Office pour l’exercice 1984.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/08/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-086-pr-int-rendant-executoire-la-deliberation-n-4-84-du-16-juin-1984-du-conseil-dadministration-de-loffice-des-postes-et-des-telecommunications-portant-approbation-de-la-deu/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/08/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-086-pr-int-rendant-executoire-la-deliberation-n-4-84-du-16-juin-1984-du-conseil-dadministration-de-loffice-des-postes-et-des-telecommunications-portant-approbation-de-la-deu/>
 
 En vigueur : 1984-08-30 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ BARKAT GOURAT HAMADOU
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

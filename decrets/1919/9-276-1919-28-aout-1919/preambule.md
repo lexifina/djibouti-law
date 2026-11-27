@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Le tarif 3, annexé au décret du 1er janvier 1919, est modifié comme suit :
 | CORPS DE TROUPES
 DE TOUTES ARMES ET SERVICES

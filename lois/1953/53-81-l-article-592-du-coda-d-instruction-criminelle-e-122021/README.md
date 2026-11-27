@@ -1,6 +1,6 @@
 # Loi n° 53-81 modifiant l’article 592 du coda d’instruction criminelle et rendant applicables aux territoires d’outre-mer, au Cameroun et au Togo, les articles 590 à 599 inclus et 619 à 634 du même code
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/03/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-81-modifiant-larticle-592-du-coda-dinstruction-criminelle-et-rendant-applicables-aux-territoires-doutre-mer-au-cameroun-et-au-togo-les-articles-590-a-599-i/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 01/03/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-81-modifiant-larticle-592-du-coda-dinstruction-criminelle-et-rendant-applicables-aux-territoires-doutre-mer-au-cameroun-et-au-togo-les-articles-590-a-599-i/>
 
 En vigueur : 1953-03-01 (date du Journal officiel qui le publie).
 

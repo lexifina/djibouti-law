@@ -1,6 +1,6 @@
 # Décret n° 90-002/PRE/MCTT Rendant exécutoire !a résolution n° 2/89 du 19 novembre 1989 du conseil d’administration de F Aeroport de Djibouti et portant approbation du budget rectificatif de l’exercice 1989 de l’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-002-pre-mctt-rendant-executoire-a-resolution-n-2-89-du-19-novembre-1989-du-conseil-dadministration-de-f-aeroport-de-djibouti-et-portant-approbation-du-budget-rectific/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-002-pre-mctt-rendant-executoire-a-resolution-n-2-89-du-19-novembre-1989-du-conseil-dadministration-de-f-aeroport-de-djibouti-et-portant-approbation-du-budget-rectific/>
 
 En vigueur : 1990-01-15 (date du Journal officiel qui le publie).
 

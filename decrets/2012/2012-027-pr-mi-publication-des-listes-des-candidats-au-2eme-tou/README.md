@@ -1,6 +1,6 @@
 # Décret n° 2012-027/PR/MI portant publication des listes des candidats au 2ème tour des Elections Régionales et Communales du 10 février 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-027-pr-mi-portant-publication-des-listes-des-candidats-au-2eme-tour-des-elections-regionales-et-communales-du-10-fevrier-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-027-pr-mi-portant-publication-des-listes-des-candidats-au-2eme-tour-des-elections-regionales-et-communales-du-10-fevrier-2012/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

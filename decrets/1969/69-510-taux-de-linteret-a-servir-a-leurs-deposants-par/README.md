@@ -1,6 +1,6 @@
 # Décret n° 69-510 fixant le taux de l’intérêt à servir à leurs déposants par les caisses d’épargne des Territoires d’outre-mer autres que les Comores pour la période allant du 1er juin au 31 décembre 1969.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 10/07/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-510-fixant-le-taux-de-linteret-a-servir-a-leurs-deposants-par-les-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comores-pour-la-periode-allant-du-1e/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 10/07/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-510-fixant-le-taux-de-linteret-a-servir-a-leurs-deposants-par-les-caisses-depargne-des-territoires-doutre-mer-autres-que-les-comores-pour-la-periode-allant-du-1e/>
 
 En vigueur : 1969-07-10 (date du Journal officiel qui le publie).
 

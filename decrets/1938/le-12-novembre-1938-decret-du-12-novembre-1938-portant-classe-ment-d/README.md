@@ -1,6 +1,6 @@
 # Décret n° Le 12 novembre 1938. Décret du 12 novembre 1938 portant classe- ment de la station climatique de Biarritz.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-novembre-1938-decret-du-12-novembre-1938-portant-classe-ment-de-la-station-climatique-de-biarritz/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-12-novembre-1938-decret-du-12-novembre-1938-portant-classe-ment-de-la-station-climatique-de-biarritz/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 

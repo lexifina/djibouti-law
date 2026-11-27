@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE 1e.
 Dispositions générales.
 Art, 1er. — Les entreprises de navigation maritime devront, pour l’exploitation des navires arinés au long cours, au cabolage, au bornage, au pilotage, en pêche, en plaisance ou en circulation, el en vue de l’application de la loi du 2? août 1919 au personnel employé à un titre quelcorque, soil pour le service du pont, soit pour le service de la machine, soit pour le service général, soit pour le service de la télégraphie sans fil, à bord des navires affectés à la navigation maritime, choisir l’un des modes ci-après :

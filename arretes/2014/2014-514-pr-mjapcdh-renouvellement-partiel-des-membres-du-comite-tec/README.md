@@ -1,8 +1,8 @@
 # Arrêté n° 2014-514/PR/MJAPCDH portant renouvellement partiel des membres du Comité Technique de Lutte contre le Terrorisme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-514-pr-mjapcdh-portant-renouvellement-partiel-des-membres-du-comite-technique-de-lutte-contre-le-terrorisme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-514-pr-mjapcdh-portant-renouvellement-partiel-des-membres-du-comite-technique-de-lutte-contre-le-terrorisme/>
 
-En vigueur : 2014-07-20 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-07-20 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

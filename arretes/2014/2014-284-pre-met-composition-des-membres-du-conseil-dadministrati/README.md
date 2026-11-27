@@ -1,8 +1,8 @@
 # Arrêté n° 2014-284/PRE/MET portant composition des membres du Conseil d’Administration de l’Agence Nationale de la Météorologie de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-284-pre-met-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-284-pre-met-portant-composition-des-membres-du-conseil-dadministration-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
 
-En vigueur : 2014-03-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-03-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

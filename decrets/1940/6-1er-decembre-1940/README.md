@@ -1,6 +1,6 @@
 # Décret n° 6 1er décembre 1940
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 529 du 31/12/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-1er-decembre-1940/>
+Décret · Journal officiel de la République de Djibouti, n° 529 du 31/12/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-1er-decembre-1940/>
 
 En vigueur : 1940-12-31 (date du Journal officiel qui le publie).
 

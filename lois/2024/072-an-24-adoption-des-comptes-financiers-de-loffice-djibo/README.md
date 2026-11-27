@@ -1,6 +1,6 @@
 # Loi n° 72/AN/24/9ème L portant adoption des comptes financiers de l’Office Djiboutien de Développement de l’Energie Géothermique pour l’exercice 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-pour-lexercice-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-24-9eme-l-portant-adoption-des-comptes-financiers-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-pour-lexercice-2018/>
 
 En vigueur : 2024-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

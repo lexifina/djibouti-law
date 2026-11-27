@@ -1,6 +1,6 @@
 # Décret n° le 7 novembre 1938 relatif à l’indemnité de gérance et de responsabilité du receveur comptable des postes, télégraphes et téléphones, à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-7-novembre-1938-relatif-a-lindemnite-de-gerance-et-de-responsabilite-du-receveur-comptable-des-postes-telegraphes-et-telephones-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-7-novembre-1938-relatif-a-lindemnite-de-gerance-et-de-responsabilite-du-receveur-comptable-des-postes-telegraphes-et-telephones-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

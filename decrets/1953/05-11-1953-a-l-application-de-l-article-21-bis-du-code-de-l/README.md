@@ -1,6 +1,6 @@
 # Décret n° 05/11/1953 relatif à l’application de l’article 21 bis du Code de la Pharmacie (loi n° 53-662 du 1er août 1953) aux Territoires d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-11-1953-relatif-a-lapplication-de-larticle-21-bis-du-code-de-la-pharmacie-loi-n-53-662-du-1er-aout-1953-aux-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-11-1953-relatif-a-lapplication-de-larticle-21-bis-du-code-de-la-pharmacie-loi-n-53-662-du-1er-aout-1953-aux-territoires-doutre-mer/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

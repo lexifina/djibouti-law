@@ -1,6 +1,6 @@
 # Décret n° 15-475-1936 promulguant dans la colonie le décret du 3 juin 1936 modifiant le décret du 30 décembre 1017 relatif au régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-475-1936-promulguant-dans-la-colonie-le-decret-du-3-juin-1936-modifiant-le-decret-du-30-decembre-1017-relatif-au-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-475-1936-promulguant-dans-la-colonie-le-decret-du-3-juin-1936-modifiant-le-decret-du-30-decembre-1017-relatif-au-regime-financier-des-colonies/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 
@@ -17,4 +17,4 @@ A.ANNET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er — |
+| [art-001.md](art-001.md) | Art.1er |

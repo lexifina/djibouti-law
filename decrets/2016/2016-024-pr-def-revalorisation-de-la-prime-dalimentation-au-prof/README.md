@@ -1,6 +1,6 @@
 # Décret n° 2016-024/PR/DEF portant revalorisation de la prime d’alimentation au profit des personnels militaires sous-officiers et militaires du rang de l’Armée Djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-024-pr-def-portant-revalorisation-de-la-prime-dalimentation-au-profit-des-personnels-militaires-sous-officiers-et-militaires-du-rang-de-larmee-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-024-pr-def-portant-revalorisation-de-la-prime-dalimentation-au-profit-des-personnels-militaires-sous-officiers-et-militaires-du-rang-de-larmee-djiboutienne/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

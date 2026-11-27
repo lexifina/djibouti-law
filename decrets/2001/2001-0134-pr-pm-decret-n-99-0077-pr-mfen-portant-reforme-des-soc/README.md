@@ -1,6 +1,6 @@
 # Décret n° 2001-0134/PR/PM modifiant le décret n° 99-0077/PR/MFEN portant réforme des sociétés d’état, des sociétés d’économie mixtes et des établissements à caractère industriel et commercial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0134-pr-pm-modifiant-le-decret-n99-0077-pr-mfen-portant-reforme-des-societes-detat-des-societes-deconomie-mixtes-et-des-etablissements-a-caractere-industrie/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0134-pr-pm-modifiant-le-decret-n99-0077-pr-mfen-portant-reforme-des-societes-detat-des-societes-deconomie-mixtes-et-des-etablissements-a-caractere-industrie/>
 
 En vigueur : 2001-07-15 (date du Journal officiel qui le publie).
 

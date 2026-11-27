@@ -1,6 +1,6 @@
 # Loi n° 123/AN/01/4ème L portant sur la réglementation, la qualification et la certification des Bureaux d’Ingénierie dans le secteur du Bâtiment, des Travaux Publics et d’Architecture.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-01-4eme-l-portant-sur-la-reglementation-la-qualification-et-la-certification-des-bureaux-dingenierie-dans-le-secteur-du-batiment-des-travaux-publics-et-darchitect/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-01-4eme-l-portant-sur-la-reglementation-la-qualification-et-la-certification-des-bureaux-dingenierie-dans-le-secteur-du-batiment-des-travaux-publics-et-darchitect/>
 
 En vigueur : 2001-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 79-001/PR/DEF modificatif au décret n° 77-046/PR/DEF fixant le régime des commissions, engagements dans l’Armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-001-pr-def-modificatif-au-decret-n77-046-pr-def-fixant-le-regime-des-commissions-engagements-dans-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-001-pr-def-modificatif-au-decret-n77-046-pr-def-fixant-le-regime-des-commissions-engagements-dans-larmee-nationale/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ SUR proposition du ministre de la Défense.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

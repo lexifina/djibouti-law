@@ -1,6 +1,6 @@
 # Décret n° 60-1318 fixant les conditions dans lesquelles les partis politiques pourront participer à la campagne en vue du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1318-fixant-les-conditions-dans-lesquelles-les-partis-politiques-pourront-participer-a-la-campagne-en-vue-du-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1318-fixant-les-conditions-dans-lesquelles-les-partis-politiques-pourront-participer-a-la-campagne-en-vue-du-referendum/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-015/PR/MID portant création dans chaque Région d’une commission chargée de la distribution des cartes électorales en vue des Elections Régionales et Communales du 20 janvier 2012.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-015-pr-mid-portant-creation-dans-chaque-region-dune-commission-chargee-de-la-distribution-des-cartes-electorales-en-vue-des-elections-regionales-et-communales-du-20-janvier-2012/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-015-pr-mid-portant-creation-dans-chaque-region-dune-commission-chargee-de-la-distribution-des-cartes-electorales-en-vue-des-elections-regionales-et-communales-du-20-janvier-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

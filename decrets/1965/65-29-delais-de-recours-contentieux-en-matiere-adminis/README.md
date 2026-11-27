@@ -1,6 +1,6 @@
 # Décret n° 65-29 relatif aux délais de recours contentieux en matière administrative .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/03/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-29-relatif-aux-delais-de-recours-contentieux-en-matiere-administrative/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/03/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-29-relatif-aux-delais-de-recours-contentieux-en-matiere-administrative/>
 
 En vigueur : 1965-03-01 (date du Journal officiel qui le publie).
 

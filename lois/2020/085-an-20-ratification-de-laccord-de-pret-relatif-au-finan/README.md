@@ -1,6 +1,6 @@
 # Loi n° 85/AN/20/8ème L portant ratification de l’Accord de prêt relatif au financement du projet de riposte du Covid-19.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-20-8eme-l-portant-ratification-de-laccord-de-pret-relatif-au-financement-du-projet-de-riposte-du-covid-19/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-20-8eme-l-portant-ratification-de-laccord-de-pret-relatif-au-financement-du-projet-de-riposte-du-covid-19/>
 
 En vigueur : 2020-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

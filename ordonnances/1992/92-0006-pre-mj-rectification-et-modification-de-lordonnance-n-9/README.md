@@ -1,6 +1,6 @@
 # Ordonnance n° 92-0006 / PRE / MJ Portant rectification et modification de l’ordonnance n° 91-173/ PR/J du 31291
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92-0006-pre-mj-portant-rectification-et-modification-de-lordonnance-n-91-173-pr-j-du-31291/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 15/01/1992 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n92-0006-pre-mj-portant-rectification-et-modification-de-lordonnance-n-91-173-pr-j-du-31291/>
 
 En vigueur : 1992-01-15 (date du Journal officiel qui le publie).
 
@@ -20,4 +20,4 @@ Le Conseil des Ministres entendu en sa séance dù 31 décembre 19091.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

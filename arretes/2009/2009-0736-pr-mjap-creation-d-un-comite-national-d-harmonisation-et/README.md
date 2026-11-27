@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0736/PR/MJAP portant création d’un Comité National d’harmonisation et de codification en matières civil et de procédure civile.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0736-pr-mjap-portant-creation-dun-comite-national-dharmonisation-et-de-codification-en-matieres-civil-et-de-procedure-civile/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0736-pr-mjap-portant-creation-dun-comite-national-dharmonisation-et-de-codification-en-matieres-civil-et-de-procedure-civile/>
 
 En vigueur : 2009-10-15 (date du Journal officiel qui le publie).
 

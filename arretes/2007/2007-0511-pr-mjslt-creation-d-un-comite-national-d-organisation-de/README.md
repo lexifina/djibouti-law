@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0511/PR/MJSLT portant création d’un Comité National d’Organisation de la Conférence Internationale de la Jeunesse Africaine à Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0511-pr-mjslt-portant-creation-dun-comite-national-dorganisation-de-la-conference-internationale-de-la-jeunesse-africaine-a-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 14/06/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0511-pr-mjslt-portant-creation-dun-comite-national-dorganisation-de-la-conference-internationale-de-la-jeunesse-africaine-a-djibouti/>
 
 En vigueur : 2007-06-14 (date du Journal officiel qui le publie).
 

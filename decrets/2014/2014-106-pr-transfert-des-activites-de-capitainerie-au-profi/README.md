@@ -1,6 +1,6 @@
 # Décret n° 2014-106/PR portant transfert des activités de capitainerie au profit de l’Autorité des Ports et des Zones Franches.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-106-pr-portant-transfert-des-activites-de-capitainerie-au-profit-de-lautorite-des-ports-et-des-zones-franches/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-106-pr-portant-transfert-des-activites-de-capitainerie-au-profit-de-lautorite-des-ports-et-des-zones-franches/>
 
 En vigueur : 2014-04-30 (date du Journal officiel qui le publie).
 

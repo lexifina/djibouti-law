@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0489/PR/MEFPCP portant déchéance des droits accordés sur les titres fonciers non mises en valeurs sises dans les anciens lotissements de la capitale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0489-pr-mefpcp-portant-decheance-des-droits-accordes-sur-les-titres-fonciers-non-mises-en-valeurs-sises-dans-les-anciens-lotissements-de-la-capitale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0489-pr-mefpcp-portant-decheance-des-droits-accordes-sur-les-titres-fonciers-non-mises-en-valeurs-sises-dans-les-anciens-lotissements-de-la-capitale/>
 
 En vigueur : 2010-08-15 (date du Journal officiel qui le publie).
 

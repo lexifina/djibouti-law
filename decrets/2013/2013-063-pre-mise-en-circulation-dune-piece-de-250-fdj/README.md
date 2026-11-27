@@ -1,7 +1,7 @@
 # Décret n° 2013-063/PRE portant mise en circulation
 d’une pièce de 250 FDJ.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-063-pre-portant-mise-en-circulation-dune-piece-de-250-fdj/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-063-pre-portant-mise-en-circulation-dune-piece-de-250-fdj/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

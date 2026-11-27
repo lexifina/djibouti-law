@@ -1,6 +1,6 @@
 # Décret n° 78-66/PR/FIN modifiant le décret n° 77-011/PR/FIN instituant une agence spéciale à Paris.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 09/12/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-66-pr-fin-modifiant-le-decret-n77-011-pr-fin-instituant-une-agence-speciale-a-paris/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 09/12/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-66-pr-fin-modifiant-le-decret-n77-011-pr-fin-instituant-une-agence-speciale-a-paris/>
 
 En vigueur : 1978-12-09 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ ISMAEL GUEDI HARED
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

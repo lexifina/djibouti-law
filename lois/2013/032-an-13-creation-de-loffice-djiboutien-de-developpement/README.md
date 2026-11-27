@@ -1,6 +1,6 @@
 # Loi n° 32/AN/13/7ème L portant création de l’Office Djiboutien de Développement de l’Energie Géothermique (ODDEG).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-13-7eme-l-portant-creation-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-13-7eme-l-portant-creation-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
 
 En vigueur : 2014-01-30 (date du Journal officiel qui le publie).
 

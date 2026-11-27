@@ -1,6 +1,6 @@
 # Ordonnance n° 85-121/PRE/J portant réforme, des articles 3 et 5 de l’ordonnance n° 78-085/PRE/J du 16 novembre 1978
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-121-pre-j-portant-reforme-des-articles-3-et-5-de-lordonnance-n78-085-pre-j-du-16-novembre-1978/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-121-pre-j-portant-reforme-des-articles-3-et-5-de-lordonnance-n78-085-pre-j-du-16-novembre-1978/>
 
 En vigueur : 1986-01-16 (date du Journal officiel qui le publie).
 

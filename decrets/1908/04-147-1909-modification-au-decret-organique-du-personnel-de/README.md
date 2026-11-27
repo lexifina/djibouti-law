@@ -1,6 +1,6 @@
 # Décret n° 04-147-1909 portant modification au décret organique du personnel des administrateurs coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 147 du 01/02/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-147-1909-portant-modification-au-decret-organique-du-personnel-des-administrateurs-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 147 du 01/02/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-147-1909-portant-modification-au-decret-organique-du-personnel-des-administrateurs-coloniaux/>
 
 En vigueur : 1909-02-01 (date du Journal officiel qui le publie).
 

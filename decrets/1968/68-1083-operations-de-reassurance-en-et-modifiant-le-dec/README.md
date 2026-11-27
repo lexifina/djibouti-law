@@ -1,6 +1,6 @@
 # Décret n° 68-1083 relatif aux opérations de réassurance en. et modifiant le décret du 14 juin 1938
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1083-relatif-aux-operations-de-reassurance-en-et-modifiant-le-decret-du-14-juin-1938/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1083-relatif-aux-operations-de-reassurance-en-et-modifiant-le-decret-du-14-juin-1938/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 
@@ -31,6 +31,6 @@ Michel INCHAUSPE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-001.md](art-001.md) | Art. 1 |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

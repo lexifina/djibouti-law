@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0492/PR/MDN portant modification de certains articles de l’arrêté n° 2003-0914/PRE, relatif au fonctionnement du SNA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0492-pr-mdn-portant-modification-de-certains-articles-de-larrete-n2003-0914-pre-relatif-au-fonctionnement-du-sna/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0492-pr-mdn-portant-modification-de-certains-articles-de-larrete-n2003-0914-pre-relatif-au-fonctionnement-du-sna/>
 
 En vigueur : 2009-06-30 (date du Journal officiel qui le publie).
 

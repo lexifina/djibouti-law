@@ -1,6 +1,6 @@
 # Décret n° 2016-020/PR/MD portant création et mission du 3° Bataillon (Relève).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-020-pr-md-portant-creation-et-mission-du-3-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-020-pr-md-portant-creation-et-mission-du-3-bataillon-releve/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

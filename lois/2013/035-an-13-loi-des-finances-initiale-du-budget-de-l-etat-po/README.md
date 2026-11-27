@@ -1,6 +1,6 @@
 # Loi n° 35/AN/13/7ème L portant Loi des Finances Initiale du Budget de l’État pour l’exercice 2014.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-13-7eme-l-portant-loi-des-finances-initiale-du-budget-de-letat-pour-lexercice-2014/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-13-7eme-l-portant-loi-des-finances-initiale-du-budget-de-letat-pour-lexercice-2014/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

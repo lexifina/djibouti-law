@@ -1,6 +1,6 @@
 # Loi n° 46-645 tendant à la suppression du travail forcé dans les territoires d’outre-mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-645-tendant-a-la-suppression-du-travail-force-dans-les-territoires-doutre-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-645-tendant-a-la-suppression-du-travail-force-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 
@@ -22,6 +22,6 @@ Pierre-Henri TEITGEN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

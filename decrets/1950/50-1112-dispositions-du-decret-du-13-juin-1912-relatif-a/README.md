@@ -1,6 +1,6 @@
 # Décret n° 50-1112 modifiant les dispositions du décret du 13 juin, 1912 relatif au régime des déplacements des fonctionnaires, employés et agents civils des services coloniaux ou locaux voyageant isolément dans les territoires relevant du Ministre de la France d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1112-modifiant-les-dispositions-du-decret-du-13-juin-1912-relatif-au-regime-des-deplacements-des-fonctionnaires-employes-et-agents-civils-des-services-coloniaux-ou-locaux-voyagean/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1112-modifiant-les-dispositions-du-decret-du-13-juin-1912-relatif-au-regime-des-deplacements-des-fonctionnaires-employes-et-agents-civils-des-services-coloniaux-ou-locaux-voyagean/>
 
 En vigueur : 1950-10-01 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Pierre MÉTAYER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

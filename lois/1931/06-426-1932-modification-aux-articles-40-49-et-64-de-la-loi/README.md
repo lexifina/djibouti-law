@@ -1,6 +1,6 @@
 # Loi n° 06-426-1932 portant modification aux articles 40, 49 et 64 de la loi du 31 mars 1928 relative au recrutement de l’armée.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 426 du 31/05/1932 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-06-426-1932-portant-modification-aux-articles-40-49-et-64-de-la-loi-du-31-mars-1928-relative-au-recrutement-de-larmee/>
+Loi · Journal officiel de la République de Djibouti, n° 426 du 31/05/1932 · <https://www.journalofficiel.dj/texte-juridique/loi-n-06-426-1932-portant-modification-aux-articles-40-49-et-64-de-la-loi-du-31-mars-1928-relative-au-recrutement-de-larmee/>
 
 En vigueur : 1932-05-31 (date du Journal officiel qui le publie).
 

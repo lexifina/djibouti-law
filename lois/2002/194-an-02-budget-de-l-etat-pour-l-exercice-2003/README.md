@@ -1,6 +1,6 @@
 # Loi n° 194/AN/02/4ème L Portant Budget de l’Etat pour l’exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-02-4eme-l-portant-budget-de-letat-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-02-4eme-l-portant-budget-de-letat-pour-lexercice-2003/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 

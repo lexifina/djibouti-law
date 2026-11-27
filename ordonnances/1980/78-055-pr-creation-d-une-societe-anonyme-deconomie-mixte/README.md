@@ -1,6 +1,6 @@
 # Ordonnance n° 78–055/PR portant création d’une société anonyme d’économie mixte.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 15/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-055-pr-portant-creation-dune-societe-anonyme-deconomie-mixte/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 15/04/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n78-055-pr-portant-creation-dune-societe-anonyme-deconomie-mixte/>
 
 En vigueur : 1981-04-15 (date du Journal officiel qui le publie).
 
@@ -15,4 +15,4 @@ Le Conseil des Ministres entendu.
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

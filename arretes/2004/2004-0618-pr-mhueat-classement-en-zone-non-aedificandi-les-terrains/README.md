@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0618/PR/MHUEAT portant classement en zone non aédificandi les terrains situés dans le périmètre de la vallée de l’Oued d’Ambouli.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0618-pr-mhueat-portant-classement-en-zone-non-aedificandi-les-terrains-situes-dans-le-perimetre-de-la-vallee-de-loued-dambouli/>
+Arrêté · Journal officiel de la République de Djibouti, n° 18 du 30/09/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0618-pr-mhueat-portant-classement-en-zone-non-aedificandi-les-terrains-situes-dans-le-perimetre-de-la-vallee-de-loued-dambouli/>
 
 En vigueur : 2004-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2022-051/PR/MI portant prolongation de l’heure de la fermeture des bureaux de vote pour les Elections Régionales et Communales du 11 Mars 2022
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-051-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-regionales-et-communales-du-11-mars-2022/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-051-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-regionales-et-communales-du-11-mars-2022/>
 
 En vigueur : 2022-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

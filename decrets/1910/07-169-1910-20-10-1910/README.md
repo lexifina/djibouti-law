@@ -1,6 +1,6 @@
 # Décret n° 07-169-1910 20/10/1910
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 169 du 01/12/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-169-1910-20-10-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 169 du 01/12/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-169-1910-20-10-1910/>
 
 En vigueur : 1910-12-01 (date du Journal officiel qui le publie).
 

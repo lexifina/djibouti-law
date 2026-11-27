@@ -1,6 +1,6 @@
 # Loi n° 73-477 portant modification de la loi n° 64133 du 26 décembre 1964 réprimant la pollution des eaux de la mer par les hydrocarbures.(J.O.R.F. n° 115 du 17 mai 1973, p. 5427).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1973 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-73-477-portant-modification-de-la-loi-n-64133-du-26-decembre-1964-reprimant-la-pollution-des-eaux-de-la-mer-par-les-hydrocarbures-j-o-r-f-n-115-du-17-mai-1973-p-5427/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 25/06/1973 · <https://www.journalofficiel.dj/texte-juridique/loi-n-73-477-portant-modification-de-la-loi-n-64133-du-26-decembre-1964-reprimant-la-pollution-des-eaux-de-la-mer-par-les-hydrocarbures-j-o-r-f-n-115-du-17-mai-1973-p-5427/>
 
 En vigueur : 1973-06-25 (date du Journal officiel qui le publie).
 

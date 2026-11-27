@@ -1,6 +1,6 @@
 # Décret n° 2002-0221/PRE portant création d’un Comité d’Organisation du 19ème Séminaires des Secrétaires Généraux des Comités Nationaux Olympiques d’Afrique (ACNOA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0221-pre-portant-creation-dun-comite-dorganisation-du-19eme-seminaires-des-secretaires-generaux-des-comites-nationaux-olympiques-dafrique-acnoa/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0221-pre-portant-creation-dun-comite-dorganisation-du-19eme-seminaires-des-secretaires-generaux-des-comites-nationaux-olympiques-dafrique-acnoa/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 

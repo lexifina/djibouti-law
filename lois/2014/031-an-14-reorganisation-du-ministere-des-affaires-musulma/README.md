@@ -1,6 +1,6 @@
 # Loi n° 31/AN/14/7ème L portant réorganisation du Ministère des Affaires Musulmanes, de la Culture et des Biens Waqfs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-14-7eme-l-portant-reorganisation-du-ministere-des-affaires-musulmanes-de-la-culture-et-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-14-7eme-l-portant-reorganisation-du-ministere-des-affaires-musulmanes-de-la-culture-et-des-biens-waqfs/>
 
 En vigueur : 2014-02-15 (date du Journal officiel qui le publie).
 
@@ -137,4 +137,4 @@ ISMAÏL OMAR GUELLEH
 | [art-078.md](art-078.md) | Article 78 |
 | [art-079.md](art-079.md) | Article 79 |
 | [art-080.md](art-080.md) | Article 80 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

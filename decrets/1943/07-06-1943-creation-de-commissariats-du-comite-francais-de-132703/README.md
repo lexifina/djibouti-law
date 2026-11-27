@@ -1,6 +1,6 @@
 # Décret n° 07/06/1943 portant création de Commissariats du Comité Français de la Libération Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-06-1943-portant-creation-de-commissariats-du-comite-francais-de-la-liberation-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-06-1943-portant-creation-de-commissariats-du-comite-francais-de-la-liberation-nationale/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

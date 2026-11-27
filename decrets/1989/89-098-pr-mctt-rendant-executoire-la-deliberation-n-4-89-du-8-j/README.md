@@ -1,6 +1,6 @@
 # Décret n° 89-098/PR/MCTT rendant exécutoire la délibération n° 4/89 du 8 juin 1989 du conseil d’administration de l’Office National d’Approvisionnement et de Commercialisation portant approbation du compte financier de l’Office pour l’exercice 1988.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-098-pr-mctt-rendant-executoire-la-deliberation-n4-89-du-8-juin-1989-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-portant-appr/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-098-pr-mctt-rendant-executoire-la-deliberation-n4-89-du-8-juin-1989-du-conseil-dadministration-de-loffice-national-dapprovisionnement-et-de-commercialisation-portant-appr/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

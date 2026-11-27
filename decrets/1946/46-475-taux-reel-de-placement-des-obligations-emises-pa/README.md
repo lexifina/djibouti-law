@@ -1,6 +1,6 @@
 # Décret n° 46-475 fixant le taux réel de placement des obligations émises par la Compagnie du chemin de fer franco-éthiopien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-475-fixant-le-taux-reel-de-placement-des-obligations-emises-par-la-compagnie-du-chemin-de-fer-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-475-fixant-le-taux-reel-de-placement-des-obligations-emises-par-la-compagnie-du-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

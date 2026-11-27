@@ -1,6 +1,6 @@
 # Décret n° 48-882 portant attribution d’un acompte aux personnels des cadres régis par décret relevant du Ministère de la France d’outre-mer (J. O. R. F. du 28 mai 1948).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-882-portant-attribution-dun-acompte-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-j-o-r-f-du-28-mai-1948/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-882-portant-attribution-dun-acompte-aux-personnels-des-cadres-regis-par-decret-relevant-du-ministere-de-la-france-doutre-mer-j-o-r-f-du-28-mai-1948/>
 
 En vigueur : 1948-06-30 (date du Journal officiel qui le publie).
 

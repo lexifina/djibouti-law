@@ -1,6 +1,6 @@
 # Décret n° 46-182 portant modification du texte organique du 23 août 1944 créant le cadre général des transmissions coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-182-portant-modification-du-texte-organique-du-23-aout-1944-creant-le-cadre-general-des-transmissions-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-182-portant-modification-du-texte-organique-du-23-aout-1944-creant-le-cadre-general-des-transmissions-coloniales/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

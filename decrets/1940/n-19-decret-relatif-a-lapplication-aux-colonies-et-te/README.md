@@ -1,6 +1,6 @@
 # Décret n° n°19 Le décret relatif à l’application aux colonies et territoires africains sous mandat du décret du sep- tembre 1939 prohibant ou réglementant l’exportation des capitaux, les opérations de change et de commerce de l’or.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-le-decret-relatif-a-lapplication-aux-colonies-et-territoires-africains-sous-mandat-du-decret-du-sep-tembre-1939-prohibant-ou-reglementant-lexportation-des-capitaux-les/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n19-le-decret-relatif-a-lapplication-aux-colonies-et-territoires-africains-sous-mandat-du-decret-du-sep-tembre-1939-prohibant-ou-reglementant-lexportation-des-capitaux-les/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

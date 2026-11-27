@@ -1,6 +1,6 @@
 # Ordonnance n° 80-030/PR portant interprétation de l’ordonnance sur les logements » en dur « .
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-030-pr-portant-interpretation-de-lordonnance-sur-les-logements-en-dur/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-030-pr-portant-interpretation-de-lordonnance-sur-les-logements-en-dur/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

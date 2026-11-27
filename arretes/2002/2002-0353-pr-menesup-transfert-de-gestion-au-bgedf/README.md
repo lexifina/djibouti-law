@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0353/PR/MENESUP portant transfert de Gestion au BGEDF.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0353-pr-menesup-portant-transfert-de-gestion-au-bgedf/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0353-pr-menesup-portant-transfert-de-gestion-au-bgedf/>
 
-En vigueur : 2002-05-09 (date fixÃ©e par le texte).
+En vigueur : 2002-05-09 (date fixée par le texte).
 
 ## Visas
 

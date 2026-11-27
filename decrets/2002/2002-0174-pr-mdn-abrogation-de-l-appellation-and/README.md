@@ -1,6 +1,6 @@
 # Décret n° 2002-0174/PR/MDN portant abrogation de l’appellation «AND».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0174-pr-mdn-portant-abrogation-de-lappellation-and/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0174-pr-mdn-portant-abrogation-de-lappellation-and/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

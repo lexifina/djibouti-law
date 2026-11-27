@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0133/PR/MJSLT approuvant et rendant exécutoire le Budget Prévisionnel 2007 du Stade “Al Hadj Hassan Gouled Aptidon”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0133-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2007-du-stade-al-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0133-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2007-du-stade-al-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

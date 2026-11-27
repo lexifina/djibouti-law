@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0700/PR/MJSLT portant création du Comité National d’Organisation de la Journée Nationale et Africaine de la Jeunesse.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 14/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0700-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-journee-nationale-et-africaine-de-la-jeunesse/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 14/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0700-pr-mjslt-portant-creation-du-comite-national-dorganisation-de-la-journee-nationale-et-africaine-de-la-jeunesse/>
 
 En vigueur : 2010-10-14 (date du Journal officiel qui le publie).
 

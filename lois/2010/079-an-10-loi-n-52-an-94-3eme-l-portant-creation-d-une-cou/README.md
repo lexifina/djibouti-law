@@ -1,6 +1,6 @@
 # Loi n° 79/AN/10/6ème L modifiant la Loi n° 52/AN/94/3ème L portant création d’une Cour d’Appel et d’un Tribunal de Première Instance.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 29/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-10-6eme-l-modifiant-la-loi-n52-an-94-3eme-l-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 29/04/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-10-6eme-l-modifiant-la-loi-n52-an-94-3eme-l-portant-creation-dune-cour-dappel-et-dun-tribunal-de-premiere-instance/>
 
 En vigueur : 2010-04-29 (date du Journal officiel qui le publie).
 

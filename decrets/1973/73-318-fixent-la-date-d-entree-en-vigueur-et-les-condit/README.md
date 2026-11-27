@@ -1,8 +1,8 @@
 # Décret n° 73-318 fixent la date d’entrée en vigueur et les conditions d’application de certaines dispositions de la loi n° 72-10 du 3 janvier 1972 relative à la prévention et à la répression des infractions en matière de chèques .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 25/04/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-318-fixent-la-date-dentree-en-vigueur-et-les-conditions-dapplication-de-certaines-dispositions-de-la-loi-n-72-10-du-3-janvier-1972-relative-a-la-prevention-et-a-la/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 25/04/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-318-fixent-la-date-dentree-en-vigueur-et-les-conditions-dapplication-de-certaines-dispositions-de-la-loi-n-72-10-du-3-janvier-1972-relative-a-la-prevention-et-a-la/>
 
-En vigueur : 1973-03-31 (date fixÃ©e par le texte).
+En vigueur : 1973-03-31 (date fixée par le texte).
 
 ## Visas
 
@@ -47,5 +47,5 @@ XAVIER DENIAU
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [art-009.md](art-009.md) | Art. 9 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-009.md](art-009.md) | Art. 9 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 89/AN/00/4ème L portant approbation des comptes financiers de l’exercice 1998 du Port Autonome International de Djibouti (P.A.I.D).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1998-du-port-autonome-international-de-djibouti-p-a-i-d/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-00-4eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1998-du-port-autonome-international-de-djibouti-p-a-i-d/>
 
 En vigueur : 2000-07-15 (date du Journal officiel qui le publie).
 

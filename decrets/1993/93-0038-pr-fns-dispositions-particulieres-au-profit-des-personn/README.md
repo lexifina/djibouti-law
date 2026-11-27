@@ -1,6 +1,6 @@
 # Décret n° 93‑0038/PR/FNS portant dispositions particulières au profit des personnels titulaires ou rappelés la F.N.S.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910038-pr-fns-portant-dispositions-particulieres-au-profit-des-personnels-titulaires-ou-rappeles-la-f-n-s/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93%e2%80%910038-pr-fns-portant-dispositions-particulieres-au-profit-des-personnels-titulaires-ou-rappeles-la-f-n-s/>
 
 En vigueur : 1993-04-15 (date du Journal officiel qui le publie).
 

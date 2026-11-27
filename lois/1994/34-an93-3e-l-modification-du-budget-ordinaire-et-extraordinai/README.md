@@ -1,6 +1,6 @@
 # Loi n° 34/AN93/3e L portant modification du budget ordinaire ’et extraordinaire de l’exercice 1993
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n34-an93-3e-l-portant-modification-du-budget-ordinaire-et-extraordinaire-de-lexercice-1993/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n34-an93-3e-l-portant-modification-du-budget-ordinaire-et-extraordinaire-de-lexercice-1993/>
 
 En vigueur : 1994-01-15 (date du Journal officiel qui le publie).
 

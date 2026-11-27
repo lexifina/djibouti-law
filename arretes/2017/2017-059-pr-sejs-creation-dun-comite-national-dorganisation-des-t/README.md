@@ -1,6 +1,6 @@
 # Arrêté n° 2017-059/PR/SEJS portant création d’un Comité National d’organisation des travaux de la 17ème session de l’Assemblée Général Elective de l’ACNOA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-059-pr-sejs-portant-creation-dun-comite-national-dorganisation-des-travaux-de-la-17eme-session-de-lassemblee-general-elective-de-lacnoa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-059-pr-sejs-portant-creation-dun-comite-national-dorganisation-des-travaux-de-la-17eme-session-de-lassemblee-general-elective-de-lacnoa/>
 
 En vigueur : 2017-03-30 (date du Journal officiel qui le publie).
 

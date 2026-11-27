@@ -1,6 +1,6 @@
 # Ordonnance n° 81-101/PR du Portant refonte générale des listes électorales.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 01/10/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-101-pr-du-portant-refonte-generale-des-listes-electorales/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 19 du 01/10/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-101-pr-du-portant-refonte-generale-des-listes-electorales/>
 
 En vigueur : 1981-10-01 (date du Journal officiel qui le publie).
 

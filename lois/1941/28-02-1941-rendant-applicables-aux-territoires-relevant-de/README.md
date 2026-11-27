@@ -1,6 +1,6 @@
 # Loi n° 28/02/1941 rendant applicables aux territoires relevant de l’autorité du Secrétaire d’Etat aux colonies les dispositions de la loi du 28 février 1941 relative à la certification du chèque.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-28-02-1941-rendant-applicables-aux-territoires-relevant-de-lautorite-du-secretaire-detat-aux-colonies-les-dispositions-de-la-loi-du-28-fevrier-1941-relative-a-la-certification-du-cheq/>
+Loi · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-28-02-1941-rendant-applicables-aux-territoires-relevant-de-lautorite-du-secretaire-detat-aux-colonies-les-dispositions-de-la-loi-du-28-fevrier-1941-relative-a-la-certification-du-cheq/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

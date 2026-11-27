@@ -1,6 +1,6 @@
 # Loi de finances n° 138/AN/21/8ème L portant Budget Rectificatif de l’Etat pour l’exercice 2021
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n138-an-21-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2021/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 23 du 15/12/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n138-an-21-8eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2021/>
 
 En vigueur : 2021-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 86-004/PR/INT Rendant exécutoire la délibération n° 06/85 du 18 décembre 1985 du Conseil d’administration de l’Office des Postes et Télécommunications portant réaménagement et réactualisation des tarifs des télécommunications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-004-pr-int-rendant-executoire-la-deliberation-n06-85-du-18-decembre-1985-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-reamenagement-et-rea/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-004-pr-int-rendant-executoire-la-deliberation-n06-85-du-18-decembre-1985-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-reamenagement-et-rea/>
 
 En vigueur : 1986-01-16 (date du Journal officiel qui le publie).
 

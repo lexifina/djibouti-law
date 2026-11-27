@@ -1,6 +1,6 @@
 # Décret n° le 25 mars 1960. relatif à la publication dans les territoires d’outre-mer de la République de la convention postale universelle et de ses annexes, signées à Ottawa le 3 octobre 1957.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-25-mars-1960-relatif-a-la-publication-dans-les-territoires-doutre-mer-de-la-republique-de-la-convention-postale-universelle-et-de-ses-annexes-signees-a-ottawa-le-3-octobre-1957/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-25-mars-1960-relatif-a-la-publication-dans-les-territoires-doutre-mer-de-la-republique-de-la-convention-postale-universelle-et-de-ses-annexes-signees-a-ottawa-le-3-octobre-1957/>
 
 En vigueur : 1960-04-30 (date du Journal officiel qui le publie).
 

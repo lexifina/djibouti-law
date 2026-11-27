@@ -1,8 +1,8 @@
 # Décret n° 2019-238/PR/MEFI portant garantie de l’Etat accordée à Red Sea Power Limited SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-238-pr-mefi-portant-garantie-de-letat-accordee-a-red-sea-power-limited-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-238-pr-mefi-portant-garantie-de-letat-accordee-a-red-sea-power-limited-sas/>
 
-En vigueur : 2019-09-19 (date fixÃ©e par le texte).
+En vigueur : 2019-09-19 (date fixée par le texte).
 
 ## Visas
 

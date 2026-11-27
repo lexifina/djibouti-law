@@ -1,6 +1,6 @@
 # Loi n° 121/AN/01/4ème L portant approbation du Plan d’Action National pour l’Environnement (PANE).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-01-4eme-l-portant-approbation-du-plan-daction-national-pour-lenvironnement-pane/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/04/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-01-4eme-l-portant-approbation-du-plan-daction-national-pour-lenvironnement-pane/>
 
 En vigueur : 2001-04-01 (date du Journal officiel qui le publie).
 

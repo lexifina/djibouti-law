@@ -1,6 +1,6 @@
 # Décret n° le 5 novembre 1938. Décret du 5 novembre 1938 modifiant les règles d’allocation de l’indemnité pour charges militaires attribuée aux militaires de la gendarmerie aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-5-novembre-1938-decret-du-5-novembre-1938-modifiant-les-regles-dallocation-de-lindemnite-pour-charges-militaires-attribuee-aux-militaires-de-la-gendarmerie-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-5-novembre-1938-decret-du-5-novembre-1938-modifiant-les-regles-dallocation-de-lindemnite-pour-charges-militaires-attribuee-aux-militaires-de-la-gendarmerie-aux-colonies/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 

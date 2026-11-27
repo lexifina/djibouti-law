@@ -1,6 +1,6 @@
 # Décret n° 2025-198/PR/DEF portant création et mission du 12° Bataillon (Relève)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-198-pr-def-portant-creation-et-mission-du-12-bataillon-releve/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-198-pr-def-portant-creation-et-mission-du-12-bataillon-releve/>
 
 En vigueur : 2025-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

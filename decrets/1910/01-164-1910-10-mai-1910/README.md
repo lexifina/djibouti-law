@@ -1,6 +1,6 @@
 # Décret n° 01-164-1910 10 mai 1910
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 164 du 01/07/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-164-1910-10-mai-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 164 du 01/07/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-164-1910-10-mai-1910/>
 
 En vigueur : 1910-07-01 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Géeorges TROUITLLOT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

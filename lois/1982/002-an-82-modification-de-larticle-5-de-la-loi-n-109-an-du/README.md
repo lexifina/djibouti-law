@@ -1,6 +1,6 @@
 # Loi n° 2/AN/82 portant modification de l’article 5 de la loi n° 109/AN du 24 mars 1980.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-82-portant-modification-de-larticle-5-de-la-loi-n109-an-du-24-mars-1980/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n2-an-82-portant-modification-de-larticle-5-de-la-loi-n109-an-du-24-mars-1980/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

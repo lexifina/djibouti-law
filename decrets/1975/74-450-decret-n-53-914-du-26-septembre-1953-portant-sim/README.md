@@ -1,6 +1,6 @@
 # Décret n° 74-450 modifiant le décret n » 53-914 du 26 septembre 1953 portant simplification de formalités administratives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 10/06/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-450-modifiant-le-decret-n-53-914-du-26-septembre-1953-portant-simplification-de-formalites-administratives/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 10/06/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-450-modifiant-le-decret-n-53-914-du-26-septembre-1953-portant-simplification-de-formalites-administratives/>
 
 En vigueur : 1975-06-10 (date du Journal officiel qui le publie).
 

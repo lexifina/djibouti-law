@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0185/MHUEAT portant approbation du budget Prévisionnel de l’exercice 2003 de la Société Immobilière.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0185-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2003-de-la-societe-immobiliere/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0185-mhueat-portant-approbation-du-budget-previsionnel-de-lexercice-2003-de-la-societe-immobiliere/>
 
 En vigueur : 2003-03-15 (date du Journal officiel qui le publie).
 

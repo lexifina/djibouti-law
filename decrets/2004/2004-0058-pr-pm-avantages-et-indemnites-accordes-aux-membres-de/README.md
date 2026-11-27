@@ -1,6 +1,6 @@
 # Décret n° 2004-0058/PR/PM relatif aux avantages et indemnités accordés aux membres de l’Inspection Général d’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0058-pr-pm-relatif-aux-avantages-et-indemnites-accordes-aux-membres-de-linspection-general-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0058-pr-pm-relatif-aux-avantages-et-indemnites-accordes-aux-membres-de-linspection-general-detat/>
 
 En vigueur : 2004-04-15 (date du Journal officiel qui le publie).
 

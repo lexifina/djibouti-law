@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0261/PR/MEFPCP portant la distraction du T.F n° 180 appartenant à l’État de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0261-pr-mefpcp-portant-la-distraction-du-t-f-n180-appartenant-a-letat-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0261-pr-mefpcp-portant-la-distraction-du-t-f-n180-appartenant-a-letat-de-djibouti/>
 
 En vigueur : 2006-04-15 (date du Journal officiel qui le publie).
 

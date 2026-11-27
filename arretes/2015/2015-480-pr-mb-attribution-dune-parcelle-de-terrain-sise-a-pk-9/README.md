@@ -1,6 +1,6 @@
 # Arrêté n° 2015-480/PR/MB portant attribution d’une parcelle de terrain sise à PK 9 dans la région de Tadjourah au profit de la Société INMAA.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-480-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-pk-9-dans-la-region-de-tadjourah-au-profit-de-la-societe-inmaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 30/07/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-480-pr-mb-portant-attribution-dune-parcelle-de-terrain-sise-a-pk-9-dans-la-region-de-tadjourah-au-profit-de-la-societe-inmaa/>
 
 En vigueur : 2015-07-30 (date du Journal officiel qui le publie).
 

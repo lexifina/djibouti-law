@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0692/PR/MEFPCP affectant à la Présidence de la République une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0692-pr-mefpcp-affectant-a-la-presidence-de-la-republique-une-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0692-pr-mefpcp-affectant-a-la-presidence-de-la-republique-une-parcelle-de-terrain/>
 
 En vigueur : 2001-09-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2020-086/PRE portant modification du Décret n° 2020-069/PRE portant changement de l’actionnariat de la Société de Gestion de la Jetée du Terminal Pétrolier de Doraleh (SJTP SA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-086-pre-portant-modification-du-decret-n2020-069-pre-portant-changement-de-lactionnariat-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh-sjtp-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-086-pre-portant-modification-du-decret-n2020-069-pre-portant-changement-de-lactionnariat-de-la-societe-de-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh-sjtp-sa/>
 
-En vigueur : 2020-05-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-05-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

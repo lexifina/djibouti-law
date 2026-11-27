@@ -1,6 +1,6 @@
 # Décret n° du 19 janvier 1940 modifiant le décret du 29 décembre 1903 sur la solde et les accessoires de solde des troupes coloniales et métropolitaines à la charge du Département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-19-janvier-1940-modifiant-le-decret-du-29-decembre-1903-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-19-janvier-1940-modifiant-le-decret-du-29-decembre-1903-sur-la-solde-et-les-accessoires-de-solde-des-troupes-coloniales-et-metropolitaines-a-la-charge-du-departement-des-colonies/>
 
 En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
 

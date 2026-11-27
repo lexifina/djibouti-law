@@ -1,6 +1,6 @@
 # Loi n° 4-335-1924 sur l’extension de la capacité civile des syndicats professionnels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 335 du 31/10/1924 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-4-335-1924-sur-lextension-de-la-capacite-civile-des-syndicats-professionnels/>
+Loi · Journal officiel de la République de Djibouti, n° 335 du 31/10/1924 · <https://www.journalofficiel.dj/texte-juridique/loi-n-4-335-1924-sur-lextension-de-la-capacite-civile-des-syndicats-professionnels/>
 
 En vigueur : 1924-10-31 (date du Journal officiel qui le publie).
 

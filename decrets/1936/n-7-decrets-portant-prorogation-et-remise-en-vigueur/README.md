@@ -1,6 +1,6 @@
 # Décret n° n°7 Décrets portant prorogation et remise en vigueur de Ia convention commerciale franco-suisse du 29 mars 1934
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-decrets-portant-prorogation-et-remise-en-vigueur-de-ia-convention-commerciale-franco-suisse-du-29-mars-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n7-decrets-portant-prorogation-et-remise-en-vigueur-de-ia-convention-commerciale-franco-suisse-du-29-mars-1934/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

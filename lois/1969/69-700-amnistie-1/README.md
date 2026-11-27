@@ -1,6 +1,6 @@
 # Loi n° 69-700 portant amnistie (1)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 10/07/1969 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-69-700-portant-amnistie-1/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 10/07/1969 · <https://www.journalofficiel.dj/texte-juridique/loi-n-69-700-portant-amnistie-1/>
 
 En vigueur : 1969-07-10 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ René PLEVEN.
 | [art-023.md](art-023.md) | Art. 23 |
 | [art-024.md](art-024.md) | Art. 24 |
 | [art-025.md](art-025.md) | Art. 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 104/AN/15/7ème L portant approbation du schéma d’aménagement et d’urbanisme de l’agglomération de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-15-7eme-l-portant-approbation-du-schema-damenagement-et-durbanisme-de-lagglomeration-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n104-an-15-7eme-l-portant-approbation-du-schema-damenagement-et-durbanisme-de-lagglomeration-de-djibouti/>
 
 En vigueur : 2016-02-15 (date du Journal officiel qui le publie).
 

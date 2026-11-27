@@ -1,6 +1,6 @@
 # Loi n° 177/AN/25/9ème L portant ratification du protocole à la Charte Africaine de Droits de l’Homme et des Peuples relatif aux Droits des Personnes Handicapées en Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-25-9eme-l-portant-ratification-du-protocole-a-la-charte-africaine-de-droits-de-lhomme-et-des-peuples-relatif-aux-droits-des-personnes-handicapees-en-afrique/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-25-9eme-l-portant-ratification-du-protocole-a-la-charte-africaine-de-droits-de-lhomme-et-des-peuples-relatif-aux-droits-des-personnes-handicapees-en-afrique/>
 
 En vigueur : 2025-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

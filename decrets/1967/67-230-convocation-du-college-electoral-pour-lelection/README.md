@@ -1,6 +1,6 @@
 # Décret n° 67-230 portant convocation du collège électoral pour l’élection du député représentant à l’Assemblée nationale la Côte Française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-230-portant-convocation-du-college-electoral-pour-lelection-du-depute-representant-a-lassemblee-nationale-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-230-portant-convocation-du-college-electoral-pour-lelection-du-depute-representant-a-lassemblee-nationale-la-cote-francaise-des-somalis/>
 
 En vigueur : 1967-04-01 (date du Journal officiel qui le publie).
 
@@ -19,8 +19,8 @@ Vu la 'oi n° (66-949 du 22 décembre 1966 organisant une consultation de la pop
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 – |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

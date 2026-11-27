@@ -1,8 +1,8 @@
 # Décret n° 2015-316/PR/PM portant mise en place des mesures exceptionnelles de sécurité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-316-pr-pm-portant-mise-en-place-des-mesures-exceptionnelles-de-securite/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-316-pr-pm-portant-mise-en-place-des-mesures-exceptionnelles-de-securite/>
 
-En vigueur : 2015-11-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-11-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

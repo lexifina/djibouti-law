@@ -1,6 +1,6 @@
 # Décret n° 4-423-1932 Loi portant ratification de la convention de Londres du 31 mai 1929 pour la Le sauvegarde de la vie humaine en mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 423 du 01/02/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-423-1932-loi-portant-ratification-de-la-convention-de-londres-du-31-mai-1929-pour-la-le-sauvegarde-de-la-vie-humaine-en-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 423 du 01/02/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-423-1932-loi-portant-ratification-de-la-convention-de-londres-du-31-mai-1929-pour-la-le-sauvegarde-de-la-vie-humaine-en-mer/>
 
 En vigueur : 1932-02-01 (date du Journal officiel qui le publie).
 

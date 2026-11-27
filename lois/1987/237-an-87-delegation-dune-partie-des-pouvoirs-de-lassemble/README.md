@@ -1,6 +1,6 @@
 # Loi n° 237/AN/87/1ère L portant délégation d’une partie des pouvoirs de l’assemblée nationale, à la commission permanente, jusqu’ à la prochaine législature.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/02/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n237-an-87-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqu-a-la-prochaine-legislature/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/02/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n237-an-87-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqu-a-la-prochaine-legislature/>
 
 En vigueur : 1987-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°23 Décret du 20 octobre 1927 fixant les traitements des trésoriers généraux et des trésoriers particuliers des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 372 du 30/11/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-decret-du-20-octobre-1927-fixant-les-traitements-des-tresoriers-generaux-et-des-tresoriers-particuliers-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 372 du 30/11/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-decret-du-20-octobre-1927-fixant-les-traitements-des-tresoriers-generaux-et-des-tresoriers-particuliers-des-colonies/>
 
 En vigueur : 1927-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0241/PRE fixant les indemnités de fonction, de logement et avantages en nature des conseillers du Président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0241-pre-fixant-les-indemnites-de-fonction-de-logement-et-avantages-en-nature-des-conseillers-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0241-pre-fixant-les-indemnites-de-fonction-de-logement-et-avantages-en-nature-des-conseillers-du-president-de-la-republique/>
 
 En vigueur : 1999-11-30 (date du Journal officiel qui le publie).
 

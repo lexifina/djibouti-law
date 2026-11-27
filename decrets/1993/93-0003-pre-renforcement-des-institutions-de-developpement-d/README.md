@@ -1,6 +1,6 @@
 # Décret n° 93-0003/PRE portant renforcement des Institutions de Développement du Secteur Privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0003-pre-portant-renforcement-des-institutions-de-developpement-du-secteur-prive/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0003-pre-portant-renforcement-des-institutions-de-developpement-du-secteur-prive/>
 
 En vigueur : 1993-01-31 (date du Journal officiel qui le publie).
 

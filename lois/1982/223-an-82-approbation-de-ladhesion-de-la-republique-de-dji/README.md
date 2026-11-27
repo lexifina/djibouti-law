@@ -1,6 +1,6 @@
 # Loi n° 223/AN/82 portant approbation de l’Adhésion de la République de Djibouti au Fonds International de Développement Agricole.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n223-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-fonds-international-de-developpement-agricole/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n223-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-au-fonds-international-de-developpement-agricole/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

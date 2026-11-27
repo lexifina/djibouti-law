@@ -1,8 +1,8 @@
 # Décret n° 2005-0209/PR/MAECI portant création du Comité National de Coordination et de Suivi du NEPAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0209-pr-maeci-portant-creation-du-comite-national-de-coordination-et-de-suivi-du-nepad/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0209-pr-maeci-portant-creation-du-comite-national-de-coordination-et-de-suivi-du-nepad/>
 
-En vigueur : 2005-12-10 (date fixÃ©e par le texte).
+En vigueur : 2005-12-10 (date fixée par le texte).
 
 ## Visas
 

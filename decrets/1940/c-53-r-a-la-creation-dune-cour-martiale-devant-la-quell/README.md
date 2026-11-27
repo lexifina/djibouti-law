@@ -1,6 +1,6 @@
 # Décret n° C. 53 R. relatif à la création d’une Cour martiale devant la- quelle seront déférées pur le Gouvernement les personnes coupables de crimes et manœuvres commis contre l’unité et la sauvegarde de la Patrie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 527 du 31/10/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-c-53-r-relatif-a-la-creation-dune-cour-martiale-devant-la-quelle-seront-deferees-pur-le-gouvernement-les-personnes-coupables-de-crimes-et-manoeuvres-commis-contre-lunite-et-la-s/>
+Décret · Journal officiel de la République de Djibouti, n° 527 du 31/10/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-c-53-r-relatif-a-la-creation-dune-cour-martiale-devant-la-quelle-seront-deferees-pur-le-gouvernement-les-personnes-coupables-de-crimes-et-manoeuvres-commis-contre-lunite-et-la-s/>
 
 En vigueur : 1940-10-31 (date du Journal officiel qui le publie).
 

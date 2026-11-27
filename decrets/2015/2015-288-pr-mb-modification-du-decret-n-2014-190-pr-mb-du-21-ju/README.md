@@ -1,6 +1,6 @@
 # Décret n° 2015-288/PR/MB portant modification du Décret n° 2014-190/PR/MB du 21 juillet 2014.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-288-pr-mb-portant-modification-du-decret-n2014-190-pr-mb-du-21-juillet-2014/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-288-pr-mb-portant-modification-du-decret-n2014-190-pr-mb-du-21-juillet-2014/>
 
 En vigueur : 2015-10-31 (date du Journal officiel qui le publie).
 

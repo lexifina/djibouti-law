@@ -1,6 +1,6 @@
 # Loi n° 142/AN/24/9ème L portant approbation des comptes financiers 2023 de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-24-9eme-l-portant-approbation-des-comptes-financiers-2023-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-24-9eme-l-portant-approbation-des-comptes-financiers-2023-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2025-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

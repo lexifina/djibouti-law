@@ -1,8 +1,8 @@
 # Décret n° 02-357-1926 Tarif des mandats-poste et des valeurs à recouvrer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 357 du 31/08/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-357-1926-tarif-des-mandats-poste-et-des-valeurs-a-recouvrer/>
+Décret · Journal officiel de la République de Djibouti, n° 357 du 31/08/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-357-1926-tarif-des-mandats-poste-et-des-valeurs-a-recouvrer/>
 
-En vigueur : 1926-06-16 (date fixÃ©e par le texte).
+En vigueur : 1926-06-16 (date fixée par le texte).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Décret n° 2003-0196/PR/MEFPCP portant adoption du Plan d’Apurement des Arriérés Intérieurs de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0196-pr-mefpcp-portant-adoption-du-plan-dapurement-des-arrieres-interieurs-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0196-pr-mefpcp-portant-adoption-du-plan-dapurement-des-arrieres-interieurs-de-letat/>
 
-En vigueur : 2003-09-22 (date fixÃ©e par le texte).
+En vigueur : 2003-09-22 (date fixée par le texte).
 
 ## Visas
 

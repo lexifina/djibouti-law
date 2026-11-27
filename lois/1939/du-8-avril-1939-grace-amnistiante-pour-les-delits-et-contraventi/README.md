@@ -1,6 +1,6 @@
 # Loi n° du 8 avril 1939 portant grâce amnistiante pour les délits et contraventions en matière de réunion, de conflit collectif du travail et de manifestation sur la voie publique et pour les infractions connexes commis antérieurement au 28 décembre 1938.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-du-8-avril-1939-portant-grace-amnistiante-pour-les-delits-et-contraventions-en-matiere-de-reunion-de-conflit-collectif-du-travail-et-de-manifestation-sur-la-voie-publique-et-pour-les-inf/>
+Loi · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/loi-n-du-8-avril-1939-portant-grace-amnistiante-pour-les-delits-et-contraventions-en-matiere-de-reunion-de-conflit-collectif-du-travail-et-de-manifestation-sur-la-voie-publique-et-pour-les-inf/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Georges MANDEL,
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

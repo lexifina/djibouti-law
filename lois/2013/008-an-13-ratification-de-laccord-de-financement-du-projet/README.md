@@ -1,6 +1,6 @@
 # Loi n° 8/AN/13/7ème L portant ratification de l’Accord de financement du projet de construction du Port de Tadjourah avec le Fonds Saoudien pour le développement (FSD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-du-port-de-tadjourah-avec-le-fonds-saoudien-pour-le-developpement-fsd/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2013 · <https://www.journalofficiel.dj/texte-juridique/loi-n8-an-13-7eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-construction-du-port-de-tadjourah-avec-le-fonds-saoudien-pour-le-developpement-fsd/>
 
 En vigueur : 2013-06-30 (date du Journal officiel qui le publie).
 

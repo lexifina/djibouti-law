@@ -1,6 +1,6 @@
 # Décret n° 14-232-1926 Ministère des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-232-1926-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-232-1926-ministere-des-colonies/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 

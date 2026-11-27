@@ -1,6 +1,6 @@
 # Loi n° 66-949 organisant une consultation de la population de la Côte Française des Somalis
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/08/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-66-949-organisant-une-consultation-de-la-population-de-la-cote-francaise-des-somalis/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 10/08/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-66-949-organisant-une-consultation-de-la-population-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1967-08-10 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ Michel DEBRE.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

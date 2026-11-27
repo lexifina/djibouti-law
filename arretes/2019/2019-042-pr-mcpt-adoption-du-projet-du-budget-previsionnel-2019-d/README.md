@@ -1,6 +1,6 @@
 # Arrêté n° 2019-042/PR/MCPT portant adoption du projet du budget prévisionnel 2019 de la Poste de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-042-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2019-de-la-poste-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-042-pr-mcpt-portant-adoption-du-projet-du-budget-previsionnel-2019-de-la-poste-de-djibouti/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,7 +1,7 @@
 # Arrêté n° 2015-605/PR/MTRA portant modification du plafonnement des rémunérations entrant en compte pour la détermination de l’assiette des cotisations dues à la CNSS et revalorisation du barème d’évaluation
 forfaitaire de la contre valeur des avantages en nature à retenir pour
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-605-pr-mtra-portant-modification-du-plafonnement-des-remunerations-entrant-en-compte-pour-la-determination-de-lassiette-des-cotisations-dues-a-la-cnss-et-revalorisation-du-bareme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-605-pr-mtra-portant-modification-du-plafonnement-des-remunerations-entrant-en-compte-pour-la-determination-de-lassiette-des-cotisations-dues-a-la-cnss-et-revalorisation-du-bareme/>
 
 En vigueur : 2015-10-15 (date du Journal officiel qui le publie).
 

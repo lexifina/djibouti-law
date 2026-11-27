@@ -1,6 +1,6 @@
 # Décret n° n°83 Rapport au Ministre n° 1140 B, du 10 novembre 1950, au sujet de l’embarquement du personnel atteint par Ia limite d’âge (décret du 21 décembre 1928)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 410 du 31/01/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n83-rapport-au-ministre-n-1140-b-du-10-novembre-1950-au-sujet-de-lembarquement-du-personnel-atteint-par-ia-limite-dage-decret-du-21-decembre-1928/>
+Décret · Journal officiel de la République de Djibouti, n° 410 du 31/01/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n83-rapport-au-ministre-n-1140-b-du-10-novembre-1950-au-sujet-de-lembarquement-du-personnel-atteint-par-ia-limite-dage-decret-du-21-decembre-1928/>
 
 En vigueur : 1931-01-31 (date du Journal officiel qui le publie).
 

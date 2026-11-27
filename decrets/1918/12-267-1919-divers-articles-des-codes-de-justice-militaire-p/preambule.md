@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 TITRE 1er
 TITREII. — ARMEE TERRE

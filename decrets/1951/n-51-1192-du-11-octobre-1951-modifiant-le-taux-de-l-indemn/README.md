@@ -1,6 +1,6 @@
 # Décret n° n° 51-1192 du 11 octobre 1951 modifiant le taux de l’indemnité de première mise d’uniforme allouée aux Gouverneurs généraux et Gouverneurs de la France d’Outre-Mer et. au personnel des Administrateurs de la France d’’Outre-Mer (J.O.R.F. du 14 octobre 1951, p. 0411)………………
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1192-du-11-octobre-1951-modifiant-le-taux-de-lindemnite-de-premiere-mise-duniforme-allouee-aux-gouverneurs-generaux-et-gouverneurs-de-la-france-d/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1192-du-11-octobre-1951-modifiant-le-taux-de-lindemnite-de-premiere-mise-duniforme-allouee-aux-gouverneurs-generaux-et-gouverneurs-de-la-france-d/>
 
 En vigueur : 1951-12-01 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Louis JACQUINOT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

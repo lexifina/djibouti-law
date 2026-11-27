@@ -1,6 +1,6 @@
 # Décret n° 9-359-1926 Indemnités de déplacement du personnel militaire des colonies et indemnité d’absence temporaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 359 du 31/10/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-359-1926-indemnites-de-deplacement-du-personnel-militaire-des-colonies-et-indemnite-dabsence-temporaire/>
+Décret · Journal officiel de la République de Djibouti, n° 359 du 31/10/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-359-1926-indemnites-de-deplacement-du-personnel-militaire-des-colonies-et-indemnite-dabsence-temporaire/>
 
 En vigueur : 1926-10-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Paul PAINLEVÉ.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

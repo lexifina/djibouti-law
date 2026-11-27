@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1: — Les articles 15, 27, 28, 38 et 490 du décret
 susvisé du 30 juillet 1963 sont modifiés comme suit :
 « Art. 15, 3° alinéa. — L’assemblée générale ordinaire com-

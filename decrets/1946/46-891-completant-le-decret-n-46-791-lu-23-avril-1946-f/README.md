@@ -1,6 +1,6 @@
 # Décret n° 46-891 complétant le décret n’ 46-791 «lu 23 avril 1946 fixant les modalités «l’application de la loi n“ 16-680 du 1.5 avril 1946 relative à l’élection des députés des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-891-completant-le-decret-n-46-791-lu-23-avril-1946-fixant-les-modalites-lapplication-de-la-loi-n-16-680-du-1-5-avril-1946-relative-a-lelection-des/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-891-completant-le-decret-n-46-791-lu-23-avril-1946-fixant-les-modalites-lapplication-de-la-loi-n-16-680-du-1-5-avril-1946-relative-a-lelection-des/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 

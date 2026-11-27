@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0171/PR/MET instituant les redevances aéronautiques et passagers modifiant l’Arrêté n° 2008-0158/PR/MET du 05 mars 2008.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0171-pr-met-instituant-les-redevances-aeronautiques-et-passagers-modifiant-larrete-n2008-0158-pr-met-du-05-mars-2008/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0171-pr-met-instituant-les-redevances-aeronautiques-et-passagers-modifiant-larrete-n2008-0158-pr-met-du-05-mars-2008/>
 
 En vigueur : 2008-03-31 (date du Journal officiel qui le publie).
 

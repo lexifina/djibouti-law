@@ -1,6 +1,6 @@
 # Loi n° 151/AN/16/7ème L portant ratification de l’accord de financement pour le projet de développement communautaire et mobilisation des eaux (PRODERMO).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-16-7eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-communautaire-et-mobilisation-des-eaux-prodermo/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-16-7eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-communautaire-et-mobilisation-des-eaux-prodermo/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

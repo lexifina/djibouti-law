@@ -1,6 +1,6 @@
 # Loi n° 195/AN/07/5ème L portant approbation des comptes financiers de la Caisse Nationale de Retraites pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-retraites-pour-lexercice-2004/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

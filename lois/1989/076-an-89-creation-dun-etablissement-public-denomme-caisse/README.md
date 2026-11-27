@@ -1,6 +1,6 @@
 # Loi n° 76/AN/89/2ème L portant création d’un établissement public dénommé « Caisse Militaire de Retraite ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-89-2eme-l-portant-creation-dun-etablissement-public-denomme-caisse-militaire-de-retraite/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-89-2eme-l-portant-creation-dun-etablissement-public-denomme-caisse-militaire-de-retraite/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0445/PRE modifiant l’arrêté n° 97-0702/PR/MCT portant agrément au Code des Investissements de la «Résidence Hôtel Bellevue».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0445-pre-modifiant-larrete-n97-0702-pr-mct-portant-agrement-au-code-des-investissements-de-la-residence-hotel-bellevue/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0445-pre-modifiant-larrete-n97-0702-pr-mct-portant-agrement-au-code-des-investissements-de-la-residence-hotel-bellevue/>
 
 En vigueur : 2005-07-31 (date du Journal officiel qui le publie).
 

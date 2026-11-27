@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0001/PR/PM portant création d’un Comité chargé de l’audit physique, stratégique et organisationnel de l’Administration.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0001-pr-pm-portant-creation-dun-comite-charge-de-laudit-physique-strategique-et-organisationnel-de-ladministration/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0001-pr-pm-portant-creation-dun-comite-charge-de-laudit-physique-strategique-et-organisationnel-de-ladministration/>
 
 En vigueur : 2006-01-15 (date du Journal officiel qui le publie).
 

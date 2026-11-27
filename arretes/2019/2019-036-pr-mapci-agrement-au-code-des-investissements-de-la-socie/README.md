@@ -1,6 +1,6 @@
 # Arrêté n° 2019-036/PR/MAPCI portant agrément au Code des Investissements de la Société “NAEL & BIN HARMAL INVESTMENT”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-036-pr-mapci-portant-agrement-au-code-des-investissements-de-la-societe-nael-bin-harmal-investment/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-036-pr-mapci-portant-agrement-au-code-des-investissements-de-la-societe-nael-bin-harmal-investment/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0012/PR/MEFPCP portant donation d’un immeuble par la République de Djibouti à l’IGAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0012-pr-mefpcp-portant-donation-dun-immeuble-par-la-republique-de-djibouti-a-ligad/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0012-pr-mefpcp-portant-donation-dun-immeuble-par-la-republique-de-djibouti-a-ligad/>
 
 En vigueur : 1999-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 84-053/PR/MCTT approuvant et rendant exécutoire un avenant au budget primitif 1984 de l’Office de Développement du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-053-pr-mctt-approuvant-et-rendant-executoire-un-avenant-au-budget-primitif-1984-de-loffice-de-developpement-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/07/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-053-pr-mctt-approuvant-et-rendant-executoire-un-avenant-au-budget-primitif-1984-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1984-07-15 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Le Conseil des Ministres entendu en sa séance du 29 mai 1984.
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

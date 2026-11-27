@@ -1,6 +1,6 @@
 # Loi n° 106/AN/24/9ème L relative à la lutte contre le blanchiment des capitaux, le financement du terrorisme et la prolifération des armes de destruction massive.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes-de-destruction-massive/>
+Loi · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-24-9eme-l-relative-a-la-lutte-contre-le-blanchiment-des-capitaux-le-financement-du-terrorisme-et-la-proliferation-des-armes-de-destruction-massive/>
 
 En vigueur : 2024-03-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -48,4 +48,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

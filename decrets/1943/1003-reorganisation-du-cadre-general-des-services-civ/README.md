@@ -1,6 +1,6 @@
 # Décret n° 1003 portant réorganisation du cadre général des Services Civils des Colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 30/07/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1003-portant-reorganisation-du-cadre-general-des-services-civils-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 30/07/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1003-portant-reorganisation-du-cadre-general-des-services-civils-des-colonies/>
 
 En vigueur : 1943-07-30 (date du Journal officiel qui le publie).
 

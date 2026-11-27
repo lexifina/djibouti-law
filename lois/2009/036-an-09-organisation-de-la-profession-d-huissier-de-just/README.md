@@ -1,6 +1,6 @@
 # Loi n° 36/AN/09/6ème L portant Organisation de la Profession d’Huissier de Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-09-6eme-l-portant-organisation-de-la-profession-dhuissier-de-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-09-6eme-l-portant-organisation-de-la-profession-dhuissier-de-justice/>
 
 En vigueur : 2009-02-28 (date du Journal officiel qui le publie).
 
@@ -87,4 +87,4 @@ Le Conseil des Ministres entendu en sa séance du 11 Novembre 2008.
 | [art-058.md](art-058.md) | Article 58 |
 | [art-059.md](art-059.md) | Article 59 |
 | [art-060.md](art-060.md) | Article 60 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

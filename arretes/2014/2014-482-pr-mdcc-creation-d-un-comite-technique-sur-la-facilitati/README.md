@@ -1,6 +1,6 @@
 # Arrêté n° 2014-482/PR/MDCC portant création d’un Comité Technique sur la Facilitation des Echanges.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-482-pr-mdcc-portant-creation-dun-comite-technique-sur-la-facilitation-des-echanges/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-482-pr-mdcc-portant-creation-dun-comite-technique-sur-la-facilitation-des-echanges/>
 
 En vigueur : 2014-07-15 (date du Journal officiel qui le publie).
 

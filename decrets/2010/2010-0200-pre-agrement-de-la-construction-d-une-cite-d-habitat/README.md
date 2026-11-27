@@ -1,8 +1,8 @@
 # Décret n° 2010-0200/PRE portant Agrément de la Construction d’une Cité d’Habitation et l’Aménagement d’une Zone Commerciale et Industrielle sur le site du Khor Ambado.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0200-pre-portant-agrement-de-la-construction-dune-cite-dhabitation-et-lamenagement-dune-zone-commerciale-et-industrielle-sur-le-site-du-khor-amba/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0200-pre-portant-agrement-de-la-construction-dune-cite-dhabitation-et-lamenagement-dune-zone-commerciale-et-industrielle-sur-le-site-du-khor-amba/>
 
-En vigueur : 2010-10-27 (date fixÃ©e par le texte).
+En vigueur : 2010-10-27 (date fixée par le texte).
 
 ## Visas
 

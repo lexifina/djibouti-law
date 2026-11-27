@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0299/PR/MID fixant les nombres et les emplacements des bureaux de vote pour les élections présidentielles du vendredi 08 avril 2011.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 17/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0299-pr-mid-fixant-les-nombres-et-les-emplacements-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-08-avril-2011/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 17/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0299-pr-mid-fixant-les-nombres-et-les-emplacements-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-08-avril-2011/>
 
 En vigueur : 2011-04-17 (date du Journal officiel qui le publie).
 

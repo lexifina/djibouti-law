@@ -1,6 +1,6 @@
 # Décret n° 9-371-1927 Modification de traitements de parité d’office.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 371 du 31/10/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-371-1927-modification-de-traitements-de-parite-doffice/>
+Décret · Journal officiel de la République de Djibouti, n° 371 du 31/10/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-371-1927-modification-de-traitements-de-parite-doffice/>
 
 En vigueur : 1927-10-31 (date du Journal officiel qui le publie).
 

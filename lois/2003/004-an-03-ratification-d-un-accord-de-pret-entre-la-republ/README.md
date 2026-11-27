@@ -1,6 +1,6 @@
 # Loi n° 4/AN/03/5ème L portant ratification d’un accord de prêt entre la République de Djibouti et le Fonds Monétaire Arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-03-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-monetaire-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-03-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-monetaire-arabe/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

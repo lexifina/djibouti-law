@@ -1,6 +1,6 @@
 # Loi de Finances n° 128/AN/24/9ème L portant Règlement Définitif du Budget de l’État de l’Exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n128-an-24-9eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n128-an-24-9eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2023/>
 
 En vigueur : 2025-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

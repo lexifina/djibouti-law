@@ -1,6 +1,6 @@
 # Décret n° 2009-091/PR/MET règlementant les établissements de formation à la conduite en mer des navires de plaisance à moteur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-091-pr-met-reglementant-les-etablissements-de-formation-a-la-conduite-en-mer-des-navires-de-plaisance-a-moteur/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-091-pr-met-reglementant-les-etablissements-de-formation-a-la-conduite-en-mer-des-navires-de-plaisance-a-moteur/>
 
 En vigueur : 2009-05-14 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

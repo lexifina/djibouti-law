@@ -1,6 +1,6 @@
 # Décret n° 78-079/PRE portant définition des attributions des membres du Gouvernement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 24/04/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-079-pre-portant-definition-des-attributions-des-membres-du-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 24/04/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-079-pre-portant-definition-des-attributions-des-membres-du-gouvernement/>
 
 En vigueur : 1979-04-24 (date du Journal officiel qui le publie).
 

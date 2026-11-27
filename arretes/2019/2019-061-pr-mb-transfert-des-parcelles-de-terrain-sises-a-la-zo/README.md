@@ -1,6 +1,6 @@
 # Arrêté n° 2019-061/PR/MB portant le transfert des parcelles de terrain sises à la Zone Industrielle Sud Extension Est.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 14/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-061-pr-mb-portant-le-transfert-des-parcelles-de-terrain-sises-a-la-zone-industrielle-sud-extension-est/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 14/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-061-pr-mb-portant-le-transfert-des-parcelles-de-terrain-sises-a-la-zone-industrielle-sud-extension-est/>
 
 En vigueur : 2019-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

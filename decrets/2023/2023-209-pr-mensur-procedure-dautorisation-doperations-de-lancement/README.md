@@ -1,6 +1,6 @@
 # Décret n° 2023-209/PR/MENSUR fixant la procédure d’autorisation d’opérations de lancement ou de guidage d’objets spatiaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-209-pr-mensur-fixant-la-procedure-dautorisation-doperations-de-lancement-ou-de-guidage-dobjets-spatiaux/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-209-pr-mensur-fixant-la-procedure-dautorisation-doperations-de-lancement-ou-de-guidage-dobjets-spatiaux/>
 
 En vigueur : 2023-07-31 (date du Journal officiel qui le publie).
 
@@ -109,4 +109,4 @@ Le Conseil des Ministres entendu en sa séance du 23 Mai 2023.
 | [art-082.md](art-082.md) | Article 82 |
 | [art-083.md](art-083.md) | Article 83 |
 | [art-084.md](art-084.md) | Article 84 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

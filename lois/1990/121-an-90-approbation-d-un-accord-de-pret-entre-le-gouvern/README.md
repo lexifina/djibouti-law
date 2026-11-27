@@ -1,6 +1,6 @@
 # Loi n° 121/AN/90/2e L portant approbation d’un accord de prét entre le Gouvernement de la République de Djibouti et l’Association internationale de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-90-2e-l-portant-approbation-dun-accord-de-pret-entre-le-gouvernement-de-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-90-2e-l-portant-approbation-dun-accord-de-pret-entre-le-gouvernement-de-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
 
 En vigueur : 1990-06-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |

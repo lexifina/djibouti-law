@@ -1,6 +1,6 @@
 # Arrêté n° 2018-114/PR/MB portant expropriation pour cause d’utilité publique d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-114-pr-mb-portant-expropriation-pour-cause-dutilite-publique-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-114-pr-mb-portant-expropriation-pour-cause-dutilite-publique-dune-parcelle-de-terrain/>
 
 En vigueur : 2018-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

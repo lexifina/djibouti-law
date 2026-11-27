@@ -1,6 +1,6 @@
 # Décret n° DECRET DU 4 FEVRIER 1943 DECRET DU 4 FEVRIER 1943
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/03/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-decret-du-4-fevrier-1943-decret-du-4-fevrier-1943/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 30/03/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-decret-du-4-fevrier-1943-decret-du-4-fevrier-1943/>
 
 En vigueur : 1943-03-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Ordonnance n° 37 modifiant les statuts de la caisse centrale de la France Libre.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-37-modifiant-les-statuts-de-la-caisse-centrale-de-la-france-libre/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-37-modifiant-les-statuts-de-la-caisse-centrale-de-la-france-libre/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

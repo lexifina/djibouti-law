@@ -1,8 +1,8 @@
 # Décret n° 2017-326/PR/MTRA portant création et organisation d’un Comité de Pilotage du Projet d’Appui au Renforcement des Compétences dans le Secteur de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-326-pr-mtra-portant-creation-et-organisation-dun-comite-de-pilotage-du-projet-dappui-au-renforcement-des-competences-dans-le-secteur-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-326-pr-mtra-portant-creation-et-organisation-dun-comite-de-pilotage-du-projet-dappui-au-renforcement-des-competences-dans-le-secteur-de-la-sante/>
 
-En vigueur : 2017-10-08 (date fixÃ©e par le texte).
+En vigueur : 2017-10-08 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 05-417-1931 Classement à bord des agents du cadre métropolitain des douanes appartenant à la 4° catégorie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 417 du 31/08/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-417-1931-classement-a-bord-des-agents-du-cadre-metropolitain-des-douanes-appartenant-a-la-4-categorie/>
+Décret · Journal officiel de la République de Djibouti, n° 417 du 31/08/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-417-1931-classement-a-bord-des-agents-du-cadre-metropolitain-des-douanes-appartenant-a-la-4-categorie/>
 
 En vigueur : 1931-08-31 (date du Journal officiel qui le publie).
 

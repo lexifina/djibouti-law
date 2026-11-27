@@ -1,6 +1,6 @@
 # Décret n° 80-035/PR/MI portant constitution du Comité technique de Recensement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-035-pr-mi-portant-constitution-du-comite-technique-de-recensement/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-035-pr-mi-portant-constitution-du-comite-technique-de-recensement/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

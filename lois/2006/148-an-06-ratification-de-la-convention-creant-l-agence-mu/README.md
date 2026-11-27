@@ -1,6 +1,6 @@
 # Loi n° 148/AN/06/5ème L portant ratification de la Convention créant l’Agence Multilatérale de Garantie des Investissements (MIGA).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-06-5eme-l-portant-ratification-de-la-convention-creant-lagence-multilaterale-de-garantie-des-investissements-miga/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-06-5eme-l-portant-ratification-de-la-convention-creant-lagence-multilaterale-de-garantie-des-investissements-miga/>
 
 En vigueur : 2006-06-29 (date du Journal officiel qui le publie).
 

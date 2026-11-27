@@ -1,6 +1,6 @@
 # Décret n° 2000-0150/PRE portant modalités de gestion des crédits alloués au Médiateur de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0150-pre-portant-modalites-de-gestion-des-credits-alloues-au-mediateur-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0150-pre-portant-modalites-de-gestion-des-credits-alloues-au-mediateur-de-la-republique/>
 
 En vigueur : 2000-06-15 (date du Journal officiel qui le publie).
 

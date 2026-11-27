@@ -1,6 +1,6 @@
 # Décret n° 2015-311/PR/MEFI modification du décret 2012-0187/PR/MEFIP du 30 août 2012 portant création et organisation du Cadre Institutionnel pour le Dialogue Gouvernement- Partenaires Techniques et Financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-311-pr-mefi-modification-du-decret-2012-0187-pr-mefip-du-30-aout-2012-portant-creation-et-organisation-du-cadre-institutionnel-pour-le-dialogue-gouvernement-partenaires-techniques/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-311-pr-mefi-modification-du-decret-2012-0187-pr-mefip-du-30-aout-2012-portant-creation-et-organisation-du-cadre-institutionnel-pour-le-dialogue-gouvernement-partenaires-techniques/>
 
 En vigueur : 2015-11-30 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

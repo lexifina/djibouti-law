@@ -1,6 +1,6 @@
 # Arrêté n° 2019-239/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel Consolidé 2020 de l’HGP.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-239-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2020-de-lhgp/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-239-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-consolide-2020-de-lhgp/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

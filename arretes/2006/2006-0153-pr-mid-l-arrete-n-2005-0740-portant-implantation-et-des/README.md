@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0153/PR/MID modifiant l’arrêté n° 2005-0740 portant implantation et désignation des membres des bureaux de vote pour les élections du 10 et 31 mars 2006.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 27/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0153-pr-mid-modifiant-larrete-n2005-0740-portant-implantation-et-designation-des-membres-des-bureaux-de-vote-pour-les-elections-du-10-et-31-mars-2006/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 27/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0153-pr-mid-modifiant-larrete-n2005-0740-portant-implantation-et-designation-des-membres-des-bureaux-de-vote-pour-les-elections-du-10-et-31-mars-2006/>
 
 En vigueur : 2006-02-27 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

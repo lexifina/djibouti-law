@@ -1,6 +1,6 @@
 # Décret n° 10-478-1936 Publication et mise en application provisoire d’un accord de compensation pour les payements, conclu le 11 août 1936 entre la France et l’Italie,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-478-1936-publication-et-mise-en-application-provisoire-dun-accord-de-compensation-pour-les-payements-conclu-le-11-aout-1936-entre-la-france-et-litalie/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-478-1936-publication-et-mise-en-application-provisoire-dun-accord-de-compensation-pour-les-payements-conclu-le-11-aout-1936-entre-la-france-et-litalie/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

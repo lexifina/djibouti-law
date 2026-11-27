@@ -1,6 +1,6 @@
 # Décret n° 18-404-1930 Fonctionnement du service des douanes à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 404 du 31/07/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-404-1930-fonctionnement-du-service-des-douanes-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 404 du 31/07/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-404-1930-fonctionnement-du-service-des-douanes-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1930-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 89-103/PR/INT portant la durée de validité des passeports de 3 ans à 5 ans.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-103-pr-int-portant-la-duree-de-validite-des-passeports-de-3-ans-a-5-ans/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-103-pr-int-portant-la-duree-de-validite-des-passeports-de-3-ans-a-5-ans/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

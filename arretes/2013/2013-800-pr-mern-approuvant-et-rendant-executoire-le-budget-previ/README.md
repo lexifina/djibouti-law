@@ -1,6 +1,6 @@
 # Arrêté n° 2013-800/PR/MERN approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2014 de la Société Internationale des Hydrocarbures de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-800-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-800-pr-mern-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-la-societe-internationale-des-hydrocarbures-de-djibouti/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

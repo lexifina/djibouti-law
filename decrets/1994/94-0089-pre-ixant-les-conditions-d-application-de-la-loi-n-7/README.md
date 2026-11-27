@@ -1,8 +1,8 @@
 # Décret n° 94‑0089/PRE ixant les conditions d’application de la loi n° 72-10 du 3 janvier 1972 relative à la prévention des infractions en matière de chèques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 16/07/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910089-pre-ixant-les-conditions-dapplication-de-la-loi-n72-10-du-3-janvier-1972-relative-a-la-prevention-des-infractions-en-matiere-de-cheques/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 16/07/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910089-pre-ixant-les-conditions-dapplication-de-la-loi-n72-10-du-3-janvier-1972-relative-a-la-prevention-des-infractions-en-matiere-de-cheques/>
 
-En vigueur : 1994-10-01 (date fixÃ©e par le texte).
+En vigueur : 1994-10-01 (date fixée par le texte).
 
 ## Visas
 

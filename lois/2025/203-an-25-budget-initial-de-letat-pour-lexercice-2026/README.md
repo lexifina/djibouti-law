@@ -1,6 +1,6 @@
 # Loi de finances n° 203/AN/25/9ème L portant Budget initial de l’Etat pour l’exercice 2026.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n203-an-25-9eme-l-portant-budget-initial-de-letat-pour-lexercice-2026/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n203-an-25-9eme-l-portant-budget-initial-de-letat-pour-lexercice-2026/>
 
 En vigueur : 2026-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

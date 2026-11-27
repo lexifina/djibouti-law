@@ -1,6 +1,6 @@
 # Décret n° 03-417-1931 8 juillet 1931
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 417 du 31/08/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-417-1931-8-juillet-1931/>
+Décret · Journal officiel de la République de Djibouti, n° 417 du 31/08/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-417-1931-8-juillet-1931/>
 
 En vigueur : 1931-08-31 (date du Journal officiel qui le publie).
 

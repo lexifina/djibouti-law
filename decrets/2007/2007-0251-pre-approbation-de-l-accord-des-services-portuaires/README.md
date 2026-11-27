@@ -1,6 +1,6 @@
 # Décret n° 2007-0251/PRE portant approbation de l’Accord des services portuaires entre le PAID et la Société DCT SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0251-pre-portant-approbation-de-laccord-des-services-portuaires-entre-le-paid-et-la-societe-dct-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0251-pre-portant-approbation-de-laccord-des-services-portuaires-entre-le-paid-et-la-societe-dct-sa/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

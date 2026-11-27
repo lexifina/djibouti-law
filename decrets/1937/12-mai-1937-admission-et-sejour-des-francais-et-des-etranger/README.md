@@ -1,6 +1,6 @@
 # Décret n° 12 mai 1937. Admission et séjour des Français et des étrangers à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mai-1937-admission-et-sejour-des-francais-et-des-etrangers-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mai-1937-admission-et-sejour-des-francais-et-des-etrangers-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

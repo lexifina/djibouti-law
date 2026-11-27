@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0191/PR/MEFCIP portant déchéance de l’arrêté n° 2010-0154/PR/MEFCIP portant modification de l’arrêté n° 2010-0064/PR/MEFCIP, affectant une parcelle de terrain sise à Ali-Sabieh pour la société Shoura.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0191-pr-mefcip-portant-decheance-de-larrete-n2010-0154-pr-mefcip-portant-modification-de-larrete-n2010-0064-pr-mefcip-affectant-une-parcelle-de-terrai/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0191-pr-mefcip-portant-decheance-de-larrete-n2010-0154-pr-mefcip-portant-modification-de-larrete-n2010-0064-pr-mefcip-affectant-une-parcelle-de-terrai/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

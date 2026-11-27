@@ -1,6 +1,6 @@
 # Loi n° 219/AN186/1ère L portant arrêt des compte pour l’exercice 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n219-an186-1ere-l-portant-arret-des-compte-pour-lexercice-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n219-an186-1ere-l-portant-arret-des-compte-pour-lexercice-1985/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

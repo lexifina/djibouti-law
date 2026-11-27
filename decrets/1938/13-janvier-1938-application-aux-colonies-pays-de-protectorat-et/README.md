@@ -1,6 +1,6 @@
 # Décret n° 13 janvier 1938 portant application aux colonies, pays de protectorat et territoires sous mandat relevant du minis tère des colonies des décrets des 29 juin et 19 novembre 1937 concernant des défini tions d’appellations d’origine contrôlées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 495 du 28/02/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-minis-tere-des-colonies-des-decrets-des-29-juin-et-19-novembre-1937-concern/>
+Décret · Journal officiel de la République de Djibouti, n° 495 du 28/02/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-janvier-1938-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-minis-tere-des-colonies-des-decrets-des-29-juin-et-19-novembre-1937-concern/>
 
 En vigueur : 1938-02-28 (date du Journal officiel qui le publie).
 

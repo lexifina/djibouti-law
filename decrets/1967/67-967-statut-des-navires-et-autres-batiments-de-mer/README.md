@@ -1,6 +1,6 @@
 # Décret n° 67-967 portant statut des navires et autres bâtiments de mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 10/03/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-967-portant-statut-des-navires-et-autres-batiments-de-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 10/03/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-967-portant-statut-des-navires-et-autres-batiments-de-mer/>
 
 En vigueur : 1968-03-10 (date du Journal officiel qui le publie).
 
@@ -14,4 +14,4 @@ Vu le code des douanes ; Après avis du Conseil d’Etat (section de l’intéri
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

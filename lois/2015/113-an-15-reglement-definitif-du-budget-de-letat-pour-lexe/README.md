@@ -1,6 +1,6 @@
 # Loi de finances n° 113/AN/15/7ème L portant Règlement Définitif du budget de l’état pour l’exercice 2014.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n113-an-15-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2014/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n113-an-15-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2014/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

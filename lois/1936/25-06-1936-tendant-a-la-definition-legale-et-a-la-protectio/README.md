@@ -1,6 +1,6 @@
 # Loi n° 25/06/1936 tendant à la définition légale et à la protection du cuir et à la répression de la fraude dans la vente du cuir et des produits ouvrés du cuir.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 477 du 31/08/1936 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-25-06-1936-tendant-a-la-definition-legale-et-a-la-protection-du-cuir-et-a-la-repression-de-la-fraude-dans-la-vente-du-cuir-et-des-produits-ouvres-du-cuir/>
+Loi · Journal officiel de la République de Djibouti, n° 477 du 31/08/1936 · <https://www.journalofficiel.dj/texte-juridique/loi-n-25-06-1936-tendant-a-la-definition-legale-et-a-la-protection-du-cuir-et-a-la-repression-de-la-fraude-dans-la-vente-du-cuir-et-des-produits-ouvres-du-cuir/>
 
 En vigueur : 1936-08-31 (date du Journal officiel qui le publie).
 

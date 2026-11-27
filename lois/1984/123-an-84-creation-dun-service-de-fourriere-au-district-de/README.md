@@ -1,6 +1,6 @@
 # Loi n° 123/AN/84/lère L portant création d’un service de fourrière au district de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-84-lere-l-portant-creation-dun-service-de-fourriere-au-district-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-84-lere-l-portant-creation-dun-service-de-fourriere-au-district-de-djibouti/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

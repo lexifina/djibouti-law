@@ -1,6 +1,6 @@
 # Loi n° 4/AN/98/4ème L portant approbation de l’adhésion à l’organisation de l’Association Islamique des Armateurs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-98-4eme-l-portant-approbation-de-ladhesion-a-lorganisation-de-lassociation-islamique-des-armateurs/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-98-4eme-l-portant-approbation-de-ladhesion-a-lorganisation-de-lassociation-islamique-des-armateurs/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

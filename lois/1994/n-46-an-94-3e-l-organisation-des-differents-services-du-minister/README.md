@@ -1,6 +1,6 @@
 # Loi n° n° 46/AN/94/3e L portant organisation des différents services du Ministère de l’Éducation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-nn46-an-94-3e-l-portant-organisation-des-differents-services-du-ministere-de-leducation/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-nn46-an-94-3e-l-portant-organisation-des-differents-services-du-ministere-de-leducation/>
 
 En vigueur : 1994-03-31 (date du Journal officiel qui le publie).
 

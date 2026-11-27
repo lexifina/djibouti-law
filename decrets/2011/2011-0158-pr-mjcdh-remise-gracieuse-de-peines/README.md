@@ -1,6 +1,6 @@
 # Décret n° 2011-0158/PR/MJCDH portant remise gracieuse de peines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0158-pr-mjcdh-portant-remise-gracieuse-de-peines/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0158-pr-mjcdh-portant-remise-gracieuse-de-peines/>
 
 En vigueur : 2011-08-31 (date du Journal officiel qui le publie).
 

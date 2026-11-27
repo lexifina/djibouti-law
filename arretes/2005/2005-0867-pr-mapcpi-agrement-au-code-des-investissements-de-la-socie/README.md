@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0867/PR/MAPCPI Portant Agrément au Code des Investissements de la société «Djibouti Media & Entertainment City».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0867-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-media-entertainment-city/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0867-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-djibouti-media-entertainment-city/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

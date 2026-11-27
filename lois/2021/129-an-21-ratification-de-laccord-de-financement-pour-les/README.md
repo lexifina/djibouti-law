@@ -1,6 +1,6 @@
 # Loi n° 129/AN/21/8ème L portant ratification de l’Accord de financement pour les entités externes de la centrale électrique de Damerjog et l’extension du réseau de transport d’électricité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-21-8eme-l-portant-ratification-de-laccord-de-financement-pour-les-entites-externes-de-la-centrale-electrique-de-damerjog-et-lextension-du-reseau-de-transport-delectricite/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-21-8eme-l-portant-ratification-de-laccord-de-financement-pour-les-entites-externes-de-la-centrale-electrique-de-damerjog-et-lextension-du-reseau-de-transport-delectricite/>
 
 En vigueur : 2021-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

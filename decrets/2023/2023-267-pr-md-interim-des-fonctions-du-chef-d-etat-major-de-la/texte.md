@@ -1,2 +1,0 @@
-Par décret n°2023-267/PR/MD, du Président de la République, chef du Gouvernement, en date du 03 septembre 2023, durant l’absence en permission à l’Etranger du Colonel ZAKARIA HASSAN ADEN Chef d’état major de la Gendarmerie Nationale, du 1er Septembre au 20 Septembre 2023, l’intérim de ses fonctions sera assuré par le Colonel ALI MOHAMED ROBLEH.
-Le présent décret sera enregistré et publié au Journal Officiel de la République de Djibouti.

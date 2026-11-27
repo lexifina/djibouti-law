@@ -1,6 +1,6 @@
 # Loi n° 106/AN/15/7ème L portant ratification de la Convention de prêt pour la participation au financement du projet de construction du Port de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-15-7eme-l-portant-ratification-de-la-convention-de-pret-pour-la-participation-au-financement-du-projet-de-construction-du-port-de-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n106-an-15-7eme-l-portant-ratification-de-la-convention-de-pret-pour-la-participation-au-financement-du-projet-de-construction-du-port-de-tadjourah/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

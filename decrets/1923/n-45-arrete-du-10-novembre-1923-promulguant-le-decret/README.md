@@ -1,6 +1,6 @@
 # Décret n° n°45 Arrêté du 10 novembre 1923, promulguant le décret du 20 septembre 1923 (inséré) portant institution de commissions départementales du domaine national
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 324 du 30/11/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n45-arrete-du-10-novembre-1923-promulguant-le-decret-du-20-septembre-1923-insere-portant-institution-de-commissions-departementales-du-domaine-national/>
+Décret · Journal officiel de la République de Djibouti, n° 324 du 30/11/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n45-arrete-du-10-novembre-1923-promulguant-le-decret-du-20-septembre-1923-insere-portant-institution-de-commissions-departementales-du-domaine-national/>
 
 En vigueur : 1923-11-30 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ A.Sarrut
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

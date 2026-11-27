@@ -1,6 +1,6 @@
 # Décret n° 52-1332 fixant les conditions de transfert des restes mortels des fonctionnaires appartenant aux cadres géneraux relevant du Ministere de la France d’Outre-Mer, des fonctionnaires des administrations métropolitaines mis à la disposition de ce département et des militaires décédés en activité de service dans un territoire relevant du Ministère de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1332-fixant-les-conditions-de-transfert-des-restes-mortels-des-fonctionnaires-appartenant-aux-cadres-generaux-relevant-du-ministere-de-la-france-doutre-mer-des-fonctionnaires-des/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-1332-fixant-les-conditions-de-transfert-des-restes-mortels-des-fonctionnaires-appartenant-aux-cadres-generaux-relevant-du-ministere-de-la-france-doutre-mer-des-fonctionnaires-des/>
 
 En vigueur : 1953-02-01 (date du Journal officiel qui le publie).
 
@@ -39,7 +39,7 @@ Jean MOREAu.
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

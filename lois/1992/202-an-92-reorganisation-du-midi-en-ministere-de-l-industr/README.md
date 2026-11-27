@@ -1,6 +1,6 @@
 # Loi n° 202/AN/92/2e L portant réorganisation du MIDI en Ministère. de l’industrie. de l’Energie et des Mines.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-92-2e-l-portant-reorganisation-du-midi-en-ministere-de-lindustrie-de-lenergie-et-des-mines/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-92-2e-l-portant-reorganisation-du-midi-en-ministere-de-lindustrie-de-lenergie-et-des-mines/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 
@@ -17,4 +17,4 @@ vu la loin° 37 /AN/83/ tre L relative:à l’organisation du Ministère de:!’
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |

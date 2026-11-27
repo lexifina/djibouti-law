@@ -1,6 +1,6 @@
 # Arrêté n° 2011-021/PR/MJSLT approuvant et rendant exécutoire le Budget prévisionnel 2011 du Stade Al Hadj Hassan Gouled.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-021-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2011-du-stade-al-hadj-hassan-gouled/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-021-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2011-du-stade-al-hadj-hassan-gouled/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

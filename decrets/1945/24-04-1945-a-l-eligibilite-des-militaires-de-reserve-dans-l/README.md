@@ -1,6 +1,6 @@
 # Décret n° 24/04/1945 relatif à l’éligibilité des militaires de réserve dans les territoires relevant du Ministère des Colonies autres que la Guadeloupe, la Martinique et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-24-04-1945-relatif-a-leligibilite-des-militaires-de-reserve-dans-les-territoires-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-la-reunion/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-24-04-1945-relatif-a-leligibilite-des-militaires-de-reserve-dans-les-territoires-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-la-reunion/>
 
 En vigueur : 1945-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 60/AN/09/6ème L portant modification partielle de la loi n° 153/AN/02/4ème L du 31 janvier 2002 fixant les droits à pensions des militaires et de leurs ayants droit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-09-6eme-l-portant-modification-partielle-de-la-loi-n153-an-02-4eme-l-du-31-janvier-2002-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-09-6eme-l-portant-modification-partielle-de-la-loi-n153-an-02-4eme-l-du-31-janvier-2002-fixant-les-droits-a-pensions-des-militaires-et-de-leurs-ayants-droit/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

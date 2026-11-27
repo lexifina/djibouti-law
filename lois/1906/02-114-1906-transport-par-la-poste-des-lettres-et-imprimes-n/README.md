@@ -1,6 +1,6 @@
 # Loi n° 02-114-1906 concernant Le transport par la poste des lettres et imprimés non périodiques.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 114 du 01/05/1906 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-02-114-1906-concernant-le-transport-par-la-poste-des-lettres-et-imprimes-non-periodiques/>
+Loi · Journal officiel de la République de Djibouti, n° 114 du 01/05/1906 · <https://www.journalofficiel.dj/texte-juridique/loi-n-02-114-1906-concernant-le-transport-par-la-poste-des-lettres-et-imprimes-non-periodiques/>
 
 En vigueur : 1906-05-01 (date du Journal officiel qui le publie).
 

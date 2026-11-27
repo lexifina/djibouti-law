@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1. — L’article 2 du décret du septembre 1920 susvisé est modifié de la facon suivante;
 « LE Conesil ennérienr des Colonies comprend:
 » 1e Le haut Conseil colonial;

@@ -1,6 +1,6 @@
 # Loi n° 53-681 portant amnistie (Rectificatif au J. O. du 7 août 1953).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-681-portant-amnistie-rectificatif-au-j-o-du-7-aout-1953/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-681-portant-amnistie-rectificatif-au-j-o-du-7-aout-1953/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 

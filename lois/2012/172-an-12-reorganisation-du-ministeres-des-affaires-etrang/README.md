@@ -1,6 +1,6 @@
 # Loi n° 172/AN/12/6ème L portant réorganisation du Ministères des Affaires Étrangères et de la Coopération Internationale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-12-6eme-l-portant-reorganisation-du-ministeres-des-affaires-etrangeres-et-de-la-cooperation-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-12-6eme-l-portant-reorganisation-du-ministeres-des-affaires-etrangeres-et-de-la-cooperation-internationale/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 06-393-1929 10 juin 1929
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 393 du 31/08/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-393-1929-10-juin-1929/>
+Décret · Journal officiel de la République de Djibouti, n° 393 du 31/08/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-393-1929-10-juin-1929/>
 
 En vigueur : 1929-08-31 (date du Journal officiel qui le publie).
 
@@ -27,7 +27,7 @@ Louis BartHou
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

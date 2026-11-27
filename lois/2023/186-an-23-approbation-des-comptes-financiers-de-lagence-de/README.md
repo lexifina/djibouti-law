@@ -1,6 +1,6 @@
 # Loi n° 186/AN/23/8ème L portant approbation des Comptes Financiers de l’Agence de Réhabilitation Urbaine et du Logement Social pour l’exercice 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-pour-lexercice-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-23-8eme-l-portant-approbation-des-comptes-financiers-de-lagence-de-rehabilitation-urbaine-et-du-logement-social-pour-lexercice-2018/>
 
 En vigueur : 2023-02-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

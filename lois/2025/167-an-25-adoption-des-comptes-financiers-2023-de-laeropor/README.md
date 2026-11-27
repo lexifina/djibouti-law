@@ -1,6 +1,6 @@
 # Loi n° 167/AN/25/9ème L Portant adoption des comptes financiers 2023 de l’Aéroport International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-25-9eme-l-portant-adoption-des-comptes-financiers-2023-de-laeroport-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 30/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n167-an-25-9eme-l-portant-adoption-des-comptes-financiers-2023-de-laeroport-international-de-djibouti/>
 
 En vigueur : 2025-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

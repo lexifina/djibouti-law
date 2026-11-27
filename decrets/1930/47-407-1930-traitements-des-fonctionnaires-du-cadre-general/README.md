@@ -1,6 +1,6 @@
 # Décret n° 47-407-1930 Traitements des fonctionnaires du cadre général des bureaux et secrétariats généraux des colonies:
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-407-1930-traitements-des-fonctionnaires-du-cadre-general-des-bureaux-et-secretariats-generaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-407-1930-traitements-des-fonctionnaires-du-cadre-general-des-bureaux-et-secretariats-generaux-des-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Germain martin
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

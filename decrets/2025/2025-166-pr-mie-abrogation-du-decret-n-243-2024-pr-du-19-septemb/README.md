@@ -1,6 +1,6 @@
 # Décret n2025-166/PR/MIE portant abrogation du décret n° 243/2024/PR du 19 septembre 2024 relatif à la gestion des corridors routiers
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-166-pr-mie-portant-abrogation-du-decret-n243-2024-pr-du-19-septembre-2024-relatif-a-la-gestion-des-corridors-routiers/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-166-pr-mie-portant-abrogation-du-decret-n243-2024-pr-du-19-septembre-2024-relatif-a-la-gestion-des-corridors-routiers/>
 
 En vigueur : 2025-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

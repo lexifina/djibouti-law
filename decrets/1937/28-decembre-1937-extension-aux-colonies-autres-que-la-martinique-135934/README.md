@@ -1,6 +1,6 @@
 # Décret n° 28 décembre 1937 portant extension aux colonies autres que la Martinique, la Guadeloupe et la Réunion ci aux territoires sous mandat du Togo et du Cameroun, des dispositions de la convention internationale du travail concernant ‘emploi de la céruse dans la peinture.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 506 du 31/01/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-decembre-1937-portant-extension-aux-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-ci-aux-territoires-sous-mandat-du-togo-et-du-cameroun-des-dispositions-de-la-conv/>
+Décret · Journal officiel de la République de Djibouti, n° 506 du 31/01/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-decembre-1937-portant-extension-aux-colonies-autres-que-la-martinique-la-guadeloupe-et-la-reunion-ci-aux-territoires-sous-mandat-du-togo-et-du-cameroun-des-dispositions-de-la-conv/>
 
 En vigueur : 1938-01-31 (date du Journal officiel qui le publie).
 

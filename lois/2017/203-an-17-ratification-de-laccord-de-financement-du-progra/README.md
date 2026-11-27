@@ -1,6 +1,6 @@
 # Loi n° 203/AN/17/7ème L portant ratification de l’accord de financement du programme d’électrification durable à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-17-7eme-l-portant-ratification-de-laccord-de-financement-du-programme-delectrification-durable-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n203-an-17-7eme-l-portant-ratification-de-laccord-de-financement-du-programme-delectrification-durable-a-djibouti/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-457/PR/MENESUP modifiant l’Arrêté n° 2006-0526/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence et art titre de diplôme d’études universitaires générales mention « Administration, Economique et Sociale ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-457-pr-menesup-modifiant-larrete-n2006-0526-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-art-titre-de-diplome-detudes-univ/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-457-pr-menesup-modifiant-larrete-n2006-0526-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-art-titre-de-diplome-detudes-univ/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

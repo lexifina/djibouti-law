@@ -1,6 +1,6 @@
 # Loi n° 116/AN/05/5ème L portant approbation des comptes définitifs pour l’exercice 2003 du Port de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-05-5eme-l-portant-approbation-des-comptes-definitifs-pour-lexercice-2003-du-port-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-05-5eme-l-portant-approbation-des-comptes-definitifs-pour-lexercice-2003-du-port-de-djibouti/>
 
 En vigueur : 2005-10-31 (date du Journal officiel qui le publie).
 

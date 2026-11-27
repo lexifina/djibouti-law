@@ -1,6 +1,6 @@
 # Décret n° 2004-0227/PR/MCIA portant statuts Initiaux de «la Société de Production d’Eau Minérale d’Ali-Sabieh».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0227-pr-mcia-portant-statuts-initiaux-de-la-societe-de-production-deau-minerale-dali-sabieh/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0227-pr-mcia-portant-statuts-initiaux-de-la-societe-de-production-deau-minerale-dali-sabieh/>
 
 En vigueur : 2004-12-30 (date du Journal officiel qui le publie).
 
@@ -65,4 +65,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

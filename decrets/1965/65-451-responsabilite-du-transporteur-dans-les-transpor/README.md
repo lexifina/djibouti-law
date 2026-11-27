@@ -1,6 +1,6 @@
 # Décret n° 65-451 fixant la responsabilité du transporteur dans les transports par mer sous connaissement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-451-fixant-la-responsabilite-du-transporteur-dans-les-transports-par-mer-sous-connaissement/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 01/09/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-451-fixant-la-responsabilite-du-transporteur-dans-les-transports-par-mer-sous-connaissement/>
 
 En vigueur : 1965-09-01 (date du Journal officiel qui le publie).
 

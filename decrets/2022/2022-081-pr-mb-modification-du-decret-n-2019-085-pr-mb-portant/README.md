@@ -1,8 +1,8 @@
 # Décret n° 2022-081/PR/MB portant modification du Décret n° 2019-085/PR/MB portant création d’un Comité National d’Endettement Public (CNEP).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-081-pr-mb-portant-modification-du-decret-n2019-085-pr-mb-portant-creation-dun-comite-national-dendettement-public-cnep/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-081-pr-mb-portant-modification-du-decret-n2019-085-pr-mb-portant-creation-dun-comite-national-dendettement-public-cnep/>
 
-En vigueur : 2022-04-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-04-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

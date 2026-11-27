@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0302/PR/MJSLT portant prise en charge des experts Cubains en service à Djibouti dans le domaine du sport de haut niveau.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 14/04/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0302-pr-mjslt-portant-prise-en-charge-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 14/04/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0302-pr-mjslt-portant-prise-en-charge-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
 
 En vigueur : 2011-04-14 (date du Journal officiel qui le publie).
 

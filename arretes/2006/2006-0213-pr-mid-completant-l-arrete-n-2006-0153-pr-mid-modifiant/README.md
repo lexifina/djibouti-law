@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0213/PR/MID complétant l’Arrêté n° 2006-0153/PR/MID modifiant l’Arrêté n° 2005-0740/PR/MID portant implantation et désignation des membres des bureaux de vote pour les élections du 31 mars 2006.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0213-pr-mid-completant-larrete-n2006-0153-pr-mid-modifiant-larrete-n2005-0740-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vot/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 01/04/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0213-pr-mid-completant-larrete-n2006-0153-pr-mid-modifiant-larrete-n2005-0740-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vot/>
 
 En vigueur : 2006-04-01 (date du Journal officiel qui le publie).
 

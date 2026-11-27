@@ -1,6 +1,6 @@
 # Loi n° 161-04-1914 la loi du 31 mars 1914, réprimant les actes de corruption dans les opérations électorales. Téxte de la loi.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 210 du 30/04/1914 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-161-04-1914-la-loi-du-31-mars-1914-reprimant-les-actes-de-corruption-dans-les-operations-electorales-texte-de-la-loi/>
+Loi · Journal officiel de la République de Djibouti, n° 210 du 30/04/1914 · <https://www.journalofficiel.dj/texte-juridique/loi-n-161-04-1914-la-loi-du-31-mars-1914-reprimant-les-actes-de-corruption-dans-les-operations-electorales-texte-de-la-loi/>
 
 En vigueur : 1914-04-30 (date du Journal officiel qui le publie).
 

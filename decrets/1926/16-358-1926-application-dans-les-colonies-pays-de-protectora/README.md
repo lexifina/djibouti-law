@@ -1,6 +1,6 @@
 # Décret n° 16-358-1926 Application dans les colonies , pays de protectorat et territoires à mandat relevant du ministère des colonies, non compris Saint-Pierre et Miquelon, de la 20 loi du 26 mars 1924 réprimant l’usurpation des titre professionnels.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 358 du 30/09/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-358-1926-application-dans-les-colonies-pays-de-protectorat-et-territoires-a-mandat-relevant-du-ministere-des-colonies-non-compris-saint-pierre-et-miquelon-de-la-20-loi-du-26-mar/>
+Décret · Journal officiel de la République de Djibouti, n° 358 du 30/09/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-358-1926-application-dans-les-colonies-pays-de-protectorat-et-territoires-a-mandat-relevant-du-ministere-des-colonies-non-compris-saint-pierre-et-miquelon-de-la-20-loi-du-26-mar/>
 
 En vigueur : 1926-09-30 (date du Journal officiel qui le publie).
 

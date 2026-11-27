@@ -1,6 +1,6 @@
 # Loi n° 178/AN/81 rectificative du budget ordinaire de l’exercice 1980.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 15/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-81-rectificative-du-budget-ordinaire-de-lexercice-1980/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 15/04/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n178-an-81-rectificative-du-budget-ordinaire-de-lexercice-1980/>
 
 En vigueur : 1981-04-15 (date du Journal officiel qui le publie).
 

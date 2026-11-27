@@ -1,6 +1,6 @@
 # Décret n° 2023-045/PR/MI portant réquisition des véhicules administratifs pour les élections législatives du 24 février 2023.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 22/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-045-pr-mi-portant-requisition-des-vehicules-administratifs-pour-les-elections-legislatives-du-24-fevrier-2023/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 22/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-045-pr-mi-portant-requisition-des-vehicules-administratifs-pour-les-elections-legislatives-du-24-fevrier-2023/>
 
 En vigueur : 2023-02-23 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -36,4 +36,4 @@ SUR Proposition du Ministre de l’Intérieur.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

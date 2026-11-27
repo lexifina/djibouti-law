@@ -1,6 +1,6 @@
 # Décret n° 72-851 modifiant l’article 3 du décret n° 62-521 du 14 avril 1962 modifié relatif à l’accès aux écoles militaires de citoyens français originaires des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 25/10/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-851-modifiant-larticle-3-du-decret-n-62-521-du-14-avril-1962-modifie-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 25/10/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-851-modifiant-larticle-3-du-decret-n-62-521-du-14-avril-1962-modifie-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre-mer/>
 
 En vigueur : 1972-10-25 (date du Journal officiel qui le publie).
 

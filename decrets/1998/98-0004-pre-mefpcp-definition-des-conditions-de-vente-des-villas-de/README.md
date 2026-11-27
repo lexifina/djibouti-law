@@ -1,6 +1,6 @@
 # Décret n° 98-0004/PRE/MEFPCP portant définition des conditions de vente des villas des cités de Gabode I, II et III.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0004-pre-mefpcp-portant-definition-des-conditions-de-vente-des-villas-des-cites-de-gabode-i-ii-et-iii/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0004-pre-mefpcp-portant-definition-des-conditions-de-vente-des-villas-des-cites-de-gabode-i-ii-et-iii/>
 
 En vigueur : 1998-01-15 (date du Journal officiel qui le publie).
 

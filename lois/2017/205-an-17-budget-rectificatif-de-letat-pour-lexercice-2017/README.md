@@ -1,6 +1,6 @@
 # Loi de finances n° 205/AN/17/7ème L portant Budget rectificatif de l’Etat pour l’exercice 2017.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n205-an-17-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2017/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n205-an-17-7eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2017/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

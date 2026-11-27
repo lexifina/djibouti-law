@@ -1,6 +1,6 @@
 # Loi n° 110/AN/00/4ème L portant Budget Prévisionnel de l’Etat pour l’exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-00-4eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-00-4eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2001/>
 
 En vigueur : 2000-12-31 (date du Journal officiel qui le publie).
 

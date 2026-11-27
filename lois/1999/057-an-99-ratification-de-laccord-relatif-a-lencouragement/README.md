@@ -1,6 +1,6 @@
 # Loi n° 57/AN/99/4ème L portant ratification de l’Accord relatif à l’encouragement et à la protection réciproques des investissements entre la République de Djibouti et la République Arabe d’Égypte.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 02/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-99-4eme-l-portant-ratification-de-laccord-relatif-a-lencouragement-et-a-la-protection-reciproques-des-investissements-entre-la-republique-de-djibouti-et-la-republique-arabe-degy/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 02/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-99-4eme-l-portant-ratification-de-laccord-relatif-a-lencouragement-et-a-la-protection-reciproques-des-investissements-entre-la-republique-de-djibouti-et-la-republique-arabe-degy/>
 
 En vigueur : 1999-05-02 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 155/AN/02/4ème L portant révision des modalités de contributions d’acquisition des droits à pension, de liquidation des pensions de retraites et des pensions de veuves et d’orphelins des cotisants à la Caisse Nationale de Retraites.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-02-4eme-l-portant-revision-des-modalites-de-contributions-dacquisition-des-droits-a-pension-de-liquidation-des-pensions-de-retraites-et-des-pensions-de-veuves-et-dorphelins-des/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-02-4eme-l-portant-revision-des-modalites-de-contributions-dacquisition-des-droits-a-pension-de-liquidation-des-pensions-de-retraites-et-des-pensions-de-veuves-et-dorphelins-des/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

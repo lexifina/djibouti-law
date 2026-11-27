@@ -1,6 +1,6 @@
 # Décret n° 18 février 1937 Application aux colonies, pays de protectorat et territoires sous mandat relevant du Ministère des colonies du décret du 4 janvier 1937 concernant ‘étiquetage des vins à appellations controlées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-du-decret-du-4-janvier-1937-concernant-etiquetage-d/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-fevrier-1937-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-du-decret-du-4-janvier-1937-concernant-etiquetage-d/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0709/PR/MID portant fermeture des établissements de restaurations, de débits de boissons et spectacles pendant la période du Mois de Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0709-pr-mid-portant-fermeture-des-etablissements-de-restaurations-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0709-pr-mid-portant-fermeture-des-etablissements-de-restaurations-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-mois-de-ramadan/>
 
 En vigueur : 2006-10-15 (date du Journal officiel qui le publie).
 

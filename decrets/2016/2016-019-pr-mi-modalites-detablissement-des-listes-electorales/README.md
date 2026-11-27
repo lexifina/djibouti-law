@@ -1,6 +1,6 @@
 # Décret n° 2016-019/PR/MI fixant les modalités d’établissement des listes électorales ainsi que les conditions de délivrance et de validité des cartes d’électeurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-019-pr-mi-fixant-les-modalites-detablissement-des-listes-electorales-ainsi-que-les-conditions-de-delivrance-et-de-validite-des-cartes-delecteurs/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-019-pr-mi-fixant-les-modalites-detablissement-des-listes-electorales-ainsi-que-les-conditions-de-delivrance-et-de-validite-des-cartes-delecteurs/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

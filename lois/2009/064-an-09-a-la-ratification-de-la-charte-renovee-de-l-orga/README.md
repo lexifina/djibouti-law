@@ -1,6 +1,6 @@
 # Loi n° 64/AN/09/6ème L relative à la ratification de la Charte rénovée de l’Organisation de la Conférence Islamique (OCI).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-09-6eme-l-relative-a-la-ratification-de-la-charte-renovee-de-lorganisation-de-la-conference-islamique-oci/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-09-6eme-l-relative-a-la-ratification-de-la-charte-renovee-de-lorganisation-de-la-conference-islamique-oci/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

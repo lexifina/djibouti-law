@@ -1,8 +1,8 @@
 # Décret n° 2022-031/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les Elections Régionales et Communales du 11 Mars et 01 Avril 2022.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 02/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-031-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 02/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-031-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales-du-11-mars-et-01-avril-2022/>
 
-En vigueur : 2022-02-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-02-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

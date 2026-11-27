@@ -1,6 +1,6 @@
 # Décret n° 2004-0026/PRE portant approbation du Contrat d’Aménagement Urbain de la Zone HARAMOUS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0026-pre-portant-approbation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 29/02/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0026-pre-portant-approbation-du-contrat-damenagement-urbain-de-la-zone-haramous/>
 
 En vigueur : 2004-02-29 (date du Journal officiel qui le publie).
 

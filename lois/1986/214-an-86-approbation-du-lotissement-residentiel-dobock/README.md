@@ -1,6 +1,6 @@
 # Loi n° 214/AN/86/1ère L portant approbation du lotissement résidentiel d’Obock.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/10/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-86-1ere-l-portant-approbation-du-lotissement-residentiel-dobock/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/10/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n214-an-86-1ere-l-portant-approbation-du-lotissement-residentiel-dobock/>
 
 En vigueur : 1986-10-15 (date du Journal officiel qui le publie).
 

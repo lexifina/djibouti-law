@@ -1,6 +1,6 @@
 # Loi n° 5-267-1919 sur l’assistance et le sauvetage maritimes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 267 du 31/01/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-5-267-1919-sur-lassistance-et-le-sauvetage-maritimes/>
+Loi · Journal officiel de la République de Djibouti, n° 267 du 31/01/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-5-267-1919-sur-lassistance-et-le-sauvetage-maritimes/>
 
 En vigueur : 1919-01-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ René VIVIANI.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art.9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [art-011.md](art-011.md) | Art. 11 — |
+| [art-011.md](art-011.md) | Art. 11 |

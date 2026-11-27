@@ -1,6 +1,6 @@
 # Décret n° 71-211 étendant aux territoires d’outre-mer les dispositions du décret n° 53-914 du 26 septembre 1953 portant simplifications de formalités administratives (J.O.R.F. du 23 mars 1971, p. 2741),
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/05/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-211-etendant-aux-territoires-doutre-mer-les-dispositions-du-decret-n-53-914-du-26-septembre-1953-portant-simplifications-de-formalites-administratives-j-o-r-f-du-23-mars/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 10/05/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-211-etendant-aux-territoires-doutre-mer-les-dispositions-du-decret-n-53-914-du-26-septembre-1953-portant-simplifications-de-formalites-administratives-j-o-r-f-du-23-mars/>
 
 En vigueur : 1971-05-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 46-821 perlaut convocation des collèges électoraux dans les départements et 1rs territoires relevant du ministère dr la France d‘outre-mer à F’effet de procéder à la onsuliation par voir de référendum prévue par la loi constitutionnelle du 2 novembre 1945
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-821-perlaut-convocation-des-colleges-electoraux-dans-les-departements-et-1rs-territoires-relevant-du-ministere-dr-la-france-doutre-mer-a-feffet-de-proceder-a-la-on/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-821-perlaut-convocation-des-colleges-electoraux-dans-les-departements-et-1rs-territoires-relevant-du-ministere-dr-la-france-doutre-mer-a-feffet-de-proceder-a-la-on/>
 
 En vigueur : 1946-05-31 (date du Journal officiel qui le publie).
 

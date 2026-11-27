@@ -1,6 +1,6 @@
 # Décret n° 84-073/PR/MCTT approuvant et rendant exécutoire le budget primitif 1984 de l’Office national d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 30/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-073-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 30/07/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-073-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1984-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1984-07-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Le Conseil des Ministres entendu en sa séance du 19 juin 1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

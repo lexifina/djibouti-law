@@ -1,6 +1,6 @@
 # Décret n° 4 décembre 1936 GLOBES GÉOGRAPHIQUES, LUMINEUX OU NON. ET FUSEAUX POUR GLOBES GÉOGRAPHIQUES
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-decembre-1936-globes-geographiques-lumineux-ou-non-et-fuseaux-pour-globes-geographiques/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-decembre-1936-globes-geographiques-lumineux-ou-non-et-fuseaux-pour-globes-geographiques/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

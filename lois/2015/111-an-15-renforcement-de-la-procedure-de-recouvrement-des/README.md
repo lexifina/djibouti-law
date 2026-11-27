@@ -1,6 +1,6 @@
 # Loi n° 111/AN/15/7ème L portant renforcement de la procédure de recouvrement des cotisations sociales dues à la CNSS.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-15-7eme-l-portant-renforcement-de-la-procedure-de-recouvrement-des-cotisations-sociales-dues-a-la-cnss/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n111-an-15-7eme-l-portant-renforcement-de-la-procedure-de-recouvrement-des-cotisations-sociales-dues-a-la-cnss/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ ISMAÏL OMAR GUELLEH
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

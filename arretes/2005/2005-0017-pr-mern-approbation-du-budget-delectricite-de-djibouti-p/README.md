@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0017/PR/MERN portant approbation du Budget d’Électricité de Djibouti pour l’exercice 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0017-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2005/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0017-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2005/>
 
 En vigueur : 2005-01-15 (date du Journal officiel qui le publie).
 

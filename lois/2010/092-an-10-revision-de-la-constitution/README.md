@@ -1,6 +1,6 @@
 # Loi n° 92/AN/10/6ème L portant révision de la Constitution.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 21/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-10-6eme-l-portant-revision-de-la-constitution/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 21/04/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n92-an-10-6eme-l-portant-revision-de-la-constitution/>
 
 En vigueur : 2010-04-21 (date du Journal officiel qui le publie).
 

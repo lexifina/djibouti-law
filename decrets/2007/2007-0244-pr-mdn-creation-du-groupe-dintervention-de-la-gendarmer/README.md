@@ -1,6 +1,6 @@
 # Décret n° 2007-0244/PR/MDN portant création du Groupe d’Intervention de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0244-pr-mdn-portant-creation-du-groupe-dintervention-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0244-pr-mdn-portant-creation-du-groupe-dintervention-de-la-gendarmerie-nationale/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

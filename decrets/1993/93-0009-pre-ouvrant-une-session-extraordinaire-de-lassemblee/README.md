@@ -1,6 +1,6 @@
 # Décret n° 93-0009/PRE ouvrant une session extraordinaire de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0009-pre-ouvrant-une-session-extraordinaire-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0009-pre-ouvrant-une-session-extraordinaire-de-lassemblee-nationale/>
 
 En vigueur : 1993-02-15 (date du Journal officiel qui le publie).
 

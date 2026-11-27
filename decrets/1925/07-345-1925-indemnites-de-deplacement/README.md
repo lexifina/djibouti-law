@@ -1,6 +1,6 @@
 # Décret n° 07-345-1925 Indemnités de déplacement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 345 du 31/08/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-345-1925-indemnites-de-deplacement/>
+Décret · Journal officiel de la République de Djibouti, n° 345 du 31/08/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-345-1925-indemnites-de-deplacement/>
 
 En vigueur : 1925-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 197/AN/17/7ème L portant règlement Définitif du Budget de l’Etat de l’Exercice 2016.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-17-7eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2016/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n197-an-17-7eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2016/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

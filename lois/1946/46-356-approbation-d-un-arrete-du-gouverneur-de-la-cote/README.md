@@ -1,6 +1,6 @@
 # Loi n° 46-356 portant approbation d’un arrêté du gouverneur de la Côte française des Somalis prorogeant la suspension des droits de douane pour une période de six mois expirant le 8 mai 1916 et rendant cette mesure provisoirement exécutoire
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-356-portant-approbation-dun-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-prorogeant-la-suspension-des-droits-de-douane-pour-une-periode-de-six-mois-expirant-le-8-mai/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-356-portant-approbation-dun-arrete-du-gouverneur-de-la-cote-francaise-des-somalis-prorogeant-la-suspension-des-droits-de-douane-pour-une-periode-de-six-mois-expirant-le-8-mai/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

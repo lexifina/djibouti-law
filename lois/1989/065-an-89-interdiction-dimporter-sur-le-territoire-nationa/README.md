@@ -1,6 +1,6 @@
 # Loi n° 65/AN/89/2ème L portant interdiction d’importer sur le territoire national des déchets ou résidus industriels toxiques, radioactifs ou polluants.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-89-2eme-l-portant-interdiction-dimporter-sur-le-territoire-national-des-dechets-ou-residus-industriels-toxiques-radioactifs-ou-polluants/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-89-2eme-l-portant-interdiction-dimporter-sur-le-territoire-national-des-dechets-ou-residus-industriels-toxiques-radioactifs-ou-polluants/>
 
 En vigueur : 1989-04-30 (date du Journal officiel qui le publie).
 

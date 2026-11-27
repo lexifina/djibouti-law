@@ -1,8 +1,8 @@
 # Décret n° 2026-075/PR/MEFI portant création du statut particulier des cadres de l’INSTAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-075-pr-mefi-portant-creation-du-statut-particulier-des-cadres-de-linstad/>
+Décret · Journal officiel de la République de Djibouti, n° 08 du 30/04/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-075-pr-mefi-portant-creation-du-statut-particulier-des-cadres-de-linstad/>
 
-En vigueur : 2026-04-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-04-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

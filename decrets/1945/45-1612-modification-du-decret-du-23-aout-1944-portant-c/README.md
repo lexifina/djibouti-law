@@ -1,6 +1,6 @@
 # Décret n° 45-1612 portant modification du décret du 23 août 1944 portant création du cadre général des transmissions coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1612-portant-modification-du-decret-du-23-aout-1944-portant-creation-du-cadre-general-des-transmissions-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1612-portant-modification-du-decret-du-23-aout-1944-portant-creation-du-cadre-general-des-transmissions-coloniales/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

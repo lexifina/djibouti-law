@@ -1,6 +1,6 @@
 # Loi n° 25/AN/88/2ème L portant ratification de l’accord de siège entre la République de Djibouti et l’Autorite Intergouvernementale sur la Sécheresse et le Développement ( I.G.A.D.D.)
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-88-2eme-l-portant-ratification-de-laccord-de-siege-entre-la-republique-de-djibouti-et-lautorite-intergouvernementale-sur-la-secheresse-et-le-developpement-i-g-a-d-d/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n25-an-88-2eme-l-portant-ratification-de-laccord-de-siege-entre-la-republique-de-djibouti-et-lautorite-intergouvernementale-sur-la-secheresse-et-le-developpement-i-g-a-d-d/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

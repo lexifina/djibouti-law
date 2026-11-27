@@ -1,6 +1,6 @@
 # Décret n° 11-189-1912 le 21 décembre 1911.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 189 du 01/08/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-189-1912-le-21-decembre-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 189 du 01/08/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-189-1912-le-21-decembre-1911/>
 
 En vigueur : 1912-08-01 (date du Journal officiel qui le publie).
 
@@ -45,7 +45,7 @@ Ch. COUYBA.
 | [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art.4 — |
+| [art-004.md](art-004.md) | Art.4 |
 | [art-005.md](art-005.md) | Art.5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
@@ -65,4 +65,4 @@ Ch. COUYBA.
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
 | [art-023.md](art-023.md) | Art. 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

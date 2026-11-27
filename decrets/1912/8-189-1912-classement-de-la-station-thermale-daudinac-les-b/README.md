@@ -1,6 +1,6 @@
 # Décret n° 8-189-1912 portant classement de la station thermale d’Audinac-les-Bains (Ariège).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 189 du 01/08/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-189-1912-portant-classement-de-la-station-thermale-daudinac-les-bains-ariege/>
+Décret · Journal officiel de la République de Djibouti, n° 189 du 01/08/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-189-1912-portant-classement-de-la-station-thermale-daudinac-les-bains-ariege/>
 
 En vigueur : 1912-08-01 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ A. LEBRUN.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

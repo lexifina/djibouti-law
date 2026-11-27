@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 rticle 1er. — L’article 2 du décret n° 1.704 du 3 juillet 1944 est modifié ainsi qu’il suit :
 « Les traitements et les classes que comportent les divers emplois visés à l’article 1er ci-dessus sont fixées ainsi qu’il suit :
 « Inspecteur général :

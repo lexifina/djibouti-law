@@ -1,6 +1,6 @@
 # Décret n° 69-405 portant convocation des électeurs pour l’élection du Président de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 27/05/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-405-portant-convocation-des-electeurs-pour-lelection-du-president-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 27/05/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-405-portant-convocation-des-electeurs-pour-lelection-du-president-de-la-republique/>
 
 En vigueur : 1969-05-27 (date du Journal officiel qui le publie).
 

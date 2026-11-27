@@ -1,6 +1,6 @@
 # Décret n° n°73 Décret du 8 Janvier 1916 fixant les conditions relatives à l’octroi des permis miniers dans les colonies françaises
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 392 du 31/07/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n73-decret-du-8-janvier-1916-fixant-les-conditions-relatives-a-loctroi-des-permis-miniers-dans-les-colonies-francaises/>
+Décret · Journal officiel de la République de Djibouti, n° 392 du 31/07/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n73-decret-du-8-janvier-1916-fixant-les-conditions-relatives-a-loctroi-des-permis-miniers-dans-les-colonies-francaises/>
 
 En vigueur : 1929-07-31 (date du Journal officiel qui le publie).
 
@@ -30,5 +30,5 @@ gaston doumergue.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

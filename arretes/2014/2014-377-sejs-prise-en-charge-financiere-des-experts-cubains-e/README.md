@@ -1,6 +1,6 @@
 # Arrêté n° 2014-377/SEJS portant prise en charge financière des Experts Cubains en Service à Djibouti dans le domaine du Sport de Haut Niveau.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-377-sejs-portant-prise-en-charge-financiere-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-377-sejs-portant-prise-en-charge-financiere-des-experts-cubains-en-service-a-djibouti-dans-le-domaine-du-sport-de-haut-niveau/>
 
 En vigueur : 2014-05-15 (date du Journal officiel qui le publie).
 

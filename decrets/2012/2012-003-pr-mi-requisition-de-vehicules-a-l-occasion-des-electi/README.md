@@ -1,6 +1,6 @@
 # Décret n° 2012-003/PR/MI portant réquisition de véhicules à l’occasion des Elections Régionales et Communales du 20 janvier et 10 février 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-003-pr-mi-portant-requisition-de-vehicules-a-loccasion-des-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-003-pr-mi-portant-requisition-de-vehicules-a-loccasion-des-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

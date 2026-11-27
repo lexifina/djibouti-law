@@ -1,6 +1,6 @@
 # Loi n° 199/AN/92/2e L portant adhésion de la République de Djibouti aux conventions sur les stupéfiants et substances psychotropes et contre le trafic illicite des: stupéfiants
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-92-2e-l-portant-adhesion-de-la-republique-de-djibouti-aux-conventions-sur-les-stupefiants-et-substances-psychotropes-et-contre-le-trafic-illicite-des-stupefiants/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-92-2e-l-portant-adhesion-de-la-republique-de-djibouti-aux-conventions-sur-les-stupefiants-et-substances-psychotropes-et-contre-le-trafic-illicite-des-stupefiants/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 
@@ -16,5 +16,5 @@ Vu la loi n° 0227 / AN / 82 du 25 janvier 1982 portant adhésion de la Répubil
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

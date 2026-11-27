@@ -1,6 +1,6 @@
 # Décret n° 46-2878 complétant le décret n 16-236 du 18 février 1916 déterminant les dispositions spéciales prises en faveur de* fenetionnair *3 de différents cadres dépendant du Ministre de la France <1 outre-mer ayant dû quitter leur emploi par suite d’évémemnts de guerre, ainsi qu'en faveur de- candidat à desdits emplois ayant été empêchés d'y accéder.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2878-completant-le-decret-n-16-236-du-18-fevrier-1916-determinant-les-dispositions-speciales-prises-en-faveur-de-fenetionnair-3-de-differents-cadres-dependant-du-ministre-de-la-fr/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2878-completant-le-decret-n-16-236-du-18-fevrier-1916-determinant-les-dispositions-speciales-prises-en-faveur-de-fenetionnair-3-de-differents-cadres-dependant-du-ministre-de-la-fr/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

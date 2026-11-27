@@ -1,6 +1,6 @@
 # Loi n° 133/AN/85/1re L portant modification du prix du mètre carré de terrain dans les divers lotissements de la ville de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-85-1re-l-portant-modification-du-prix-du-metre-carre-de-terrain-dans-les-divers-lotissements-de-la-ville-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n133-an-85-1re-l-portant-modification-du-prix-du-metre-carre-de-terrain-dans-les-divers-lotissements-de-la-ville-de-djibouti/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

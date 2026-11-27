@@ -1,8 +1,8 @@
 # Décret n° 87-086/PRE/INT portant création d’un comité chargé de veiller au déroulement des loteries.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-086-pre-int-portant-creation-dun-comite-charge-de-veiller-au-deroulement-des-loteries/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-086-pre-int-portant-creation-dun-comite-charge-de-veiller-au-deroulement-des-loteries/>
 
-En vigueur : 1987-10-15 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-10-15 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

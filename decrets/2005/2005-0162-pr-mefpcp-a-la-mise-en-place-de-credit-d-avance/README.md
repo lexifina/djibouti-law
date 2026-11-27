@@ -1,6 +1,6 @@
 # Décret n° 2005-0162/PR/MEFPCP Relatif à la mise en place de crédit d’avance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 29/09/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0162-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 29/09/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0162-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
 
 En vigueur : 2005-09-29 (date du Journal officiel qui le publie).
 

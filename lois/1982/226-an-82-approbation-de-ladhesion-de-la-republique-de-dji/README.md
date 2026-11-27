@@ -1,6 +1,6 @@
 # Loi n° 226/AN/82 portant approbation de l’Adhésion de la République de Djibouti à l’Organisation Mondiale de la Sante.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n226-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-mondiale-de-la-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n226-an-82-portant-approbation-de-ladhesion-de-la-republique-de-djibouti-a-lorganisation-mondiale-de-la-sante/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

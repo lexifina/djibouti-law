@@ -1,6 +1,6 @@
 # Décret n° 90-148/PR/EN portant création du Comité d’Organisation de la 43e Conférence des Ministres de l’Éducation Nationale des Pays ayant en commun l’usage du Français (CONFEMEN).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-148-pr-en-portant-creation-du-comite-dorganisation-de-la-43e-conference-des-ministres-de-leducation-nationale-des-pays-ayant-en-commun-lusage-du-francais-confemen/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-148-pr-en-portant-creation-du-comite-dorganisation-de-la-43e-conference-des-ministres-de-leducation-nationale-des-pays-ayant-en-commun-lusage-du-francais-confemen/>
 
 En vigueur : 1990-12-31 (date du Journal officiel qui le publie).
 

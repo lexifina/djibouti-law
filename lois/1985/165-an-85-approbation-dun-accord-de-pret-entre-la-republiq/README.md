@@ -1,6 +1,6 @@
 # Loi n° 165/AN/85/1ère L portant approbation d’un accord de prêt entre la République de Djibouti et la Banque Mondiale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/09/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-85-1ere-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/09/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-85-1ere-l-portant-approbation-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale/>
 
 En vigueur : 1985-09-30 (date du Journal officiel qui le publie).
 

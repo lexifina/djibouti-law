@@ -1,6 +1,6 @@
 # Décret n° du 27 septembre 1940. Loi étendant aux territoires relevant du Secrétariat d’Etal aux colonies les dispositions de l’article 3 de la loi du 27 septembre 1910 autorisant l’octroi de délais de grâce.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 531 du 28/02/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-27-septembre-1940-loi-etendant-aux-territoires-relevant-du-secretariat-detal-aux-colonies-les-dispositions-de-larticle-3-de-la-loi-du-27-septembre-1910-autorisant/>
+Décret · Journal officiel de la République de Djibouti, n° 531 du 28/02/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-27-septembre-1940-loi-etendant-aux-territoires-relevant-du-secretariat-detal-aux-colonies-les-dispositions-de-larticle-3-de-la-loi-du-27-septembre-1910-autorisant/>
 
 En vigueur : 1941-02-28 (date du Journal officiel qui le publie).
 

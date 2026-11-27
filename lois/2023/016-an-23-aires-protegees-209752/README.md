@@ -1,6 +1,6 @@
 # Loi n° 16/AN/23/9ème L relative aux aires protégées.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 06 du 04/06/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-23-9eme-l-relative-aux-aires-protegees-2/>
+Loi · Journal officiel de la République de Djibouti, n° 06 du 04/06/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-23-9eme-l-relative-aux-aires-protegees-2/>
 
 En vigueur : 2025-06-05 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -100,4 +100,4 @@ ISMAÏL OMAR GUELLEH
 | [art-057.md](art-057.md) | Article 57 |
 | [art-058.md](art-058.md) | Article 58 |
 | [art-059.md](art-059.md) | Article 59 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

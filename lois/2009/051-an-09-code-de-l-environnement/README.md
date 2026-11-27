@@ -1,6 +1,6 @@
 # Loi n° 51/AN/09/6ème L portant Code de l’Environnement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-09-6eme-l-portant-code-de-lenvironnement/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-09-6eme-l-portant-code-de-lenvironnement/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 
@@ -58,4 +58,4 @@ Le Conseil des Ministres entendu en sa séance du 27 janvier 2009
 | [art-019.md](art-019.md) | ARTICLE 19 |
 | [art-020.md](art-020.md) | ARTICLE 20 |
 | [art-021.md](art-021.md) | ARTICLE 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 160/AN/24/9ème L Portant approbation des comptes financiers du CERD pour l’exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 15/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-24-9eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2023/>
 
 En vigueur : 2025-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

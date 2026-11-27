@@ -1,6 +1,6 @@
 # Loi n° 80/AN/84/1ère L modifiant la loi n° 69/AN/79 du 31 mai 1979 réglementant la consommation et la délivrance de l’alcool.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-84-1ere-l-modifiant-la-loi-n69-an-79-du-31-mai-1979-reglementant-la-consommation-et-la-delivrance-de-lalcool/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-84-1ere-l-modifiant-la-loi-n69-an-79-du-31-mai-1979-reglementant-la-consommation-et-la-delivrance-de-lalcool/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

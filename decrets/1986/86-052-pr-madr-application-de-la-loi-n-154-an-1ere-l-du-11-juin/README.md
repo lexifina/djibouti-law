@@ -1,6 +1,6 @@
 # Décret n° 86-052/PR/MADR portant application de la loi n° 154/AN/1ère L du 11 juin 1985 organisant l’administration du Ministère de l’Agriculture et du Développement Rural.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-052-pr-madr-portant-application-de-la-loi-n154-an-1ere-l-du-11-juin-1985-organisant-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-052-pr-madr-portant-application-de-la-loi-n154-an-1ere-l-du-11-juin-1985-organisant-ladministration-du-ministere-de-lagriculture-et-du-developpement-rural/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

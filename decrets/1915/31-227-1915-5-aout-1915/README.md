@@ -1,6 +1,6 @@
 # Décret n° 31-227-1915 5 Août 1915.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 227 du 30/09/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-227-1915-5-aout-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 227 du 30/09/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-227-1915-5-aout-1915/>
 
 En vigueur : 1915-09-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Gaston THOMSON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 – |
+| [art-002.md](art-002.md) | Art. 2 |

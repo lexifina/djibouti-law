@@ -1,6 +1,6 @@
 # Décret n° 6-121-1906 le 20 octobre 1906.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 121 du 01/12/1906 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-121-1906-le-20-octobre-1906/>
+Décret · Journal officiel de la République de Djibouti, n° 121 du 01/12/1906 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-121-1906-le-20-octobre-1906/>
 
 En vigueur : 1906-12-01 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ G. LEYGUES,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |

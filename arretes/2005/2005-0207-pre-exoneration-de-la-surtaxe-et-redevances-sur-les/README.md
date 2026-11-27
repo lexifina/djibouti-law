@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0207/PRE portant exonération de la surtaxe et redevances sur les carburants au coopérative de Pêcherie.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0207-pre-portant-exoneration-de-la-surtaxe-et-redevances-sur-les-carburants-au-cooperative-de-pecherie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0207-pre-portant-exoneration-de-la-surtaxe-et-redevances-sur-les-carburants-au-cooperative-de-pecherie/>
 
 En vigueur : 2005-03-31 (date du Journal officiel qui le publie).
 

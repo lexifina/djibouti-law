@@ -1,6 +1,6 @@
 # Décret n° 2019-010/PR/MDMHUEL portant organisation et fonctionnement de la Société Immobilière et d’Aménagement Foncier (SIAF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-010-pr-mdmhuel-portant-organisation-et-fonctionnement-de-la-societe-immobiliere-et-damenagement-foncier-siaf/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-010-pr-mdmhuel-portant-organisation-et-fonctionnement-de-la-societe-immobiliere-et-damenagement-foncier-siaf/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

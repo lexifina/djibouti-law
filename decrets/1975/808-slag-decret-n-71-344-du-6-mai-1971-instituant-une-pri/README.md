@@ -1,6 +1,6 @@
 # Décret n° 808/SLAG modifiant le décret n° 71-344 du 6 mai 1971 instituant une prime spéciale d’équipement hôtelier dans les terri- toires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-808-slag-modifiant-le-decret-n-71-344-du-6-mai-1971-instituant-une-prime-speciale-dequipement-hotelier-dans-les-terri-toires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-808-slag-modifiant-le-decret-n-71-344-du-6-mai-1971-instituant-une-prime-speciale-dequipement-hotelier-dans-les-terri-toires-doutre-mer/>
 
 En vigueur : 1975-08-10 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ JEAN FROMENT.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er— |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art. 2 |

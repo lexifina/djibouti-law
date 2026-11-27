@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0295/PR/MEIFP portant approbation du bilan d’ouverture de la Caisse Nationale de Sécurité Sociale (CNSS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 29/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0295-pr-meifp-portant-approbation-du-bilan-douverture-de-la-caisse-nationale-de-securite-sociale-cnss/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 29/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0295-pr-meifp-portant-approbation-du-bilan-douverture-de-la-caisse-nationale-de-securite-sociale-cnss/>
 
 En vigueur : 2010-04-29 (date du Journal officiel qui le publie).
 

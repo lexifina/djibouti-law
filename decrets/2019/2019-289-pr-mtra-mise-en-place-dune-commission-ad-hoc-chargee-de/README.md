@@ -1,6 +1,6 @@
 # Décret n° 2019-289/PR/MTRA portant mise en place d’une commission ad hoc chargée de la révision des textes statutaires de la fonction publique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-289-pr-mtra-portant-mise-en-place-dune-commission-ad-hoc-chargee-de-la-revision-des-textes-statutaires-de-la-fonction-publique/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 28/11/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-289-pr-mtra-portant-mise-en-place-dune-commission-ad-hoc-chargee-de-la-revision-des-textes-statutaires-de-la-fonction-publique/>
 
 En vigueur : 2019-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

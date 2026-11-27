@@ -1,6 +1,6 @@
 # Ordonnance n° 85-033/PR/J Relative à l’organisation de la profession d’huissier de justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1985 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-033-pr-j-relative-a-lorganisation-de-la-profession-dhuissier-de-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 3 du 30/03/1985 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n85-033-pr-j-relative-a-lorganisation-de-la-profession-dhuissier-de-justice/>
 
 En vigueur : 1985-03-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°50 Décret portant approbation du budget de la Côte française des Soma-, exercice 1926
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 352 du 31/03/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n50-decret-portant-approbation-du-budget-de-la-cote-francaise-des-soma-exercice-1926/>
+Décret · Journal officiel de la République de Djibouti, n° 352 du 31/03/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n50-decret-portant-approbation-du-budget-de-la-cote-francaise-des-soma-exercice-1926/>
 
 En vigueur : 1926-03-31 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ chapon-baissac
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | art.2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° DU 4 AVRIL 1952 fixant Ia date des élections au Conseil de la République dans les Territoires d’Outre-Mer et les Territoires sous tutelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-4-avril-1952-fixant-ia-date-des-elections-au-conseil-de-la-republique-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelle/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/03/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-4-avril-1952-fixant-ia-date-des-elections-au-conseil-de-la-republique-dans-les-territoires-doutre-mer-et-les-territoires-sous-tutelle/>
 
 En vigueur : 1952-03-01 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ Pierre PFLIMLIN.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

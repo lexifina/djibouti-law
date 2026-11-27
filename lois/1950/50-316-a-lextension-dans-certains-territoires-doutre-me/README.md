@@ -1,6 +1,6 @@
 # Loi n° 50-316 relative à l’extension dans certains territoires d’outre- mer et territoires sous tutelle des dispositions de l’ordonnance du 28 juin 1945 modifiant les articles’ 356 et 357 du Code pénal.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1950 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-316-relative-a-lextension-dans-certains-territoires-doutre-mer-et-territoires-sous-tutelle-des-dispositions-de-lordonnance-du-28-juin-1945-modifiant-les-articles-356-et-357-d/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1950 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-316-relative-a-lextension-dans-certains-territoires-doutre-mer-et-territoires-sous-tutelle-des-dispositions-de-lordonnance-du-28-juin-1945-modifiant-les-articles-356-et-357-d/>
 
 En vigueur : 1950-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 163/AN/91/2e L portant délégation d’une partie des pouvoir de l’assemble nationale à la commission permante jusque à l’ouverture de la 2e session ordinaire de 1991 dite session budgetaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n163-an-91-2e-l-portant-delegation-dune-partie-des-pouvoir-de-lassemble-nationale-a-la-commission-permante-jusque-a-louverture-de-la-2e-session-ordinaire-de-1991-dite-session-budget/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n163-an-91-2e-l-portant-delegation-dune-partie-des-pouvoir-de-lassemble-nationale-a-la-commission-permante-jusque-a-louverture-de-la-2e-session-ordinaire-de-1991-dite-session-budget/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 

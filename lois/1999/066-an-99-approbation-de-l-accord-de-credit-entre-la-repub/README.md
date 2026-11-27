@@ -1,6 +1,6 @@
 # Loi n° 66/AN/99/4ème L portant approbation de l’accord de crédit entre la République de Djibouti et l’Association Internationale de Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-99-4eme-l-portant-approbation-de-laccord-de-credit-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-99-4eme-l-portant-approbation-de-laccord-de-credit-entre-la-republique-de-djibouti-et-lassociation-internationale-de-developpement/>
 
 En vigueur : 2000-01-15 (date du Journal officiel qui le publie).
 

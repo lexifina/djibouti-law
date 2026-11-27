@@ -1,6 +1,6 @@
 # Décret n° 869 réorganisant le personnel des trésoreries coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/05/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-869-reorganisant-le-personnel-des-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/05/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-869-reorganisant-le-personnel-des-tresoreries-coloniales/>
 
 En vigueur : 1943-05-15 (date du Journal officiel qui le publie).
 

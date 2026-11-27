@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0135/PR/MJSLT portant création d’un Comité National d’Organisation du Onzième Semi-Marathon International de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0135-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-onzieme-semi-marathon-international-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0135-pr-mjslt-portant-creation-dun-comite-national-dorganisation-du-onzieme-semi-marathon-international-de-djibouti/>
 
 En vigueur : 2007-02-15 (date du Journal officiel qui le publie).
 

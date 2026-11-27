@@ -1,6 +1,6 @@
 # Arrêté n° 2020-005/PR/MB portant la concession définitive d’une parcelle de terrain sise à Balbala Sud.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-005-pr-mb-portant-la-concession-definitive-dune-parcelle-de-terrain-sise-a-balbala-sud/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-005-pr-mb-portant-la-concession-definitive-dune-parcelle-de-terrain-sise-a-balbala-sud/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

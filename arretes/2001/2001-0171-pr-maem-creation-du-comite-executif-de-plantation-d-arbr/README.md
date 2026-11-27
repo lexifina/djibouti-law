@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0171/PR/MAEM portant création du Comité Exécutif de Plantation d’arbres.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0171-pr-maem-portant-creation-du-comite-executif-de-plantation-darbres/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0171-pr-maem-portant-creation-du-comite-executif-de-plantation-darbres/>
 
 En vigueur : 2001-02-28 (date du Journal officiel qui le publie).
 

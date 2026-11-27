@@ -1,8 +1,8 @@
 # Décret n° 95-0112/PRE portant mesures de restructuration de la Laiterie de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0112-pre-portant-mesures-de-restructuration-de-la-laiterie-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0112-pre-portant-mesures-de-restructuration-de-la-laiterie-de-djibouti/>
 
-En vigueur : 1995-10-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1995-10-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

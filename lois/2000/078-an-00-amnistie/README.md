@@ -1,6 +1,6 @@
 # Loi n° 78/AN/00/4ème L portant Amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-00-4eme-l-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-00-4eme-l-portant-amnistie/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

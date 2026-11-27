@@ -1,6 +1,6 @@
 # Arrêté n° 2015-052/PR/MS approuvant et rendant exécutoire le Budget Prévisionnel de l’exercice 2015 de l’INSPD.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-052-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-de-linspd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-052-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2015-de-linspd/>
 
 En vigueur : 2015-01-31 (date du Journal officiel qui le publie).
 

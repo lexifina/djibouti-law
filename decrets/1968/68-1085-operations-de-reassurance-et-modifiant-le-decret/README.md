@@ -1,6 +1,6 @@
 # Décret n° 68-1085 relatif aux opérations de réassurance et modifiant le décret du 19 août 1941
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1085-relatif-aux-operations-de-reassurance-et-modifiant-le-decret-du-19-aout-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-1085-relatif-aux-operations-de-reassurance-et-modifiant-le-decret-du-19-aout-1941/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Michel INCHAUSPE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |

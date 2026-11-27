@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0638/PR/MEFPCP Affectant au Ministère Délégué auprès du Ministère de la Justice, chargé des Biens Wakfs et des Affaires Musulmanes, une parcelle de terrain sise au Quartier 5.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 16/08/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0638-pr-mefpcp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-sise-au-quartier-5/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 16/08/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0638-pr-mefpcp-affectant-au-ministere-delegue-aupres-du-ministere-de-la-justice-charge-des-biens-wakfs-et-des-affaires-musulmanes-une-parcelle-de-terrain-sise-au-quartier-5/>
 
 En vigueur : 2003-08-16 (date du Journal officiel qui le publie).
 

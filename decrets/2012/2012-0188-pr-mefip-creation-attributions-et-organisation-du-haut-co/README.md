@@ -1,8 +1,8 @@
 # Décret n° 2012-0188/PR/MEFIP portant création attributions et organisation du Haut Conseil National du Dialogue Public-Privé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0188-pr-mefip-portant-creation-attributions-et-organisation-du-haut-conseil-national-du-dialogue-public-prive/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/08/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0188-pr-mefip-portant-creation-attributions-et-organisation-du-haut-conseil-national-du-dialogue-public-prive/>
 
-En vigueur : 2012-08-30 (date fixÃ©e par le texte).
+En vigueur : 2012-08-30 (date fixée par le texte).
 
 ## Visas
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

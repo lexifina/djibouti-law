@@ -1,8 +1,8 @@
 # Loi n° 56/AN/79 énonçant les conditions requises pour l’exercice des professions médicales en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-79-enoncant-les-conditions-requises-pour-lexercice-des-professions-medicales-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-79-enoncant-les-conditions-requises-pour-lexercice-des-professions-medicales-en-republique-de-djibouti/>
 
-En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1979-01-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -31,4 +31,4 @@ HASSAN GOULED APTIDON.
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

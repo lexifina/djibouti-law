@@ -1,6 +1,6 @@
 # Décret n° 52-384 portant extension de la majoration des soldes aux personnels militaires en service dans les territoires d’outre-mer relevant de l’autorité du Ministre de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/06/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-384-portant-extension-de-la-majoration-des-soldes-aux-personnels-militaires-en-service-dans-les-territoires-doutre-mer-relevant-de-lautorite-du-ministre-de-la-france-doutre-me/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/06/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-384-portant-extension-de-la-majoration-des-soldes-aux-personnels-militaires-en-service-dans-les-territoires-doutre-mer-relevant-de-lautorite-du-ministre-de-la-france-doutre-me/>
 
 En vigueur : 1952-06-01 (date du Journal officiel qui le publie).
 

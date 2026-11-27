@@ -1,6 +1,6 @@
 # Décret n° 12-346-1925 Trésoreries coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 346 du 30/09/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-346-1925-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 346 du 30/09/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-346-1925-tresoreries-coloniales/>
 
 En vigueur : 1925-09-30 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ J. CAILLAUX.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

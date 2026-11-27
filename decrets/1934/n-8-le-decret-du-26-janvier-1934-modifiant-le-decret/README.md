@@ -1,6 +1,6 @@
 # Décret n° n°8 le décret du 26 janvier 1934 modifiant le décret! du 3 juillet 1897 portant règlement sur l’ex indemnités de route et de séjour alloues aux fonctionnaires, employés ct agents des services coloniaux..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 447 du 28/02/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-le-decret-du-26-janvier-1934-modifiant-le-decret-du-3-juillet-1897-portant-reglement-sur-lex-indemnites-de-route-et-de-sejour-alloues-aux-fonctionnaires-employes-ct-agen/>
+Décret · Journal officiel de la République de Djibouti, n° 447 du 28/02/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-le-decret-du-26-janvier-1934-modifiant-le-decret-du-3-juillet-1897-portant-reglement-sur-lex-indemnites-de-route-et-de-sejour-alloues-aux-fonctionnaires-employes-ct-agen/>
 
 En vigueur : 1934-02-28 (date du Journal officiel qui le publie).
 

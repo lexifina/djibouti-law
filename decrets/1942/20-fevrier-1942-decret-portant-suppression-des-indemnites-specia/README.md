@@ -1,6 +1,6 @@
 # Décret n° 20 février 1942 Le décret portant suppression des indemnités spéciales temporaires et attribution d’un supplément de traitement et de solde aux fonctionnaires et agents des cadres coloniaux organisés par décret.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-fevrier-1942-le-decret-portant-suppression-des-indemnites-speciales-temporaires-et-attribution-dun-supplement-de-traitement-et-de-solde-aux-fonctionnaires-et-agents-des-cadres-col/>
+Décret · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-fevrier-1942-le-decret-portant-suppression-des-indemnites-speciales-temporaires-et-attribution-dun-supplement-de-traitement-et-de-solde-aux-fonctionnaires-et-agents-des-cadres-col/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

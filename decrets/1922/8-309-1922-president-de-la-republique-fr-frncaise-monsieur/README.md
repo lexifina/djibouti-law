@@ -1,6 +1,6 @@
 # Décret n° 8-309-1922 AU PRÉSIDENT DE LA RÉPUBLIQUE FR FRNCAISE, Monsieur le Président,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 309 du 31/08/1922 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-309-1922-au-president-de-la-republique-fr-frncaise-monsieur-le-president/>
+Décret · Journal officiel de la République de Djibouti, n° 309 du 31/08/1922 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-309-1922-au-president-de-la-republique-fr-frncaise-monsieur-le-president/>
 
 En vigueur : 1922-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0197/PR/MTCRA portant création des sous-comités de pilotage de l’Assurance Maladie Universelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0197-pr-mtcra-portant-creation-des-sous-comites-de-pilotage-de-lassurance-maladie-universelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0197-pr-mtcra-portant-creation-des-sous-comites-de-pilotage-de-lassurance-maladie-universelle/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

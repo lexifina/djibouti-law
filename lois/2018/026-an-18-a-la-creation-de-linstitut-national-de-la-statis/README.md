@@ -1,8 +1,8 @@
 # Loi n° 26/AN/18/8ème L relatif à la création de l’Institut National de la Statistique de Djibouti (INSD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-18-8eme-l-relatif-a-la-creation-de-linstitut-national-de-la-statistique-de-djibouti-insd/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n26-an-18-8eme-l-relatif-a-la-creation-de-linstitut-national-de-la-statistique-de-djibouti-insd/>
 
-En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-02-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -87,4 +87,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

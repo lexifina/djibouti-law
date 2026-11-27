@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Le sixième paragraphe de l’article 10 du décret du 6 août 1921 est abrogé et remplacé par les disposilions suivantes :
 Le La proportion des noiminalions prévues aux précédents paragraphes ne peut dépasser le Liers des vacances se produisant dans le cadre local du personnel par colonie où par groupe de colonies, Exceptionneilement, cetle proportion peut élre fixée par arrêlé interministériel du Ministre des colonies et du Ministre des finances et pour trois ans, à compler du jour de la signature de l’arrêté, à la moitié des vacances se produisant dans le cadre local du personnel en question, ».

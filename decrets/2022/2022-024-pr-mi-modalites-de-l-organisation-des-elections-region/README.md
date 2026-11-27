@@ -1,6 +1,6 @@
 # Décret n° 2022-024/PR/MI fixant les modalités de l’organisation des Elections Régionales et Communales du 11 mars et le 01 Avril 2022.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 07/02/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-024-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-11-mars-et-le-01-avril-2022/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 07/02/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-024-pr-mi-fixant-les-modalites-de-lorganisation-des-elections-regionales-et-communales-du-11-mars-et-le-01-avril-2022/>
 
 En vigueur : 2022-02-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -43,4 +43,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

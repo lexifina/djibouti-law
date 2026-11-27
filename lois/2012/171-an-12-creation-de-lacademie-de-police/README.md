@@ -1,6 +1,6 @@
 # Loi n° 171/AN/12/6ème L portant création de l’Académie de Police.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-12-6eme-l-portant-creation-de-lacademie-de-police/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-12-6eme-l-portant-creation-de-lacademie-de-police/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

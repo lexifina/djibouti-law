@@ -1,6 +1,6 @@
 # Décret n° 02-82-1903 chargeant M. Amouroux de la tenue du magasin du service des travaux publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 82 du 01/05/1903 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-82-1903-chargeant-m-amouroux-de-la-tenue-du-magasin-du-service-des-travaux-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 82 du 01/05/1903 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-82-1903-chargeant-m-amouroux-de-la-tenue-du-magasin-du-service-des-travaux-publics/>
 
 En vigueur : 1903-05-01 (date du Journal officiel qui le publie).
 

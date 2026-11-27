@@ -1,6 +1,6 @@
 # Décret n° 21-479-1936 Répression de la hausse injustifiée des prix dans les colonies, pays de protectorat et territoires sous mandat relevant du ministèére des colonies. autres que la Martinique. la Guadeloupe et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-479-1936-repression-de-la-hausse-injustifiee-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministeere-des-colonies-autres-que-la-martinique/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-479-1936-repression-de-la-hausse-injustifiee-des-prix-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministeere-des-colonies-autres-que-la-martinique/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

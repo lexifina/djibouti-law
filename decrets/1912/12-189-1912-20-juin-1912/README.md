@@ -1,6 +1,6 @@
 # Décret n° 12-189-1912 le 20 juin 1912.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 189 du 01/08/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-189-1912-le-20-juin-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 189 du 01/08/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-189-1912-le-20-juin-1912/>
 
 En vigueur : 1912-08-01 (date du Journal officiel qui le publie).
 

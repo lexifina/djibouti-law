@@ -1,6 +1,6 @@
 # Décret n° 02-422-1932 Promulgation du protocole annexe à la convention de commerce et de navigation du $0 janvier 1929, signé à Belgrade le 12 mars 1930, entre, la France et le royaume des Serbes-Croates-Slovènes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 422 du 31/01/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-422-1932-promulgation-du-protocole-annexe-a-la-convention-de-commerce-et-de-navigation-du-0-janvier-1929-signe-a-belgrade-le-12-mars-1930-entre-la-france-et-le-royaume-des-serbe/>
+Décret · Journal officiel de la République de Djibouti, n° 422 du 31/01/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-422-1932-promulgation-du-protocole-annexe-a-la-convention-de-commerce-et-de-navigation-du-0-janvier-1929-signe-a-belgrade-le-12-mars-1930-entre-la-france-et-le-royaume-des-serbe/>
 
 En vigueur : 1932-01-31 (date du Journal officiel qui le publie).
 

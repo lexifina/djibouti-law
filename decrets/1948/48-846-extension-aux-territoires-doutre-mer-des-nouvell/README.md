@@ -1,6 +1,6 @@
 # Décret n° 48-846 portant extension aux territoires d’outre-mer des nouvelles limites d’achats sur simples factures (J. O.R. F. du 21 mai 1948. page n° 4858).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1948 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-48-846-portant-extension-aux-territoires-doutre-mer-des-nouvelles-limites-dachats-sur-simples-factures-j-o-r-f-du-21-mai-1948-page-n-4858/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1948 · <https://www.journalofficiel.dj/texte-juridique/decret-n-48-846-portant-extension-aux-territoires-doutre-mer-des-nouvelles-limites-dachats-sur-simples-factures-j-o-r-f-du-21-mai-1948-page-n-4858/>
 
 En vigueur : 1948-06-30 (date du Journal officiel qui le publie).
 

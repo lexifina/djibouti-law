@@ -1,6 +1,6 @@
 # Décret n° 6-177-1911 le 22 juin 1911.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 177 du 01/08/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-177-1911-le-22-juin-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 177 du 01/08/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-177-1911-le-22-juin-1911/>
 
 En vigueur : 1911-08-01 (date du Journal officiel qui le publie).
 

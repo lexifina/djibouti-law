@@ -1,6 +1,6 @@
 # Loi n° 186/AN/12/6ème L portant création auprès du Ministère de l’Education Nationale et de la Formation Professionnelle du Centre de Formation des Enseignants de l’Enseignement Fondamental (CFEEF).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-12-6eme-l-portant-creation-aupres-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle-du-centre-de-formation-des-enseignants-de-lenseignement-fondamental-cfe/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-12-6eme-l-portant-creation-aupres-du-ministere-de-leducation-nationale-et-de-la-formation-professionnelle-du-centre-de-formation-des-enseignants-de-lenseignement-fondamental-cfe/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

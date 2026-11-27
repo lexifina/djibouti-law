@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er — Les dispositions du décret du 1er septembre 1539 relatif à la: déclaration et à la mise sous séquestre des biens appartenant à des ennemis ne sont pas applicables aux dettes résultant de l’importation de marchandises originaires on en provenance d’ Alle magne dans ie teri se ire dounier français, , les colounies, les pays de protector: at et les t territoires africains sous Les undat francais, telles qu’e les sont définies par les accords franco-allemands au 10 juillet 1937.

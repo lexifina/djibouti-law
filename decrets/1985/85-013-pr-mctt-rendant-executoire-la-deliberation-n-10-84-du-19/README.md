@@ -1,6 +1,6 @@
 # Décret n° 85-013/PR/MCTT rendant exécutoire la Délibération N° 10/84 du 19 Décembre 1984 du Conseil d’Administration de de l’Office des Postes et Télécommunications, autorisant l’Office à accorder un prêt de 100 millions de FD à l’Aéroport International de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-013-pr-mctt-rendant-executoire-la-deliberation-n-10-84-du-19-decembre-1984-du-conseil-dadministration-de-de-loffice-des-postes-et-telecommunications-autorisant-loffice-a/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-013-pr-mctt-rendant-executoire-la-deliberation-n-10-84-du-19-decembre-1984-du-conseil-dadministration-de-de-loffice-des-postes-et-telecommunications-autorisant-loffice-a/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

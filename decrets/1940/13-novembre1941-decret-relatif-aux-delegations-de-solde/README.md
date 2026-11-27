@@ -1,6 +1,6 @@
 # Décret n° 13 novembre1941 Le décret relatif aux délégations de solde
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-novembre1941-le-decret-relatif-aux-delegations-de-solde/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-novembre1941-le-decret-relatif-aux-delegations-de-solde/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ Le Secrétaire1 d'Etat aux colonies, PLATON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er– |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

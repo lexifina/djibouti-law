@@ -1,6 +1,6 @@
 # Arrêté n° 2015-295/PR/MENSUR portant création d’un Comité d’organisation du Sommet “2015, East Africa Environmental Risks & Opportunities”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-295-pr-mensur-portant-creation-dun-comite-dorganisation-du-sommet-2015-east-africa-environmental-risks-opportunities/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-295-pr-mensur-portant-creation-dun-comite-dorganisation-du-sommet-2015-east-africa-environmental-risks-opportunities/>
 
 En vigueur : 2015-04-30 (date du Journal officiel qui le publie).
 

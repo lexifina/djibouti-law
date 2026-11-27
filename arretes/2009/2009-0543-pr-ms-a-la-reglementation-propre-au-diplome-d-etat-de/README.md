@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0543/PR/MS relatif à la réglementation propre au Diplôme d’Etat de Technicien de laboratoire Diplômé d’Etat
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0543-pr-ms-relatif-a-la-reglementation-propre-au-diplome-detat-de-technicien-de-laboratoire-diplome-detat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 30/07/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0543-pr-ms-relatif-a-la-reglementation-propre-au-diplome-detat-de-technicien-de-laboratoire-diplome-detat/>
 
 En vigueur : 2009-07-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 24/AN/08/6ème L portant Règlement définitif du budget de l’Etat de l’exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-08-6eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-08-6eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2007/>
 
 En vigueur : 2008-12-15 (date du Journal officiel qui le publie).
 

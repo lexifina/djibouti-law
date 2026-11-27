@@ -1,6 +1,6 @@
 # Loi n° 130/AN/05/5ème L Portant approbation des comptes financiers de l’exercice 2003 du Pôle Universitaire de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-05-5eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2003-du-pole-universitaire-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-05-5eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2003-du-pole-universitaire-de-djibouti/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

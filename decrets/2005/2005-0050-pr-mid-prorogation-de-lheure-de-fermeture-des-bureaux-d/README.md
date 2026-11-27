@@ -1,6 +1,6 @@
 # Décret n° 2005-0050/PR/MID portant prorogation de l’heure de fermeture des bureaux de vote sur l’ensemble du Territoire de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0050-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0050-pr-mid-portant-prorogation-de-lheure-de-fermeture-des-bureaux-de-vote-sur-lensemble-du-territoire-de-la-republique/>
 
 En vigueur : 2005-04-16 (date du Journal officiel qui le publie).
 

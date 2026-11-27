@@ -1,6 +1,6 @@
 # Décret n° 80-152/PR/MI complétant le Code de la Route et relatif à la réception des véhicules.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-152-pr-mi-completant-le-code-de-la-route-et-relatif-a-la-reception-des-vehicules/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-152-pr-mi-completant-le-code-de-la-route-et-relatif-a-la-reception-des-vehicules/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Conseil des Ministres entendu en sa séance du 28 décembre1980.
 | [art-003.md](art-003.md) | ARTICLE 3 |
 | [art-004.md](art-004.md) | ARTICLE 4 |
 | [art-005.md](art-005.md) | ARTICLE 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

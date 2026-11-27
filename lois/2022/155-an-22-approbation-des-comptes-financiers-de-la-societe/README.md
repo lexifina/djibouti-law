@@ -1,6 +1,6 @@
 # Loi n° 155/AN/22/8ème L portant approbation des comptes financiers de la Société Internationale des Hydrocarbures de Djibouti pour l’exercice 2018.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-22-8eme-l-portant-approbation-des-comptes-financiers-de-la-societe-internationale-des-hydrocarbures-de-djibouti-pour-lexercice-2018/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-22-8eme-l-portant-approbation-des-comptes-financiers-de-la-societe-internationale-des-hydrocarbures-de-djibouti-pour-lexercice-2018/>
 
 En vigueur : 2022-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

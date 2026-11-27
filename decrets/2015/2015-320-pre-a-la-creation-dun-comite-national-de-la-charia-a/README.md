@@ -1,8 +1,8 @@
 # Décret n° 2015-320/PRE relatif à la création d’un Comité National de la Charia au sein de la Banque Centrale de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-320-pre-relatif-a-la-creation-dun-comite-national-de-la-charia-au-sein-de-la-banque-centrale-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-320-pre-relatif-a-la-creation-dun-comite-national-de-la-charia-au-sein-de-la-banque-centrale-de-djibouti/>
 
-En vigueur : 2015-11-30 (date fixÃ©e par le texte).
+En vigueur : 2015-11-30 (date fixée par le texte).
 
 ## Visas
 
@@ -62,4 +62,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

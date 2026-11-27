@@ -1,8 +1,8 @@
 # Loi n° 126/AN/96/3ème L portant adoption de la Constitution et de la Convention de l’Union Internationale des Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-96-3eme-l-portant-adoption-de-la-constitution-et-de-la-convention-de-lunion-internationale-des-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-96-3eme-l-portant-adoption-de-la-constitution-et-de-la-convention-de-lunion-internationale-des-telecommunications/>
 
-En vigueur : 1997-01-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-01-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

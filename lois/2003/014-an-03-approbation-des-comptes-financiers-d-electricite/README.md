@@ -1,6 +1,6 @@
 # Loi n° 14/AN/03/5ème L portant approbation des comptes financiers d’Électricité de Djibouti (EDD) pour l’exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-03-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-edd-pour-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-03-5eme-l-portant-approbation-des-comptes-financiers-delectricite-de-djibouti-edd-pour-lexercice-2001/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

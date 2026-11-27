@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0321/PRE portant approbation du Budget prévisionnel du CERD pour l’Exercice 2009.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0321-pre-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2009/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0321-pre-portant-approbation-du-budget-previsionnel-du-cerd-pour-lexercice-2009/>
 
 En vigueur : 2009-04-30 (date du Journal officiel qui le publie).
 

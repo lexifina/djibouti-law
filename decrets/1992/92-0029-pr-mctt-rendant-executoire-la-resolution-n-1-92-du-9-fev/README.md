@@ -1,6 +1,6 @@
 # Décret n° 92-0029/PR/MCTT Rendant exécutoire la résolution n° 1/92 du 9 Février 1992 du Conseil d’Administration d’Aéroport de Djibouti et portant approbation du Budget définitif de l’Exercice 1990 d’Aéroport de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0029-pr-mctt-rendant-executoire-la-resolution-n1-92-du-9-fevrier-1992-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definit-2/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0029-pr-mctt-rendant-executoire-la-resolution-n1-92-du-9-fevrier-1992-du-conseil-dadministration-daeroport-de-djibouti-et-portant-approbation-du-budget-definit-2/>
 
 En vigueur : 1992-03-15 (date du Journal officiel qui le publie).
 

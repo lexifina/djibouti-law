@@ -1,6 +1,6 @@
 # Loi n° 217/AN/86/1ère L portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-86-1ere-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1985/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n217-an-86-1ere-l-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1985/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

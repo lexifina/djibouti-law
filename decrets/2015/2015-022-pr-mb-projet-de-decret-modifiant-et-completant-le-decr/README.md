@@ -1,8 +1,8 @@
 # Décret n° 2015-022/PR/MB projet de décret modifiant et complétant le décret n° 2003-0240/PRE et portant création du Service National d’Appui au Développement (SNAD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-022-pr-mb-projet-de-decret-modifiant-et-completant-le-decret-n-2003-0240-pre-et-portant-creation-du-service-national-dappui-au-developpement-snad/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-022-pr-mb-projet-de-decret-modifiant-et-completant-le-decret-n-2003-0240-pre-et-portant-creation-du-service-national-dappui-au-developpement-snad/>
 
-En vigueur : 2015-01-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-01-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

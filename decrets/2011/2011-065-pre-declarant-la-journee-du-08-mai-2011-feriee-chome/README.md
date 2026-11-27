@@ -1,6 +1,6 @@
 # Décret n° 2011-065/PRE déclarant la journée du 08 mai 2011, fériée, chômée et payée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-065-pre-declarant-la-journee-du-08-mai-2011-feriee-chomee-et-payee/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-065-pre-declarant-la-journee-du-08-mai-2011-feriee-chomee-et-payee/>
 
 En vigueur : 2011-05-15 (date du Journal officiel qui le publie).
 

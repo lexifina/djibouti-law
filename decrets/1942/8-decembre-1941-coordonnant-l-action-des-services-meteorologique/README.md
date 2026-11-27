@@ -1,6 +1,6 @@
 # Décret n° 8 décembre 1941 coordonnant l’action des services météorologiques métropolitains et coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 543 du 28/02/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-decembre-1941-coordonnant-laction-des-services-meteorologiques-metropolitains-et-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 543 du 28/02/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-decembre-1941-coordonnant-laction-des-services-meteorologiques-metropolitains-et-coloniaux/>
 
 En vigueur : 1942-02-28 (date du Journal officiel qui le publie).
 

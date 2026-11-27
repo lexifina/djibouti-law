@@ -1,6 +1,6 @@
 # Décret n° 03-226-1915
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 226 du 31/08/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-226-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 226 du 31/08/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-226-1915/>
 
 En vigueur : 1915-08-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ Gaston THOMSON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

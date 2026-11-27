@@ -1,6 +1,6 @@
 # Arrêté n° 2018-195/PR/MDC approuvant et rendant exécutoire le Budget Prévisionnel 2019 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-195-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2019-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-195-pr-mdc-approuvant-et-rendant-executoire-le-budget-previsionnel-2019-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2019-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

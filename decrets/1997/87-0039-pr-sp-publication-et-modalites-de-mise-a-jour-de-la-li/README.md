@@ -1,6 +1,6 @@
 # Décret n° 87-0039/PR/SP portant publication et modalités de mise à jour de la liste des médicaments essentiels.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 03/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-0039-pr-sp-portant-publication-et-modalites-de-mise-a-jour-de-la-liste-des-medicaments-essentiels/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 03/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-0039-pr-sp-portant-publication-et-modalites-de-mise-a-jour-de-la-liste-des-medicaments-essentiels/>
 
 En vigueur : 1997-05-15 (date du Journal officiel qui le publie).
 

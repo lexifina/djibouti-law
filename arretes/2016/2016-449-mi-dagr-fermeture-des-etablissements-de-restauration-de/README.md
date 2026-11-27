@@ -1,6 +1,6 @@
 # Arrêté n° 2016-449/MI/DAGR portant fermeture des établissements de restauration de débits de boissons et spectacles pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-449-mi-dagr-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-449-mi-dagr-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 

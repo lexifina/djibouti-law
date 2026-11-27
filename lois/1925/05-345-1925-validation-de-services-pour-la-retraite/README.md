@@ -1,6 +1,6 @@
 # Loi n° 05-345-1925 Validation de services pour la retraite.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 345 du 31/08/1925 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-05-345-1925-validation-de-services-pour-la-retraite/>
+Loi · Journal officiel de la République de Djibouti, n° 345 du 31/08/1925 · <https://www.journalofficiel.dj/texte-juridique/loi-n-05-345-1925-validation-de-services-pour-la-retraite/>
 
 En vigueur : 1925-08-31 (date du Journal officiel qui le publie).
 

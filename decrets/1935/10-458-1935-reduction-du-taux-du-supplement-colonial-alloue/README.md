@@ -1,6 +1,6 @@
 # Décret n° 10-458-1935 Réduction du taux du supplément colonial alloué au personnel en service dans certaines colonies,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-458-1935-reduction-du-taux-du-supplement-colonial-alloue-au-personnel-en-service-dans-certaines-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-458-1935-reduction-du-taux-du-supplement-colonial-alloue-au-personnel-en-service-dans-certaines-colonies/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 

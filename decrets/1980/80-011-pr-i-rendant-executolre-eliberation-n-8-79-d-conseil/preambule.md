@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Est rendue exécutoire la délibération n° 8-79 du 24 dé-
 cembre 1979 du conseil d’administration de l’Office des Postes et Télé-
 communications portant approbation du budget primitif de Office ‘des

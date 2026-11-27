@@ -1,6 +1,6 @@
 # Décret n° n°33 Décret du 30 août 1931, portant modification du décret du 22 août 192$ déterminant le statut de la magistrature coloniale en ce qui concerne : 1° les juges suppléants et les juges de paix à compétence étendue de 3° classe en service dans les territoires relevant du ministère des colonies: 2° le chef du service judiciaire de l’Indochine
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 418 du 30/09/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n33-decret-du-30-aout-1931-portant-modification-du-decret-du-22-aout-192-determinant-le-statut-de-la-magistrature-coloniale-en-ce-qui-concerne-1-les-juges-suppleants-et/>
+Décret · Journal officiel de la République de Djibouti, n° 418 du 30/09/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n33-decret-du-30-aout-1931-portant-modification-du-decret-du-22-aout-192-determinant-le-statut-de-la-magistrature-coloniale-en-ce-qui-concerne-1-les-juges-suppleants-et/>
 
 En vigueur : 1931-09-30 (date du Journal officiel qui le publie).
 

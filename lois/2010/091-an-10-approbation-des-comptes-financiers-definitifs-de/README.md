@@ -1,6 +1,6 @@
 # Loi n° 91/AN/10/6ème L portant approbation des Comptes Financiers définitifs de l’Université de Djibouti pour l’exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-luniversite-de-djibouti-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-luniversite-de-djibouti-pour-lexercice-2007/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

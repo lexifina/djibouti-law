@@ -1,6 +1,6 @@
 # Loi n° 155/AN/80 portant modification du Code Général des Impôts « Taxes sur les propriétés non mises en valeur ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-80-portant-modification-du-code-general-des-impots-taxes-sur-les-proprietes-non-mises-en-valeur/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-80-portant-modification-du-code-general-des-impots-taxes-sur-les-proprietes-non-mises-en-valeur/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

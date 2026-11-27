@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0869/PR/MEFPCP Attribuant à la Société Koweïtienne pour le Commerce et la Construction, une parcelle de terrain sise à Balbala
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0869-pr-mefpcp-attribuant-a-la-societe-koweitienne-pour-le-commerce-et-la-construction-une-parcelle-de-terrain-sise-a-balbala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0869-pr-mefpcp-attribuant-a-la-societe-koweitienne-pour-le-commerce-et-la-construction-une-parcelle-de-terrain-sise-a-balbala/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

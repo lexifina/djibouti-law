@@ -1,8 +1,8 @@
 # Décret n° 2002-0030/PR/MEN fixant la liste des établissements moyens et secondaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0030-pr-men-fixant-la-liste-des-etablissements-moyens-et-secondaires/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0030-pr-men-fixant-la-liste-des-etablissements-moyens-et-secondaires/>
 
-En vigueur : 2002-02-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-02-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

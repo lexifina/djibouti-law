@@ -1,6 +1,6 @@
 # Ordonnance n° 45-168 complétant et modifiant l’ordonnance du 14 novembre 1944 portant première application de l‘ordonnance du 12 novembre 1943 sur la nullité des actes de spoliation accomplis par l’ennemi ou sous son contrôle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-168-completant-et-modifiant-lordonnance-du-14-novembre-1944-portant-premiere-application-de-lordonnance-du-12-novembre-1943-sur-la-nullite-des-actes-de-spoliat/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-168-completant-et-modifiant-lordonnance-du-14-novembre-1944-portant-premiere-application-de-lordonnance-du-12-novembre-1943-sur-la-nullite-des-actes-de-spoliat/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

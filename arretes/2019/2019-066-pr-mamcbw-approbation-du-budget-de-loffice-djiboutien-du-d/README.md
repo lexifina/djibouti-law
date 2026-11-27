@@ -1,6 +1,6 @@
 # Arrêté n° 2019-066/PR/MAMCBW portant approbation du Budget de l’Office Djiboutien du Droit d’Auteur et de Droit Voisin.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 14/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-066-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-du-droit-dauteur-et-de-droit-voisin/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 14/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-066-pr-mamcbw-portant-approbation-du-budget-de-loffice-djiboutien-du-droit-dauteur-et-de-droit-voisin/>
 
 En vigueur : 2019-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

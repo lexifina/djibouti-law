@@ -1,6 +1,6 @@
 # Décret n° 84-123/PRE portant mesure de grâces collectives collectives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-123-pre-portant-mesure-de-graces-collectives-collectives/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/12/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-123-pre-portant-mesure-de-graces-collectives-collectives/>
 
 En vigueur : 1984-12-15 (date du Journal officiel qui le publie).
 

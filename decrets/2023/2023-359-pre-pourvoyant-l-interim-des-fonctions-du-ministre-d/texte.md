@@ -1,2 +1,0 @@
-Par décret n°2023-359/PRE, du Président de la République, chef du Gouvernement, en date du 30 novembre 2023, Pendant la durée de l’absence de S.E.M. MOHAMED AHMED AWALEH, Pintérim des fonctions du Ministre de l’Agriculture, et de l’Eau, de la Pêche, de l’Elevage et des Ressources Halieutiques sera assuré par S.E.M. HASSAN HOUMED IBRAHIM, Ministre des Infrastructures et de l’Equipement cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

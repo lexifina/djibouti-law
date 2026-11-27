@@ -1,8 +1,8 @@
 # Décret n° 2023-074/PRE instituant un mécanisme de contribution et de compensation carbone
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-074-pre-instituant-un-mecanisme-de-contribution-et-de-compensation-carbone/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-074-pre-instituant-un-mecanisme-de-contribution-et-de-compensation-carbone/>
 
-En vigueur : 2023-03-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-03-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

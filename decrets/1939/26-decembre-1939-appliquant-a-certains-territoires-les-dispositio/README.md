@@ -1,6 +1,6 @@
 # Décret n° 26 décembre 1939 appliquant a certains territoires les dispositions du décret du 23 octobre 1935 relatif aux gestions de fait.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-decembre-1939-appliquant-a-certains-territoires-les-dispositions-du-decret-du-23-octobre-1935-relatif-aux-gestions-de-fait/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-decembre-1939-appliquant-a-certains-territoires-les-dispositions-du-decret-du-23-octobre-1935-relatif-aux-gestions-de-fait/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Paul REYNAUD,.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

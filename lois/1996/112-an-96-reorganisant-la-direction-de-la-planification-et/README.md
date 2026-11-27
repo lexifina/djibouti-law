@@ -1,6 +1,6 @@
 # Loi n° 112/AN/96/3e L Réorganisant la direction de la Planification et créant la direction de l’Aménagement du Territoire et de l’Environnement et fixant leurs attributions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-96-3e-l-reorganisant-la-direction-de-la-planification-et-creant-la-direction-de-lamenagement-du-territoire-et-de-lenvironnement-et-fixant-leurs-attributions/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n112-an-96-3e-l-reorganisant-la-direction-de-la-planification-et-creant-la-direction-de-lamenagement-du-territoire-et-de-lenvironnement-et-fixant-leurs-attributions/>
 
 En vigueur : 1996-09-15 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ HASSAN GOULED APTIDON
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2007-0194/PR/DEF portant création des Groupements de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0194-pr-def-portant-creation-des-groupements-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0194-pr-def-portant-creation-des-groupements-de-la-gendarmerie-nationale/>
 
 En vigueur : 2007-09-30 (date du Journal officiel qui le publie).
 

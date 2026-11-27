@@ -1,6 +1,6 @@
 # Décret n° 87-096/PRE approuvant et rendant exécutoire le Budget Primitif 1988 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 30/11/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-096-pre-approuvant-et-rendant-executoire-le-budget-primitif-1988-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 30/11/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-096-pre-approuvant-et-rendant-executoire-le-budget-primitif-1988-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1987-11-30 (date du Journal officiel qui le publie).
 

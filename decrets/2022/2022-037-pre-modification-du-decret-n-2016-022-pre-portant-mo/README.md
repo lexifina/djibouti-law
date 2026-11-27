@@ -1,6 +1,6 @@
 # Décret n° 2022-037/PRE portant modification du Décret n° 2016- 022/PRE portant modification du Décret n° 2015-287/PRE portant Organisation et Fonctionnement de l’Agence Nationale des Systèmes d’information de l’Etat
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-037-pre-portant-modification-du-decret-n2016-022-pre-portant-modification-du-decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-syst/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-037-pre-portant-modification-du-decret-n2016-022-pre-portant-modification-du-decret-n2015-287-pre-portant-organisation-et-fonctionnement-de-lagence-nationale-des-syst/>
 
 En vigueur : 2022-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

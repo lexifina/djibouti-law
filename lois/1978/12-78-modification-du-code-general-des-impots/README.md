@@ -1,6 +1,6 @@
 # Loi n° 12/78 portant modification du Code général des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 13/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n12-78-portant-modification-du-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 13/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n12-78-portant-modification-du-code-general-des-impots/>
 
 En vigueur : 1978-03-13 (date du Journal officiel qui le publie).
 

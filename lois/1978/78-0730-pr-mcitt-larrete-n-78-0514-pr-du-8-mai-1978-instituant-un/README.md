@@ -1,6 +1,6 @@
 # Amendement n° 78-0730/PR/MCITT modifiant l’arrêté n° 78-0514/PR du 8 mai 1978 instituant une redevance d’usage des installations aménagées pour la réception des marchandises et fixant le taux de cette redevance Aéronautique.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 18/03/1979 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n78-0730-pr-mcitt-modifiant-larrete-n-78-0514-pr-du-8-mai-1978-instituant-une-redevance-dusage-des-installations-amenagees-pour-la-reception-des-marchandises-et-fixant-le-t/>
+Amendement · Journal officiel de la République de Djibouti, n° 1 du 18/03/1979 · <https://www.journalofficiel.dj/texte-juridique/amendement-n78-0730-pr-mcitt-modifiant-larrete-n-78-0514-pr-du-8-mai-1978-instituant-une-redevance-dusage-des-installations-amenagees-pour-la-reception-des-marchandises-et-fixant-le-t/>
 
 En vigueur : 1979-03-18 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ ISMAIL GUEDI HARRED.
 | Fichier | Disposition |
 | --- | --- |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

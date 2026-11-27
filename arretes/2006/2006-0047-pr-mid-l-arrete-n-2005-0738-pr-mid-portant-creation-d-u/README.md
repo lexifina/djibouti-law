@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0047/PR/MID modifiant l’arrêté n° 2005-0738/PR/MID portant création d’une commission de propagande chargée de donner son avis sur les prix des documents Electoraux pour les élections régionales du 10 mars 2005.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 22/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0047-pr-mid-modifiant-larrete-n2005-0738-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electora/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 22/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0047-pr-mid-modifiant-larrete-n2005-0738-pr-mid-portant-creation-dune-commission-de-propagande-chargee-de-donner-son-avis-sur-les-prix-des-documents-electora/>
 
 En vigueur : 2006-02-22 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0262/PR/MEFPCP portant attribution à la Société Inchcape à titre onoreux, une parcelle de terrain sise au Lotissement Marabout.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0262-pr-mefpcp-portant-attribution-a-la-societe-inchcape-a-titre-onoreux-une-parcelle-de-terrain-sise-au-lotissement-marabout/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0262-pr-mefpcp-portant-attribution-a-la-societe-inchcape-a-titre-onoreux-une-parcelle-de-terrain-sise-au-lotissement-marabout/>
 
 En vigueur : 2006-04-15 (date du Journal officiel qui le publie).
 

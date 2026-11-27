@@ -1,6 +1,6 @@
 # Loi n° 159/AN/12/6ème L fixant les redevances de l’Office Djiboutien de la Propriété Industrielle et Commerciale (ODPIC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-12-6eme-l-fixant-les-redevances-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 14/06/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-12-6eme-l-fixant-les-redevances-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-odpic/>
 
 En vigueur : 2012-06-14 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

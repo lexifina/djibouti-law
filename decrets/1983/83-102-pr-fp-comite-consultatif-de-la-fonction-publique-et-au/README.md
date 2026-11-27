@@ -1,6 +1,6 @@
 # Décret n° 83-102/PR/FP relatif au Comité consultatif de la Fonction publique et aux Commissions administratives paritaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n83-102-pr-fp-relatif-au-comite-consultatif-de-la-fonction-publique-et-aux-commissions-administratives-paritaires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n83-102-pr-fp-relatif-au-comite-consultatif-de-la-fonction-publique-et-aux-commissions-administratives-paritaires/>
 
 En vigueur : 1984-01-01 (date du Journal officiel qui le publie).
 
@@ -48,4 +48,4 @@ Le Conseil des Ministres entendu en sa séance du 6 septembre 1983.
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

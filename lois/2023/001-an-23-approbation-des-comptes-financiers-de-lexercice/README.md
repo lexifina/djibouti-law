@@ -1,6 +1,6 @@
 # Loi n° 001/AN/23/9ème L portant approbation des comptes financiers de l’exercice 2021 du Diwan des Biens Waqfs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n001-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2021-du-diwan-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n001-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2021-du-diwan-des-biens-waqfs/>
 
 En vigueur : 2023-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

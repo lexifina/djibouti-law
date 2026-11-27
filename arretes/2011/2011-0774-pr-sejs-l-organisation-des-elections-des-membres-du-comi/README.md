@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0774/PR/SEJS fixant l’Organisation des Elections des Membres du Comité Exécutif des Groupement Sportifs Uni Sport.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0774-pr-sejs-fixant-lorganisation-des-elections-des-membres-du-comite-executif-des-groupement-sportifs-uni-sport/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0774-pr-sejs-fixant-lorganisation-des-elections-des-membres-du-comite-executif-des-groupement-sportifs-uni-sport/>
 
 En vigueur : 2011-10-31 (date du Journal officiel qui le publie).
 

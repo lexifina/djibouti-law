@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2122 relative à la réorganisation des services chargés de la signalisation maritime aux colonies.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1946 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2122-relative-a-la-reorganisation-des-services-charges-de-la-signalisation-maritime-aux-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 31/01/1946 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2122-relative-a-la-reorganisation-des-services-charges-de-la-signalisation-maritime-aux-colonies/>
 
 En vigueur : 1946-01-31 (date du Journal officiel qui le publie).
 
@@ -33,5 +33,5 @@ R. PLEVEN.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

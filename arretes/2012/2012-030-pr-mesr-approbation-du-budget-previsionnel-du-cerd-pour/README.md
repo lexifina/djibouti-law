@@ -1,6 +1,6 @@
 # Arrêté n° 2012-030/PR/MESR portant approbation du budget prévisionnel du CERD pour l’année 2012.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-030-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2012/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-030-pr-mesr-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

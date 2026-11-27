@@ -1,6 +1,6 @@
 # Décret n° 2009-048/PR/MPFBF portant création et organisation du Comité National pour l’Abandon Total de Toutes Formes d’Excision.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-048-pr-mpfbf-portant-creation-et-organisation-du-comite-national-pour-labandon-total-de-toutes-formes-dexcision/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-048-pr-mpfbf-portant-creation-et-organisation-du-comite-national-pour-labandon-total-de-toutes-formes-dexcision/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 

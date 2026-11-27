@@ -1,6 +1,6 @@
 # Arrêté n° 2019-071/PR/MET portant approbation du budget prévisionnel 2019 de l’Agence Nationale de la Météorologie de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-071-pr-met-portant-approbation-du-budget-previsionnel-2019-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-071-pr-met-portant-approbation-du-budget-previsionnel-2019-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
 
 En vigueur : 2019-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

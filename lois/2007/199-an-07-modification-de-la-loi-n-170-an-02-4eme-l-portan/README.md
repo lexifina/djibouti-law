@@ -1,6 +1,6 @@
 # Loi n° 199/AN/07/5ème L portant modification de la Loi n° 170/AN/02/4ème L portant Statut du Notariat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-07-5eme-l-portant-modification-de-la-loi-n170-an-02-4eme-l-portant-statut-du-notariat/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n199-an-07-5eme-l-portant-modification-de-la-loi-n170-an-02-4eme-l-portant-statut-du-notariat/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

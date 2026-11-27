@@ -1,6 +1,6 @@
 # Décret n° 99-0245/PR/MI portant approbation de la concession et du cahier des charges de la division de collectes, des transports et traitements des déchets urbains des services techniques du District de Djibouti concédé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0245-pr-mi-portant-approbation-de-la-concession-et-du-cahier-des-charges-de-la-division-de-collectes-des-transports-et-traitements-des-dechets-urbains-des-services-techniques-du-dist/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0245-pr-mi-portant-approbation-de-la-concession-et-du-cahier-des-charges-de-la-division-de-collectes-des-transports-et-traitements-des-dechets-urbains-des-services-techniques-du-dist/>
 
 En vigueur : 1999-11-30 (date du Journal officiel qui le publie).
 

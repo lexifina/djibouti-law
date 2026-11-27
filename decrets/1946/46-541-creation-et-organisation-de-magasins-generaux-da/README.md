@@ -1,6 +1,6 @@
 # Décret n° 46-541 portant création et organisation de magasins généraux dans les territoires relevant du ministère de la France d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-541-portant-creation-et-organisation-de-magasins-generaux-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-541-portant-creation-et-organisation-de-magasins-generaux-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 

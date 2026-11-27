@@ -1,6 +1,6 @@
 # Arrêté n° 2019-059/PR/MB portant attribution d’une parcelle de terrain sis au Salines Ouest.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 14/03/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-059-pr-mb-portant-attribution-dune-parcelle-de-terrain-sis-au-salines-ouest/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 14/03/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-059-pr-mb-portant-attribution-dune-parcelle-de-terrain-sis-au-salines-ouest/>
 
 En vigueur : 2019-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

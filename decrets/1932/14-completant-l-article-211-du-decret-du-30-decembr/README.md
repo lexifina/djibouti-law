@@ -1,6 +1,6 @@
 # Décret n° 14 completant l’article 211 du décret du 30 décembre 1912 sur le regime financier des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/08/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-completant-larticle-211-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/08/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-completant-larticle-211-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
 
 En vigueur : 1952-08-01 (date du Journal officiel qui le publie).
 

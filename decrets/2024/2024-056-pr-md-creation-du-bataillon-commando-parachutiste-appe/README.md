@@ -1,6 +1,6 @@
 # Décret n° 2024-056/PR/MD portant création du Bataillon Commando Parachutiste appelé BATCOPA
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 14/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-056-pr-md-portant-creation-du-bataillon-commando-parachutiste-appele-batcopa/>
+Décret · Journal officiel de la République de Djibouti, n° 05 du 14/03/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-056-pr-md-portant-creation-du-bataillon-commando-parachutiste-appele-batcopa/>
 
 En vigueur : 2024-03-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -41,4 +41,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | ARTICLE 13 |
 | [art-014.md](art-014.md) | ARTICLE 14 |
 | [art-015.md](art-015.md) | ARTICLE 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

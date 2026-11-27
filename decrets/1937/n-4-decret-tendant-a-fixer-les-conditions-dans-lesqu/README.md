@@ -1,6 +1,6 @@
 # Décret n° n°4 Le décret tendant à fixer les conditions dans lesquelles les indigènes originaires de la Côte française des Somalis peuvent accéder à la qualité de citoyen français
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 488 du 31/07/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-le-decret-tendant-a-fixer-les-conditions-dans-lesquelles-les-indigenes-originaires-de-la-cote-francaise-des-somalis-peuvent-acceder-a-la-qualite-de-citoyen-francais/>
+Décret · Journal officiel de la République de Djibouti, n° 488 du 31/07/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n4-le-decret-tendant-a-fixer-les-conditions-dans-lesquelles-les-indigenes-originaires-de-la-cote-francaise-des-somalis-peuvent-acceder-a-la-qualite-de-citoyen-francais/>
 
 En vigueur : 1937-07-31 (date du Journal officiel qui le publie).
 

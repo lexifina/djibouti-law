@@ -1,6 +1,6 @@
 # Loi n° 58/AN/04/5ème L portant création et statut particulier de la Direction Nationale de la Protection Civile.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-04-5eme-l-portant-creation-et-statut-particulier-de-la-direction-nationale-de-la-protection-civile/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-04-5eme-l-portant-creation-et-statut-particulier-de-la-direction-nationale-de-la-protection-civile/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 
@@ -103,4 +103,4 @@ ISMAÏL OMAR GUELLEH
 | [art-080.md](art-080.md) | Article 80 |
 | [art-081.md](art-081.md) | Article 81 |
 | [art-082.md](art-082.md) | Article 82 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

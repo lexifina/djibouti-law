@@ -1,6 +1,6 @@
 # Décret n° 10-216-1914 le 27 Septembre 1914
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 216 du 31/10/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-216-1914-le-27-septembre-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 216 du 31/10/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-216-1914-le-27-septembre-1914/>
 
 En vigueur : 1914-10-31 (date du Journal officiel qui le publie).
 
@@ -40,7 +40,7 @@ Gaston DOUMERGUE.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art. 5 – |
+| [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art.6 |
 | [art-007.md](art-007.md) | Art.7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

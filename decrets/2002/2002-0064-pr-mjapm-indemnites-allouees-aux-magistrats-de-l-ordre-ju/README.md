@@ -1,6 +1,6 @@
 # Décret n° 2002-0064/PR/MJAPM fixant les indemnités allouées aux Magistrats de l’ordre judiciaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0064-pr-mjapm-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0064-pr-mjapm-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
 
 En vigueur : 2002-05-15 (date du Journal officiel qui le publie).
 

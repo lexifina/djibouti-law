@@ -1,6 +1,6 @@
 # Loi n° 001/AN/18/8ème L portant modification et complétant le Code de Commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n001-an-18-8eme-l-portant-modification-et-completant-le-code-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n001-an-18-8eme-l-portant-modification-et-completant-le-code-de-commerce/>
 
 En vigueur : 2018-04-15 (date du Journal officiel qui le publie).
 

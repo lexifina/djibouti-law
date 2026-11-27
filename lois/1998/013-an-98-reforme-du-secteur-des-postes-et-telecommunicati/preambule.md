@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Préambule :
 Considérant l’importance essentielle que le Gouvernement a décidé de donner aux activités postales et des télécommunications pour le développement économique et social de la République de Djibouti.
 Considérant les engagements internationaux qu’il a souscrit au nom de la République de Djibouti dans le contexte d’un mouvement mondial de restructuration et de délibération des activités postales et des télécommunications.

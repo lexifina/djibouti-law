@@ -1,6 +1,6 @@
 # Arrêté n° 2010-454/PR/MS portant sur la mise en place du cadre Institutionnel des Comptes Nationaux de Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-454-pr-ms-portant-sur-la-mise-en-place-du-cadre-institutionnel-des-comptes-nationaux-de-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-454-pr-ms-portant-sur-la-mise-en-place-du-cadre-institutionnel-des-comptes-nationaux-de-sante/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

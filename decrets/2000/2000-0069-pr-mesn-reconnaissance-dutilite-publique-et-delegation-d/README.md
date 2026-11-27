@@ -1,6 +1,6 @@
 # Décret n° 2000-0069/PR/MESN portant reconnaissance d’utilité publique et délégation de maîtrise d’ouvrage à l’Agence Djiboutienne d’Exécution des Travaux d’Intérêt Public.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0069-pr-mesn-portant-reconnaissance-dutilite-publique-et-delegation-de-maitrise-douvrage-a-lagence-djiboutienne-dexecution-des-travaux-dinteret-public/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0069-pr-mesn-portant-reconnaissance-dutilite-publique-et-delegation-de-maitrise-douvrage-a-lagence-djiboutienne-dexecution-des-travaux-dinteret-public/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

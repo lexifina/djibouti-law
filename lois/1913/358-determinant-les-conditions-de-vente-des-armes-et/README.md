@@ -1,6 +1,6 @@
 # Amendement n° 358 déterminant les conditions de vente des armes et des munitions de contrebande et fixant la répartition du produit de la vente.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 205 du 30/11/1913 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-358-determinant-les-conditions-de-vente-des-armes-et-des-munitions-de-contrebande-et-fixant-la-repartition-du-produit-de-la-vente/>
+Amendement · Journal officiel de la République de Djibouti, n° 205 du 30/11/1913 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-358-determinant-les-conditions-de-vente-des-armes-et-des-munitions-de-contrebande-et-fixant-la-repartition-du-produit-de-la-vente/>
 
 En vigueur : 1913-11-30 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ A. BONHOURE.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art.4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

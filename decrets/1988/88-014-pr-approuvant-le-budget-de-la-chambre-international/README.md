@@ -1,6 +1,6 @@
 # Décret n° 88-014/PR approuvant le budget de la Chambre Internationale de Commerce et d’Industrie et des Magasins Généraux pour l’exercice 1988.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-014-pr-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-pour-lexercice-1988/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-014-pr-approuvant-le-budget-de-la-chambre-internationale-de-commerce-et-dindustrie-et-des-magasins-generaux-pour-lexercice-1988/>
 
 En vigueur : 1988-02-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2016-148/PR/MERN octroi des gisements de calcaire à la Cimenterie d’Ali Sabieh.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-148-pr-mern-octroi-des-gisements-de-calcaire-a-la-cimenterie-dali-sabieh/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-148-pr-mern-octroi-des-gisements-de-calcaire-a-la-cimenterie-dali-sabieh/>
 
-En vigueur : 2016-02-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-02-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

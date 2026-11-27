@@ -1,6 +1,6 @@
 # Décret n° 67-131 portant convocation des électeurs de la Côte Française des Somalis admis à participer à la consultation de la Donne de tion organisée par la loi n° 66-949 du 22 décembre 1966.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 27/02/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-131-portant-convocation-des-electeurs-de-la-cote-francaise-des-somalis-admis-a-participer-a-la-consultation-de-la-donne-de-tion-organisee-par-la-loi-n-66-949-du-22-decembre-19/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 27/02/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-131-portant-convocation-des-electeurs-de-la-cote-francaise-des-somalis-admis-a-participer-a-la-consultation-de-la-donne-de-tion-organisee-par-la-loi-n-66-949-du-22-decembre-19/>
 
 En vigueur : 1967-02-27 (date du Journal officiel qui le publie).
 
@@ -29,4 +29,4 @@ Jean FOYER.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

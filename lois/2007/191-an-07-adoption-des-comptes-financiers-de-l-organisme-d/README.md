@@ -1,6 +1,6 @@
 # Loi n° 191/AN/07/5ème L portant adoption des comptes financiers de l’Organisme de Protection Sociale pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-07-5eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n191-an-07-5eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-2004/>
 
 En vigueur : 2007-06-30 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2026-108/PR/MEFI portant adoption de la Stratégie de Gestion de la Dette à Moyen Terme (SDMT) pour la période 2026-2028.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2026-108-pr-mefi-portant-adoption-de-la-strategie-de-gestion-de-la-dette-a-moyen-terme-sdmt-pour-la-periode-2026-2028/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2026-108-pr-mefi-portant-adoption-de-la-strategie-de-gestion-de-la-dette-a-moyen-terme-sdmt-pour-la-periode-2026-2028/>
 
-En vigueur : 2026-06-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-06-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

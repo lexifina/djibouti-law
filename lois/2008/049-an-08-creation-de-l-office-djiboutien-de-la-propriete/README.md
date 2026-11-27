@@ -1,6 +1,6 @@
 # Loi n° 49/AN/08/6ème L portant création de l’Office Djiboutien de la Propriété Industrielle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-08-6eme-l-portant-creation-de-loffice-djiboutien-de-la-propriete-industrielle/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n49-an-08-6eme-l-portant-creation-de-loffice-djiboutien-de-la-propriete-industrielle/>
 
 En vigueur : 2009-04-30 (date du Journal officiel qui le publie).
 

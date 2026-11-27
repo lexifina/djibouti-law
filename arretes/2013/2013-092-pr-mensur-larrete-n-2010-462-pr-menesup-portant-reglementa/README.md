@@ -1,6 +1,6 @@
 # Arrêté n° 2013-092/PR/MENSUR modifiant l’Arrêté n° 2010-462/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence et au titre de Diplôme d’études universitaires générales mention » Physique Chimie ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-092-pr-mensur-modifiant-larrete-n2010-462-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-univers/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-092-pr-mensur-modifiant-larrete-n2010-462-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-detudes-univers/>
 
 En vigueur : 2013-02-14 (date du Journal officiel qui le publie).
 

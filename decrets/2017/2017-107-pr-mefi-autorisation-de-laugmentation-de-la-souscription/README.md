@@ -1,8 +1,8 @@
 # Décret n° 2017-107/PR/MEFI portant autorisation de l’augmentation de la souscription de la République de Djibouti dans le capital de la Banque internationale pour la Reconstruction et le Développement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-107-pr-mefi-portant-autorisation-de-laugmentation-de-la-souscription-de-la-republique-de-djibouti-dans-le-capital-de-la-banque-internationale-pour-la-reconstruction-et-le-develop/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-107-pr-mefi-portant-autorisation-de-laugmentation-de-la-souscription-de-la-republique-de-djibouti-dans-le-capital-de-la-banque-internationale-pour-la-reconstruction-et-le-develop/>
 
-En vigueur : 2017-03-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-03-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

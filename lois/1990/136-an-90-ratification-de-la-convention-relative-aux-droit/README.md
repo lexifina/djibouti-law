@@ -1,6 +1,6 @@
 # Loi n° 136/AN/90/2ème L portant ratification de la Convention relative aux Droits de l’Enfant.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-90-2eme-l-portant-ratification-de-la-convention-relative-aux-droits-de-lenfant/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-90-2eme-l-portant-ratification-de-la-convention-relative-aux-droits-de-lenfant/>
 
 En vigueur : 1990-12-15 (date du Journal officiel qui le publie).
 

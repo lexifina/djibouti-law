@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0278/PR/MID portant création d’un nouveau arrondissement et délimitant les circonscriptions administratives.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0278-pr-mid-portant-creation-dun-nouveau-arrondissement-et-delimitant-les-circonscriptions-administratives/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0278-pr-mid-portant-creation-dun-nouveau-arrondissement-et-delimitant-les-circonscriptions-administratives/>
 
 En vigueur : 2003-04-15 (date du Journal officiel qui le publie).
 

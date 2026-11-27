@@ -1,8 +1,8 @@
 # Arrêté n° 2013-578/PR/MET fixant les modalités de contrôle du poids total en charge des véhicules.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-578-pr-met-fixant-les-modalites-de-controle-du-poids-total-en-charge-des-vehicules/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-578-pr-met-fixant-les-modalites-de-controle-du-poids-total-en-charge-des-vehicules/>
 
-En vigueur : 2013-09-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-09-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art,1er. — Amnistie pleine et entière est accordée pour les faits commis antérieure ment au 12 novembre 1924;
 1° A toutes les infractions et contraventions en matière de réunions, d’élections, de conflits collectifs de travail et de mani festations sur la voie publique;
 2° A tous les délits et contraventions prévus par la loi sur la presse du 29 juillet 1881, à l’exception des infractions» prévues par l’article 28 de ladite loi;

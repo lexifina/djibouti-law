@@ -1,6 +1,6 @@
 # Loi n° 57/AN/19/8ème L portant ratification de l’Accord de financement pour le projet de construction du câble sous-marin de télécommunication à Djibouti (Dare-1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-19-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-construction-du-cable-sous-marin-de-telecommunication-a-djibouti-dare-1/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-19-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-construction-du-cable-sous-marin-de-telecommunication-a-djibouti-dare-1/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

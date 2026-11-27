@@ -1,6 +1,6 @@
 # Loi n° 152/AN/80 complétant le Code Général des Impôts « impôt sur la plus-value immobilière ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-80-completant-le-code-general-des-impots-impot-sur-la-plus-value-immobiliere/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n152-an-80-completant-le-code-general-des-impots-impot-sur-la-plus-value-immobiliere/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

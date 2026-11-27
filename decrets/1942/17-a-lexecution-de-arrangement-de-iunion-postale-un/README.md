@@ -1,6 +1,6 @@
 # Décret n° 17 relatif à l’exécution de ‘arrangement de I’Union postale universelle concernant les mandats de poste.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 544 du 31/03/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-relatif-a-lexecution-de-arrangement-de-iunion-postale-universelle-concernant-les-mandats-de-poste/>
+Décret · Journal officiel de la République de Djibouti, n° 544 du 31/03/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-relatif-a-lexecution-de-arrangement-de-iunion-postale-universelle-concernant-les-mandats-de-poste/>
 
 En vigueur : 1942-03-31 (date du Journal officiel qui le publie).
 

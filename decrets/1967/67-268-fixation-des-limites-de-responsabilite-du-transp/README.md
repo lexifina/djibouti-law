@@ -1,6 +1,6 @@
 # Décret n° 67-268 portant fixation des limites de responsabilité du transporteur maritime (JORF n° 77 du 1er avril 1967, page 3194) – (Arrêté de promulgation n° 824/SLAG du 12 septembre 1974) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 25/09/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-268-portant-fixation-des-limites-de-responsabilite-du-transporteur-maritime-jorf-n-77-du-1er-avril-1967-page-3194-arrete-de-promulgation-n-824-slag-du-12-septembre/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 25/09/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-268-portant-fixation-des-limites-de-responsabilite-du-transporteur-maritime-jorf-n-77-du-1er-avril-1967-page-3194-arrete-de-promulgation-n-824-slag-du-12-septembre/>
 
 En vigueur : 1974-09-25 (date du Journal officiel qui le publie).
 

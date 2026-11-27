@@ -1,6 +1,6 @@
 # Décret n° 5-467-1935 Création du Crédit colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-467-1935-creation-du-credit-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-467-1935-creation-du-credit-colonial/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Marcel RÉGNIER.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art.3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

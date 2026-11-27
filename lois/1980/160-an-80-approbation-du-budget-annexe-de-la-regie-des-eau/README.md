@@ -1,6 +1,6 @@
 # Loi n° 160/AN/80 Portant approbation du budget annexe de la Régie des Eaux pour l’exercice 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 12/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-80-portant-approbation-du-budget-annexe-de-la-regie-des-eaux-pour-lexercice-1981/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 12/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n160-an-80-portant-approbation-du-budget-annexe-de-la-regie-des-eaux-pour-lexercice-1981/>
 
 En vigueur : 1981-02-12 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 82-1735/PR/INT modifiant l’arrêté n° 118/S6/CG du 30 décembre 1967 portant création et origination du District de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/12/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1735-pr-int-modifiant-larrete-n118-s6-cg-du-30-decembre-1967-portant-creation-et-origination-du-district-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 31/12/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1735-pr-int-modifiant-larrete-n118-s6-cg-du-30-decembre-1967-portant-creation-et-origination-du-district-de-djibouti/>
 
 En vigueur : 1982-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 17 mars 1937 relatif aux brevets et licences du personnel naviguant de l’aéromantique civile (additif)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-mars-1937-relatif-aux-brevets-et-licences-du-personnel-naviguant-de-laeromantique-civile-additif/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-mars-1937-relatif-aux-brevets-et-licences-du-personnel-naviguant-de-laeromantique-civile-additif/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 
@@ -17,5 +17,5 @@ A. Annet.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

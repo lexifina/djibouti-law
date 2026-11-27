@@ -1,8 +1,8 @@
 # Décret n° 2004-0192/PR/MENESUP fixant les missions des Directeurs des Écoles primaires des Maîtres d’application et des Conseillers Pédagogiques et modifiant leurs indemnités de fonction.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0192-pr-menesup-fixant-les-missions-des-directeurs-des-ecoles-primaires-des-maitres-dapplication-et-des-conseillers-pedagogiques-et-modifiant-leurs-indemnites-de-fonction/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0192-pr-menesup-fixant-les-missions-des-directeurs-des-ecoles-primaires-des-maitres-dapplication-et-des-conseillers-pedagogiques-et-modifiant-leurs-indemnites-de-fonction/>
 
-En vigueur : 2004-10-11 (date fixÃ©e par le texte).
+En vigueur : 2004-10-11 (date fixée par le texte).
 
 ## Visas
 
@@ -46,4 +46,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

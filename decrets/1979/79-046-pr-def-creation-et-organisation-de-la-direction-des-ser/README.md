@@ -1,6 +1,6 @@
 # Décret n° 79-046/PR/DEF portant création et organisation de la Direction des services administratifs des affaires juridiques et des services communs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-046-pr-def-portant-creation-et-organisation-de-la-direction-des-services-administratifs-des-affaires-juridiques-et-des-services-communs/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-046-pr-def-portant-creation-et-organisation-de-la-direction-des-services-administratifs-des-affaires-juridiques-et-des-services-communs/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

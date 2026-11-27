@@ -1,6 +1,6 @@
 # Loi n° 38/AN/14/7ème L portant approbation des comptes financiers de la Société Immobilière de Djibouti pour l’exercice 2011.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-14-7eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-2011/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-14-7eme-l-portant-approbation-des-comptes-financiers-de-la-societe-immobiliere-de-djibouti-pour-lexercice-2011/>
 
 En vigueur : 2014-03-31 (date du Journal officiel qui le publie).
 

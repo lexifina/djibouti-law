@@ -1,6 +1,6 @@
 # Rectificatif n° 86-1265/PRE à l’arrêté n° 85-1243/PR/DEF portant Organisation, Fonctionnement et Contrôle du Compte Épargne Militaire.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/11/1986 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n86-1265-pre-a-larrete-n85-1243-pr-def-portant-organisation-fonctionnement-et-controle-du-compte-epargne-militaire/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 19 du 15/11/1986 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n86-1265-pre-a-larrete-n85-1243-pr-def-portant-organisation-fonctionnement-et-controle-du-compte-epargne-militaire/>
 
 En vigueur : 1986-11-15 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ HASSAN GOULED APTIDON.
 | Fichier | Disposition |
 | --- | --- |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

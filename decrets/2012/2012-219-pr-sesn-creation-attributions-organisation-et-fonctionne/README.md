@@ -1,6 +1,6 @@
 # Décret n° 2012-219/PR/SESN portant création, attributions, organisation et fonctionnement de la Commission Nationale de Microfinance (CNMF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-219-pr-sesn-portant-creation-attributions-organisation-et-fonctionnement-de-la-commission-nationale-de-microfinance-cnmf/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-219-pr-sesn-portant-creation-attributions-organisation-et-fonctionnement-de-la-commission-nationale-de-microfinance-cnmf/>
 
 En vigueur : 2012-10-15 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

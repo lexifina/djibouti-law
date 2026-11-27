@@ -1,6 +1,6 @@
 # Ordonnance n° 68-1082 relative à la suppression en matière de réassurance et de rétrocession des restrictions à la liberté d’établissement et à la ne libre prestation des services sur le territoire de la République française pour les entreprises des Etats membres de la Communauté économique européenne et modifiant la loi du 15 févriers 1917
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1969 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-68-1082-relative-a-la-suppression-en-matiere-de-reassurance-et-de-retrocession-des-restrictions-a-la-liberte-detablissement-et-a-la-ne-libre-prestation-des-services-sur-le-territ/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 25/01/1969 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-68-1082-relative-a-la-suppression-en-matiere-de-reassurance-et-de-retrocession-des-restrictions-a-la-liberte-detablissement-et-a-la-ne-libre-prestation-des-services-sur-le-territ/>
 
 En vigueur : 1969-01-25 (date du Journal officiel qui le publie).
 

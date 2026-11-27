@@ -1,6 +1,6 @@
 # Loi n° 145/SLAG relative aux forclusions encourues durant la période d’interruption du service postal, ainsi qu’à la prorogation et à la suspension de divers délais (JORF n° 303 du 28 décembre 1974, pages 13121 et 13122) [Arrêté de promulgation n° 145/SLAG 30 janvier 1975).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1975 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-145-slag-relative-aux-forclusions-encourues-durant-la-periode-dinterruption-du-service-postal-ainsi-qua-la-prorogation-et-a-la-suspension-de-divers-delais-jorf-n-303/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1975 · <https://www.journalofficiel.dj/texte-juridique/loi-n-145-slag-relative-aux-forclusions-encourues-durant-la-periode-dinterruption-du-service-postal-ainsi-qua-la-prorogation-et-a-la-suspension-de-divers-delais-jorf-n-303/>
 
 En vigueur : 1975-02-10 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 51-547 portent modification au tableau A annexé au décret du 22 août 1928 déterminant le statut de la magistrature coloniale (Côte Française des Somalis).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/06/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-547-portent-modification-au-tableau-a-annexe-au-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/06/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-547-portent-modification-au-tableau-a-annexe-au-decret-du-22-aout-1928-determinant-le-statut-de-la-magistrature-coloniale-cote-francaise-des-somalis/>
 
 En vigueur : 1951-06-01 (date du Journal officiel qui le publie).
 

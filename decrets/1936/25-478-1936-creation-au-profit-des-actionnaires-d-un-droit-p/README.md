@@ -1,6 +1,6 @@
 # Décret n° 25-478-1936 Création au profit des actionnaires d’un droit préférentiel de souscription aux augmentations de capital; application aux gérants et administrateurs de sociétés de la législation de la faillite et de la banqueroute et déchéance du droit de gérer et d’administrer une société; modification de la loi du 24 juillet 1867 sur les sociétés en ce qui concerne la responsabilité pénale des administrateurs et le choix et les attributions des commissaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-478-1936-creation-au-profit-des-actionnaires-dun-droit-preferentiel-de-souscription-aux-augmentations-de-capital-application-aux-gerants-et-administrateurs-de-societes-de/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-478-1936-creation-au-profit-des-actionnaires-dun-droit-preferentiel-de-souscription-aux-augmentations-de-capital-application-aux-gerants-et-administrateurs-de-societes-de/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 
@@ -30,5 +30,5 @@ Marius Moutet.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

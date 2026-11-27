@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0383/PR/MIN prescrivant le Ravalement des Façades de la Ville de Djibouti à l’Occasion du 34ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0383-pr-min-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-34eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0383-pr-min-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-34eme-anniversaire-de-lindependance/>
 
 En vigueur : 2011-05-31 (date du Journal officiel qui le publie).
 

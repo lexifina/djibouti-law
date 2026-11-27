@@ -1,6 +1,6 @@
 # Loi n° 215/AN/17/7ème L portant approbation des Comptes Financiers de l’Office National de l’Eau et de l’Assainissement de Djibouti (l’ONEAD) pour l’Exercice 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-17-7eme-l-portant-approbation-des-comptes-financiers-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-lonead-pour-lexercice-2015/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n215-an-17-7eme-l-portant-approbation-des-comptes-financiers-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-lonead-pour-lexercice-2015/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 59-1526 rendant applicables au Togo et dans les territoires d’outre-mer autres que l’Afrique occidentale française et Madagascar les dispositions de l’ordonnance du 27 octobre 1945 réprimant les évasions des déténus transférés dans les établissements sanitaires on hospitaliers.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1951 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-59-1526-rendant-applicables-au-togo-et-dans-les-territoires-doutre-mer-autres-que-lafrique-occidentale-francaise-et-madagascar-les-dispositions-de-lordonnance-du-27-octobre-1945-re/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1951 · <https://www.journalofficiel.dj/texte-juridique/loi-n-59-1526-rendant-applicables-au-togo-et-dans-les-territoires-doutre-mer-autres-que-lafrique-occidentale-francaise-et-madagascar-les-dispositions-de-lordonnance-du-27-octobre-1945-re/>
 
 En vigueur : 1951-01-31 (date du Journal officiel qui le publie).
 

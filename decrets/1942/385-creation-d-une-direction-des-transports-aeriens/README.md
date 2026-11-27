@@ -1,6 +1,6 @@
 # Décret n° 385 portant création d’une direction des transports aériens de la France Libre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-385-portant-creation-dune-direction-des-transports-aeriens-de-la-france-libre/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-385-portant-creation-dune-direction-des-transports-aeriens-de-la-france-libre/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

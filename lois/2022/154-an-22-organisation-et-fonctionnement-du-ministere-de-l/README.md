@@ -1,6 +1,6 @@
 # Loi n° 154/AN/22/8ème L portant organisation et fonctionnement du ministère de l’environnement et du développement durable (MEDD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-22-8eme-l-portant-organisation-et-fonctionnement-du-ministere-de-lenvironnement-et-du-developpement-durable-medd/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-22-8eme-l-portant-organisation-et-fonctionnement-du-ministere-de-lenvironnement-et-du-developpement-durable-medd/>
 
 En vigueur : 2022-05-31 (date du Journal officiel qui le publie).
 
@@ -51,4 +51,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

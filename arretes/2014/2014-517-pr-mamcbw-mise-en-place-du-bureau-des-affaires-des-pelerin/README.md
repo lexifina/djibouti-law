@@ -1,6 +1,6 @@
 # Arrêté n° 2014-517/PR/MAMCBW portant mise en place du Bureau des Affaires des Pèlerins de Djibouti du Hajj 2014.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-517-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2014/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-517-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2014/>
 
 En vigueur : 2014-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 8 décembre 1939 Le décret relatif aux actions en justice et aux prescriptions et délais de procédure intéressant les mobilisés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-decembre-1939-le-decret-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mobilises/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-decembre-1939-le-decret-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedure-interessant-les-mobilises/>
 
 En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
 

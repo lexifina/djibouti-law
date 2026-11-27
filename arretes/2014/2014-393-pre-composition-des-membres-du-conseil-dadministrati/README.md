@@ -1,8 +1,8 @@
 # Arrêté n° 2014-393/PRE portant composition des membres du Conseil d’Administration de l’Office Djiboutien de Développement de l’Energie Géothermique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-393-pre-portant-composition-des-membres-du-conseil-dadministration-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-393-pre-portant-composition-des-membres-du-conseil-dadministration-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique/>
 
-En vigueur : 2014-05-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-05-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

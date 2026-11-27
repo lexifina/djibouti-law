@@ -1,6 +1,6 @@
 # Décret n° 28/08/1949 relatif à l’admission de la preuve testimoniale pour les payements à la charge des budgets locaux des communes et des établissements publiés des territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-08-1949-relatif-a-ladmission-de-la-preuve-testimoniale-pour-les-payements-a-la-charge-des-budgets-locaux-des-communes-et-des-etablissements-publies-des-territoires-doutr/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-08-1949-relatif-a-ladmission-de-la-preuve-testimoniale-pour-les-payements-a-la-charge-des-budgets-locaux-des-communes-et-des-etablissements-publies-des-territoires-doutr/>
 
 En vigueur : 1949-10-31 (date du Journal officiel qui le publie).
 

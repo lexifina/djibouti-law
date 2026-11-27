@@ -1,6 +1,6 @@
 # Décret n° 2021-013/PRE/MENFOP attribuant des noms à des Etablissements Scolaire du Secondaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-013-pre-menfop-attribuant-des-noms-a-des-etablissements-scolaire-du-secondaire/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-013-pre-menfop-attribuant-des-noms-a-des-etablissements-scolaire-du-secondaire/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

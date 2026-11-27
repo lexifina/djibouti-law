@@ -1,6 +1,6 @@
 # Loi n° 52/AN/09/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds de l’OPEP pour le Développement International (F.O.D.I).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-09-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lopep-pour-le-developpement-international-f-o-d-i/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-09-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lopep-pour-le-developpement-international-f-o-d-i/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 

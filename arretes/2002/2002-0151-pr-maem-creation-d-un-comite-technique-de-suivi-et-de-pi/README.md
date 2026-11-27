@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0151/PR/MAEM portant création d’un comité technique de suivi et de pilotage de l’Etude du Programme National de Développement de la Pêche.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0151-pr-maem-portant-creation-dun-comite-technique-de-suivi-et-de-pilotage-de-letude-du-programme-national-de-developpement-de-la-peche/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0151-pr-maem-portant-creation-dun-comite-technique-de-suivi-et-de-pilotage-de-letude-du-programme-national-de-developpement-de-la-peche/>
 
 En vigueur : 2002-02-14 (date du Journal officiel qui le publie).
 

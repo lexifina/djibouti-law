@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0389/PR/MID prescrivant le Ravalement des Façades de la Ville de Djibouti à l’occasion du 28ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0389-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-28eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0389-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-28eme-anniversaire-de-lindependance/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

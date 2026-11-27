@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0690/PR/MEFPCP affectant au Ministère de l’Habitat, de l’Urbanisme, de l’Environnement et de l’Aménagement du Territoire, une parcelle de terrain sise à Douda.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0690-pr-mefpcp-affectant-au-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire-une-parcelle-de-terrain-sis/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0690-pr-mefpcp-affectant-au-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire-une-parcelle-de-terrain-sis/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2015-210/PR/MJDH portant application de la loi n° 59/AN/14/7eme L portant organisation et fonctionnement de la Commission Nationale des Droits de l’Homme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-210-pr-mjdh-portant-application-de-la-loi-n59-an-14-7eme-l-portant-organisation-et-fonctionnement-de-la-commission-nationale-des-droits-de-lhomme/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-210-pr-mjdh-portant-application-de-la-loi-n59-an-14-7eme-l-portant-organisation-et-fonctionnement-de-la-commission-nationale-des-droits-de-lhomme/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0105/PR/MCCPT portant approbation du Budget prévisionnel de la Radio-Télévision de Djibouti pour l’Exercice 2010.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0105-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2010/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0105-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-pour-lexercice-2010/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° de 22 août 1937. relatif à la sécurité de la navigation maritime et à l’hygiène à bord des navires de commerce, de pêche et de plaisance immatriculés dans les colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 490 du 30/09/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-de-22-aout-1937-relatif-a-la-securite-de-la-navigation-maritime-et-a-lhygiene-a-bord-des-navires-de-commerce-de-peche-et-de-plaisance-immatricules-dans-les-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 490 du 30/09/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-de-22-aout-1937-relatif-a-la-securite-de-la-navigation-maritime-et-a-lhygiene-a-bord-des-navires-de-commerce-de-peche-et-de-plaisance-immatricules-dans-les-colonies/>
 
 En vigueur : 1937-09-30 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ Henri QUEUTILLE.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

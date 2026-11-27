@@ -1,8 +1,8 @@
 # Décret n° 2018-174/PR/MEFI modifiant et complétant le Décret n° 2010-0083/PRE du 08 mai 2010 fixant les attributions, la composition, les modalités d’organisation et de fonctionnement de la Commission Nationale des Marchés Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-174-pr-mefi-modifiant-et-completant-le-decret-n2010-0083-pre-du-08-mai-2010-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-174-pr-mefi-modifiant-et-completant-le-decret-n2010-0083-pre-du-08-mai-2010-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la/>
 
-En vigueur : 2018-05-14 (date fixÃ©e par le texte).
+En vigueur : 2018-05-14 (date fixée par le texte).
 
 ## Visas
 

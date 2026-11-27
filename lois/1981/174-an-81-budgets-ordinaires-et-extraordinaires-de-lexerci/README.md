@@ -1,6 +1,6 @@
 # Loi de finances n° 174/AN/81 des budgets ordinaires et extraordinaires de l’exercice 1981.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n174-an-81-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1981/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n174-an-81-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1981/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-171/PR/MJDH portant création d’un office de notaire, Mr Ibrahim Khaireh Bouraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-171-pr-mjdh-portant-creation-dun-office-de-notaire-mr-ibrahim-khaireh-bouraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-171-pr-mjdh-portant-creation-dun-office-de-notaire-mr-ibrahim-khaireh-bouraleh/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

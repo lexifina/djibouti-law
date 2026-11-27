@@ -1,6 +1,6 @@
 # Décret n° 2025-063/PR/MENFOP portant transfert de la tutel le de la formation professionnelle des artistes au MENFOP.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 05 du 13/03/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-063-pr-menfop-portant-transfert-de-la-tutel-le-de-la-formation-professionnelle-des-artistes-au-menfop/>
+Décret · Journal officiel de la République de Djibouti, n° 05 du 13/03/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-063-pr-menfop-portant-transfert-de-la-tutel-le-de-la-formation-professionnelle-des-artistes-au-menfop/>
 
 En vigueur : 2025-03-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° du 12 avril 1941. relatif au premier mai. fête du travail et de la concorde sociale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 533 du 30/04/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-12-avril-1941-relatif-au-premier-mai-fete-du-travail-et-de-la-concorde-sociale/>
+Décret · Journal officiel de la République de Djibouti, n° 533 du 30/04/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-12-avril-1941-relatif-au-premier-mai-fete-du-travail-et-de-la-concorde-sociale/>
 
 En vigueur : 1941-04-30 (date du Journal officiel qui le publie).
 

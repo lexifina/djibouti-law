@@ -1,6 +1,6 @@
 # Décret n° 2006-0104/PR/MID fixant les modalités d’élections du Conseil de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0104-pr-mid-fixant-les-modalites-delections-du-conseil-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0104-pr-mid-fixant-les-modalites-delections-du-conseil-de-djibouti/>
 
 En vigueur : 2006-04-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE 1er
 OBJET DE LA POLICE SANITAIRE
 Art, 4, Dans les colonies et pays de protectorat, la police sanitaire maritime à pour objet, en exécution de la loi du 3 mars 1822 et des conventions sanitaires internationales auxquelles a adhéré le Gouvernement de la République française :

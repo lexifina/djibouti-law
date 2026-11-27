@@ -1,6 +1,6 @@
 # Décret n° 90-0106/PR/INT rendant exécutoire la délibération n° 1/90 du 6 juillet 1990 du conseil d’administration de l’Office des Postes et Télecommuniation, portant approbation du compte financier de office pour exercice 1989.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-0106-pr-int-rendant-executoire-la-deliberation-n1-90-du-6-juillet-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommuniation-portant-approbati/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-0106-pr-int-rendant-executoire-la-deliberation-n1-90-du-6-juillet-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommuniation-portant-approbati/>
 
 En vigueur : 1990-09-15 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ HASSAN GOULED APTIDON
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 20-248-1917 8 mai 1917
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 248 du 30/06/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-248-1917-8-mai-1917/>
+Décret · Journal officiel de la République de Djibouti, n° 248 du 30/06/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-248-1917-8-mai-1917/>
 
 En vigueur : 1917-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 1-439-1933 promulguant dans la colonie le décret du 14 mars 1933, portant mise en application provisoire d’un modus vivendi commercial avec la République de Costa-Rica.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 439 du 30/06/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-439-1933-promulguant-dans-la-colonie-le-decret-du-14-mars-1933-portant-mise-en-application-provisoire-dun-modus-vivendi-commercial-avec-la-republique-de-costa-rica/>
+Décret · Journal officiel de la République de Djibouti, n° 439 du 30/06/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-439-1933-promulguant-dans-la-colonie-le-decret-du-14-mars-1933-portant-mise-en-application-provisoire-dun-modus-vivendi-commercial-avec-la-republique-de-costa-rica/>
 
 En vigueur : 1933-06-30 (date du Journal officiel qui le publie).
 

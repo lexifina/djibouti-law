@@ -1,6 +1,6 @@
 # Loi n° 11-276-1919 LOI sur les unités de mesure.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 276 du 31/10/1919 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-276-1919-loi-sur-les-unites-de-mesure/>
+Loi · Journal officiel de la République de Djibouti, n° 276 du 31/10/1919 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-276-1919-loi-sur-les-unites-de-mesure/>
 
 En vigueur : 1919-10-31 (date du Journal officiel qui le publie).
 

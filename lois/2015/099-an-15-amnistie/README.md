@@ -1,8 +1,8 @@
 # Loi n° 99/AN/15/7ème L portant amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-15-7eme-l-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-15-7eme-l-portant-amnistie/>
 
-En vigueur : 2015-07-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-07-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

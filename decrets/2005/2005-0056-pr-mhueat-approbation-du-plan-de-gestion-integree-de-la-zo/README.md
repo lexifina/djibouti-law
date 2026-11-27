@@ -1,6 +1,6 @@
 # Décret n° 2005-0056/PR/MHUEAT portant approbation du Plan de Gestion Intégrée de la Zone Côtière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0056-pr-mhueat-portant-approbation-du-plan-de-gestion-integree-de-la-zone-cotiere/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0056-pr-mhueat-portant-approbation-du-plan-de-gestion-integree-de-la-zone-cotiere/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

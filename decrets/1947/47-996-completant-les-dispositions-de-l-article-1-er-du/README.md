@@ -1,6 +1,6 @@
 # Décret n° 47-996 complétant les dispositions de l’article 1 er du décret du 21 septembre 1938 modifiant le statut du personnel métropolitain des douanes en service outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-996-completant-les-dispositions-de-larticle-1-er-du-decret-du-21-septembre-1938-modifiant-le-statut-du-personnel-metropolitain-des-douanes-en-service-outre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-996-completant-les-dispositions-de-larticle-1-er-du-decret-du-21-septembre-1938-modifiant-le-statut-du-personnel-metropolitain-des-douanes-en-service-outre-mer/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

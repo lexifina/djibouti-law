@@ -1,6 +1,6 @@
 # Décret n° 2021-114/PRE fixant les attributions des Ministères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-114-pre-fixant-les-attributions-des-ministeres/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-114-pre-fixant-les-attributions-des-ministeres/>
 
 En vigueur : 2021-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 89-024/PR/INT d’application des dispositions prévues par la loi n° 220/AN/86/1ère L du 23 novembre 1986, autorisant certains Officiers d’État Civil, à délivrer des Actes de Notoriété Supplétifs d’Acte de Naissance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-024-pr-int-dapplication-des-dispositions-prevues-par-la-loi-n220-an-86-1ere-l-du-23-novembre-1986-autorisant-certains-officiers-detat-civil-a-delivrer-des-actes-de-notori/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-024-pr-int-dapplication-des-dispositions-prevues-par-la-loi-n220-an-86-1ere-l-du-23-novembre-1986-autorisant-certains-officiers-detat-civil-a-delivrer-des-actes-de-notori/>
 
 En vigueur : 1989-02-28 (date du Journal officiel qui le publie).
 

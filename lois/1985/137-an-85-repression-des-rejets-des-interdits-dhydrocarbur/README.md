@@ -1,6 +1,6 @@
 # Loi n° 137/AN/85/1ère L Portant répression des rejets des interdits d’hydrocarbures pour les navires battant pavillon Djiboutien en dehors des eaux territoriales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-85-1ere-l-portant-repression-des-rejets-des-interdits-dhydrocarbures-pour-les-navires-battant-pavillon-djiboutien-en-dehors-des-eaux-territoriales/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-85-1ere-l-portant-repression-des-rejets-des-interdits-dhydrocarbures-pour-les-navires-battant-pavillon-djiboutien-en-dehors-des-eaux-territoriales/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

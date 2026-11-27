@@ -1,6 +1,6 @@
 # Décret n° 65-417 relatif à la classification des aérodromes dans les territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1965 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-65-417-relatif-a-la-classification-des-aerodromes-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1965 · <https://www.journalofficiel.dj/texte-juridique/decret-n-65-417-relatif-a-la-classification-des-aerodromes-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1965-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-067/PR/MPF portant création et organisation du Conseil National de l’Enfant (CNE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-067-pr-mpf-portant-creation-et-organisation-du-conseil-national-de-lenfant-cne/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-067-pr-mpf-portant-creation-et-organisation-du-conseil-national-de-lenfant-cne/>
 
 En vigueur : 2012-04-15 (date du Journal officiel qui le publie).
 

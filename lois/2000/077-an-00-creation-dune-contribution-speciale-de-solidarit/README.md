@@ -1,6 +1,6 @@
 # Loi n° 77/AN/00/4ème L portant création d’une contribution Spéciale de Solidarité en faveur du Peuple Somalien.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-00-4eme-l-portant-creation-dune-contribution-speciale-de-solidarite-en-faveur-du-peuple-somalien/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n77-an-00-4eme-l-portant-creation-dune-contribution-speciale-de-solidarite-en-faveur-du-peuple-somalien/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2002-0055/PR/MEFPCP modifiant le Budget 2002 et fixant le montant des participations de l’Etat et des Etablissements Publics aux Festivités du 25ème Anniversaire de l’Indépendance de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0055-pr-mefpcp-modifiant-le-budget-2002-et-fixant-le-montant-des-participations-de-letat-et-des-etablissements-publics-aux-festivites-du-25eme-anniversaire-de-lind/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0055-pr-mefpcp-modifiant-le-budget-2002-et-fixant-le-montant-des-participations-de-letat-et-des-etablissements-publics-aux-festivites-du-25eme-anniversaire-de-lind/>
 
 En vigueur : 2002-04-15 (date du Journal officiel qui le publie).
 

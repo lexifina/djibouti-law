@@ -1,6 +1,6 @@
 # Décret n° n° 1237 Le décret plaçant M. Verdun, ingénieur principal de 1’° classe des travaux publics des colonies, dans la position de mission en France
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1237-le-decret-placant-m-verdun-ingenieur-principal-de-1-classe-des-travaux-publics-des-colonies-dans-la-position-de-mission-en-france/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-1237-le-decret-placant-m-verdun-ingenieur-principal-de-1-classe-des-travaux-publics-des-colonies-dans-la-position-de-mission-en-france/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 9-370-1927 Marchés de gré à gré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 370 du 30/09/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-370-1927-marches-de-gre-a-gre/>
+Décret · Journal officiel de la République de Djibouti, n° 370 du 30/09/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-370-1927-marches-de-gre-a-gre/>
 
 En vigueur : 1927-09-30 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ Raymond Poincaré.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

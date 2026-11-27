@@ -1,6 +1,6 @@
 # Décret n° 91-0158 / PR / DEF Portant sur la mobilisation
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 30/11/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-0158-pr-def-portant-sur-la-mobilisation-2/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 30/11/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-0158-pr-def-portant-sur-la-mobilisation-2/>
 
 En vigueur : 1991-11-30 (date du Journal officiel qui le publie).
 
@@ -15,4 +15,4 @@ sur proposition du ministre de la defense;
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Article1 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

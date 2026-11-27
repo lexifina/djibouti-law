@@ -1,6 +1,6 @@
 # Décret n° 92-0014/PR/MCTT Approuvant et rendant exécutoire le budget prévisionnel 1992 de l’Établissement Public des Hydrocarbures
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0014-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1992-de-letablissement-public-des-hydrocarbures/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 30/01/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0014-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-1992-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1992-01-30 (date du Journal officiel qui le publie).
 

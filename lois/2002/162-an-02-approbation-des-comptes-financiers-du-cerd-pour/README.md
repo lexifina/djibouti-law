@@ -1,6 +1,6 @@
 # Loi n° 162/AN/02/4ème L portant Approbation des Comptes Financiers du CERD pour l’exercice 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-02-4eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-02-4eme-l-portant-approbation-des-comptes-financiers-du-cerd-pour-lexercice-2000/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

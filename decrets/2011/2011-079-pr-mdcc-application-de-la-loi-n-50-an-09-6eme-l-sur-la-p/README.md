@@ -1,6 +1,6 @@
 # Décret n° 2011-079/PR/MDCC portant application de la Loi n° 50/AN/09/6ème L sur la protection de la propriété industrielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-079-pr-mdcc-portant-application-de-la-loi-n50-an-09-6eme-l-sur-la-protection-de-la-propriete-industrielle/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-079-pr-mdcc-portant-application-de-la-loi-n50-an-09-6eme-l-sur-la-protection-de-la-propriete-industrielle/>
 
 En vigueur : 2011-05-31 (date du Journal officiel qui le publie).
 
@@ -117,4 +117,4 @@ ISMAÏL OMAR GUELLEH
 | [art-075.md](art-075.md) | Article 75 |
 | [art-076.md](art-076.md) | Article 76 |
 | [art-077.md](art-077.md) | Article 77 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° n°55 Décret modifiant le décret du 16 avril 1927 modifiant le décret du 2 mars 1910, en ce qui concerne le taux de la retenue d’hôpital du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 366 du 31/05/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-decret-modifiant-le-decret-du-16-avril-1927-modifiant-le-decret-du-2-mars-1910-en-ce-qui-concerne-le-taux-de-la-retenue-dhopital-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 366 du 31/05/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n55-decret-modifiant-le-decret-du-16-avril-1927-modifiant-le-decret-du-2-mars-1910-en-ce-qui-concerne-le-taux-de-la-retenue-dhopital-du-personnel-colonial/>
 
 En vigueur : 1927-05-31 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ leon perrier
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

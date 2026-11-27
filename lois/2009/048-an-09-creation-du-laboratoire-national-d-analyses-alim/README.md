@@ -1,6 +1,6 @@
 # Loi n° 48/AN/09/6ème L portant création du Laboratoire National d’Analyses Alimentaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-09-6eme-l-portant-creation-du-laboratoire-national-danalyses-alimentaires/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-09-6eme-l-portant-creation-du-laboratoire-national-danalyses-alimentaires/>
 
 En vigueur : 2009-04-30 (date du Journal officiel qui le publie).
 

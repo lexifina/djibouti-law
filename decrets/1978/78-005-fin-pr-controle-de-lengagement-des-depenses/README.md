@@ -1,6 +1,6 @@
 # Décret n° 78-005/FIN/PR Instituant le contrôle de l’engagement des dépenses.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 23/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-005-fin-pr-instituant-le-controle-de-lengagement-des-depenses/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 23/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-005-fin-pr-instituant-le-controle-de-lengagement-des-depenses/>
 
 En vigueur : 1978-01-23 (date du Journal officiel qui le publie).
 

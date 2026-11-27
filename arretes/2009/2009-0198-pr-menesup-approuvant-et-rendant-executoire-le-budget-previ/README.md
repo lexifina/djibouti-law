@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0198/PR/MENESUP approuvant et rendant exécutoire le Budget prévisionnel de l’Exercice 2009 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0198-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0198-pr-menesup-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2009-de-luniversite-de-djibouti/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 

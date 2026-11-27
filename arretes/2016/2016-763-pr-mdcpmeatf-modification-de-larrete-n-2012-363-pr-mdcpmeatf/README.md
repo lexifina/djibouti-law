@@ -1,6 +1,6 @@
 # Arrêté n° 2016-763/PR/MDCPMEATF portant modification de l’arrêté n° 2012-363/PR/MDCPMEATF et de l’arrêté n° 2007-1008/PR/MCI instituant un nouveau Comité Directeur National.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-763-pr-mdcpmeatf-portant-modification-de-larrete-n2012-363-pr-mdcpmeatf-et-de-larrete-n2007-1008-pr-mci-instituant-un-nouveau-comite-directeur-national/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-763-pr-mdcpmeatf-portant-modification-de-larrete-n2012-363-pr-mdcpmeatf-et-de-larrete-n2007-1008-pr-mci-instituant-un-nouveau-comite-directeur-national/>
 
 En vigueur : 2016-11-15 (date du Journal officiel qui le publie).
 

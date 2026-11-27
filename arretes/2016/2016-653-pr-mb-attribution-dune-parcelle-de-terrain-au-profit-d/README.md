@@ -1,6 +1,6 @@
 # Arrêté n° 2016-653/PR/MB portant attribution d’une parcelle de terrain au profit de la Société Fabtech Engineering Eurl – Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-653-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-fabtech-engineering-eurl-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-653-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-fabtech-engineering-eurl-djibouti/>
 
 En vigueur : 2016-09-15 (date du Journal officiel qui le publie).
 

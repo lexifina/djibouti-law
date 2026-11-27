@@ -1,6 +1,6 @@
 # Décret n° 46-1606 modifiant la date de mise en vigueur du décret n° 49-877 du 30 avril 1940 portant suppression de la justice indigène en matière pénale dans les territoires relevant du ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1606-modifiant-la-date-de-mise-en-vigueur-du-decret-n-49-877-du-30-avril-1940-portant-suppression-de-la-justice-indigene-en-matiere-penale-dans-les-territoires-relevant-du-min/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1606-modifiant-la-date-de-mise-en-vigueur-du-decret-n-49-877-du-30-avril-1940-portant-suppression-de-la-justice-indigene-en-matiere-penale-dans-les-territoires-relevant-du-min/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

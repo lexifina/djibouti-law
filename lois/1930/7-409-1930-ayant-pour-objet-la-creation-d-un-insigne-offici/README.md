@@ -1,6 +1,6 @@
 # Loi n° 7-409-1930 ayant pour objet la création d’un insigne officiel dénommé « Croix du combattant », attribué et réservé aux anciens combattants titulaires de la carte du combattant instituée par le décret du 28 juin 1927.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 409 du 31/12/1930 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-7-409-1930-ayant-pour-objet-la-creation-dun-insigne-officiel-denomme-croix-du-combattant-attribue-et-reserve-aux-anciens-combattants-titulaires-de-la-carte-du-comb/>
+Loi · Journal officiel de la République de Djibouti, n° 409 du 31/12/1930 · <https://www.journalofficiel.dj/texte-juridique/loi-n-7-409-1930-ayant-pour-objet-la-creation-dun-insigne-officiel-denomme-croix-du-combattant-attribue-et-reserve-aux-anciens-combattants-titulaires-de-la-carte-du-comb/>
 
 En vigueur : 1930-12-31 (date du Journal officiel qui le publie).
 

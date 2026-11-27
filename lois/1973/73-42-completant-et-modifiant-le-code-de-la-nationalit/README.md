@@ -1,6 +1,6 @@
 # Loi n° 73-42 complétant et modifiant le code de la nationalité française et relative à certaines disposition concernant la nationalité française (J.O.R.F. n° 8 du janvier 1973, p. 467
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 25/02/1973 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-73-42-completant-et-modifiant-le-code-de-la-nationalite-francaise-et-relative-a-certaines-disposition-concernant-la-nationalite-francaise-j-o-r-f-n-8-du-janvier-1973-p-467/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 25/02/1973 · <https://www.journalofficiel.dj/texte-juridique/loi-n-73-42-completant-et-modifiant-le-code-de-la-nationalite-francaise-et-relative-a-certaines-disposition-concernant-la-nationalite-francaise-j-o-r-f-n-8-du-janvier-1973-p-467/>
 
 En vigueur : 1973-02-25 (date du Journal officiel qui le publie).
 

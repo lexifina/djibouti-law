@@ -1,6 +1,6 @@
 # Arrêté n° 2011-006/PR/MAEM portant adoption du projet de Budget prévisionnel 2011 du Laboration National d’Analyses Alimentaires (LANAA).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-006-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2011-du-laboration-national-danalyses-alimentaires-lanaa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-006-pr-maem-portant-adoption-du-projet-de-budget-previsionnel-2011-du-laboration-national-danalyses-alimentaires-lanaa/>
 
 En vigueur : 2011-01-15 (date du Journal officiel qui le publie).
 

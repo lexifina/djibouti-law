@@ -1,8 +1,8 @@
 # Décret n° 2026-172/PRE Approuvant la transformation de la Société Great Horn Investment Holdings en société anonyme et fixant la composition des membres des Assemblées Générales des actionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-172-pre-approuvant-la-transformation-de-la-societe-great-horn-investment-holdings-en-societe-anonyme-et-fixant-la-composition-des-membres-des-assemblees-generales-des-actionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-172-pre-approuvant-la-transformation-de-la-societe-great-horn-investment-holdings-en-societe-anonyme-et-fixant-la-composition-des-membres-des-assemblees-generales-des-actionnaires/>
 
-En vigueur : 2026-08-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2026-08-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

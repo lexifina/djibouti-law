@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0038/PR/MERN portant modification des Tarifs de Vente d’Énergie Électrique et des Redevances Accessoires pour les Districts de l’intérieur.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0038-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires-pour-les-districts-de-linterieur/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0038-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires-pour-les-districts-de-linterieur/>
 
 En vigueur : 2003-01-15 (date du Journal officiel qui le publie).
 

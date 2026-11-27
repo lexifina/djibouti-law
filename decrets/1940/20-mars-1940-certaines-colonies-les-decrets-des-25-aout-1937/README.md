@@ -1,6 +1,6 @@
 # Décret n° 20 mars 1940 Certaines colonies les décrets des 25 août 1937 et 14 juin 193S relatifs à la procédure de recouvrement simplifiée pour les petites créances commerciales
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 522 du 31/05/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-mars-1940-certaines-colonies-les-decrets-des-25-aout-1937-et-14-juin-193s-relatifs-a-la-procedure-de-recouvrement-simplifiee-pour-les-petites-creances-commerciales/>
+Décret · Journal officiel de la République de Djibouti, n° 522 du 31/05/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-mars-1940-certaines-colonies-les-decrets-des-25-aout-1937-et-14-juin-193s-relatifs-a-la-procedure-de-recouvrement-simplifiee-pour-les-petites-creances-commerciales/>
 
 En vigueur : 1940-05-31 (date du Journal officiel qui le publie).
 
@@ -31,10 +31,10 @@ Georges BONNET.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art.2— |
-| [art-003.md](art-003.md) | Art.3– |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-002.md](art-002.md) | Art.2 |
+| [art-003.md](art-003.md) | Art.3 |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [art-006.md](art-006.md) | Art.6 — |
+| [art-006.md](art-006.md) | Art.6 |
 | [art-007.md](art-007.md) | Art.7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

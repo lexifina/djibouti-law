@@ -1,6 +1,6 @@
 # Loi n° 70-634 incérant dans le Code pénal un article 46? réprimant le détournement d’aéronef
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-70-634-incerant-dans-le-code-penal-un-article-46-reprimant-le-detournement-daeronef/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-70-634-incerant-dans-le-code-penal-un-article-46-reprimant-le-detournement-daeronef/>
 
 En vigueur : 1970-08-10 (date du Journal officiel qui le publie).
 

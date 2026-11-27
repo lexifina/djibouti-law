@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0334/PR/MEFPCP attribuant à titre gracieux des parcelles de terrain, sises à Doraleh à Djibouti Center for Investissement and Trading.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0334-pr-mefpcp-attribuant-a-titre-gracieux-des-parcelles-de-terrain-sises-a-doraleh-a-djibouti-center-for-investissement-and-trading/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0334-pr-mefpcp-attribuant-a-titre-gracieux-des-parcelles-de-terrain-sises-a-doraleh-a-djibouti-center-for-investissement-and-trading/>
 
 En vigueur : 2000-04-30 (date du Journal officiel qui le publie).
 

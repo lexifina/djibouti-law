@@ -1,6 +1,6 @@
 # Décret n° 79-030/PR portant approbation des statuts de la Banque nationale de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 14/10/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-030-pr-portant-approbation-des-statuts-de-la-banque-nationale-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 14/10/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-030-pr-portant-approbation-des-statuts-de-la-banque-nationale-de-djibouti/>
 
 En vigueur : 1979-10-14 (date du Journal officiel qui le publie).
 

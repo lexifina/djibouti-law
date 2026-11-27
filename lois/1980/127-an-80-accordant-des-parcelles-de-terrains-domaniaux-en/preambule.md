@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Il est fait concession provisoire aux personnes dénommées ci-dessous, des lots de terrains domaniaux ci-après désignés et dont la mise en valeur et le prix figurant dans le tableau suivant :
 Bénéficiaire T.F. Superficie Nature de l’investissement de la mise en valeur minimole imposée
 AMBOULI – ROUTE CIRCULAIRE – PRIX DU METRE DE TERRAIN: 1200 FD

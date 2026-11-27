@@ -1,6 +1,6 @@
 # Décret n° 2011-0116/PR/MESR portant création du diplôme national menant au grade de Master.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0116-pr-mesr-portant-creation-du-diplome-national-menant-au-grade-de-master/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0116-pr-mesr-portant-creation-du-diplome-national-menant-au-grade-de-master/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

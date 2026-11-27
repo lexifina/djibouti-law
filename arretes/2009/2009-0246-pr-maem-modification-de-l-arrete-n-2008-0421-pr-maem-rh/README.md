@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0246/PR/MAEM portant modification de l’Arrêté n° 2008-0421/PR/MAEM-RH portant modification des tarifs de redevance des certificats sanitaires et instaurant une contribution à la sécurité alimentaire.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0246-pr-maem-portant-modification-de-larrete-n2008-0421-pr-maem-rh-portant-modification-des-tarifs-de-redevance-des-certificats-sanitaires-et-instaurant-une-contribut/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0246-pr-maem-portant-modification-de-larrete-n2008-0421-pr-maem-rh-portant-modification-des-tarifs-de-redevance-des-certificats-sanitaires-et-instaurant-une-contribut/>
 
 En vigueur : 2009-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2020-014/PR/SEJS approuvant et rendant exécutoire le Budget Prévisionnel 2020 de l’Institut National de Formation Sportive.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-014-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2020-de-linstitut-national-de-formation-sportive/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-014-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2020-de-linstitut-national-de-formation-sportive/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 2007-0155/PR/MS portant carte sanitaire, organisation et fonctionnement du système de Santé en application de la Loi n° 48/AN/99 du 03 juillet 1999.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0155-pr-ms-portant-carte-sanitaire-organisation-et-fonctionnement-du-systeme-de-sante-en-application-de-la-loi-n48-an-99-du-03-juillet-1999/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0155-pr-ms-portant-carte-sanitaire-organisation-et-fonctionnement-du-systeme-de-sante-en-application-de-la-loi-n48-an-99-du-03-juillet-1999/>
 
-En vigueur : 2007-07-16 (date fixÃ©e par le texte).
+En vigueur : 2007-07-16 (date fixée par le texte).
 
 ## Visas
 
@@ -85,4 +85,4 @@ ISMAÏL OMAR GUELLEH
 | [art-057.md](art-057.md) | Article 57 |
 | [art-058.md](art-058.md) | Article 58 |
 | [art-059.md](art-059.md) | Article 59 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

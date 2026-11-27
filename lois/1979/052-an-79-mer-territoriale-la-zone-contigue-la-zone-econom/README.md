@@ -1,6 +1,6 @@
 # Loi n° 52/AN/79 concernant la mer territoriale, la zone contiguë, la zone économique exclusive, les frontières maritimes et l’exercice de la pêche.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-79-concernant-la-mer-territoriale-la-zone-contigue-la-zone-economique-exclusive-les-frontieres-maritimes-et-lexercice-de-la-peche/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n52-an-79-concernant-la-mer-territoriale-la-zone-contigue-la-zone-economique-exclusive-les-frontieres-maritimes-et-lexercice-de-la-peche/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

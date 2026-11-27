@@ -1,6 +1,6 @@
 # Loi n° 159/AN/80 portant virement de chapitre à chapitre du budget de la Réglé des Eaux, exercice 1980.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 12/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-80-portant-virement-de-chapitre-a-chapitre-du-budget-de-la-regle-des-eaux-exercice-1980/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 12/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-80-portant-virement-de-chapitre-a-chapitre-du-budget-de-la-regle-des-eaux-exercice-1980/>
 
 En vigueur : 1981-02-12 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Vu la loi de finances n° 102/AN/79 du 80 décembre 1979 portant approbation du 
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

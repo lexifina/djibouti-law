@@ -1,8 +1,8 @@
 # Décret n° 61-501 relatif aux unités de mesure et au contrôle des instruments de mesure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-501-relatif-aux-unites-de-mesure-et-au-controle-des-instruments-de-mesure/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-501-relatif-aux-unites-de-mesure-et-au-controle-des-instruments-de-mesure/>
 
-En vigueur : 1962-01-01 (date fixÃ©e par le texte).
+En vigueur : 1962-01-01 (date fixée par le texte).
 
 ## Visas
 
@@ -36,7 +36,7 @@ LUCIEN PAYE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0319/PR/MDC portant agrément au code des Investissements du projet de transit et de transport de la socièté “Dita Transit & Logistics”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0319-pr-mdc-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-dita-transit-logistics/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0319-pr-mdc-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-dita-transit-logistics/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 187/AN/85/1ère L portant approbation du budget de l’État pour l’exercice 1986.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-85-1ere-l-portant-approbation-du-budget-de-letat-pour-lexercice-1986/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n187-an-85-1ere-l-portant-approbation-du-budget-de-letat-pour-lexercice-1986/>
 
-En vigueur : 1986-01-01 (date fixÃ©e par le texte).
+En vigueur : 1986-01-01 (date fixée par le texte).
 
 ## Visas
 

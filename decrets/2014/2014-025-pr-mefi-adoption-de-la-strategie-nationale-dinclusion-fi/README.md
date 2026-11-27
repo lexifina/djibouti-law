@@ -1,8 +1,8 @@
 # Décret n° 2014-025/PR/MEFI portant adoption de la Stratégie Nationale d’Inclusion Financière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 15/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-025-pr-mefi-portant-adoption-de-la-strategie-nationale-dinclusion-financiere/>
+Décret · Journal officiel de la République de Djibouti, n° 03 du 15/02/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-025-pr-mefi-portant-adoption-de-la-strategie-nationale-dinclusion-financiere/>
 
-En vigueur : 2024-02-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-02-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

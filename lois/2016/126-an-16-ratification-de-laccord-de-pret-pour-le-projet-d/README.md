@@ -1,6 +1,6 @@
 # Loi n° 126/AN/16/7ème L portant ratification de l’Accord de prêt pour le projet d’appui à la réalisation des infrastructures socio-économiques et à la promotion des activités économiques dans les régions (PARISER).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-a-la-realisation-des-infrastructures-socio-economiques-et-a-la-promotion-des-activites-economiques-dans-le/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n126-an-16-7eme-l-portant-ratification-de-laccord-de-pret-pour-le-projet-dappui-a-la-realisation-des-infrastructures-socio-economiques-et-a-la-promotion-des-activites-economiques-dans-le/>
 
 En vigueur : 2016-01-31 (date du Journal officiel qui le publie).
 

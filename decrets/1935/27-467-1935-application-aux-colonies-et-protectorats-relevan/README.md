@@ -1,6 +1,6 @@
 # Décret n° 27-467-1935 Application aux colonies et protectorats relevant du ministère des colonies, à l’exception de la Martinique, de la Guadeloupe, de la Réunion et de Madagascar et dépendances, et aux territoires du Cameroun et du Togo, de la loi du 3 février 1919 prorogeant, en raison de la guerre, la durée des droits de propriété littéraire et artistique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-467-1935-application-aux-colonies-et-protectorats-relevant-du-ministere-des-colonies-a-lexception-de-la-martinique-de-la-guadeloupe-de-la-reunion-et-de-madagascar-et-dependance/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-467-1935-application-aux-colonies-et-protectorats-relevant-du-ministere-des-colonies-a-lexception-de-la-martinique-de-la-guadeloupe-de-la-reunion-et-de-madagascar-et-dependance/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ Louis ROLLIN.,
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

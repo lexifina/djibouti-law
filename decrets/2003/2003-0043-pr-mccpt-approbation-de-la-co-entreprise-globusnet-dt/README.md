@@ -1,6 +1,6 @@
 # Décret n° 2003-0043/PR/MCCPT portant approbation de la co-Entreprise Globusnet DT.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0043-pr-mccpt-portant-approbation-de-la-co-entreprise-globusnet-dt/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0043-pr-mccpt-portant-approbation-de-la-co-entreprise-globusnet-dt/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

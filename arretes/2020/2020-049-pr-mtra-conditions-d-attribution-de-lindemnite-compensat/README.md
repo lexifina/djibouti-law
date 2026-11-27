@@ -1,6 +1,6 @@
 # Arrêté n° 2020-049/PR/MTRA relatif aux conditions d’attribution de l’indemnité compensatrice aux salariés et de l’allocation aux entreprises durant la pandémie du coronavirus Covid-19.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-049-pr-mtra-relatif-aux-conditions-dattribution-de-lindemnite-compensatrice-aux-salaries-et-de-lallocation-aux-entreprises-durant-la-pandemie-du-coronavirus-covi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-049-pr-mtra-relatif-aux-conditions-dattribution-de-lindemnite-compensatrice-aux-salaries-et-de-lallocation-aux-entreprises-durant-la-pandemie-du-coronavirus-covi/>
 
 En vigueur : 2020-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -42,4 +42,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

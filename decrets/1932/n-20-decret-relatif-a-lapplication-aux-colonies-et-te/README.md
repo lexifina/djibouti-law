@@ -1,6 +1,6 @@
 # Décret n° n°20 Décret relatif à l’application aux colonies et territoires sous mandat français de la convention anglo-française du 2 février 1922 sur les actes de procédure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 428 du 31/07/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n20-decret-relatif-a-lapplication-aux-colonies-et-territoires-sous-mandat-francais-de-la-convention-anglo-francaise-du-2-fevrier-1922-sur-les-actes-de-procedure/>
+Décret · Journal officiel de la République de Djibouti, n° 428 du 31/07/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n20-decret-relatif-a-lapplication-aux-colonies-et-territoires-sous-mandat-francais-de-la-convention-anglo-francaise-du-2-fevrier-1922-sur-les-actes-de-procedure/>
 
 En vigueur : 1932-07-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ rene renoult
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0830/PR/MEFCIP portant l’attribution d’une parcelle de terrain à titre onéreux en concession provisoire sis à PK 23, Cheik Mohamed Hussein Alamoudi.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0830-pr-mefcip-portant-lattribution-dune-parcelle-de-terrain-a-titre-onereux-en-concession-provisoire-sis-a-pk-23-cheik-mohamed-hussein-alamoudi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0830-pr-mefcip-portant-lattribution-dune-parcelle-de-terrain-a-titre-onereux-en-concession-provisoire-sis-a-pk-23-cheik-mohamed-hussein-alamoudi/>
 
 En vigueur : 2011-11-30 (date du Journal officiel qui le publie).
 

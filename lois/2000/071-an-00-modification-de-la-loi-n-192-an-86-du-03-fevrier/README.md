@@ -1,6 +1,6 @@
 # Loi n° 71/AN/00/4ème L portant modification de la Loi n° 192/AN/86 du 03 février 1986 et transformation de l’Office National du Tourisme et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-00-4eme-l-portant-modification-de-la-loi-n192-an-86-du-03-fevrier-1986-et-transformation-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-00-4eme-l-portant-modification-de-la-loi-n192-an-86-du-03-fevrier-1986-et-transformation-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

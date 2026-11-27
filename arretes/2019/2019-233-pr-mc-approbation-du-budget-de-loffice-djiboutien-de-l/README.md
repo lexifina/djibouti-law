@@ -1,6 +1,6 @@
 # Arrêté n° 2019-233/PR/MC portant approbation du Budget de l’Office Djiboutien de la Propriété Industrielle et Commerciale de l’année 2020.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-233-pr-mc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2020/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-233-pr-mc-portant-approbation-du-budget-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale-de-lannee-2020/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi de finances n° 35/AN/93/3e L portant sur le budget de l’État exercice 1994.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n35-an-93-3e-l-portant-sur-le-budget-de-letat-exercice-1994/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 1 du 15/01/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n35-an-93-3e-l-portant-sur-le-budget-de-letat-exercice-1994/>
 
 En vigueur : 1994-01-15 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ HASSAN GOULED APTIDON.
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

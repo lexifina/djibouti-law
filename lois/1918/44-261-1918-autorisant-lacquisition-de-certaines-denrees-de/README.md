@@ -1,6 +1,6 @@
 # Loi n° 44-261-1918 autorisant l’acquisition de certaines denrées de première nécessité.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-44-261-1918-autorisant-lacquisition-de-certaines-denrees-de-premiere-necessite/>
+Loi · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-44-261-1918-autorisant-lacquisition-de-certaines-denrees-de-premiere-necessite/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 

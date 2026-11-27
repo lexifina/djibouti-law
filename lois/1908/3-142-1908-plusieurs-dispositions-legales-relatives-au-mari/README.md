@@ -1,6 +1,6 @@
 # Loi n° 3-142-1908 modifiant plusieurs dispositions légales relatives au mariage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 142 du 01/09/1908 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-3-142-1908-modifiant-plusieurs-dispositions-legales-relatives-au-mariage/>
+Loi · Journal officiel de la République de Djibouti, n° 142 du 01/09/1908 · <https://www.journalofficiel.dj/texte-juridique/loi-n-3-142-1908-modifiant-plusieurs-dispositions-legales-relatives-au-mariage/>
 
 En vigueur : 1908-09-01 (date du Journal officiel qui le publie).
 

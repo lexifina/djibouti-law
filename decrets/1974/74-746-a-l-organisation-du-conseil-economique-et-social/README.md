@@ -1,6 +1,6 @@
 # Décret n° 74-746 relatif à l’organisation du Conseil économique et social (JORF n° 203 du 30 août 1974, page 9059) .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 25/09/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-746-relatif-a-lorganisation-du-conseil-economique-et-social-jorf-n-203-du-30-aout-1974-page-9059/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 25/09/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-746-relatif-a-lorganisation-du-conseil-economique-et-social-jorf-n-203-du-30-aout-1974-page-9059/>
 
 En vigueur : 1974-09-25 (date du Journal officiel qui le publie).
 

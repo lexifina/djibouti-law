@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0830/PR/MPICRP portant Agrément au Code des Investissements du projet de transit et de transport de la Société “Tani Logistics Sarl”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0830-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-tani-logistics-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0830-pr-mpicrp-portant-agrement-au-code-des-investissements-du-projet-de-transit-et-de-transport-de-la-societe-tani-logistics-sarl/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 

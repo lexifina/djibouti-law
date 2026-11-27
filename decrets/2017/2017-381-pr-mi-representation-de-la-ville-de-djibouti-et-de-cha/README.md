@@ -1,6 +1,6 @@
 # Décret n° 2017-381/PR/MI fixant la représentation de la Ville de Djibouti et de chaque région à l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 29/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-381-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 29/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-381-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
 
 En vigueur : 2017-11-29 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 13-339-1925 20 janvier 1925
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 339 du 01/02/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-339-1925-20-janvier-1925/>
+Décret · Journal officiel de la République de Djibouti, n° 339 du 01/02/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-339-1925-20-janvier-1925/>
 
 En vigueur : 1925-02-01 (date du Journal officiel qui le publie).
 

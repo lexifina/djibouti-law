@@ -1,6 +1,6 @@
 # Décret n° 88-105/PR/MIDI portant sur l’organisation de l’ONED (Office National des Eaux de Djibouti).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-105-pr-midi-portant-sur-lorganisation-de-loned-office-national-des-eaux-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-105-pr-midi-portant-sur-lorganisation-de-loned-office-national-des-eaux-de-djibouti/>
 
 En vigueur : 1988-12-31 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ HASSAN GOULED APTIDON
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

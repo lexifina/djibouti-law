@@ -1,6 +1,6 @@
 # Décret n° 46-1614 tendant à fixer les conditions du dépôt légal dans les territoires relevant du ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1614-tendant-a-fixer-les-conditions-du-depot-legal-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1614-tendant-a-fixer-les-conditions-du-depot-legal-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ M.-E. NAEGELEN.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

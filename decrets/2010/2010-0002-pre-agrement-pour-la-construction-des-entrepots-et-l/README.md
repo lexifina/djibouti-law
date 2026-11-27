@@ -1,8 +1,8 @@
 # Décret n° 2010-0002/PRE portant agrément pour la construction des entrepôts et la Commercialisation des produits pétroliers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0002-pre-portant-agrement-pour-la-construction-des-entrepots-et-la-commercialisation-des-produits-petroliers/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0002-pre-portant-agrement-pour-la-construction-des-entrepots-et-la-commercialisation-des-produits-petroliers/>
 
-En vigueur : 2010-01-04 (date fixÃ©e par le texte).
+En vigueur : 2010-01-04 (date fixée par le texte).
 
 ## Visas
 

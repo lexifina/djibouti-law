@@ -1,6 +1,6 @@
 # Décret n° 70-1323 Décret relatif à la composition du Gouvernement (J.O.R.F. du 8 janvier 1971, p. 292).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1323-decret-relatif-a-la-composition-du-gouvernement-j-o-r-f-du-8-janvier-1971-p-292/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1323-decret-relatif-a-la-composition-du-gouvernement-j-o-r-f-du-8-janvier-1971-p-292/>
 
 En vigueur : 1971-01-25 (date du Journal officiel qui le publie).
 

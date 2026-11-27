@@ -1,6 +1,6 @@
 # Loi n° 72-964 relativé à la francisation des noms et prénoms des personnes qui acquièrent, recouvrent ou se font reconnaître la nationalité française.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 10/11/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-964-relative-a-la-francisation-des-noms-et-prenoms-des-personnes-qui-acquierent-recouvrent-ou-se-font-reconnaitre-la-nationalite-francaise/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 10/11/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-964-relative-a-la-francisation-des-noms-et-prenoms-des-personnes-qui-acquierent-recouvrent-ou-se-font-reconnaitre-la-nationalite-francaise/>
 
 En vigueur : 1972-11-10 (date du Journal officiel qui le publie).
 

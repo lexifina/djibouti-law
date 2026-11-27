@@ -1,6 +1,6 @@
 # Décret n° 4-468-1935 Conditions d’admission et de séjour re des Français et des étrangers à la côte française de Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-468-1935-conditions-dadmission-et-de-sejour-re-des-francais-et-des-etrangers-a-la-cote-francaise-de-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-468-1935-conditions-dadmission-et-de-sejour-re-des-francais-et-des-etrangers-a-la-cote-francaise-de-somalis/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

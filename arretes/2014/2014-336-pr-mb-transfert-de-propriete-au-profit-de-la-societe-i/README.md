@@ -1,6 +1,6 @@
 # Arrêté n° 2014-336/PR/MB portant transfert de propriété au profit de la Société Immobilière de Djibouti des biens immobiliers appartenant à l’Etat Djiboutien.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-336-pr-mb-portant-transfert-de-propriete-au-profit-de-la-societe-immobiliere-de-djibouti-des-biens-immobiliers-appartenant-a-letat-djiboutien/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-336-pr-mb-portant-transfert-de-propriete-au-profit-de-la-societe-immobiliere-de-djibouti-des-biens-immobiliers-appartenant-a-letat-djiboutien/>
 
 En vigueur : 2014-04-30 (date du Journal officiel qui le publie).
 

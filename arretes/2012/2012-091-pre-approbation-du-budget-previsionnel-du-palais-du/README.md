@@ -1,6 +1,6 @@
 # Arrêté n° 2012-091/PRE portant approbation du budget prévisionnel du Palais du Peuple pour l’exercice 2012.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-091-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2012/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-091-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2012/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2007-0258/PR/MID fixant les modalités d’organisation du scrutin du 08 Février 2008 pour les élections des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0258-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-du-08-fevrier-2008-pour-les-elections-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0258-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-du-08-fevrier-2008-pour-les-elections-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

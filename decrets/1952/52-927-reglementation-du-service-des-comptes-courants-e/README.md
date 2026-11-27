@@ -1,6 +1,6 @@
 # Décret n° 52-927 portant règlementation du service des comptes courants et chèques postaux dans les territoires relevant du Ministre de la France d’Outre-Mer .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-927-portant-reglementation-du-service-des-comptes-courants-et-cheques-postaux-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-927-portant-reglementation-du-service-des-comptes-courants-et-cheques-postaux-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer/>
 
 En vigueur : 1952-11-01 (date du Journal officiel qui le publie).
 

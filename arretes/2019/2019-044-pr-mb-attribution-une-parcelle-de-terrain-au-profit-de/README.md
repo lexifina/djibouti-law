@@ -1,6 +1,6 @@
 # Arrêté n° 2019-044/PR/MB portant attribution une parcelle de terrain au profit de la Société de Gestion du Terminal à Conteneurs de Doraleh (SGTD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-044-pr-mb-portant-attribution-une-parcelle-de-terrain-au-profit-de-la-societe-de-gestion-du-terminal-a-conteneurs-de-doraleh-sgtd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-044-pr-mb-portant-attribution-une-parcelle-de-terrain-au-profit-de-la-societe-de-gestion-du-terminal-a-conteneurs-de-doraleh-sgtd/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

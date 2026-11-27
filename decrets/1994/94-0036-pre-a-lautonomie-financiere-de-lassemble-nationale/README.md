@@ -1,6 +1,6 @@
 # Décret n° 94-0036/PRE relative a l’autonomie financière de l’assemble nationale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0036-pre-relative-a-lautonomie-financiere-de-lassemble-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0036-pre-relative-a-lautonomie-financiere-de-lassemble-nationale/>
 
 En vigueur : 1994-03-31 (date du Journal officiel qui le publie).
 
@@ -23,8 +23,8 @@ HAGGAN GOUII ED APTIDON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [art-002.md](art-002.md) | article2– |
+| [art-001.md](art-001.md) | Article premier |
+| [art-002.md](art-002.md) | article2 |
 | [art-003.md](art-003.md) | article 3 |
 | [art-004.md](art-004.md) | article 4 |
 | [art-005.md](art-005.md) | article 5 |

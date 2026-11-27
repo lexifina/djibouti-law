@@ -1,6 +1,6 @@
 # Ordonnance n° 91-111/PR/JUSTICE les concessions de vente exlusive en republique
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91-111-pr-justice-les-concessions-de-vente-exlusive-en-republique/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n91-111-pr-justice-les-concessions-de-vente-exlusive-en-republique/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 

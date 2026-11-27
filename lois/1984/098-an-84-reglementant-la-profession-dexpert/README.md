@@ -1,6 +1,6 @@
 # Loi n° 98/AN/84/1re L réglementant la profession d’expert.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/05/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-84-1re-l-reglementant-la-profession-dexpert/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/05/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-84-1re-l-reglementant-la-profession-dexpert/>
 
 En vigueur : 1984-05-30 (date du Journal officiel qui le publie).
 

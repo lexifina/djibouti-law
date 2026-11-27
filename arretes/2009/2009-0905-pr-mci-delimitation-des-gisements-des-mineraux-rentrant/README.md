@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0905/PR/MCI portant délimitation des gisements des minéraux rentrant dans la production du ciment.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0905-pr-mci-portant-delimitation-des-gisements-des-mineraux-rentrant-dans-la-production-du-ciment/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0905-pr-mci-portant-delimitation-des-gisements-des-mineraux-rentrant-dans-la-production-du-ciment/>
 
-En vigueur : 2009-12-19 (date fixÃ©e par le texte).
+En vigueur : 2009-12-19 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2-180-1911 modifiant la réglementation sur les à passages du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 180 du 01/11/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-180-1911-modifiant-la-reglementation-sur-les-a-passages-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 180 du 01/11/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-180-1911-modifiant-la-reglementation-sur-les-a-passages-du-personnel-colonial/>
 
 En vigueur : 1911-11-01 (date du Journal officiel qui le publie).
 

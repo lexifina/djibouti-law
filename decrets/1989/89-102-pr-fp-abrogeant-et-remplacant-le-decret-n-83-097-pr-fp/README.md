@@ -1,6 +1,6 @@
 # Décret n° 89-102/PR/FP abrogeant et remplaçant le décret n° 83-097/PR/FP du 10 septembre 1983 portant réparation pécuniaire accordée aux fonctionnaires et agents de l’État en cas de maladie contractée en service ou d’accident survenu dans l’exercice de leurs fonctions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-102-pr-fp-abrogeant-et-remplacant-le-decret-n83-097-pr-fp-du-10-septembre-1983-portant-reparation-pecuniaire-accordee-aux-fonctionnaires-et-agents-de-letat-en-cas-de-maladie/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-102-pr-fp-abrogeant-et-remplacant-le-decret-n83-097-pr-fp-du-10-septembre-1983-portant-reparation-pecuniaire-accordee-aux-fonctionnaires-et-agents-de-letat-en-cas-de-maladie/>
 
 En vigueur : 1989-07-31 (date du Journal officiel qui le publie).
 

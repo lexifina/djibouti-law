@@ -1,6 +1,6 @@
 # Décret n° n° 45-801 relatif au statut des Administrateurs des Colonies et des Services Civils de l’’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-801-relatif-au-statut-des-administrateurs-des-colonies-et-des-services-civils-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-45-801-relatif-au-statut-des-administrateurs-des-colonies-et-des-services-civils-de-lindochine/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0277/PR/MEFPCP portant annulation de l’arrêté n° 2000-0060/PRE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0277-pr-mefpcp-portant-annulation-de-larrete-n2000-0060-pre/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0277-pr-mefpcp-portant-annulation-de-larrete-n2000-0060-pre/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

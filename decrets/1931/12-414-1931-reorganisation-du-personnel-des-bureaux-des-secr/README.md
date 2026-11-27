@@ -1,6 +1,6 @@
 # Décret n° 12-414-1931 Réorganisation du personnel des bureaux des secrétaires généraux des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 414 du 31/05/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-414-1931-reorganisation-du-personnel-des-bureaux-des-secretaires-generaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 414 du 31/05/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-414-1931-reorganisation-du-personnel-des-bureaux-des-secretaires-generaux-des-colonies/>
 
 En vigueur : 1931-05-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Paul REYNAUD.
 | Fichier | Disposition |
 | --- | --- |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

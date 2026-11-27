@@ -1,6 +1,6 @@
 # Décret n° 01-160-1910 29 janvier 1910.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 175 du 01/06/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-160-1910-29-janvier-1910/>
+Décret · Journal officiel de la République de Djibouti, n° 175 du 01/06/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-160-1910-29-janvier-1910/>
 
 En vigueur : 1911-06-01 (date du Journal officiel qui le publie).
 

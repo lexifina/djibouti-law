@@ -1,6 +1,6 @@
 # Décret n° 06-367-1927 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 367 du 30/06/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-367-1927-au-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 367 du 30/06/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-367-1927-au-president-de-la-republique-francaise/>
 
 En vigueur : 1927-06-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Léon PERRIER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

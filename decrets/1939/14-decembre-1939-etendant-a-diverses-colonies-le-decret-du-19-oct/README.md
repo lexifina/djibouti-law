@@ -1,6 +1,6 @@
 # Décret n° 14 décembre 1939. étendant à diverses colonies le décret du 19 octobre la faculté d’option des fils d’étrangers nés en France,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-decembre-1939-etendant-a-diverses-colonies-le-decret-du-19-octobre-la-faculte-doption-des-fils-detrangers-nes-en-france/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-decembre-1939-etendant-a-diverses-colonies-le-decret-du-19-octobre-la-faculte-doption-des-fils-detrangers-nes-en-france/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -20,5 +20,5 @@ Georges MAXDETL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

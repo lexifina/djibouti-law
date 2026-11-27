@@ -1,6 +1,6 @@
 # Décret n° le 15 décembre 1952. approuvant la délibération du 17 octobre 1952 du Conseil Représentatif de la Côte Française des Somalis, modifiant le Code général des impôts directs et taxes assimilées.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 22/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-decembre-1952-approuvant-la-deliberation-du-17-octobre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-le-code-general-des-impots-directs-et-taxes-ass/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 22/12/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-15-decembre-1952-approuvant-la-deliberation-du-17-octobre-1952-du-conseil-representatif-de-la-cote-francaise-des-somalis-modifiant-le-code-general-des-impots-directs-et-taxes-ass/>
 
 En vigueur : 1952-12-22 (date du Journal officiel qui le publie).
 

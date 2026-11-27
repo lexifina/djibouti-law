@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art, 1°, — Est rendue applicable aux colounies de l’Afrique équatoriale francaise, de Madagascar et dépendances, de la Martinique, de luù Guadeloupe, de la Nouvelle-Calédonie et dépendances, de la Guyane francaise et de la Côte francaise des Somalis, la loi du 13 juillet 1933, modifiant les dispositions de la loi du 30 juin 1926, modifiée par les lois du 22 avril 1927 et du 27 mars 1928, régle int les rapports entre locataires et bailleurs en ce qui concerne le renouvellement des baux à lover d’immeubles où de locaux à nsage commercial où indunstrpel.

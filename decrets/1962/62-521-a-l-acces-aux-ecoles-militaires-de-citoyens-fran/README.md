@@ -1,6 +1,6 @@
 # Décret n° 62-521 relatif à l’accès aux écoles militaires de citoyens français originaires des territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-521-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-521-relatif-a-lacces-aux-ecoles-militaires-de-citoyens-francais-originaires-des-territoires-doutre-mer/>
 
 En vigueur : 1962-04-30 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ Jean de BROGLIE.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

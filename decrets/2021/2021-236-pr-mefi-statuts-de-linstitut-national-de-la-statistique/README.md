@@ -1,6 +1,6 @@
 # Décret n° 2021-236/PR/MEFI portant Statuts de l’Institut National de la Statistique de Djibouti (INSTAD)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-236-pr-mefi-portant-statuts-de-linstitut-national-de-la-statistique-de-djibouti-instad/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-236-pr-mefi-portant-statuts-de-linstitut-national-de-la-statistique-de-djibouti-instad/>
 
 En vigueur : 2021-10-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

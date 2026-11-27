@@ -1,6 +1,6 @@
 # Décret n° 95-0030/PR/EN complétant les dispositions du décret n° 79-116/PR/EN portant création d’un Baccalauréat de l’Enseignement du Second degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0030-pr-en-completant-les-dispositions-du-decret-n-79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-second-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0030-pr-en-completant-les-dispositions-du-decret-n-79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-second-degre/>
 
 En vigueur : 1995-02-28 (date du Journal officiel qui le publie).
 

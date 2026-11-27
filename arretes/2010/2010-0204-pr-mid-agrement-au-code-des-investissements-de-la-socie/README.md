@@ -1,7 +1,7 @@
 # Arrêté n° 2010-0204/PR/MID portant Agrément au Code
 des Investissements de la Société « Warka Bank for Investment & Finance (Djibouti) SA ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0204-pr-mid-portant-agrement-au-code-des-investissements-de-la-societe-warka-bank-for-investment-finance-djibouti-sa/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0204-pr-mid-portant-agrement-au-code-des-investissements-de-la-societe-warka-bank-for-investment-finance-djibouti-sa/>
 
 En vigueur : 2010-03-31 (date du Journal officiel qui le publie).
 

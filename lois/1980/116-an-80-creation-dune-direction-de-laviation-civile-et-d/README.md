@@ -1,6 +1,6 @@
 # Loi n° 116/AN/80 portant création d’une direction de l’Aviation Civile et de la Météorologie et fixant ses attributions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-80-portant-creation-dune-direction-de-laviation-civile-et-de-la-meteorologie-et-fixant-ses-attributions/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n116-an-80-portant-creation-dune-direction-de-laviation-civile-et-de-la-meteorologie-et-fixant-ses-attributions/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 

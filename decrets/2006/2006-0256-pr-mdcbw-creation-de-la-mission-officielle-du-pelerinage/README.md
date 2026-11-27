@@ -1,6 +1,6 @@
 # Décret n° 2006-0256/PR/MDCBW portant création de la mission officielle du Pèlerinage pour l’année 2006.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0256-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2006/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0256-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2006/>
 
 En vigueur : 2006-10-31 (date du Journal officiel qui le publie).
 

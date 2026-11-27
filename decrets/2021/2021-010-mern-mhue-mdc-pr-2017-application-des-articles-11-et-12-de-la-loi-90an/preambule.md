@@ -1,2 +1,0 @@
-# PrÃ©ambule
-CHAPITRE I : OBJET ET DEFINITIONS

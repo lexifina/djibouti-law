@@ -1,6 +1,6 @@
 # Décret n° 15-369-1927 AU PRÉSIDENT DE LA RÉPUBLIQUE FRANÇAISE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 369 du 31/08/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-369-1927-au-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 369 du 31/08/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-369-1927-au-president-de-la-republique-francaise/>
 
 En vigueur : 1927-08-31 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ Maurice BOoKkANowsKki.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
+| [art-001.md](art-001.md) | Art. 1er |

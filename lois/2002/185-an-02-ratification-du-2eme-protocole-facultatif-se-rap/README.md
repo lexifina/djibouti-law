@@ -1,6 +1,6 @@
 # Loi n° 185/AN/02/4ème L portant ratification du 2ème Protocole facultatif se rapportant au Pacte International sur les droits civils et politiques visant à abolir la peine de mort.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-02-4eme-l-portant-ratification-du-2eme-protocole-facultatif-se-rapportant-au-pacte-international-sur-les-droits-civils-et-politiques-visant-a-abolir-la-peine-de-mort/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-02-4eme-l-portant-ratification-du-2eme-protocole-facultatif-se-rapportant-au-pacte-international-sur-les-droits-civils-et-politiques-visant-a-abolir-la-peine-de-mort/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 235/AN/87/1ère L portant modification du prix du mettre carré de terrain dans le lotissement d’Arta.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/02/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n235-an-87-1ere-l-portant-modification-du-prix-du-mettre-carre-de-terrain-dans-le-lotissement-darta/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/02/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n235-an-87-1ere-l-portant-modification-du-prix-du-mettre-carre-de-terrain-dans-le-lotissement-darta/>
 
 En vigueur : 1987-02-15 (date du Journal officiel qui le publie).
 

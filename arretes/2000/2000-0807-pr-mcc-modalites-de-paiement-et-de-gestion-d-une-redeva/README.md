@@ -1,6 +1,6 @@
 # Arrêté n° 2000-0807/PR/MCC fixant les modalités de paiement et de gestion d’une redevance portant licence d’exploitation audiovisuelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0807-pr-mcc-fixant-les-modalites-de-paiement-et-de-gestion-dune-redevance-portant-licence-dexploitation-audiovisuelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0807-pr-mcc-fixant-les-modalites-de-paiement-et-de-gestion-dune-redevance-portant-licence-dexploitation-audiovisuelle/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

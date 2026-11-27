@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0420/PR/MCIA relatif aux conditions de délivrance des certificats de conformité et de la licence de commercialisation des eaux conditionnées.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0420-pr-mcia-relatif-aux-conditions-de-delivrance-des-certificats-de-conformite-et-de-la-licence-de-commercialisation-des-eaux-conditionnees/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0420-pr-mcia-relatif-aux-conditions-de-delivrance-des-certificats-de-conformite-et-de-la-licence-de-commercialisation-des-eaux-conditionnees/>
 
 En vigueur : 2002-06-15 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ ISMAÏL OMAR GUELLEH
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

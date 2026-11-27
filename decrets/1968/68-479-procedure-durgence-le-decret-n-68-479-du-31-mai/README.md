@@ -1,6 +1,6 @@
 # Décret n° 68-479 la procédure d’urgence le décret n° 68-479 du 31 mai 1968 reportant la date du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 25/06/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-479-la-procedure-durgence-le-decret-n-68-479-du-31-mai-1968-reportant-la-date-du-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 25/06/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-479-la-procedure-durgence-le-decret-n-68-479-du-31-mai-1968-reportant-la-date-du-referendum/>
 
 En vigueur : 1968-06-25 (date du Journal officiel qui le publie).
 

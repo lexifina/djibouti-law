@@ -1,6 +1,6 @@
 # Décret n° 46-88 modifiant le décret n° 45-312 du 2 mars 1945 rendant applicables dans le» territoires re- levant du ministère des colonie# les dispositions de l’ordonnance du 26 décembre 1944 portant modification et codification de» texte» relatif» à l’indignité nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 28/02/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-88-modifiant-le-decret-n-45-312-du-2-mars-1945-rendant-applicables-dans-le-territoires-re-levant-du-ministere-des-colonie-les-dispositions-de-lordonnance-du-26-decem/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 28/02/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-88-modifiant-le-decret-n-45-312-du-2-mars-1945-rendant-applicables-dans-le-territoires-re-levant-du-ministere-des-colonie-les-dispositions-de-lordonnance-du-26-decem/>
 
 En vigueur : 1946-02-28 (date du Journal officiel qui le publie).
 

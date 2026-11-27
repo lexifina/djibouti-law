@@ -1,6 +1,6 @@
 # Décret n° 74-589 du 14 juin 1974 relatif aux attributions du Secrétaire d’Etat aux département et territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 25/07/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-589-du-14-juin-1974-relatif-aux-attributions-du-secretaire-detat-aux-departement-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 25/07/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-589-du-14-juin-1974-relatif-aux-attributions-du-secretaire-detat-aux-departement-et-territoires-doutre-mer/>
 
 En vigueur : 1974-07-25 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ OLIVIER STIRN.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

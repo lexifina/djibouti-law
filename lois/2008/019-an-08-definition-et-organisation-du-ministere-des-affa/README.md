@@ -1,6 +1,6 @@
 # Loi n° 19/AN/08/6ème L définition et organisation du Ministère des Affaires Musulmanes et des Biens Waqfs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-08-6eme-l-definition-et-organisation-du-ministere-des-affaires-musulmanes-et-des-biens-waqfs/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n19-an-08-6eme-l-definition-et-organisation-du-ministere-des-affaires-musulmanes-et-des-biens-waqfs/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

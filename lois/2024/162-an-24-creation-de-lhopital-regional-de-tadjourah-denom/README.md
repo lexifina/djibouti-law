@@ -1,8 +1,8 @@
 # Loi n° 162/AN/24/9ème L Portant création de l’Hôpital Régional de Tadjourah dénommé » Docteur Bourhan Mohamed Aref « .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-24-9eme-l-portant-creation-de-lhopital-regional-de-tadjourah-denomme-docteur-bourhan-mohamed-aref/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 15/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-24-9eme-l-portant-creation-de-lhopital-regional-de-tadjourah-denomme-docteur-bourhan-mohamed-aref/>
 
-En vigueur : 2025-04-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-04-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -57,4 +57,4 @@ ISMAÏL OMAR GUELLEH
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

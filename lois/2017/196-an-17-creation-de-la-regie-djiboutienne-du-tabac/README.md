@@ -1,6 +1,6 @@
 # Loi n° 196/AN/17/7ème L portant création de la Régie Djiboutienne du Tabac.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-17-7eme-l-portant-creation-de-la-regie-djiboutienne-du-tabac/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-17-7eme-l-portant-creation-de-la-regie-djiboutienne-du-tabac/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

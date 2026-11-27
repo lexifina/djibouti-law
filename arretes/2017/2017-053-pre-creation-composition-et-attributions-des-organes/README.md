@@ -1,6 +1,6 @@
 # Arrêté n° 2017-053/PRE portant création, composition et attributions des organes du Comité National des festivités du Quarantième Anniversaire de l’Indépendance de la République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-053-pre-portant-creation-composition-et-attributions-des-organes-du-comite-national-des-festivites-du-quarantieme-anniversaire-de-lindependance-de-la-republique-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-053-pre-portant-creation-composition-et-attributions-des-organes-du-comite-national-des-festivites-du-quarantieme-anniversaire-de-lindependance-de-la-republique-de-djibouti/>
 
 En vigueur : 2017-03-15 (date du Journal officiel qui le publie).
 

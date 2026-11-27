@@ -1,6 +1,6 @@
 # Décret n° 23/09/1937 portant modification au décret du 29 décembre 1917 réglant la situation des agents des postes et des télégraphes de la métropole détachés aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 491 du 31/10/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-09-1937-portant-modification-au-decret-du-29-decembre-1917-reglant-la-situation-des-agents-des-postes-et-des-telegraphes-de-la-metropole-detaches-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 491 du 31/10/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-09-1937-portant-modification-au-decret-du-29-decembre-1917-reglant-la-situation-des-agents-des-postes-et-des-telegraphes-de-la-metropole-detaches-aux-colonies/>
 
 En vigueur : 1937-10-31 (date du Journal officiel qui le publie).
 

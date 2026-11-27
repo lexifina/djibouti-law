@@ -1,6 +1,6 @@
 # Décret n° 87-069/PR/MTPUL portant création d’un Centre de Formation Professionnelle du Bâtiment et des Travaux Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-069-pr-mtpul-portant-creation-dun-centre-de-formation-professionnelle-du-batiment-et-des-travaux-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-069-pr-mtpul-portant-creation-dun-centre-de-formation-professionnelle-du-batiment-et-des-travaux-publics/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

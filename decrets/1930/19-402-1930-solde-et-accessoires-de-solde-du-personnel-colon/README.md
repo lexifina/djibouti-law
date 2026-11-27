@@ -1,6 +1,6 @@
 # Décret n° 19-402-1930 Solde et accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 402 du 31/05/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-402-1930-solde-et-accessoires-de-solde-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 402 du 31/05/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-402-1930-solde-et-accessoires-de-solde-du-personnel-colonial/>
 
 En vigueur : 1930-05-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Francois PrÉérni.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

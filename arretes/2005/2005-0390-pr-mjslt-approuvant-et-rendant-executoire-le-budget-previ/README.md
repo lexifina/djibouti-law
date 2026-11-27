@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0390/PR/MJSLT approuvant et rendant exécutoire le Budget Prévisionnel 2005 de l’Office National du Tourisme de Djibouti (ONTD).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0390-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2005-de-loffice-national-du-tourisme-de-djibouti-ontd/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0390-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2005-de-loffice-national-du-tourisme-de-djibouti-ontd/>
 
 En vigueur : 2005-06-30 (date du Journal officiel qui le publie).
 

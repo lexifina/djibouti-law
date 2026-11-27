@@ -1,6 +1,6 @@
 # Loi n° 01/AN/08/6ème L portant approbation des comptes financiers définitifs de l’ONED pour l’Exercice 2006.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n01-an-08-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2006/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n01-an-08-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-loned-pour-lexercice-2006/>
 
 En vigueur : 2008-06-15 (date du Journal officiel qui le publie).
 

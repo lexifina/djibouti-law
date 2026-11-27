@@ -1,6 +1,6 @@
 # Décret n° 2020-092/PR/MERN portant dotation de 30.000 FDJ aux abonnés “social 1” et “social 2”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-092-pr-mern-portant-dotation-de-30-000-fdj-aux-abonnes-social-1-et-social-2/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-092-pr-mern-portant-dotation-de-30-000-fdj-aux-abonnes-social-1-et-social-2/>
 
 En vigueur : 2020-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

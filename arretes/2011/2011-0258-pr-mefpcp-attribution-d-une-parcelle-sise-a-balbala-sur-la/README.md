@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0258/PR/MEFPCP portant attribution d’une parcelle sise à Balbala sur la voie PK 19 et à titre gracieux à l’Association Djibouti Nature.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0258-pr-mefpcp-portant-attribution-dune-parcelle-sise-a-balbala-sur-la-voie-pk-19-et-a-titre-gracieux-a-lassociation-djibouti-nature/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0258-pr-mefpcp-portant-attribution-dune-parcelle-sise-a-balbala-sur-la-voie-pk-19-et-a-titre-gracieux-a-lassociation-djibouti-nature/>
 
 En vigueur : 2011-03-15 (date du Journal officiel qui le publie).
 

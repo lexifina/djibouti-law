@@ -1,2 +1,0 @@
-Par décret n°2024-087/PRE, du Président de la République, chef du Gouvernement, en date du 23 avril 2024, pendant la durée de l’absence de S.E.Dr. NABIL MOHAMED AHMED, l’intérim des fonctions du Ministre de l’Enseignement Supérieur et de la Recherche sera assuré par S.E.Mme. OULOUFA ISMAIL ABDO, Ministre des Affaires Sociales et des Solidarités cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

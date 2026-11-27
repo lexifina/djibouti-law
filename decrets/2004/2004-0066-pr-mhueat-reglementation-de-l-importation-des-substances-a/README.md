@@ -1,6 +1,6 @@
 # Décret n° 2004-0066/PR/MHUEAT portant réglementation de l’importation des substances appauvrissant la Couche d’Ozone.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0066-pr-mhueat-portant-reglementation-de-limportation-des-substances-appauvrissant-la-couche-dozone/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0066-pr-mhueat-portant-reglementation-de-limportation-des-substances-appauvrissant-la-couche-dozone/>
 
 En vigueur : 2004-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 129/AN/97/3ème L portant arrêt des Comptes définitifs de l’ONED pour l’exercice 1995.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-97-3eme-l-portant-arret-des-comptes-definitifs-de-loned-pour-lexercice-1995/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-97-3eme-l-portant-arret-des-comptes-definitifs-de-loned-pour-lexercice-1995/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

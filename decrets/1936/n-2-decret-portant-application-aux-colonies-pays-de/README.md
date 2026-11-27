@@ -1,6 +1,6 @@
 # Décret n° n°2 Décret portant application aux colonies, pays de protectorat et territoires sous mandat relevant du Ministère des colonies du décret du 29 juin 19526 relatif à la définition d’appellation contrôlée « Champagne »
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-du-decret-du-29-juin-19526-relatif-a-la-definition-d/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-application-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-du-decret-du-29-juin-19526-relatif-a-la-definition-d/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

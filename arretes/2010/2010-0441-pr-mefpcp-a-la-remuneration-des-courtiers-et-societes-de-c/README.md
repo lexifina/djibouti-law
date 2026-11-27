@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0441/PR/MEFPCP relatif à la rémunération des courtiers et sociétés de courtage d’assurance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0441-pr-mefpcp-relatif-a-la-remuneration-des-courtiers-et-societes-de-courtage-dassurance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0441-pr-mefpcp-relatif-a-la-remuneration-des-courtiers-et-societes-de-courtage-dassurance/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

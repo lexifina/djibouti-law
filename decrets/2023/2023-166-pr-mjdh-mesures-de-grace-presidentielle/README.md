@@ -1,6 +1,6 @@
 # Décret n° 2023-166/PR/MJDH portant mesures de grâce présidentielle
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-166-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-166-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2023-06-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

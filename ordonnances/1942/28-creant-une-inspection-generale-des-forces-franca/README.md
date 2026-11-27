@@ -1,6 +1,6 @@
 # Ordonnance n° 28 créant une Inspection Générale des Forces Françaises Libres
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-28-creant-une-inspection-generale-des-forces-francaises-libres/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-28-creant-une-inspection-generale-des-forces-francaises-libres/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

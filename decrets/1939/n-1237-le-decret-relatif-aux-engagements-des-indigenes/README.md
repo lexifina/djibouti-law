@@ -1,6 +1,6 @@
 # Décret n° n°1237 Le décret relatif aux engagements des indigènes coloniaux pour la durée de la guerre
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n1237-le-decret-relatif-aux-engagements-des-indigenes-coloniaux-pour-la-duree-de-la-guerre/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n1237-le-decret-relatif-aux-engagements-des-indigenes-coloniaux-pour-la-duree-de-la-guerre/>
 
 En vigueur : 1939-11-30 (date du Journal officiel qui le publie).
 
@@ -22,7 +22,7 @@ george mandel
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-002.md](art-002.md) | Art. 2 |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 31/08/1938 concernant l’indication d’origine de certains produits étrangers (indicateurs de direction et essuie-glaces automatiques pour véhicules automobiles).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-08-1938-concernant-lindication-dorigine-de-certains-produits-etrangers-indicateurs-de-direction-et-essuie-glaces-automatiques-pour-vehicules-automobiles/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-08-1938-concernant-lindication-dorigine-de-certains-produits-etrangers-indicateurs-de-direction-et-essuie-glaces-automatiques-pour-vehicules-automobiles/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 

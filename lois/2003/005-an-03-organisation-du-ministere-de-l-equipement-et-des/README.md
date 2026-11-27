@@ -1,6 +1,6 @@
 # Loi n° 5/AN/03/5ème L portant Organisation du Ministère de l’Equipement et des Transports et fixant leurs attributions.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-03-5eme-l-portant-organisation-du-ministere-de-lequipement-et-des-transports-et-fixant-leurs-attributions/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-03-5eme-l-portant-organisation-du-ministere-de-lequipement-et-des-transports-et-fixant-leurs-attributions/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 
@@ -56,4 +56,4 @@ ISMAIL OMAR GUELLEH
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
 | [art-032.md](art-032.md) | Article 32 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

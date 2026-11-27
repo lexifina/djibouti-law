@@ -1,6 +1,6 @@
 # Loi n° 102/AN/84/1re L portant création de la clinique gynéco – obstétricale DAR-EL-HANAN.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/07/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-84-1re-l-portant-creation-de-la-clinique-gyneco-obstetricale-dar-el-hanan/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 15/07/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-84-1re-l-portant-creation-de-la-clinique-gyneco-obstetricale-dar-el-hanan/>
 
 En vigueur : 1984-07-15 (date du Journal officiel qui le publie).
 

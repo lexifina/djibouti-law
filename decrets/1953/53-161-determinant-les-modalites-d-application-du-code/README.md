@@ -1,6 +1,6 @@
 # Décret n° 53-161 déterminant les modalités d’application du code de la nationalité française dans les territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-161-determinant-les-modalites-dapplication-du-code-de-la-nationalite-francaise-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-161-determinant-les-modalites-dapplication-du-code-de-la-nationalite-francaise-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 71/AN/19/8ème L portant approbation des comptes financiers de la Caisse Nationale de Sécurité Sociale pour l’exercice 2017.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-19-8eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2017/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n71-an-19-8eme-l-portant-approbation-des-comptes-financiers-de-la-caisse-nationale-de-securite-sociale-pour-lexercice-2017/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

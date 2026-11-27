@@ -1,6 +1,6 @@
 # Ordonnance n° 84-082/PR/INT portant prorogation des dispositions de l’ordonnance n° 78-082/PR du 02 novembre 1978 sur les rapports entre propriétaires et locataires de constructions en matériaux légers dans le district de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/08/1984 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-082-pr-int-portant-prorogation-des-dispositions-de-lordonnance-n78-082-pr-du-02-novembre-1978-sur-les-rapports-entre-proprietaires-et-locataires-de-constructions-en-mater/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 30/08/1984 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n84-082-pr-int-portant-prorogation-des-dispositions-de-lordonnance-n78-082-pr-du-02-novembre-1978-sur-les-rapports-entre-proprietaires-et-locataires-de-constructions-en-mater/>
 
 En vigueur : 1984-08-30 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Le Conseil des Ministres entendu en sa séance du 10 juillet1984.
 | --- | --- |
 | [art-001.md](art-001.md) | Article Premier |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

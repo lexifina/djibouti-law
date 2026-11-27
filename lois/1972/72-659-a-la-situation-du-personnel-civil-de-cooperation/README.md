@@ -1,6 +1,6 @@
 # Loi n° 72-659 relative à la situation du personnel civil de coopération culturelle, scientifique et tech* nique auprès d’Etats étrangers
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-659-relative-a-la-situation-du-personnel-civil-de-cooperation-culturelle-scientifique-et-tech-nique-aupres-detats-etrangers/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-659-relative-a-la-situation-du-personnel-civil-de-cooperation-culturelle-scientifique-et-tech-nique-aupres-detats-etrangers/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

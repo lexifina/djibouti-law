@@ -1,6 +1,6 @@
 # Ordonnance n° 7 créant l’ordre de la Libération
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-7-creant-lordre-de-la-liberation/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-7-creant-lordre-de-la-liberation/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ C. de Gaulle.
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

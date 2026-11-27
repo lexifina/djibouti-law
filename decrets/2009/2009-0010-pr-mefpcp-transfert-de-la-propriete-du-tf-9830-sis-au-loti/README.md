@@ -1,6 +1,6 @@
 # Décret n° 2009-0010/PR/MEFPCP portant transfert de la propriété du TF 9830 sis au lotissement Haramous.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0010-pr-mefpcp-portant-transfert-de-la-propriete-du-tf-9830-sis-au-lotissement-haramous/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0010-pr-mefpcp-portant-transfert-de-la-propriete-du-tf-9830-sis-au-lotissement-haramous/>
 
 En vigueur : 2009-01-31 (date du Journal officiel qui le publie).
 

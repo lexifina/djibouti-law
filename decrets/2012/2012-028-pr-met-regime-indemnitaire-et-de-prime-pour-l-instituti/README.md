@@ -1,8 +1,8 @@
 # Décret n° 2012-028/PR/MET instituant le régime indemnitaire et de prime pour l’institution des Garde-côtes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-028-pr-met-instituant-le-regime-indemnitaire-et-de-prime-pour-linstitution-des-garde-cotes/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-028-pr-met-instituant-le-regime-indemnitaire-et-de-prime-pour-linstitution-des-garde-cotes/>
 
-En vigueur : 2012-02-08 (date fixÃ©e par le texte).
+En vigueur : 2012-02-08 (date fixée par le texte).
 
 ## Visas
 
@@ -40,4 +40,4 @@ ISMAÏL OMAR GUELLEH
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 55/AN/04/5ème L portant ratification d’un Accord entre le Gouvernement de la République de Djibouti et le Gouvernement de la République Italienne relatif à la coopération dans le domaine de la défense.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-04-5eme-l-portant-ratification-dun-accord-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-italienne-relatif-a-la-cooperation-dans-le-domaine-d/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n55-an-04-5eme-l-portant-ratification-dun-accord-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-italienne-relatif-a-la-cooperation-dans-le-domaine-d/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2020-218/PRE portant avantage en nature accordés aux membres du Conseil Constitutionnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-218-pre-portant-avantage-en-nature-accordes-aux-membres-du-conseil-constitutionnel/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-218-pre-portant-avantage-en-nature-accordes-aux-membres-du-conseil-constitutionnel/>
 
-En vigueur : 2020-08-17 (date fixÃ©e par le texte).
+En vigueur : 2020-08-17 (date fixée par le texte).
 
 ## Visas
 

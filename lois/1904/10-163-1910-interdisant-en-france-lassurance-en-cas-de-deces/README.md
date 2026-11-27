@@ -1,6 +1,6 @@
 # Loi n° 10-163-1910 interdisant en France l’Assurance en cas de décès des enfants de moins de douze ans.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 163 du 01/06/1910 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-10-163-1910-interdisant-en-france-lassurance-en-cas-de-deces-des-enfants-de-moins-de-douze-ans/>
+Loi · Journal officiel de la République de Djibouti, n° 163 du 01/06/1910 · <https://www.journalofficiel.dj/texte-juridique/loi-n-10-163-1910-interdisant-en-france-lassurance-en-cas-de-deces-des-enfants-de-moins-de-douze-ans/>
 
 En vigueur : 1910-06-01 (date du Journal officiel qui le publie).
 

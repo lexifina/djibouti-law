@@ -1,6 +1,6 @@
 # Arrêté n° 2013-818/PR/MS approuvant et rendant exécutoire le budget prévisionnel 2014 de la CAMME.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-818-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2014-de-la-camme/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-818-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2014-de-la-camme/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

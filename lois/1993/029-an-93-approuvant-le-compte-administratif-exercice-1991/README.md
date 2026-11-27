@@ -1,6 +1,6 @@
 # Loi n° 29/AN/93/3eme L approuvant le compte administratif exercice 1991 de l’Établissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1993 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-93-3eme-l-approuvant-le-compte-administratif-exercice-1991-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/1993 · <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-93-3eme-l-approuvant-le-compte-administratif-exercice-1991-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 1993-08-31 (date du Journal officiel qui le publie).
 

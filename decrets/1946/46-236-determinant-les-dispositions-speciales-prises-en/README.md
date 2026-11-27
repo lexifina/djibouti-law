@@ -1,6 +1,6 @@
 # Décret n° 46-236 déterminant les dispositions spéciales prises en faveur des fonctionnaires de différents cadre. dépendant du ministère de la France d’outre-mer ayant dû quitter leur emploi par suite d’événement» de guerre, ainsi qu’en faveur des candidats à crédits emplois ayant été empêchés d’y accéder.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-236-determinant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-de-differents-cadre-dependant-du-ministere-de-la-france-doutre-mer-ayant-du-quitter-leur-em/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-236-determinant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-de-differents-cadre-dependant-du-ministere-de-la-france-doutre-mer-ayant-du-quitter-leur-em/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° n°67 Décret du 25 juillet 1930 fixant le maximum des mandats d’articles d’arasent échangés entre la France et l’Algérie, d’une part, et les colonies françaises, d’autre part
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n67-decret-du-25-juillet-1930-fixant-le-maximum-des-mandats-darticles-darasent-echanges-entre-la-france-et-lalgerie-dune-part-et-les-colonies-francaises-dautre-part/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n67-decret-du-25-juillet-1930-fixant-le-maximum-des-mandats-darticles-darasent-echanges-entre-la-france-et-lalgerie-dune-part-et-les-colonies-francaises-dautre-part/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Article ler : Les recettes réalisées et les dépenses ordonnancée au titre du budget annexe du Port de l’exercice 1979 sont arrêtées définitivement comme suit :
 Budget de fonctionnement
 -Provisions ;des recettes et de dépenses. 768.472.000

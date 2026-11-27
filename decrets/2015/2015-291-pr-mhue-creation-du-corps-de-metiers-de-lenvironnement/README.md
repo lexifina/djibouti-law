@@ -1,8 +1,8 @@
 # Décret n° 2015-291/PR/MHUE portant création du corps de Métiers de l’Environnement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-291-pr-mhue-portant-creation-du-corps-de-metiers-de-lenvironnement/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-291-pr-mhue-portant-creation-du-corps-de-metiers-de-lenvironnement/>
 
-En vigueur : 2015-10-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-10-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

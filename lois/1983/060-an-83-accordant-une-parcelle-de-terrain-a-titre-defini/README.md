@@ -1,6 +1,6 @@
 # Loi n° 60/AN/83/1 ère L accordant une parcelle de terrain à titre définitif.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-83-1-ere-l-accordant-une-parcelle-de-terrain-a-titre-definitif/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n60-an-83-1-ere-l-accordant-une-parcelle-de-terrain-a-titre-definitif/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 

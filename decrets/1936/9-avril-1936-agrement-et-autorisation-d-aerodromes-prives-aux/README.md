@@ -1,6 +1,6 @@
 # Décret n° 9 avril 1936 Agrément et autorisation d’aérodromes privés aux colonies et pays de protectorat relevant du Département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 473 du 30/04/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-avril-1936-agrement-et-autorisation-daerodromes-prives-aux-colonies-et-pays-de-protectorat-relevant-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 473 du 30/04/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-avril-1936-agrement-et-autorisation-daerodromes-prives-aux-colonies-et-pays-de-protectorat-relevant-du-departement-des-colonies/>
 
 En vigueur : 1936-04-30 (date du Journal officiel qui le publie).
 

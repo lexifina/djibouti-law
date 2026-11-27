@@ -1,6 +1,6 @@
 # Décret n° 77-020/PR portant attributions du directeur de la Gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/08/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-020-pr-portant-attributions-du-directeur-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/08/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-020-pr-portant-attributions-du-directeur-de-la-gendarmerie-nationale/>
 
 En vigueur : 1977-08-15 (date du Journal officiel qui le publie).
 

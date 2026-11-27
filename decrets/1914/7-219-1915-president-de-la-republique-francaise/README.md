@@ -1,6 +1,6 @@
 # Décret n° 7-219-1915 Le Président de la République Française,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 219 du 31/01/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-219-1915-le-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 219 du 31/01/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-219-1915-le-president-de-la-republique-francaise/>
 
 En vigueur : 1915-01-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ A. LEBRUN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 05/11/1950 portant abrogeant le décret du de mai 1926, relatif aux traitements des secrétaires généraux relevant du Ministère de la France d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-11-1950-portant-abrogeant-le-decret-du-de-mai-1926-relatif-aux-traitements-des-secretaires-generaux-relevant-du-ministere-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-11-1950-portant-abrogeant-le-decret-du-de-mai-1926-relatif-aux-traitements-des-secretaires-generaux-relevant-du-ministere-de-la-france-doutre-mer/>
 
 En vigueur : 1950-11-30 (date du Journal officiel qui le publie).
 

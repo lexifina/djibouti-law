@@ -1,8 +1,8 @@
 # Décret n° 2011-0217/PR/MEFCIP portant modification du décret n° 96-0147/PR/MFEN relatif aux indemnités, aux logements administratifs et aux avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0217-pr-mefcip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0217-pr-mefcip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-nature/>
 
-En vigueur : 2012-01-01 (date fixÃ©e par le texte).
+En vigueur : 2012-01-01 (date fixée par le texte).
 
 ## Visas
 

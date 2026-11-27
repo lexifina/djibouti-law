@@ -1,6 +1,6 @@
 # Décret n° 51-941 portant règlement d’administration publique pour l’application de la loi n° 49- 159 du 9 juin 1949 établissant des servitudes et obligations dans l’intérêt des réceptions radioélectriques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-941-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-49-159-du-9-juin-1949-etablissant-des-servitudes-et-obligations-dans-linteret-des-reception/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-941-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-n-49-159-du-9-juin-1949-etablissant-des-servitudes-et-obligations-dans-linteret-des-reception/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 

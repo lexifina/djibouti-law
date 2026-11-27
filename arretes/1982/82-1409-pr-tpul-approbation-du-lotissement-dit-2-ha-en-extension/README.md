@@ -1,8 +1,8 @@
 # Arrêté n° 82-1409/PR/TPUL portant approbation du lotissement dit 2 ha, en extension des lotissements Héron Marabout.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/10/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1409-pr-tpul-portant-approbation-du-lotissement-dit-2-ha-en-extension-des-lotissements-heron-marabout/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 30/10/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-1409-pr-tpul-portant-approbation-du-lotissement-dit-2-ha-en-extension-des-lotissements-heron-marabout/>
 
-En vigueur : 1982-10-21 (date fixÃ©e par le texte).
+En vigueur : 1982-10-21 (date fixée par le texte).
 
 | Fichier | Disposition |
 | --- | --- |

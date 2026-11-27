@@ -1,6 +1,6 @@
 # Décret n° 77-082/PR autorisant l’adhésion de la République de Djibouti à la convention ACP/CEE de Lomé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 23/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-082-pr-autorisant-ladhesion-de-la-republique-de-djibouti-a-la-convention-acp-cee-de-lome/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 23/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-082-pr-autorisant-ladhesion-de-la-republique-de-djibouti-a-la-convention-acp-cee-de-lome/>
 
 En vigueur : 1978-01-23 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Conseil des Ministres, entendu en sa séance du 27 décembre 1977.
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

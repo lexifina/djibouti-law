@@ -1,6 +1,6 @@
 # Décret n° 89-153/PR/MCTT approuvant et rendant exécutoire le budget primitif 1990 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-153-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1990-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-153-pr-mctt-approuvant-et-rendant-executoire-le-budget-primitif-1990-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

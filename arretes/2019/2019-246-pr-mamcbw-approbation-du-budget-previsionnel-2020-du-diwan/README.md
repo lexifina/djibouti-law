@@ -1,6 +1,6 @@
 # Arrêté n° 2019-246/PR/MAMCBW portant approbation du Budget Prévisionnel 2020 du Diwan de la Zakat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-246-pr-mamcbw-portant-approbation-du-budget-previsionnel-2020-du-diwan-de-la-zakat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-246-pr-mamcbw-portant-approbation-du-budget-previsionnel-2020-du-diwan-de-la-zakat/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

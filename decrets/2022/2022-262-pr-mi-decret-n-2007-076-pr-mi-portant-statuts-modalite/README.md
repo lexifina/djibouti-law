@@ -1,8 +1,8 @@
 # Décret n° 2022-262/PR/MI modifiant le décret n° 2007-076/PR/MI portant statuts, modalités de fonctionnement du Conseil d’Administration et de l’organisation de l’Office de la Voirie de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-262-pr-mi-modifiant-le-decret-n2007-076-pr-mi-portant-statuts-modalites-de-fonctionnement-du-conseil-dadministration-et-de-lorganisation-de-loffice-de-la-voirie/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-262-pr-mi-modifiant-le-decret-n2007-076-pr-mi-portant-statuts-modalites-de-fonctionnement-du-conseil-dadministration-et-de-lorganisation-de-loffice-de-la-voirie/>
 
-En vigueur : 2022-10-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-10-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

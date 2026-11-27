@@ -1,8 +1,8 @@
 # Loi n° 124/AN/24/9ème L portant ratification de l’Accord Général sur le Commerce (AGC) Djibouti-Ethiopie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-24-9eme-l-portant-ratification-de-laccord-general-sur-le-commerce-agc-djibouti-ethiopie/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 28/11/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-24-9eme-l-portant-ratification-de-laccord-general-sur-le-commerce-agc-djibouti-ethiopie/>
 
-En vigueur : 2024-11-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-11-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

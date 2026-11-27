@@ -1,6 +1,6 @@
 # Loi de finances n° 158/AN/06/5ème L portant Règlement définitif du Budget de l’Etat de l’Exercice 2005.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n158-an-06-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2005/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n158-an-06-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2005/>
 
 En vigueur : 2006-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 53- 769 portant procédure d’exécution des programmes tendant à la réalisation des plans d’équipement
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/10/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-769-portant-procedure-dexecution-des-programmes-tendant-a-la-realisation-des-plans-dequipement/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/10/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-769-portant-procedure-dexecution-des-programmes-tendant-a-la-realisation-des-plans-dequipement/>
 
 En vigueur : 1953-10-01 (date du Journal officiel qui le publie).
 
@@ -32,5 +32,5 @@ Henri ULVER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art.1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art.3 |

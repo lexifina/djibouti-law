@@ -1,6 +1,6 @@
 # Décret n° 2023-171/PR/MD portant création du Bataillon des Transmissions (BAT-TRANS).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-171-pr-md-portant-creation-du-bataillon-des-transmissions-bat-trans/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-171-pr-md-portant-creation-du-bataillon-des-transmissions-bat-trans/>
 
 En vigueur : 2023-06-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 155/AN/12/6ème L portant approbation des comptes financiers définitifs de l’Université de Djibouti pour l’exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-12-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-luniversite-de-djibouti-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n155-an-12-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-luniversite-de-djibouti-pour-lexercice-2008/>
 
 En vigueur : 2012-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0256/PRE portant Agrément au Code des Investissements de la Société «BIF SARL».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0256-pre-portant-agrement-au-code-des-investissements-de-la-societe-bif-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0256-pre-portant-agrement-au-code-des-investissements-de-la-societe-bif-sarl/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

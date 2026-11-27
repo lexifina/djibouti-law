@@ -1,6 +1,6 @@
 # Décret n° 2009-0245/PR/MPFBF portant modalité d’application de la loi n° 55/AN/09/6ème L du 19 juillet 2009 relative à la violence contre les femmes notamment les Mutilations Génitales Féminines .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0245-pr-mpfbf-portant-modalite-dapplication-de-la-loi-n55-an-09-6eme-l-du-19-juillet-2009-relative-a-la-violence-contre-les-femmes-notamment-les-mutilations-genitale/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0245-pr-mpfbf-portant-modalite-dapplication-de-la-loi-n55-an-09-6eme-l-du-19-juillet-2009-relative-a-la-violence-contre-les-femmes-notamment-les-mutilations-genitale/>
 
 En vigueur : 2009-10-31 (date du Journal officiel qui le publie).
 

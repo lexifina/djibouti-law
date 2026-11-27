@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0170/PR/MAEM portant création d’un Conseil Interministériel de Pilotage du Projet Vert.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0170-pr-maem-portant-creation-dun-conseil-interministeriel-de-pilotage-du-projet-vert/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0170-pr-maem-portant-creation-dun-conseil-interministeriel-de-pilotage-du-projet-vert/>
 
 En vigueur : 2001-02-28 (date du Journal officiel qui le publie).
 

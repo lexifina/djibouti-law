@@ -1,2 +1,0 @@
-Par décret n°2023-360/PRE, du Président de la République, chef du Gouvernement, en date du 05 décembre 2023, pendant la durée de l’absence de S.E.M. MOHAMED WARSAMA DIRIEH, l’intérim des fonctions du Ministre du Commerce et du Tourisme sera assuré par S.E.M. MOUSTAPHA MOHAMED MAHAMOUD, Ministre de l’Education Nationale et de la Formation Professionnelle cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

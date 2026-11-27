@@ -1,8 +1,8 @@
 # Décret n° 2023-246/PRE portant modification du Décret n° 2020-209/PRE du 11 août 2020 portant octroi d’indemnités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-246-pre-portant-modification-du-decret-n2020-209-pre-du-11-aout-2020-portant-octroi-dindemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-246-pre-portant-modification-du-decret-n2020-209-pre-du-11-aout-2020-portant-octroi-dindemnites/>
 
-En vigueur : 2023-08-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-08-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

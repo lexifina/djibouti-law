@@ -1,6 +1,6 @@
 # Loi n° 166/AN/22/8ème L autorisant la ratification, par la République de Djibouti, de la Charte Africaine sur la Sécurité Routière.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-22-8eme-l-autorisant-la-ratification-par-la-republique-de-djibouti-de-la-charte-africaine-sur-la-securite-routiere/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n166-an-22-8eme-l-autorisant-la-ratification-par-la-republique-de-djibouti-de-la-charte-africaine-sur-la-securite-routiere/>
 
 En vigueur : 2022-11-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

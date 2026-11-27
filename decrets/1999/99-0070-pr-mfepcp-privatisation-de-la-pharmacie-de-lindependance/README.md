@@ -1,8 +1,8 @@
 # Décret n° 99-0070/PR/MFEPCP portant privatisation de la PHARMACIE DE L’INDEPENDANCE
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0070-pr-mfepcp-portant-privatisation-de-la-pharmacie-de-lindependance/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0070-pr-mfepcp-portant-privatisation-de-la-pharmacie-de-lindependance/>
 
-En vigueur : 1999-05-24 (date fixÃ©e par le texte).
+En vigueur : 1999-05-24 (date fixée par le texte).
 
 ## Visas
 

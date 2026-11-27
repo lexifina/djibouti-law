@@ -1,6 +1,6 @@
 # Loi n° 64/AN/89/2ème L à la Loi n° 15/AN/82/1ère L du 21 septembre 1982 accordant des parcelles de terrain domaniaux en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-89-2eme-l-a-la-loi-n15-an-82-1ere-l-du-21-septembre-1982-accordant-des-parcelles-de-terrain-domaniaux-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-89-2eme-l-a-la-loi-n15-an-82-1ere-l-du-21-septembre-1982-accordant-des-parcelles-de-terrain-domaniaux-en-concession-provisoire/>
 
 En vigueur : 1989-04-15 (date du Journal officiel qui le publie).
 

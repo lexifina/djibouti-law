@@ -1,6 +1,6 @@
 # Loi n° 48/AN/04/5ème L Portant ratification de la Convention de Rotterdam sur la procédure de consentement préalable en connaissance de cause applicable à certains produits chimiques et pesticides dangereux qui font l’objet d’un commerce international.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-04-5eme-l-portant-ratification-de-la-convention-de-rotterdam-sur-la-procedure-de-consentement-prealable-en-connaissance-de-cause-applicable-a-certains-produits-chimiques-et-pesticides/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-04-5eme-l-portant-ratification-de-la-convention-de-rotterdam-sur-la-procedure-de-consentement-prealable-en-connaissance-de-cause-applicable-a-certains-produits-chimiques-et-pesticides/>
 
 En vigueur : 2004-03-31 (date du Journal officiel qui le publie).
 

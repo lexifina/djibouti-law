@@ -1,6 +1,6 @@
 # Loi n° 39/AN/83/1ère L réglementant les jeux en République de Djibouti, abrogeant et remplaçant la délibération n° 311/7è L du 12 Décembre 1972.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-83-1ere-l-reglementant-les-jeux-en-republique-de-djibouti-abrogeant-et-remplacant-la-deliberation-n-311-7e-l-du-12-decembre-1972/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-83-1ere-l-reglementant-les-jeux-en-republique-de-djibouti-abrogeant-et-remplacant-la-deliberation-n-311-7e-l-du-12-decembre-1972/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

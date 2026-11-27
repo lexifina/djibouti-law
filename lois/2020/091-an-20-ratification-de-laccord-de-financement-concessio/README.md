@@ -1,6 +1,6 @@
 # Loi n° 91/AN/20/8ème L portant ratification de l’accord de financement concessionnel relatif au financement additionnel pour le projet de Réponse en Développement aux Impacts liés aux Déplacements dans la Corne de l’Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 13/08/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-20-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-relatif-au-financement-additionnel-pour-le-projet-de-reponse-en-developpement-aux-impacts-lies-aux-deplacement/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 13/08/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n91-an-20-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-relatif-au-financement-additionnel-pour-le-projet-de-reponse-en-developpement-aux-impacts-lies-aux-deplacement/>
 
 En vigueur : 2020-08-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

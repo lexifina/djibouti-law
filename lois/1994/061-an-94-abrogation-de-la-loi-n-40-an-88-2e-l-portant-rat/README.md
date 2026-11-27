@@ -1,6 +1,6 @@
 # Loi n° 61/AN/94/3e L portant abrogation de la loi n° 40/AN/88/2e L portant ratification de protocole d’Accord entre le Gouvernement de la République de Djibouti et la Société Rahbani.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 30/11/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-94-3e-l-portant-abrogation-de-la-loi-n40-an-88-2e-l-portant-ratification-de-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-la-societe-rahbani/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 30/11/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-94-3e-l-portant-abrogation-de-la-loi-n40-an-88-2e-l-portant-ratification-de-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-la-societe-rahbani/>
 
 En vigueur : 1994-11-30 (date du Journal officiel qui le publie).
 

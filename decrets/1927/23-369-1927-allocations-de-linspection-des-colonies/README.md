@@ -1,6 +1,6 @@
 # Décret n° 23-369-1927 Allocations de l’inspection des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 369 du 31/08/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-369-1927-allocations-de-linspection-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 369 du 31/08/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-369-1927-allocations-de-linspection-des-colonies/>
 
 En vigueur : 1927-08-31 (date du Journal officiel qui le publie).
 

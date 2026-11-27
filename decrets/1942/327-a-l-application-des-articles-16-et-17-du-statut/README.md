@@ -1,6 +1,6 @@
 # Décret n° 327 relatif à l’application des articles 16 et 17 du statut du personnel des forces françaises Libres
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-327-relatif-a-lapplication-des-articles-16-et-17-du-statut-du-personnel-des-forces-francaises-libres/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-327-relatif-a-lapplication-des-articles-16-et-17-du-statut-du-personnel-des-forces-francaises-libres/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ P. AUBOYNEAU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

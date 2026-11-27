@@ -1,8 +1,8 @@
 # Loi n° 13/AN/98/4ème L portant réforme du Secteur des Postes et Télécommunications.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-98-4eme-l-portant-reforme-du-secteur-des-postes-et-telecommunications/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-98-4eme-l-portant-reforme-du-secteur-des-postes-et-telecommunications/>
 
-En vigueur : 1998-03-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1998-03-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -31,4 +31,4 @@ HASSAN GOULED APTIDON
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

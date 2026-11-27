@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. ler. — Le président de Ia République est autorisé a ratifier les accords suivants :
 27 JUIN 1977.
 — Accord de Sopection en matiére de recherches scientifiques

@@ -1,6 +1,6 @@
 # Loi n° 66/AN/94/3e L portant Code Minier.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 15/12/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-94-3e-l-portant-code-minier/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 15/12/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n66-an-94-3e-l-portant-code-minier/>
 
 En vigueur : 1994-12-15 (date du Journal officiel qui le publie).
 
@@ -18,7 +18,7 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier – |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
@@ -62,4 +62,4 @@ HASSAN GOULED APTIDON
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

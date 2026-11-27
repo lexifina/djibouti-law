@@ -1,6 +1,6 @@
 # Loi n° 129/AN/16/7ème L portant approbation des Schémas Directeurs d’Aménagement et d’Urbanisme des chefs-lieux d’Ali-Sabieh, d’Arta, de Dikhil, d’Obock et de Tadjourah.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-16-7eme-l-portant-approbation-des-schemas-directeurs-damenagement-et-durbanisme-des-chefs-lieux-dali-sabieh-darta-de-dikhil-dobock-et-de-tadjourah/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-16-7eme-l-portant-approbation-des-schemas-directeurs-damenagement-et-durbanisme-des-chefs-lieux-dali-sabieh-darta-de-dikhil-dobock-et-de-tadjourah/>
 
 En vigueur : 2016-07-31 (date du Journal officiel qui le publie).
 

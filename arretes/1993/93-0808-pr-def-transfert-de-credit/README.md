@@ -1,6 +1,6 @@
 # Arrêté n° 93-0808/PR/DEF portant transfert de crédit.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0808-pr-def-portant-transfert-de-credit/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0808-pr-def-portant-transfert-de-credit/>
 
 En vigueur : 1993-08-31 (date du Journal officiel qui le publie).
 

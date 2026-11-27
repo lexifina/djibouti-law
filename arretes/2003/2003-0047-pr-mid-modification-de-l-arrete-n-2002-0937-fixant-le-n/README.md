@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0047/PR/MID Portant modification de l’arrêté n° 2002-0937 fixant le nombre et l’emplacement des bureaux de vote en vue des élections législatives du Vendredi 10 Janvier 2003.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0047-pr-mid-portant-modification-de-larrete-n2002-0937-fixant-le-nombre-et-lemplacement-des-bureaux-de-vote-en-vue-des-elections-legislatives-du-vendredi-10/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 09/01/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0047-pr-mid-portant-modification-de-larrete-n2002-0937-fixant-le-nombre-et-lemplacement-des-bureaux-de-vote-en-vue-des-elections-legislatives-du-vendredi-10/>
 
 En vigueur : 2003-01-09 (date du Journal officiel qui le publie).
 

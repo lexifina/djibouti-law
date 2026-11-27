@@ -1,6 +1,6 @@
 # Décret n° 2023-134/PR/MEFI portant garantie de l’Etat accordée à la Société Great Horn Investment Holding S.A.S.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-134-pr-mefi-portant-garantie-de-letat-accordee-a-la-societe-great-horn-investment-holding-s-a-s/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-134-pr-mefi-portant-garantie-de-letat-accordee-a-la-societe-great-horn-investment-holding-s-a-s/>
 
 En vigueur : 2023-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 10-416-1931 Masse de casernement dans les corps de troupe aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-416-1931-masse-de-casernement-dans-les-corps-de-troupe-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-416-1931-masse-de-casernement-dans-les-corps-de-troupe-aux-colonies/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 

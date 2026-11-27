@@ -1,6 +1,6 @@
 # Loi n° 29/AN/98/4ème L portant budget prévisionnel de l’État exercice 1999.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-98-4eme-l-portant-budget-previsionnel-de-letat-exercice-1999/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n29-an-98-4eme-l-portant-budget-previsionnel-de-letat-exercice-1999/>
 
 En vigueur : 1998-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 184/AN/07/5ème L portant approbation des comptes financiers de l’Aéroport International de Djibouti pour l’Exercice 2004.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2004/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n184-an-07-5eme-l-portant-approbation-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2004/>
 
 En vigueur : 2007-05-31 (date du Journal officiel qui le publie).
 

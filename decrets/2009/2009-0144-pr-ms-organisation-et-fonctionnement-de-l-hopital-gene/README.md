@@ -1,6 +1,6 @@
 # Décret n° 2009-0144/PR/MS portant organisation et fonctionnement de l’Hôpital Général Peltier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0144-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-general-peltier/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0144-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-general-peltier/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ Le Conseil des Ministres entendu en sa séance du 16 Juin 2009.
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

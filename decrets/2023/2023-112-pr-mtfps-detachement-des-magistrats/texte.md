@@ -1,2 +1,0 @@
-Par décret n°2023-112/PR/MTFPS, du Président de la République, chef du Gouvernement, en date du 09 mai 2023, M. ISMAEL HAMOUD ELMI, magistrat de 2°grade-1°échelon du Corps de la Magistrature, en service à la Cour des Comptes du Ministère de la Justice, des Affaires Pénitentiaires chargé des Droits de l’Homme, est détaché pour une période de cinq (5) années auprès de la Commission Nationale des Droits de l’Homme.
-Le présent décret prend effet à compter du 09 mai 2023.

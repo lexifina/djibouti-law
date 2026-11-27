@@ -1,6 +1,6 @@
 # Loi n° 58/AN/89/2ème L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la Commission Permanente jusqu’à l’ouverture de la première session ordinaire de 1989.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-89-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1989/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-89-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-premiere-session-ordinaire-de-1989/>
 
 En vigueur : 1989-01-31 (date du Journal officiel qui le publie).
 

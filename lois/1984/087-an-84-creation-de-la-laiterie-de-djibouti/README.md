@@ -1,6 +1,6 @@
 # Loi n° 87/AN/84/1ère L portant création de la Laiterie de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 29/02/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-84-1ere-l-portant-creation-de-la-laiterie-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 29/02/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n87-an-84-1ere-l-portant-creation-de-la-laiterie-de-djibouti/>
 
 En vigueur : 1984-02-29 (date du Journal officiel qui le publie).
 

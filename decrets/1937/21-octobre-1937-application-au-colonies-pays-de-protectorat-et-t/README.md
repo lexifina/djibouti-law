@@ -1,6 +1,6 @@
 # Décret n° 21 octobre 1937 portant application au colonies, pays de protectorat et territoires sous mandat relevant du ministère des décrets des 9 septembre 1937. 12 septembre 1937 et 23 septembre 1937 concernant la définition des appellations d’origine contrôlées de certains v ins.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 492 du 30/11/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-octobre-1937-portant-application-au-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-decrets-des-9-septembre-1937-12-septembre-1937-et-23-septembr/>
+Décret · Journal officiel de la République de Djibouti, n° 492 du 30/11/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-octobre-1937-portant-application-au-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-decrets-des-9-septembre-1937-12-septembre-1937-et-23-septembr/>
 
 En vigueur : 1937-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 03-192-1912 relatif à l’importation des viandes en France. (Ministère des Colonies).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 192 du 01/11/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-192-1912-relatif-a-limportation-des-viandes-en-france-ministere-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 192 du 01/11/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-192-1912-relatif-a-limportation-des-viandes-en-france-ministere-des-colonies/>
 
 En vigueur : 1912-11-01 (date du Journal officiel qui le publie).
 

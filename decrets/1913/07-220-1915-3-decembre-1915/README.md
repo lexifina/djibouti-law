@@ -1,6 +1,6 @@
 # Décret n° 07-220-1915 3 Décembre 1915.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 220 du 28/02/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-220-1915-3-decembre-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 220 du 28/02/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-220-1915-3-decembre-1915/>
 
 En vigueur : 1915-02-28 (date du Journal officiel qui le publie).
 

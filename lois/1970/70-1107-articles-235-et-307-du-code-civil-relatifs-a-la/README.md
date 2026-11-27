@@ -1,6 +1,6 @@
 # Loi n° 70-1107 modifiant les articles 235 et 307 du code civil relatifs à la procédure du divorce et de la séparation de corps
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 28/12/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-70-1107-modifiant-les-articles-235-et-307-du-code-civil-relatifs-a-la-procedure-du-divorce-et-de-la-separation-de-corps/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 28/12/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-70-1107-modifiant-les-articles-235-et-307-du-code-civil-relatifs-a-la-procedure-du-divorce-et-de-la-separation-de-corps/>
 
 En vigueur : 1970-12-28 (date du Journal officiel qui le publie).
 

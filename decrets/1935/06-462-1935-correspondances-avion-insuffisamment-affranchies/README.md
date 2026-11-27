@@ -1,6 +1,6 @@
 # Décret n° 06-462-1935 Correspondances-avion insuffisamment affranchies dans le régime intérieur et les relations franco-coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 31/05/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-462-1935-correspondances-avion-insuffisamment-affranchies-dans-le-regime-interieur-et-les-relations-franco-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 31/05/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-462-1935-correspondances-avion-insuffisamment-affranchies-dans-le-regime-interieur-et-les-relations-franco-coloniales/>
 
 En vigueur : 1935-05-31 (date du Journal officiel qui le publie).
 

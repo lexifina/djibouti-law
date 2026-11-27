@@ -1,6 +1,6 @@
 # Décret n° 2015-218/PR portant Statuts du Laboratoire Central du Bâtiment et de l’Equipement (LCBE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 30/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-218-pr-portant-statuts-du-laboratoire-central-du-batiment-et-de-lequipement-lcbe/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 30/07/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-218-pr-portant-statuts-du-laboratoire-central-du-batiment-et-de-lequipement-lcbe/>
 
 En vigueur : 2015-07-30 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

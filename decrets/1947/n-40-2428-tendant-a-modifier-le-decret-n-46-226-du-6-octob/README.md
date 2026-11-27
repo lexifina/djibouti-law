@@ -1,6 +1,6 @@
 # Décret n° n° 40-2428 tendant à modifier le décret n° 46-226 du 6 octobre 1946 tendant à allouer des verements d’attente mensuels au personnel enseignant,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/05/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-40-2428-tendant-a-modifier-le-decret-n-46-226-du-6-octobre-1946-tendant-a-allouer-des-verements-dattente-mensuels-au-personnel-enseignant/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 31/05/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-40-2428-tendant-a-modifier-le-decret-n-46-226-du-6-octobre-1946-tendant-a-allouer-des-verements-dattente-mensuels-au-personnel-enseignant/>
 
 En vigueur : 1947-05-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Schuman
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Arrêté n° 2013-267/PR/MDC portant Agrément au Code des Investissements de la société : “SOMCABLE SARL” pour un projet de mise en place et d’exploitation de câble de fibre optique transfrontalier.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-267-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-somcable-sarl-pour-un-projet-de-mise-en-place-et-dexploitation-de-cable-de-fibre-optique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-267-pr-mdc-portant-agrement-au-code-des-investissements-de-la-societe-somcable-sarl-pour-un-projet-de-mise-en-place-et-dexploitation-de-cable-de-fibre-optique/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

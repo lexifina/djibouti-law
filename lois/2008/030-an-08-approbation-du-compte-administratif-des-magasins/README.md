@@ -1,6 +1,6 @@
 # Loi n° 30/AN/08/6ème L portant approbation du Compte Administratif des Magasins Généraux pour l’Exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-08-6eme-l-portant-approbation-du-compte-administratif-des-magasins-generaux-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-08-6eme-l-portant-approbation-du-compte-administratif-des-magasins-generaux-pour-lexercice-2007/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

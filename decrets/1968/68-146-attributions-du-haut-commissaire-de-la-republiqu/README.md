@@ -1,6 +1,6 @@
 # Décret n° 68-146 relatif aux attributions du Haut-Commissaire de la République dans le Territoire Français des Afars et des Issas.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 25/02/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-146-relatif-aux-attributions-du-haut-commissaire-de-la-republique-dans-le-territoire-francais-des-afars-et-des-issas/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 25/02/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-146-relatif-aux-attributions-du-haut-commissaire-de-la-republique-dans-le-territoire-francais-des-afars-et-des-issas/>
 
 En vigueur : 1968-02-25 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ Après avis du Conseil d'Etat (Section de l'Intérieur),
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

@@ -1,6 +1,6 @@
 # Loi n° 156/AN/85/1re L accordant des parcelles de terrain à titre définitif.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-85-1re-l-accordant-des-parcelles-de-terrain-a-titre-definitif/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n156-an-85-1re-l-accordant-des-parcelles-de-terrain-a-titre-definitif/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

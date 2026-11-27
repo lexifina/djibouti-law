@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0116/PR/MI portant prolongation de fermeture des bureaux de vote.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0116-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0116-pr-mi-portant-prolongation-de-fermeture-des-bureaux-de-vote/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 147/AN/80 Portant approbation d’un contrat ‘de prêt entre la République de Djibouti et le Fonds Koweïtien de Développement Economique Arabe pour la création d’une laiterie à Djibouti
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-80-portant-approbation-dun-contrat-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-de-developpement-economique-arabe-pour-la-creation-dune-laiterie-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-80-portant-approbation-dun-contrat-de-pret-entre-la-republique-de-djibouti-et-le-fonds-koweitien-de-developpement-economique-arabe-pour-la-creation-dune-laiterie-a-djibouti/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 92-0040 / PRE Concernant les modalités de délivrance des passeports.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0040-pre-concernant-les-modalites-de-delivrance-des-passeports/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0040-pre-concernant-les-modalites-de-delivrance-des-passeports/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 
@@ -14,5 +14,5 @@ Le Conseil des Ministres entendu en sa séance du 7 avril 1992.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Article 2 |

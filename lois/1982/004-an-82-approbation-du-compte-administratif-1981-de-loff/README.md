@@ -1,6 +1,6 @@
 # Loi n° 4/AN/82/1èreL portant approbation du compte administratif 1981 de l’Office de Développement du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-82-1erel-portant-approbation-du-compte-administratif-1981-de-loffice-de-developpement-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-82-1erel-portant-approbation-du-compte-administratif-1981-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

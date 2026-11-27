@@ -1,6 +1,6 @@
 # Loi n° 9 septembre 1942. relative à la forclusion en matière civile, commerciale et administrative et aux délais de présentation et de protêt des effets de commerce dans certains territoires re levant du Secrétariat d’Etat aux colo nies
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 550 du 30/09/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-9-septembre-1942-relative-a-la-forclusion-en-matiere-civile-commerciale-et-administrative-et-aux-delais-de-presentation-et-de-protet-des-effets-de-commerce-dans-certains-territoires-re/>
+Loi · Journal officiel de la République de Djibouti, n° 550 du 30/09/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-9-septembre-1942-relative-a-la-forclusion-en-matiere-civile-commerciale-et-administrative-et-aux-delais-de-presentation-et-de-protet-des-effets-de-commerce-dans-certains-territoires-re/>
 
 En vigueur : 1942-09-30 (date du Journal officiel qui le publie).
 

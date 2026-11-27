@@ -1,6 +1,6 @@
 # Additif n° 2012-083/PR/MJDH au décret n° 2011-0217/PR/MEFIP portant modification du décret n° 96-0147/PR/MFEN relatif aux indemnités, aux logements administratifs et aux avantages en natures.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2012-083-pr-mjdh-au-decret-n2011-0217-pr-mefip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natur/>
+Additif · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/additif-n2012-083-pr-mjdh-au-decret-n2011-0217-pr-mefip-portant-modification-du-decret-n96-0147-pr-mfen-relatif-aux-indemnites-aux-logements-administratifs-et-aux-avantages-en-natur/>
 
 En vigueur : 2012-04-15 (date du Journal officiel qui le publie).
 

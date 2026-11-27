@@ -1,6 +1,6 @@
 # Décret n° 60-799 modifiant diverses dispositions de la loi du 17 décembre 1926 portant Code disciplinaire et pénal de la Marine Marchande (J.O.R.F. du 4 août, p. 7237). Arrêté de promulgation n° 919 du 18 août 1960 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-799-modifiant-diverses-dispositions-de-la-loi-du-17-decembre-1926-portant-code-disciplinaire-et-penal-de-la-marine-marchande-j-o-r-f-du-4-aout-p-7237-arrete-de-promulgation-n/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-799-modifiant-diverses-dispositions-de-la-loi-du-17-decembre-1926-portant-code-disciplinaire-et-penal-de-la-marine-marchande-j-o-r-f-du-4-aout-p-7237-arrete-de-promulgation-n/>
 
 En vigueur : 1960-08-31 (date du Journal officiel qui le publie).
 

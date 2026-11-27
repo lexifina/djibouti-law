@@ -1,6 +1,6 @@
 # Décret n° 2002-0220/PR/MDCPF portant création et organisation d’un Comité National de Pilotage de la SNIFD et d’un Comité Technique Intersectoriel pour le suivi et l’évaluation de la SNIFD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0220-pr-mdcpf-portant-creation-et-organisation-dun-comite-national-de-pilotage-de-la-snifd-et-dun-comite-technique-intersectoriel-pour-le-suivi-et-leval/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0220-pr-mdcpf-portant-creation-et-organisation-dun-comite-national-de-pilotage-de-la-snifd-et-dun-comite-technique-intersectoriel-pour-le-suivi-et-leval/>
 
 En vigueur : 2002-10-31 (date du Journal officiel qui le publie).
 

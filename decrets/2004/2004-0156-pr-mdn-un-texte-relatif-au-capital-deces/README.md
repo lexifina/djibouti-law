@@ -1,6 +1,6 @@
 # Décret n° 2004-0156/PR/MDN modifiant un texte relatif au capital décès.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0156-pr-mdn-modifiant-un-texte-relatif-au-capital-deces/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0156-pr-mdn-modifiant-un-texte-relatif-au-capital-deces/>
 
 En vigueur : 2004-08-15 (date du Journal officiel qui le publie).
 

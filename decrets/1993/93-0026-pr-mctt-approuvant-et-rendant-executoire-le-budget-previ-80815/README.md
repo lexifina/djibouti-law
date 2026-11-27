@@ -1,6 +1,6 @@
 # Décret n° 93-0026/PR/MCTT approuvant et rendant exécutoire le budget prévisionnel de l’Office d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0026-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-de-loffice-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0026-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-de-loffice-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1993-03-31 (date du Journal officiel qui le publie).
 
@@ -17,6 +17,6 @@ Le Conseil des Ministres entendu en sa séance du 17 février 1993.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

@@ -1,6 +1,6 @@
 # Décret n° 2024-097/PRE fixant le tarif de vente du Journal Officiel de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-097-pre-fixant-le-tarif-de-vente-du-journal-officiel-de-la-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 09 du 15/05/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-097-pre-fixant-le-tarif-de-vente-du-journal-officiel-de-la-republique-de-djibouti/>
 
 En vigueur : 2024-05-15 (date du Journal officiel qui le publie).
 

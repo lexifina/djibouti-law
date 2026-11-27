@@ -1,6 +1,6 @@
 # Décret n° 20-358-1926 Application à diverses colonies de la loi du 28 juin 1913, sur la protection des conserves de poissons.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 358 du 30/09/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-358-1926-application-a-diverses-colonies-de-la-loi-du-28-juin-1913-sur-la-protection-des-conserves-de-poissons/>
+Décret · Journal officiel de la République de Djibouti, n° 358 du 30/09/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-358-1926-application-a-diverses-colonies-de-la-loi-du-28-juin-1913-sur-la-protection-des-conserves-de-poissons/>
 
 En vigueur : 1926-09-30 (date du Journal officiel qui le publie).
 

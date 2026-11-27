@@ -1,6 +1,6 @@
 # Loi n° 92-0881/PR/FIN relevant le montant autorisé de l’encaisse de la Paierie du Trésor auprès de l’Ambassade de Djibouti à Tokyo.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n92-0881-pr-fin-relevant-le-montant-autorise-de-lencaisse-de-la-paierie-du-tresor-aupres-de-lambassade-de-djibouti-a-tokyo/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n92-0881-pr-fin-relevant-le-montant-autorise-de-lencaisse-de-la-paierie-du-tresor-aupres-de-lambassade-de-djibouti-a-tokyo/>
 
 En vigueur : 1992-09-15 (date du Journal officiel qui le publie).
 

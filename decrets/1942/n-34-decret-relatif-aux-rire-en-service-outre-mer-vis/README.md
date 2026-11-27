@@ -1,6 +1,6 @@
 # Décret n° n° 34 Le décret relatif aux rire en service outre-mer visés par ‘article 7 de la loi du À mg 1941 remplaçant la loi du 30 octobre 1940 portant statut des Juifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-34-le-decret-relatif-aux-rire-en-service-outre-mer-vises-par-article-7-de-la-loi-du-a-mg-1941-remplacant-la-loi-du-30-octobre-1940-portant-statut-des-juifs/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-34-le-decret-relatif-aux-rire-en-service-outre-mer-vises-par-article-7-de-la-loi-du-a-mg-1941-remplacant-la-loi-du-30-octobre-1940-portant-statut-des-juifs/>
 
 En vigueur : 1942-01-01 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ platon
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

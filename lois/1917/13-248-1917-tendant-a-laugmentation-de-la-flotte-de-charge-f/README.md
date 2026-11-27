@@ -1,6 +1,6 @@
 # Loi n° 13-248-1917 tendant à l’augmentation de la flotte de charge française charge française.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 248 du 30/06/1917 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-13-248-1917-tendant-a-laugmentation-de-la-flotte-de-charge-francaise-charge-francaise/>
+Loi · Journal officiel de la République de Djibouti, n° 248 du 30/06/1917 · <https://www.journalofficiel.dj/texte-juridique/loi-n-13-248-1917-tendant-a-laugmentation-de-la-flotte-de-charge-francaise-charge-francaise/>
 
 En vigueur : 1917-06-30 (date du Journal officiel qui le publie).
 

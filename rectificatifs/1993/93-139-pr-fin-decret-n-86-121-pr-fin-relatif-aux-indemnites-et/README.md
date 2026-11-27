@@ -1,6 +1,6 @@
 # Rectificatif n° 93-139/PR/FIN au Décret n° 86-121/PR/FIN relatif aux indemnités et avantages accordés aux veuves et enfants mineurs des Ministres et Députés décédés.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1993 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n93-139-pr-fin-au-decret-n86-121-pr-fin-relatif-aux-indemnites-et-avantages-accordes-aux-veuves-et-enfants-mineurs-des-ministres-et-deputes-decedes/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 24 du 30/12/1993 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n93-139-pr-fin-au-decret-n86-121-pr-fin-relatif-aux-indemnites-et-avantages-accordes-aux-veuves-et-enfants-mineurs-des-ministres-et-deputes-decedes/>
 
 En vigueur : 1993-12-30 (date du Journal officiel qui le publie).
 

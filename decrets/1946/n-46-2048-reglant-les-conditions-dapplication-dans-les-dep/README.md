@@ -1,6 +1,6 @@
 # Décret n° n° 46-2048 réglant les conditions d’application dans les départements de la Guadeloupe, de la Marünique, de la Réunion et de la Guyane française, ainsi que dans les territoires relevant du ministère de la France d’outre-mer composant Union Française, de la loi du 20 septembre 1946, portant organisation du referendun,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2048-reglant-les-conditions-dapplication-dans-les-departements-de-la-guadeloupe-de-la-marunique-de-la-reunion-et-de-la-guyane-francaise-ainsi-que-dans-les-territoires/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2048-reglant-les-conditions-dapplication-dans-les-departements-de-la-guadeloupe-de-la-marunique-de-la-reunion-et-de-la-guyane-francaise-ainsi-que-dans-les-territoires/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

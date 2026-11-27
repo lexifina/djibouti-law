@@ -1,6 +1,6 @@
 # Loi n° 14/AN/23/9ème L portant adoption de la Stratégie nationale d’approvisionnement en Médicaments et Produits Pharmaceutiques 2023-2027.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 17/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-23-9eme-l-portant-adoption-de-la-strategie-nationale-dapprovisionnement-en-medicaments-et-produits-pharmaceutiques-2023-2027/>
+Loi · Journal officiel de la République de Djibouti, n° 03 du 17/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n14-an-23-9eme-l-portant-adoption-de-la-strategie-nationale-dapprovisionnement-en-medicaments-et-produits-pharmaceutiques-2023-2027/>
 
 En vigueur : 2024-03-18 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

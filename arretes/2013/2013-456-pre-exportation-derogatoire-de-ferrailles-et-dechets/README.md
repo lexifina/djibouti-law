@@ -1,6 +1,6 @@
 # Arrêté n° 2013-456/PRE Portant exportation dérogatoire de ferrailles et déchets de tous autres métaux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-456-pre-portant-exportation-derogatoire-de-ferrailles-et-dechets-de-tous-autres-metaux/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-456-pre-portant-exportation-derogatoire-de-ferrailles-et-dechets-de-tous-autres-metaux/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

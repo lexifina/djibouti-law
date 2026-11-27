@@ -1,6 +1,6 @@
 # Décret n° 86-088/PR/FIN modifiant le décret n° 79-102/PR du 3 novembre 1979 portant réglementation des avantages en nature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/09/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-088-pr-fin-modifiant-le-decret-n79-102-pr-du-3-novembre-1979-portant-reglementation-des-avantages-en-nature/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/09/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-088-pr-fin-modifiant-le-decret-n79-102-pr-du-3-novembre-1979-portant-reglementation-des-avantages-en-nature/>
 
 En vigueur : 1986-09-30 (date du Journal officiel qui le publie).
 

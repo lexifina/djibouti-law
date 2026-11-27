@@ -1,6 +1,6 @@
 # Décret n° 2026-068/PR/MI portant prolongation de l’heure de la fermeture des bureaux de vote pour les Elections Présidentielles du Vendredi 10 Avril 2026.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2026-068-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-10-avril-2026/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 15/04/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n2026-068-pr-mi-portant-prolongation-de-lheure-de-la-fermeture-des-bureaux-de-vote-pour-les-elections-presidentielles-du-vendredi-10-avril-2026/>
 
 En vigueur : 2026-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

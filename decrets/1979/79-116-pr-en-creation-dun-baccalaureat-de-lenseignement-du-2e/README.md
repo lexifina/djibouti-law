@@ -1,6 +1,6 @@
 # Décret n° 79-116/PR/EN portant création d’un baccalauréat de l’Enseignement du 2e degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-2e-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-2e-degre/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Conseil des Ministres entendu en sa séance du 28 novembre 1979.
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

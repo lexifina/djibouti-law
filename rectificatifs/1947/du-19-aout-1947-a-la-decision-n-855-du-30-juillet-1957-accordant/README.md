@@ -1,6 +1,6 @@
 # Rectificatif n° du 19 août 1947. à la décision n’ 855 du 30 juillet 1957 accordant une permission a M. Weiller
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1947 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-du-19-aout-1947-a-la-decision-n-855-du-30-juillet-1957-accordant-une-permission-a-m-weiller/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 8 du 31/08/1947 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-du-19-aout-1947-a-la-decision-n-855-du-30-juillet-1957-accordant-une-permission-a-m-weiller/>
 
 En vigueur : 1947-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 3-124-1907 portant application aux colonies de la loi du 12 juillet 1905, concernant la signification d’oppositions et de cessions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 124 du 01/03/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-124-1907-portant-application-aux-colonies-de-la-loi-du-12-juillet-1905-concernant-la-signification-doppositions-et-de-cessions/>
+Décret · Journal officiel de la République de Djibouti, n° 124 du 01/03/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-124-1907-portant-application-aux-colonies-de-la-loi-du-12-juillet-1905-concernant-la-signification-doppositions-et-de-cessions/>
 
 En vigueur : 1907-03-01 (date du Journal officiel qui le publie).
 

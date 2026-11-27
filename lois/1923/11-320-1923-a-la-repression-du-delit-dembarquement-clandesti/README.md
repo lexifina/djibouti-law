@@ -1,6 +1,6 @@
 # Loi n° 11-320-1923 relative à la répression du délit d’embarquement clandestin à bord des navires de commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 320 du 31/07/1923 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-11-320-1923-relative-a-la-repression-du-delit-dembarquement-clandestin-a-bord-des-navires-de-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 320 du 31/07/1923 · <https://www.journalofficiel.dj/texte-juridique/loi-n-11-320-1923-relative-a-la-repression-du-delit-dembarquement-clandestin-a-bord-des-navires-de-commerce/>
 
 En vigueur : 1923-07-31 (date du Journal officiel qui le publie).
 

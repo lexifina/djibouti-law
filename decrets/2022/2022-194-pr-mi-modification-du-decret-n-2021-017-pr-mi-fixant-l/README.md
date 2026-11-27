@@ -1,6 +1,6 @@
 # Décret n° 2022-194/PR/MI portant modification du décret n° 2021-017/PR/MI fixant les Tarifs des Prestations du Registre National des Personnes Physiques prolongeant du délai de renouvellement des titres et de documents administratifs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-194-pr-mi-portant-modification-du-decret-n2021-017-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques-prolongeant-du-delai-de-renouvellemen/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-194-pr-mi-portant-modification-du-decret-n2021-017-pr-mi-fixant-les-tarifs-des-prestations-du-registre-national-des-personnes-physiques-prolongeant-du-delai-de-renouvellemen/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

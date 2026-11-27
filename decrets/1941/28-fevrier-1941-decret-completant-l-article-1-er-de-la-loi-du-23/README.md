@@ -1,6 +1,6 @@
 # Décret n° 28 février 1941 Le décret complétant l’article 1 er de la loi du 23 juillet 1940 sur la déchéance de la nationalité française.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-fevrier-1941-le-decret-completant-larticle-1-er-de-la-loi-du-23-juillet-1940-sur-la-decheance-de-la-nationalite-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-fevrier-1941-le-decret-completant-larticle-1-er-de-la-loi-du-23-juillet-1940-sur-la-decheance-de-la-nationalite-francaise/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

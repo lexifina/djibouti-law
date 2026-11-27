@@ -1,6 +1,6 @@
 # Ordonnance n° 80-018/PR sur les sociétés anonymes de la zone franche.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-018-pr-sur-les-societes-anonymes-de-la-zone-franche/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-018-pr-sur-les-societes-anonymes-de-la-zone-franche/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Le Conseil des Ministres entendu dans sa séance du 5 février 1980.
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

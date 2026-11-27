@@ -1,6 +1,6 @@
 # Décret n° 2016-051/PR/MS portant organisation et fonctionnement de l’hôpital d’ALI SABIEH.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-051-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-dali-sabieh/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-051-pr-ms-portant-organisation-et-fonctionnement-de-lhopital-dali-sabieh/>
 
 En vigueur : 2016-03-15 (date du Journal officiel qui le publie).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

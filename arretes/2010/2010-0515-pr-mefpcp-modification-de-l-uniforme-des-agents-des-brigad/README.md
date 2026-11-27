@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0515/PR/MEFPCP portant modification de l’uniforme des agents des brigades de contrôle de la Direction des Douanes et Droits Indirects.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0515-pr-mefpcp-portant-modification-de-luniforme-des-agents-des-brigades-de-controle-de-la-direction-des-douanes-et-droits-indirects/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0515-pr-mefpcp-portant-modification-de-luniforme-des-agents-des-brigades-de-controle-de-la-direction-des-douanes-et-droits-indirects/>
 
 En vigueur : 2010-08-31 (date du Journal officiel qui le publie).
 

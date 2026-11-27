@@ -1,6 +1,6 @@
 # Décret n° 2018-192/PR/MET portant constitution du Conseil d’Administration du Société de Gestion du Terminal à Conteneur de Doraleh « SGTD ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-192-pr-met-portant-constitution-du-conseil-dadministration-du-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-192-pr-met-portant-constitution-du-conseil-dadministration-du-societe-de-gestion-du-terminal-a-conteneur-de-doraleh-sgtd/>
 
 En vigueur : 2018-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

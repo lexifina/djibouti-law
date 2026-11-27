@@ -1,6 +1,6 @@
 # Décret n° 12 mars 1941 Décret relatif aux miliaires de carrière
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-decret-relatif-aux-miliaires-de-carriere/>
+Décret · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mars-1941-decret-relatif-aux-miliaires-de-carriere/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 4-177-1911 le 9 juin 1911.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 177 du 01/08/1911 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-177-1911-le-9-juin-1911/>
+Décret · Journal officiel de la République de Djibouti, n° 177 du 01/08/1911 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-177-1911-le-9-juin-1911/>
 
 En vigueur : 1911-08-01 (date du Journal officiel qui le publie).
 

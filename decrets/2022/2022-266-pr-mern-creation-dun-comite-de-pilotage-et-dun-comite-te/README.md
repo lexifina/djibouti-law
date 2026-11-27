@@ -1,6 +1,6 @@
 # Décret n° 2022-266/PR/MERN portant création d’un comité de pilotage et d’un comité technique national pour l’élaboration de la stratégie nationale de planification énergétique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-266-pr-mern-portant-creation-dun-comite-de-pilotage-et-dun-comite-technique-national-pour-lelaboration-de-la-strategie-nationale-de-planification-energetique/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-266-pr-mern-portant-creation-dun-comite-de-pilotage-et-dun-comite-technique-national-pour-lelaboration-de-la-strategie-nationale-de-planification-energetique/>
 
 En vigueur : 2022-11-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

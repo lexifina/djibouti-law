@@ -1,6 +1,6 @@
 # Ordonnance n° 53-1307 supprimant l’envoi en possession du conjoint survivant
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1961 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-53-1307-supprimant-lenvoi-en-possession-du-conjoint-survivant/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 31/08/1961 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-53-1307-supprimant-lenvoi-en-possession-du-conjoint-survivant/>
 
 En vigueur : 1961-08-31 (date du Journal officiel qui le publie).
 

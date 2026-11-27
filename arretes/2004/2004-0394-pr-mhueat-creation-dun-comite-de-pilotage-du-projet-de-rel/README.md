@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0394/PR/MHUEAT portant création d’un Comité de Pilotage du Projet de relogement des sinistrés de l’oued Ambouli.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0394-pr-mhueat-portant-creation-dun-comite-de-pilotage-du-projet-de-relogement-des-sinistres-de-loued-ambouli/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0394-pr-mhueat-portant-creation-dun-comite-de-pilotage-du-projet-de-relogement-des-sinistres-de-loued-ambouli/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

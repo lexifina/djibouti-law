@@ -1,6 +1,6 @@
 # Arrêté n° 2018-007/PR/MET portant approbation du budget prévisionnel 2018 de l’Agence Nationale de la Météorologie de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-007-pr-met-portant-approbation-du-budget-previsionnel-2018-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-007-pr-met-portant-approbation-du-budget-previsionnel-2018-de-lagence-nationale-de-la-meteorologie-de-djibouti/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2002-0226/PR/MERN Portant réglementation spécifique de l’extraction, de traitement et de commercialisation du Sel du Lac-Assal.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 16/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0226-pr-mern-portant-reglementation-specifique-de-lextraction-de-traitement-et-de-commercialisation-du-sel-du-lac-assal/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 16/11/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0226-pr-mern-portant-reglementation-specifique-de-lextraction-de-traitement-et-de-commercialisation-du-sel-du-lac-assal/>
 
 En vigueur : 2002-11-16 (date du Journal officiel qui le publie).
 

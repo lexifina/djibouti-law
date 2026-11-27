@@ -1,6 +1,6 @@
 # Arrêté n° 2016-885/PR/MB portant attribution d’une parcelle de terrain à SABA BANQUE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-885-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-saba-banque/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-885-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-saba-banque/>
 
 En vigueur : 2016-12-31 (date du Journal officiel qui le publie).
 

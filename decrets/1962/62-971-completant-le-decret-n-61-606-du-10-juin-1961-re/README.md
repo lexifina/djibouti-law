@@ -1,6 +1,6 @@
 # Décret n° 62-971 complétant le décret n° 61-606 du 10 juin 1961 rendant applicables aux navires immatriculés dans les territoires d’outre-mer de la République certains décrets sur la sauvegarde de la vie humaine en mer et l’habitabilité à bord des navires de commerce, de pêche et de plaisance d’une jauge brute égale ou supérieure à 500 tonneaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-971-completant-le-decret-n-61-606-du-10-juin-1961-rendant-applicables-aux-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique-certains-decrets-sur-la-sauve/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-971-completant-le-decret-n-61-606-du-10-juin-1961-rendant-applicables-aux-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique-certains-decrets-sur-la-sauve/>
 
 En vigueur : 1962-08-31 (date du Journal officiel qui le publie).
 

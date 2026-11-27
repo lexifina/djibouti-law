@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0535/PR/MET portant définition des circuits de déplacement urbain pour l’agglomération de Djibouti ville.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0535-pr-met-portant-definition-des-circuits-de-deplacement-urbain-pour-lagglomeration-de-djibouti-ville/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0535-pr-met-portant-definition-des-circuits-de-deplacement-urbain-pour-lagglomeration-de-djibouti-ville/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

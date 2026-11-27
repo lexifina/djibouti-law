@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, —Il est attribué aux officiers et assimilés en activité, aux militaires non officiers à Wailtemenut mensuel, aux militaires à solde journaliere servant au delà de la durée légale, en vertu d’un engagement, d’un rengagement où d’une commission, des indemnités annuelles pour charges de famille de 330 fr. pour chacun des deux premiers enfants et de 480 fr. pour chaque enfant à partir du troisième,
 Ces indemnités qui sont substituées aux indemnités de même nature précédemment accordées et restent soumises aux mêmes règles d’attribution ne sont allouées qu’ à raison des enfants de moins de seize ans ou incapa bles de travailler par suite d’infirmilés.

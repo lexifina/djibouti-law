@@ -1,6 +1,6 @@
 # Arrêté n° 2015-834/PR/MENSUR approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2016 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-834-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-834-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-de-luniversite-de-djibouti/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

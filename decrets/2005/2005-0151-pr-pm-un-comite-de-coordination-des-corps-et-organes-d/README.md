@@ -1,6 +1,6 @@
 # Décret n° 2005-0151/PR/PM instituant un Comité de Coordination des Corps et Organes de Contrôle et d’Inspection auprès de la Primature.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0151-pr-pm-instituant-un-comite-de-coordination-des-corps-et-organes-de-controle-et-dinspection-aupres-de-la-primature/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 31/08/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0151-pr-pm-instituant-un-comite-de-coordination-des-corps-et-organes-de-controle-et-dinspection-aupres-de-la-primature/>
 
 En vigueur : 2005-08-31 (date du Journal officiel qui le publie).
 

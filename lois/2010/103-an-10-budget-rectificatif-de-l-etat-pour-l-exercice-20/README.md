@@ -1,6 +1,6 @@
 # Loi n° 103/AN/10/6ème L portant Budget rectificatif de l’Etat pour l’Exercice 2010.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-10-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2010/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n103-an-10-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2010/>
 
 En vigueur : 2011-02-28 (date du Journal officiel qui le publie).
 

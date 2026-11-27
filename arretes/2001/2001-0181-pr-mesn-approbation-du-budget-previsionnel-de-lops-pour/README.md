@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0181/PR/MESN portant approbation du Budget Prévisionnel de l’OPS pour l’exercice 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0181-pr-mesn-portant-approbation-du-budget-previsionnel-de-lops-pour-lexercice-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0181-pr-mesn-portant-approbation-du-budget-previsionnel-de-lops-pour-lexercice-2001/>
 
 En vigueur : 2001-03-15 (date du Journal officiel qui le publie).
 

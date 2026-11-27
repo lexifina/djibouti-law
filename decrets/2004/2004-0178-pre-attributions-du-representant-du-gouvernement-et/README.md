@@ -1,6 +1,6 @@
 # Décret n° 2004-0178/PRE fixant les attributions du Représentant du Gouvernement et du Conseil d’Administration de l’Autorité de Zone Franche de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0178-pre-fixant-les-attributions-du-representant-du-gouvernement-et-du-conseil-dadministration-de-lautorite-de-zone-franche-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0178-pre-fixant-les-attributions-du-representant-du-gouvernement-et-du-conseil-dadministration-de-lautorite-de-zone-franche-de-djibouti/>
 
 En vigueur : 2004-09-15 (date du Journal officiel qui le publie).
 

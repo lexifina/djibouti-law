@@ -1,6 +1,6 @@
 # Loi n° 04-263-1918 portant ratification de divers décrets prohibant certains produits à la sortie des colonies et protectorats autres que la Tunisie et le Maroc.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 263 du 30/09/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-04-263-1918-portant-ratification-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
+Loi · Journal officiel de la République de Djibouti, n° 263 du 30/09/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-04-263-1918-portant-ratification-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
 
 En vigueur : 1918-09-30 (date du Journal officiel qui le publie).
 

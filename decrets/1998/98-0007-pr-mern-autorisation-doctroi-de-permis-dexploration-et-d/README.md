@@ -1,6 +1,6 @@
 # Décret n° 98-0007/PR/MERN portant autorisation d’octroi de permis d’exploration et d’exploitation de l’or et des minéraux associés dans sept sites du territoire de la République de Djibouti à la société Seven Star Minérales et ses Affiliés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0007-pr-mern-portant-autorisation-doctroi-de-permis-dexploration-et-dexploitation-de-lor-et-des-mineraux-associes-dans-sept-sites-du-territoire-de-la-republique-de-djibouti-a/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0007-pr-mern-portant-autorisation-doctroi-de-permis-dexploration-et-dexploitation-de-lor-et-des-mineraux-associes-dans-sept-sites-du-territoire-de-la-republique-de-djibouti-a/>
 
 En vigueur : 1998-01-31 (date du Journal officiel qui le publie).
 

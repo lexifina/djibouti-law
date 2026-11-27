@@ -1,6 +1,6 @@
 # Décret n° 20 février 1936 Régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 473 du 30/04/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-fevrier-1936-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 473 du 30/04/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-fevrier-1936-regime-financier-des-colonies/>
 
 En vigueur : 1936-04-30 (date du Journal officiel qui le publie).
 

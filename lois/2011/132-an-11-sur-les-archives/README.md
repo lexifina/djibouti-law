@@ -1,6 +1,6 @@
 # Loi n° 132/AN/11/6ème L portant sur les Archives.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-11-6eme-l-portant-sur-les-archives/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n132-an-11-6eme-l-portant-sur-les-archives/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 
@@ -71,4 +71,4 @@ ISMAIL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

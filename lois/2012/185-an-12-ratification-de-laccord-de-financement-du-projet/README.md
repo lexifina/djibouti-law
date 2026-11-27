@@ -1,6 +1,6 @@
 # Loi n° 185/AN/12/6ème L portant ratification de l’Accord de financement du Projet de Financement Additionnelle Accès et Diversification Energétique avec l’Agence Internationale pour le Développement (I.D.A).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-12-6eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-financement-additionnelle-acces-et-diversification-energetique-avec-lagence-internationale-pour-le-developp/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-12-6eme-l-portant-ratification-de-laccord-de-financement-du-projet-de-financement-additionnelle-acces-et-diversification-energetique-avec-lagence-internationale-pour-le-developp/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

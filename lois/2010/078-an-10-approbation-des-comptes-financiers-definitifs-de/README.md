@@ -1,6 +1,6 @@
 # Loi n° 78/AN/10/6ème L portant approbation des Comptes financiers définitifs de l’ONEAD pour l’Exercice 2007.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-lonead-pour-lexercice-2007/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n78-an-10-6eme-l-portant-approbation-des-comptes-financiers-definitifs-de-lonead-pour-lexercice-2007/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

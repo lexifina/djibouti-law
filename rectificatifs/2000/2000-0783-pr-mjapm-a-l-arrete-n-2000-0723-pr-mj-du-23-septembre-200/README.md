@@ -1,8 +1,8 @@
 # Additif n° 2000-0783/PR/MJAPM à l’arrêté n° 2000-0723/PR/MJ du 23 septembre 2000 portant création du Comité d’Organisation des Etats Généraux de la Justice.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2000-0783-pr-mjapm-a-larrete-n2000-0723-pr-mj-du-23-septembre-2000-portant-creation-du-comite-dorganisation-des-etats-generaux-de-la-justice/>
+Additif · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/additif-n2000-0783-pr-mjapm-a-larrete-n2000-0723-pr-mj-du-23-septembre-2000-portant-creation-du-comite-dorganisation-des-etats-generaux-de-la-justice/>
 
-En vigueur : 2000-10-16 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-10-16 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,8 +1,8 @@
 # Décret n° 89-134/PR/MTPUL portant réglementation de l’importation de la fabrication et de l’utilisation des fournitures et matériaux de construction.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-134-pr-mtpul-portant-reglementation-de-limportation-de-la-fabrication-et-de-lutilisation-des-fournitures-et-materiaux-de-construction/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-134-pr-mtpul-portant-reglementation-de-limportation-de-la-fabrication-et-de-lutilisation-des-fournitures-et-materiaux-de-construction/>
 
-En vigueur : 1990-01-01 (date fixÃ©e par le texte).
+En vigueur : 1990-01-01 (date fixée par le texte).
 
 ## Visas
 

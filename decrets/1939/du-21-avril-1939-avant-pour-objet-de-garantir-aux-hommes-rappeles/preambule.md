@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. — En dehors des cas prévus par l’article 25 du livre 1er du code du travail,
 les administrat ions publiques et les entreprises privées devront garantir à chacun des membres de leur personnel ayant un contrat de lounge de services qui aura été appelé sous le drapeaux en raison, soit d’un ordre d’appel ou de convocation, soit du rappel de sa classe, soit de In mobilisation générale, la reprise de l’emploi qu’il oceupait avant d’être appelé, à la condition que cette reprise soit
 Art, 2, — Pour apprécier si la reprise de l’appelé est possible, il sera tenu compte uniquement, d’une part, des changements profonds survenus depuis son départ dans le fonctionnement des administrations où entreprises, par suite des destructions d’établissements, modifications importantes dans les procédés de travail, pertes de clientèle, d’autre

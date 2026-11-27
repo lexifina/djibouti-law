@@ -1,6 +1,6 @@
 # Décret n° 2001-0212/PR/MAEM portant création du Fonds National de l’Eau. (F.N.Eau).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0212-pr-maem-portant-creation-du-fonds-national-de-leau-f-n-eau/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0212-pr-maem-portant-creation-du-fonds-national-de-leau-f-n-eau/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 

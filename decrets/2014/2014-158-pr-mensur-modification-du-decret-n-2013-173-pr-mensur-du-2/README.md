@@ -1,6 +1,6 @@
 # Décret n° 2014-158/PR/MENSUR portant modification du Décret n° 2013-173/PR/MENSUR du 23/07/2013 fixant le statut de l’Institut Supérieur des Sciences de la Santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-158-pr-mensur-portant-modification-du-decret-n2013-173-pr-mensur-du-23-07-2013-fixant-le-statut-de-linstitut-superieur-des-sciences-de-la-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-158-pr-mensur-portant-modification-du-decret-n2013-173-pr-mensur-du-23-07-2013-fixant-le-statut-de-linstitut-superieur-des-sciences-de-la-sante/>
 
 En vigueur : 2014-06-30 (date du Journal officiel qui le publie).
 

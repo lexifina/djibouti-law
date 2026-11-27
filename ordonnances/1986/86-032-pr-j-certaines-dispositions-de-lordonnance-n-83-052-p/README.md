@@ -1,6 +1,6 @@
 # Ordonnance n° 86-032/PR/J modifiant certaines dispositions de l’ordonnance n° 83-052/PR du 23 mai 1983 portant création de la Cour Supérieure de Justice.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/05/1986 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-032-pr-j-modifiant-certaines-dispositions-de-lordonnance-n83-052-pr-du-23-mai-1983-portant-creation-de-la-cour-superieure-de-justice/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 7 du 15/05/1986 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n86-032-pr-j-modifiant-certaines-dispositions-de-lordonnance-n83-052-pr-du-23-mai-1983-portant-creation-de-la-cour-superieure-de-justice/>
 
 En vigueur : 1986-05-15 (date du Journal officiel qui le publie).
 

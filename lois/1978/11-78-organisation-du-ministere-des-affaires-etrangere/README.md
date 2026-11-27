@@ -1,6 +1,6 @@
 # Loi n° 11/78 portant organisation du Ministère des Affaires Étrangères.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 13/03/1978 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n11-78-portant-organisation-du-ministere-des-affaires-etrangeres/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 13/03/1978 · <https://www.journalofficiel.dj/texte-juridique/loi-n11-78-portant-organisation-du-ministere-des-affaires-etrangeres/>
 
 En vigueur : 1978-03-13 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ LA LOI DONT LA TENEUR SUIT :
 | [art-012.md](art-012.md) | Art.12 |
 | [art-013.md](art-013.md) | Art.13 |
 | [art-014.md](art-014.md) | Art. 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

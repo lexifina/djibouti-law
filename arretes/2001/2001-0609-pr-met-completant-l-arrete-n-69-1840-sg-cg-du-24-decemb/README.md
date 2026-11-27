@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0609/PR/MET complétant l’arrêté n° 69-1840/SG/CG du 24 décembre 1969 du régime des dérogations prévues à l’article 112 du Code de Travail outre-mer.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0609-pr-met-completant-larrete-n69-1840-sg-cg-du-24-decembre-1969-du-regime-des-derogations-prevues-a-larticle-112-du-code-de-travail-outre-mer/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 30/08/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0609-pr-met-completant-larrete-n69-1840-sg-cg-du-24-decembre-1969-du-regime-des-derogations-prevues-a-larticle-112-du-code-de-travail-outre-mer/>
 
-En vigueur : 2001-08-25 (date fixÃ©e par le texte).
+En vigueur : 2001-08-25 (date fixée par le texte).
 
 ## Visas
 

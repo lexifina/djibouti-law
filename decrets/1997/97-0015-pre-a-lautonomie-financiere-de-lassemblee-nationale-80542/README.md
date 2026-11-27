@@ -1,6 +1,6 @@
 # Décret n° 97-0015/PRE Relatif à l’autonomie financière de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0015-pre-relatif-a-lautonomie-financiere-de-lassemblee-nationale-2/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0015-pre-relatif-a-lautonomie-financiere-de-lassemblee-nationale-2/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

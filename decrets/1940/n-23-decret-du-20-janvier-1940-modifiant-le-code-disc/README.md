@@ -1,6 +1,6 @@
 # Décret n° n°23 le décret du 20 janvier 1940 modifiant le Code disciplinaire et pénal de Ia marine marchande.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 521 du 30/04/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-le-decret-du-20-janvier-1940-modifiant-le-code-disciplinaire-et-penal-de-ia-marine-marchande/>
+Décret · Journal officiel de la République de Djibouti, n° 521 du 30/04/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n23-le-decret-du-20-janvier-1940-modifiant-le-code-disciplinaire-et-penal-de-ia-marine-marchande/>
 
 En vigueur : 1940-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 31/AN/08/6ème L portant ratification d’un Accord de Prêt complémentaire entre la République de Djibouti et le Fonds Koweïtien pour le Développement Economique Arabe (KFEAD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-08-6eme-l-portant-ratification-dun-accord-de-pret-complementaire-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe-kfead/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n31-an-08-6eme-l-portant-ratification-dun-accord-de-pret-complementaire-entre-la-republique-de-djibouti-et-le-fonds-koweitien-pour-le-developpement-economique-arabe-kfead/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

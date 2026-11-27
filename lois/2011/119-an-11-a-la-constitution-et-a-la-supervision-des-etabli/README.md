@@ -1,8 +1,8 @@
 # Loi n° 119/AN/11/6ème L relative à la constitution et à la supervision des établissements de crédit et des auxiliaires financiers.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-11-6eme-l-relative-a-la-constitution-et-a-la-supervision-des-etablissements-de-credit-et-des-auxiliaires-financiers/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-11-6eme-l-relative-a-la-constitution-et-a-la-supervision-des-etablissements-de-credit-et-des-auxiliaires-financiers/>
 
-En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-01-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -105,4 +105,4 @@ ISMAÏL OMAR GUELLEH
 | [art-064.md](art-064.md) | Article 64 |
 | [art-065.md](art-065.md) | Article 65 |
 | [art-066.md](art-066.md) | Article 66 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

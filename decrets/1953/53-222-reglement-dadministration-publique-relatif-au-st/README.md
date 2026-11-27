@@ -1,6 +1,6 @@
 # Décret n° 53-222 portant reglement d’administration publique relatif au statut particulier du corps des vétérinaires-inspecteurs de l’élevage et des industries animales de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 01/12/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-222-portant-reglement-dadministration-publique-relatif-au-statut-particulier-du-corps-des-veterinaires-inspecteurs-de-lelevage-et-des-industries-animales-de-la-france-doutre-m/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 01/12/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-222-portant-reglement-dadministration-publique-relatif-au-statut-particulier-du-corps-des-veterinaires-inspecteurs-de-lelevage-et-des-industries-animales-de-la-france-doutre-m/>
 
 En vigueur : 1953-12-01 (date du Journal officiel qui le publie).
 
@@ -52,4 +52,4 @@ Felix GAILLARD.
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
 | [art-022.md](art-022.md) | Art. 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

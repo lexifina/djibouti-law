@@ -1,6 +1,6 @@
 # Loi n° 180/AN/91/2e L portant ratification de la convention d’extradition judiciare en matiere penale entre le gouvernement de la republique de djibouti et le gouvernement de la republique francaise.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 15/12/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-91-2e-l-portant-ratification-de-la-convention-dextradition-judiciare-en-matiere-penale-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-franca/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 15/12/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n180-an-91-2e-l-portant-ratification-de-la-convention-dextradition-judiciare-en-matiere-penale-entre-le-gouvernement-de-la-republique-de-djibouti-et-le-gouvernement-de-la-republique-franca/>
 
 En vigueur : 1991-12-15 (date du Journal officiel qui le publie).
 

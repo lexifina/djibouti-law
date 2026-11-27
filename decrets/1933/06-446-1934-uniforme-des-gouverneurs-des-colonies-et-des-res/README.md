@@ -1,6 +1,6 @@
 # Décret n° 06-446-1934 Uniforme des gouverneurs des colonies et des résidents supérieurs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 446 du 01/01/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-446-1934-uniforme-des-gouverneurs-des-colonies-et-des-residents-superieurs/>
+Décret · Journal officiel de la République de Djibouti, n° 446 du 01/01/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-446-1934-uniforme-des-gouverneurs-des-colonies-et-des-residents-superieurs/>
 
 En vigueur : 1934-01-01 (date du Journal officiel qui le publie).
 

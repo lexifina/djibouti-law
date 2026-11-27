@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0687/PRE portant Agrément au Code des Investissements de l’Usine Automobile de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0687-pre-portant-agrement-au-code-des-investissements-de-lusine-automobile-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0687-pre-portant-agrement-au-code-des-investissements-de-lusine-automobile-de-djibouti/>
 
 En vigueur : 2002-09-15 (date du Journal officiel qui le publie).
 

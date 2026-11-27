@@ -1,6 +1,6 @@
 # Loi n° 186/AN/17/7ème L relatif aux Partenariats Public-Privé.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-17-7eme-l-relatif-aux-partenariats-public-prive/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-17-7eme-l-relatif-aux-partenariats-public-prive/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 
@@ -119,4 +119,4 @@ ISMAÏL OMAR GUELLEH
 | [art-060.md](art-060.md) | ARTICLE 60 |
 | [art-061.md](art-061.md) | ARTICLE 61 |
 | [art-062.md](art-062.md) | ARTICLE 62 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

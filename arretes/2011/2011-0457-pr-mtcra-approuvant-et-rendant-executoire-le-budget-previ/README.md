@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0457/PR/MTCRA approuvant et rendant exécutoire le Budget prévisionnel de l’an 2011 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0457-pr-mtcra-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2011-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linserti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0457-pr-mtcra-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lan-2011-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linserti/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

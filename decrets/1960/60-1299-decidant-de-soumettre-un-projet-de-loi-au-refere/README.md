@@ -1,6 +1,6 @@
 # Décret n° 60-1299 décidant de soumettre un projet de loi au référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1299-decidant-de-soumettre-un-projet-de-loi-au-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1299-decidant-de-soumettre-un-projet-de-loi-au-referendum/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 

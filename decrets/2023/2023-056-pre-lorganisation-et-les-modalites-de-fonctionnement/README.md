@@ -1,8 +1,8 @@
 # Décret n° 2023-056/PRE fixant l’organisation et les modalités de fonctionnement du Comité de Gestion du Fonds de Soutien du Handicap.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-056-pre-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-comite-de-gestion-du-fonds-de-soutien-du-handicap/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-056-pre-fixant-lorganisation-et-les-modalites-de-fonctionnement-du-comite-de-gestion-du-fonds-de-soutien-du-handicap/>
 
-En vigueur : 2023-02-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-02-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -36,4 +36,4 @@ Le Conseil des Ministres entendu en sa séance du 07 Février 2023.
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

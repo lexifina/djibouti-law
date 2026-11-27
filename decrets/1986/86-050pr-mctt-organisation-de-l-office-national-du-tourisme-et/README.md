@@ -1,6 +1,6 @@
 # Décret n° 86-050PR/MCTT portant organisation de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n86-050pr-mctt-portant-organisation-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/decret-n86-050pr-mctt-portant-organisation-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

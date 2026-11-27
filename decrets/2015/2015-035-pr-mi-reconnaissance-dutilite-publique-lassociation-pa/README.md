@@ -1,8 +1,8 @@
 # Décret n° 2015-035/PR/MI portant reconnaissance d’utilité Publique l’Association Paix et Lait.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-035-pr-mi-portant-reconnaissance-dutilite-publique-lassociation-paix-et-lait/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-035-pr-mi-portant-reconnaissance-dutilite-publique-lassociation-paix-et-lait/>
 
-En vigueur : 2015-02-04 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-02-04 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

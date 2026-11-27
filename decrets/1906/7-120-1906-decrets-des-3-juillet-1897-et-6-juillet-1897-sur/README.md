@@ -1,6 +1,6 @@
 # Décret n° 7-120-1906 modifiant les décrets des 3 juillet 1897 et 6 juillet 1897 sur les indemnités de déplacement et Les passages du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 120 du 01/11/1906 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-120-1906-modifiant-les-decrets-des-3-juillet-1897-et-6-juillet-1897-sur-les-indemnites-de-deplacement-et-les-passages-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 120 du 01/11/1906 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-120-1906-modifiant-les-decrets-des-3-juillet-1897-et-6-juillet-1897-sur-les-indemnites-de-deplacement-et-les-passages-du-personnel-colonial/>
 
 En vigueur : 1906-11-01 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0126/PR/MEN créant et organisant une formation de technicien supérieur « Maintenance Industrielle ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0126-pr-men-creant-et-organisant-une-formation-de-technicien-superieur-maintenance-industrielle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0126-pr-men-creant-et-organisant-une-formation-de-technicien-superieur-maintenance-industrielle/>
 
-En vigueur : 2002-02-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-02-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

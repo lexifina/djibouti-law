@@ -1,6 +1,6 @@
 # Loi n° 2018-005/AN/18/8ème L modifiant le Code Général des Impôts.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n2018-005-an-18-8eme-l-modifiant-le-code-general-des-impots/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n2018-005-an-18-8eme-l-modifiant-le-code-general-des-impots/>
 
 En vigueur : 2018-04-15 (date du Journal officiel qui le publie).
 

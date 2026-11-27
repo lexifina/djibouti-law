@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0330/PR/MI prescrivant le Ravalement des Façades de la ville de Djibouti à l’Occasion du 35ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0330-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-35eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0330-pr-mi-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-35eme-anniversaire-de-lindependance/>
 
 En vigueur : 2012-05-31 (date du Journal officiel qui le publie).
 

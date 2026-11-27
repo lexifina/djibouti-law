@@ -1,6 +1,6 @@
 # Loi n° 46-756 portant organisation du référendum prévu par l’article 3 de la loi du 2 novembre 195, portant organisation des pouvoirs publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1946 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-46-756-portant-organisation-du-referendum-prevu-par-larticle-3-de-la-loi-du-2-novembre-195-portant-organisation-des-pouvoirs-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1946 · <https://www.journalofficiel.dj/texte-juridique/loi-n-46-756-portant-organisation-du-referendum-prevu-par-larticle-3-de-la-loi-du-2-novembre-195-portant-organisation-des-pouvoirs-publics/>
 
 En vigueur : 1946-04-30 (date du Journal officiel qui le publie).
 
@@ -23,9 +23,9 @@ Le Ministre de rintcricur, André LE TROQUER.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [art-009.md](art-009.md) | Art. 9 — |
+| [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

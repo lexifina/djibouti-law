@@ -1,6 +1,6 @@
 # Décret n° 2009-0156/PR/DEF portant autorisation du port des nouveaux galons du personnel de la Marine Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0156-pr-def-portant-autorisation-du-port-des-nouveaux-galons-du-personnel-de-la-marine-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0156-pr-def-portant-autorisation-du-port-des-nouveaux-galons-du-personnel-de-la-marine-nationale/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2015-118/PR/SEJS portant création des Jeux Nationaux de la Jeunesse.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-118-pr-sejs-portant-creation-des-jeux-nationaux-de-la-jeunesse/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-118-pr-sejs-portant-creation-des-jeux-nationaux-de-la-jeunesse/>
 
 En vigueur : 2015-04-30 (date du Journal officiel qui le publie).
 
@@ -78,4 +78,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

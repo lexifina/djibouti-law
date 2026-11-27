@@ -1,6 +1,6 @@
 # Décret n° n°59 approuvant le budget de la Côte française des Somalis(ex 1924),.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 329 du 30/04/1924 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n59-approuvant-le-budget-de-la-cote-francaise-des-somalisex-1924/>
+Décret · Journal officiel de la République de Djibouti, n° 329 du 30/04/1924 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n59-approuvant-le-budget-de-la-cote-francaise-des-somalisex-1924/>
 
 En vigueur : 1924-04-30 (date du Journal officiel qui le publie).
 

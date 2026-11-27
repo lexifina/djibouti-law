@@ -1,6 +1,6 @@
 # Décret n° 4 mars 1936 Ouverture et annulation de crédits (Côte française des Somalis) (exercice 1935).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 473 du 30/04/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-mars-1936-ouverture-et-annulation-de-credits-cote-francaise-des-somalis-exercice-1935/>
+Décret · Journal officiel de la République de Djibouti, n° 473 du 30/04/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-mars-1936-ouverture-et-annulation-de-credits-cote-francaise-des-somalis-exercice-1935/>
 
 En vigueur : 1936-04-30 (date du Journal officiel qui le publie).
 

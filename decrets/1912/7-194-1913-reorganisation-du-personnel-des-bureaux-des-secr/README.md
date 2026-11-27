@@ -1,6 +1,6 @@
 # Décret n° 7-194-1913 portant réorganisation du personnel des bureaux des Secrétariats Généraux des Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 194 du 01/01/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-194-1913-portant-reorganisation-du-personnel-des-bureaux-des-secretariats-generaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 194 du 01/01/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-194-1913-portant-reorganisation-du-personnel-des-bureaux-des-secretariats-generaux-des-colonies/>
 
 En vigueur : 1913-01-01 (date du Journal officiel qui le publie).
 
@@ -36,4 +36,4 @@ A. LEBRUN.
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

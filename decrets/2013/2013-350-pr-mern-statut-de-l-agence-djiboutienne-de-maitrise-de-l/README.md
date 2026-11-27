@@ -1,6 +1,6 @@
 # Décret n° 2013-350/PR/MERN portant statut de l’Agence Djiboutienne de Maitrise de l’Energie “ADME”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-350-pr-mern-portant-statut-de-lagence-djiboutienne-de-maitrise-de-lenergie-adme/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-350-pr-mern-portant-statut-de-lagence-djiboutienne-de-maitrise-de-lenergie-adme/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 
@@ -57,4 +57,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

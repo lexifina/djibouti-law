@@ -1,6 +1,6 @@
 # Loi n° 62/AN/89/2ème L approuvant le compte administratif de l’Établissement Public des Hydrocarbures pour l’exercice 1987.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-89-2eme-l-approuvant-le-compte-administratif-de-letablissement-public-des-hydrocarbures-pour-lexercice-1987/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n62-an-89-2eme-l-approuvant-le-compte-administratif-de-letablissement-public-des-hydrocarbures-pour-lexercice-1987/>
 
 En vigueur : 1989-04-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi n° 09/AN/23/9ème L portant création de l’Agence Nationale pour la Promotion du Sport.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n09-an-23-9eme-l-portant-creation-de-lagence-nationale-pour-la-promotion-du-sport/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n09-an-23-9eme-l-portant-creation-de-lagence-nationale-pour-la-promotion-du-sport/>
 
-En vigueur : 2023-07-24 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-07-24 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -51,4 +51,4 @@ A ADOPTÉ, EN SA TROISIEME SEANCE PUBLIQUE DU 26/06/2023, LA LOI DONT LA TENEUR 
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

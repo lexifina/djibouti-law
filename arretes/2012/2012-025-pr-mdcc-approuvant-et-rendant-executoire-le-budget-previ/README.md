@@ -1,6 +1,6 @@
 # Arrêté n° 2012-025/PR/MDCC approuvant et rendant exécutoire le budget prévisionnel 2012 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-025-pr-mdcc-approuvant-et-rendant-executoire-le-budget-previsionnel-2012-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-025-pr-mdcc-approuvant-et-rendant-executoire-le-budget-previsionnel-2012-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

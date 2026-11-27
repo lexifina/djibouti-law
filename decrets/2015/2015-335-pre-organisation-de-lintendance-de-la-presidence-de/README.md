@@ -1,6 +1,6 @@
 # Décret n° 2015-335/PRE portant organisation de l’Intendance de la Présidence de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-335-pre-portant-organisation-de-lintendance-de-la-presidence-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-335-pre-portant-organisation-de-lintendance-de-la-presidence-de-la-republique/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

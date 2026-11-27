@@ -1,6 +1,6 @@
 # Décret n° 09-345-1925 07/07/1925
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 345 du 31/08/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-345-1925-07-07-1925/>
+Décret · Journal officiel de la République de Djibouti, n° 345 du 31/08/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-345-1925-07-07-1925/>
 
 En vigueur : 1925-08-31 (date du Journal officiel qui le publie).
 

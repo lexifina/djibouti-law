@@ -1,6 +1,6 @@
 # Arrêté n° 2018-201/PRE portant approbation du budget prévisionnel 2019 de l’Agence Nationale des Systèmes d’information de l’État.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-201-pre-portant-approbation-du-budget-previsionnel-2019-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-201-pre-portant-approbation-du-budget-previsionnel-2019-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2019-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

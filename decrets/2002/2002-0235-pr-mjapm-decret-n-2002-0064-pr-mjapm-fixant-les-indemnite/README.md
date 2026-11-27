@@ -1,6 +1,6 @@
 # Décret n° 2002-0235/PR/MJAPM modifiant le décret n° 2002-0064/PR/MJAPM fixant les indemnités allouées aux Magistrats de l’Ordre Judiciaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 16/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0235-pr-mjapm-modifiant-le-decret-n2002-0064-pr-mjapm-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 16/11/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0235-pr-mjapm-modifiant-le-decret-n2002-0064-pr-mjapm-fixant-les-indemnites-allouees-aux-magistrats-de-lordre-judiciaire/>
 
 En vigueur : 2002-11-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2012-221/PR/MI fixant les indemnités allouées aux Représentants des élus locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-221-pr-mi-fixant-les-indemnites-allouees-aux-representants-des-elus-locaux/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-221-pr-mi-fixant-les-indemnites-allouees-aux-representants-des-elus-locaux/>
 
 En vigueur : 2012-10-15 (date du Journal officiel qui le publie).
 

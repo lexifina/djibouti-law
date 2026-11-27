@@ -1,6 +1,6 @@
 # Décret n° 157 /AN/91/2e L portant délégation d’une partie des pouvoirs dé l’Assemblée nationale à la commission permanente jusqu’a l’ouverture de la 1re session ordinaire de 1991.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n157-an-91-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1re-session-ordinaire-de-1991/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n157-an-91-2e-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-1re-session-ordinaire-de-1991/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 241/AN/82 portant création d’un laboratoire d’analyse des sols et des eaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n241-an-82-portant-creation-dun-laboratoire-danalyse-des-sols-et-des-eaux/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n241-an-82-portant-creation-dun-laboratoire-danalyse-des-sols-et-des-eaux/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

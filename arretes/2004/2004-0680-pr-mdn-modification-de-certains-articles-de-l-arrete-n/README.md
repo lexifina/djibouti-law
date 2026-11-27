@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0680/PR/MDN portant modification de certains articles de l’arrêté n° 2003-0914/PRE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0680-pr-mdn-portant-modification-de-certains-articles-de-larrete-n2003-0914-pre/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 16/10/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0680-pr-mdn-portant-modification-de-certains-articles-de-larrete-n2003-0914-pre/>
 
 En vigueur : 2004-10-16 (date du Journal officiel qui le publie).
 

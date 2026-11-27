@@ -1,6 +1,6 @@
 # Loi n° 63/AN/94/3e L portant adhésion de la République de Djibouti à l’Accord de Bangui instituant l`Organisation Africaine de la Propriété Intellectuelle (A.O.P.I).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 30/11/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-94-3e-l-portant-adhesion-de-la-republique-de-djibouti-a-laccord-de-bangui-instituant-lorganisation-africaine-de-la-propriete-intellectuelle-a-o-p-i/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 30/11/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n63-an-94-3e-l-portant-adhesion-de-la-republique-de-djibouti-a-laccord-de-bangui-instituant-lorganisation-africaine-de-la-propriete-intellectuelle-a-o-p-i/>
 
 En vigueur : 1994-11-30 (date du Journal officiel qui le publie).
 

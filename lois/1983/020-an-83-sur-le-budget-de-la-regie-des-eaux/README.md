@@ -1,6 +1,6 @@
 # Loi n° 20/AN/83 Sur le budget de la Régie des Eaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-83-sur-le-budget-de-la-regie-des-eaux/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n20-an-83-sur-le-budget-de-la-regie-des-eaux/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 

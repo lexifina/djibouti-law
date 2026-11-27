@@ -1,6 +1,6 @@
 # Arrêté n° 2014-182/PR/MET portant exonération des taxes et des surtaxes de l’achat des bitumes.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 27/02/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-182-pr-met-portant-exoneration-des-taxes-et-des-surtaxes-de-lachat-des-bitumes/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 27/02/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-182-pr-met-portant-exoneration-des-taxes-et-des-surtaxes-de-lachat-des-bitumes/>
 
 En vigueur : 2014-02-27 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 182/AN/81 fixant le montant et les conditions de consignation et de remboursement de la caution financière prévue à l’article 6 de la Loi Organique n° 1/AN/81 du 10 février 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/05/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-81-fixant-le-montant-et-les-conditions-de-consignation-et-de-remboursement-de-la-caution-financiere-prevue-a-larticle-6-de-la-loi-organique-n1-an-81-du-10-fevrier-1981/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 03/05/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n182-an-81-fixant-le-montant-et-les-conditions-de-consignation-et-de-remboursement-de-la-caution-financiere-prevue-a-larticle-6-de-la-loi-organique-n1-an-81-du-10-fevrier-1981/>
 
 En vigueur : 1981-05-03 (date du Journal officiel qui le publie).
 

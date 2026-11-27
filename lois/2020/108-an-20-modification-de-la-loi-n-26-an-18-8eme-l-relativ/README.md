@@ -1,8 +1,8 @@
 # Loi n° 108/AN/20/8ème L portant modification de la loi n° 26/AN/ 18/8ème L relative à la création de l’Institut National de la Statistique de Djibouti (INSD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-20-8eme-l-portant-modification-de-la-loi-n26-an-18-8eme-l-relative-a-la-creation-de-linstitut-national-de-la-statistique-de-djibouti-insd/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-20-8eme-l-portant-modification-de-la-loi-n26-an-18-8eme-l-relative-a-la-creation-de-linstitut-national-de-la-statistique-de-djibouti-insd/>
 
-En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2021-02-18 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 2006-0234/PR/MEFPCP relatif à la mise en place de crédit d’avance
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0234-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0234-pr-mefpcp-relatif-a-la-mise-en-place-de-credit-davance/>
 
 En vigueur : 2006-09-30 (date du Journal officiel qui le publie).
 

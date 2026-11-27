@@ -1,6 +1,6 @@
 # Décret n° 29 novembre 1939 complétant l’article 41 de la loi du 9 avril 1935 fixant le statut du personnel des cadres actifs de l’armée de l’air.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-completant-larticle-41-de-la-loi-du-9-avril-1935-fixant-le-statut-du-personnel-des-cadres-actifs-de-larmee-de-lair/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-novembre-1939-completant-larticle-41-de-la-loi-du-9-avril-1935-fixant-le-statut-du-personnel-des-cadres-actifs-de-larmee-de-lair/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

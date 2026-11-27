@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0829/PR/MID Dit « Arrêté de péril » prescrivant la démolition du bâtiment de la cour des Comptes sis à la Place du 27 juin.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0829-pr-mid-dit-arrete-de-peril-prescrivant-la-demolition-du-batiment-de-la-cour-des-comptes-sis-a-la-place-du-27-juin/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0829-pr-mid-dit-arrete-de-peril-prescrivant-la-demolition-du-batiment-de-la-cour-des-comptes-sis-a-la-place-du-27-juin/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2020-039/PR/MB portant déclassement d’une parcelle de terrain du domaine publique sise Arta.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-039-pr-mb-portant-declassement-dune-parcelle-de-terrain-du-domaine-publique-sise-arta/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-039-pr-mb-portant-declassement-dune-parcelle-de-terrain-du-domaine-publique-sise-arta/>
 
 En vigueur : 2020-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

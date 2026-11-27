@@ -1,8 +1,8 @@
 # Arrêté n° 2019-225/PR/MTRA portant approbation du Budget Prévisionnel de l’Exercice 2020 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-225-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2020-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-225-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2020-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
 
-En vigueur : 2019-12-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-12-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

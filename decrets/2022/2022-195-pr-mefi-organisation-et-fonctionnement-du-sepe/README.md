@@ -1,6 +1,6 @@
 # Décret n° 2022-195/PR/MEFI portant organisation et fonctionnement du SEPE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-195-pr-mefi-portant-organisation-et-fonctionnement-du-sepe/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-195-pr-mefi-portant-organisation-et-fonctionnement-du-sepe/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -50,4 +50,4 @@ ABDOULKADER KAMIL MOHAMED
 | [art-020.md](art-020.md) | ARTICLE 20 |
 | [art-021.md](art-021.md) | ARTICLE 21 |
 | [art-022.md](art-022.md) | ARTICLE 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

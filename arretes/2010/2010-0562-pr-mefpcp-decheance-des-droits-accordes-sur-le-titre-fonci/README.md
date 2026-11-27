@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0562/PR/MEFPCP portant déchéance des droits accordés sur le titre foncier n° 9294.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0562-pr-mefpcp-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n9294/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0562-pr-mefpcp-portant-decheance-des-droits-accordes-sur-le-titre-foncier-n9294/>
 
 En vigueur : 2010-08-31 (date du Journal officiel qui le publie).
 

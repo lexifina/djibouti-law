@@ -1,6 +1,6 @@
 # Arrêté n° 2017-149/PR/MB portant de la déchéance d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-149-pr-mb-portant-de-la-decheance-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-149-pr-mb-portant-de-la-decheance-dune-parcelle-de-terrain/>
 
 En vigueur : 2017-10-15 (date du Journal officiel qui le publie).
 

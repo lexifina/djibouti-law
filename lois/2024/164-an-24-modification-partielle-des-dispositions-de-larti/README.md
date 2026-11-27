@@ -1,6 +1,6 @@
 # Loi n° 164/AN/24/9ème L Portant modification partielle des dispositions de l’article 76 de la Loi n° 3/AN/92/2ème L du 28 octobre 1992 portant réorganisation de la Caisse Nationale de Retraites.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-24-9eme-l-portant-modification-partielle-des-dispositions-de-larticle-76-de-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retr/>
+Loi · Journal officiel de la République de Djibouti, n° 07 du 15/04/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-24-9eme-l-portant-modification-partielle-des-dispositions-de-larticle-76-de-la-loi-n3-an-92-2eme-l-du-28-octobre-1992-portant-reorganisation-de-la-caisse-nationale-de-retr/>
 
 En vigueur : 2025-04-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

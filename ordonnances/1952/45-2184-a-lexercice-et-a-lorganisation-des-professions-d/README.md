@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2184 relative à l’exercice et à l’organisation des professions de médecin, chirurgien-dentiste et de sage-femme
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2184-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-chirurgien-dentiste-et-de-sage-femme/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 01/12/1952 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2184-relative-a-lexercice-et-a-lorganisation-des-professions-de-medecin-chirurgien-dentiste-et-de-sage-femme/>
 
 En vigueur : 1952-12-01 (date du Journal officiel qui le publie).
 
@@ -82,4 +82,4 @@ Alexandre PARODI.
 | [art-043.md](art-043.md) | Art. 43 |
 | [art-044.md](art-044.md) | Art. 44 |
 | [art-045.md](art-045.md) | Art. 45 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

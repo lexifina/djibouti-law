@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er— Les dispositions de l’article 3 Cispositions du paragraphe b) de l’article du décret susvisé du 26 mars 1959 sont remplacées par les dispositions qui suivants:
 b) Sur titres : parmi les ingénieurs diplômés de l’Ecole polytechnique, les ingénieurs civils des télécommunications, diplômés de l’Ecole supérienre des postes, télégraphes et téléphones, les ingénieurs diplômés de l’Ecole supérieurs d’électricité (section normale ou section radioclectrique), de l’Ecole centrale les arts et manufactures et des Instituts électrotechniques de Grenoble, Naney et Toulonse et les nationales des arts et métiers. les dispositions du cinquième paragraphe du même article sont remplacées par celles qui suivant:
 Les ingénieurs radioélectriciens adjoints staginires sont astreints à un stage d’une du rée maximmm de deux ans, pouvant tné, en totalité ou en partie, soit à l’’Ecole supérieure des postes, télégraphes et téléphones, soiît dans vn station de T. S. F. ou de radiodiffusion de la metropole ou d’un territoire d’outre-mer.

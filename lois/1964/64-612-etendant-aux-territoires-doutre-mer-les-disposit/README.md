@@ -1,6 +1,6 @@
 # Loi n° 64-612 étendant aux territoires d’outre-mer les dispositions prévues aux articles 104 à 108 du Code pénal (J.O;R.E. du 27 juin 1964, p. 5587) [arrêté de promulgation n° 970 du 1er juillet 1964]
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/08/1964 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-64-612-etendant-aux-territoires-doutre-mer-les-dispositions-prevues-aux-articles-104-a-108-du-code-penal-j-or-e-du-27-juin-1964-p-5587-arrete-de-promulgation-n-970-du-1er/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 01/08/1964 · <https://www.journalofficiel.dj/texte-juridique/loi-n-64-612-etendant-aux-territoires-doutre-mer-les-dispositions-prevues-aux-articles-104-a-108-du-code-penal-j-or-e-du-27-juin-1964-p-5587-arrete-de-promulgation-n-970-du-1er/>
 
 En vigueur : 1964-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0434/PR/MI prescrivant à l’occasion du 24ème Anniversaire de l’Indépendance – le Ravalement des Façades de la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0434-pr-mi-prescrivant-a-loccasion-du-24eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 14/06/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0434-pr-mi-prescrivant-a-loccasion-du-24eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
 
 En vigueur : 2001-06-14 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 82-022/PR/MI DU 6 AVRIL 1982 portant convocation du collège électoral pour l’élection des députés à l’Assemblée nationale le 21 mai 1982 et fixant la représentation de chaque district,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/04/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-022-pr-mi-du-6-avril-1982-portant-convocation-du-college-electoral-pour-lelection-des-deputes-a-lassemblee-nationale-le-21-mai-1982-et-fixant-la-representation-de-chaque-di/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/04/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-022-pr-mi-du-6-avril-1982-portant-convocation-du-college-electoral-pour-lelection-des-deputes-a-lassemblee-nationale-le-21-mai-1982-et-fixant-la-representation-de-chaque-di/>
 
 En vigueur : 1982-04-08 (date du Journal officiel qui le publie).
 
@@ -24,5 +24,5 @@ Le Conseil des Ministres entendu en sa séance du 6 avril 1982;
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

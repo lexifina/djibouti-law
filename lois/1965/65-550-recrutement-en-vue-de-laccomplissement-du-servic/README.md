@@ -1,6 +1,6 @@
 # Loi n° 65-550 relative au recrutement en vue de l’accomplissement du service national (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 01/09/1965 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-65-550-relative-au-recrutement-en-vue-de-laccomplissement-du-service-national-1/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 01/09/1965 · <https://www.journalofficiel.dj/texte-juridique/loi-n-65-550-relative-au-recrutement-en-vue-de-laccomplissement-du-service-national-1/>
 
 En vigueur : 1965-09-01 (date du Journal officiel qui le publie).
 

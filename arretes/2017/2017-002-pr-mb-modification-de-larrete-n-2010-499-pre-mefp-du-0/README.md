@@ -1,6 +1,6 @@
 # Arrêté n° 2017-002/PR/MB portant modification de l’arrêté n° 2010-499/PRE/MEFP du 08 août 2010.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-002-pr-mb-portant-modification-de-larrete-n-2010-499-pre-mefp-du-08-aout-2010/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-002-pr-mb-portant-modification-de-larrete-n-2010-499-pre-mefp-du-08-aout-2010/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0748/PR/MET portant approbation du projet de Budget 2013 Port Autonome de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0748-pr-met-portant-approbation-du-projet-de-budget-2013-port-autonome-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0748-pr-met-portant-approbation-du-projet-de-budget-2013-port-autonome-de-djibouti/>
 
 En vigueur : 2023-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Loi n° 35/AN/99/4èmeL portant approbation du cahier des charges et du plan parcellaire du lotissement Haramous à Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-99-4emel-portant-approbation-du-cahier-des-charges-et-du-plan-parcellaire-du-lotissement-haramous-a-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n35-an-99-4emel-portant-approbation-du-cahier-des-charges-et-du-plan-parcellaire-du-lotissement-haramous-a-djibouti/>
 
 En vigueur : 1999-05-31 (date du Journal officiel qui le publie).
 

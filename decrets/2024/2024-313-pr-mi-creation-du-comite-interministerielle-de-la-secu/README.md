@@ -1,6 +1,6 @@
 # Décret n° 2024-313/PR/MI portant création du Comité Interministérielle de la Sécurité Routière.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 28/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-313-pr-mi-portant-creation-du-comite-interministerielle-de-la-securite-routiere/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 28/11/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-313-pr-mi-portant-creation-du-comite-interministerielle-de-la-securite-routiere/>
 
 En vigueur : 2024-11-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

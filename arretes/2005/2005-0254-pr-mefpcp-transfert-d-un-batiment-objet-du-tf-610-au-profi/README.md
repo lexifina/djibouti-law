@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0254/PR/MEFPCP portant transfert d’un bâtiment objet du TF 610 au profit du Ministère de la Justice.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0254-pr-mefpcp-portant-transfert-dun-batiment-objet-du-tf-610-au-profit-du-ministere-de-la-justice/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0254-pr-mefpcp-portant-transfert-dun-batiment-objet-du-tf-610-au-profit-du-ministere-de-la-justice/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

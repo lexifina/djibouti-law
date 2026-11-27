@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0633/PR/MET modifiant Arrêté n° 2006/PR/MET, concernant la concession du Bac de l’Unité.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0633-pr-met-modifiant-arrete-n2006-pr-met-concernant-la-concession-du-bac-de-lunite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0633-pr-met-modifiant-arrete-n2006-pr-met-concernant-la-concession-du-bac-de-lunite/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

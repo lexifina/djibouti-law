@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0276/PR/MHUE portant création d’un Comtié de Pilotage du Projet de Développement Urbain Intégré de Balbala (PDUI).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0276-pr-mhue-portant-creation-dun-comtie-de-pilotage-du-projet-de-developpement-urbain-integre-de-balbala-pdui/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0276-pr-mhue-portant-creation-dun-comtie-de-pilotage-du-projet-de-developpement-urbain-integre-de-balbala-pdui/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

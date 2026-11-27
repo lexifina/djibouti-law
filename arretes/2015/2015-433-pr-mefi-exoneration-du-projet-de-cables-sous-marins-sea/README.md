@@ -1,6 +1,6 @@
 # Arrêté n° 2015-433/PR/MEFI portant exonération du projet de câbles sous-marins SEA-ME-WE 5 ET AAE-1.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-433-pr-mefi-portant-exoneration-du-projet-de-cables-sous-marins-sea-me-we-5-et-aae-1/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-433-pr-mefi-portant-exoneration-du-projet-de-cables-sous-marins-sea-me-we-5-et-aae-1/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 

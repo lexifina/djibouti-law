@@ -1,6 +1,6 @@
 # Loi n° 41/AN/19/8ème L portant adoption des comptes financiers de l’Aéroport International de Djibouti pour l’exercice 2015.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-19-8eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2015/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n41-an-19-8eme-l-portant-adoption-des-comptes-financiers-de-laeroport-international-de-djibouti-pour-lexercice-2015/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

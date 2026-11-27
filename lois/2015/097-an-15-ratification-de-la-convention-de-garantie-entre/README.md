@@ -1,6 +1,6 @@
 # Loi n° 97/AN/15/7ème L portant ratification de la Convention de garantie entre la République de Djibouti et le FADES.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-15-7eme-l-portant-ratification-de-la-convention-de-garantie-entre-la-republique-de-djibouti-et-le-fades/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n97-an-15-7eme-l-portant-ratification-de-la-convention-de-garantie-entre-la-republique-de-djibouti-et-le-fades/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

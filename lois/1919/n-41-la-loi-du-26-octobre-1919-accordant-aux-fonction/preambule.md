@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. der, — Les fonctionnaires coloniaux mobilisés ou engagés volontaires pour la durée de la guerre ont droit, pendant la durée de leur présence effective sous les drapeaux, à un complément spécial de traitement.
 Ce complément sera calculé de manière à assurer en principe à l’intéressé, déduction faite des émoluments de toute nature perçus par lui, un traitement global égal à celui qu’il aurait reçu s’il était resté à son poste: aux colonies, abstraction faite des indemnités de fonctions et des frais de représentation.
 Ledit complément ne pourra en aucun cas être supérieur à 4,000 frs. par an, ni à 15,000 frs. au total, il n’est dû ni aux sursitaires, ni aux officiers placés hors cadres ou en congé sans solde et est subordonné, d’une façon général, à la perception d’une solde militaire.

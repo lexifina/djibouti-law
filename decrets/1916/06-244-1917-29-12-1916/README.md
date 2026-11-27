@@ -1,6 +1,6 @@
 # Décret n° 06-244-1917 29/12/1916
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 244 du 28/02/1917 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-244-1917-29-12-1916/>
+Décret · Journal officiel de la République de Djibouti, n° 244 du 28/02/1917 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-244-1917-29-12-1916/>
 
 En vigueur : 1917-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 82-051/PR/TP portant sur l’entretien du réseau routier national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-051-pr-tp-portant-sur-lentretien-du-reseau-routier-national/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-051-pr-tp-portant-sur-lentretien-du-reseau-routier-national/>
 
 En vigueur : 1982-07-08 (date du Journal officiel qui le publie).
 

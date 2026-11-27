@@ -1,6 +1,6 @@
 # Décret n° 2017-096/PR/SEAS portant modification du décret n° 2015-279/PR/SESN portant création, organisation et fonctionnement du Programme National de Solidarité Famille (PNSF).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-096-pr-seas-portant-modification-du-decret-n2015-279-pr-sesn-portant-creation-organisation-et-fonctionnement-du-programme-national-de-solidarite-famille-pnsf/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-096-pr-seas-portant-modification-du-decret-n2015-279-pr-sesn-portant-creation-organisation-et-fonctionnement-du-programme-national-de-solidarite-famille-pnsf/>
 
 En vigueur : 2017-03-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 8-266-1918 étendant aux personnels civils rétribués sur les budgets généraux, locaux ou spéciaux des Colonies et pays de protectorat relevant du Ministère des Colonies le bénéfice de l’article 12 de la Loi du 4 août 1917.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 266 du 31/12/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-8-266-1918-etendant-aux-personnels-civils-retribues-sur-les-budgets-generaux-locaux-ou-speciaux-des-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-le-benefice-de-la/>
+Loi · Journal officiel de la République de Djibouti, n° 266 du 31/12/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-8-266-1918-etendant-aux-personnels-civils-retribues-sur-les-budgets-generaux-locaux-ou-speciaux-des-colonies-et-pays-de-protectorat-relevant-du-ministere-des-colonies-le-benefice-de-la/>
 
 En vigueur : 1918-12-31 (date du Journal officiel qui le publie).
 

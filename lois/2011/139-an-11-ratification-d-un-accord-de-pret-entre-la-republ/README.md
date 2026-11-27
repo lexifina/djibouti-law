@@ -1,6 +1,6 @@
 # Loi n° 139/AN/11/6ème L portant ratification d’un Accord de prêt entre la République de Djibouti et le Fonds de l’OPEP pour le Développement International (F.O.D.I).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-11-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lopep-pour-le-developpement-international-f-o-d-i/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n139-an-11-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-de-lopep-pour-le-developpement-international-f-o-d-i/>
 
 En vigueur : 2011-12-15 (date du Journal officiel qui le publie).
 

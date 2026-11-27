@@ -1,8 +1,8 @@
 # Décret n° 47-2031 instituant un Code du travail dans les territoires relevant du ministère de la France d’outre-mer autres que l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2031-instituant-un-code-du-travail-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-2031-instituant-un-code-du-travail-dans-les-territoires-relevant-du-ministere-de-la-france-doutre-mer-autres-que-lindochine/>
 
-En vigueur : 1948-01-01 (date fixÃ©e par le texte).
+En vigueur : 1948-01-01 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Loi n° 136/AN/01/4ème L portant abrogation partielle de la loi n° 102/AN/95/3ème L relative à diverses mesures d’ordre social.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-01-4eme-l-portant-abrogation-partielle-de-la-loi-n102-an-95-3eme-l-relative-a-diverses-mesures-dordre-social/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-01-4eme-l-portant-abrogation-partielle-de-la-loi-n102-an-95-3eme-l-relative-a-diverses-mesures-dordre-social/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

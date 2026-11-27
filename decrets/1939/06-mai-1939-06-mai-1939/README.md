@@ -1,6 +1,6 @@
 # Décret n° 06 mai 1939 06 mai 1939
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 513 du 31/08/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-mai-1939-06-mai-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 513 du 31/08/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-mai-1939-06-mai-1939/>
 
 En vigueur : 1939-08-31 (date du Journal officiel qui le publie).
 
@@ -37,5 +37,5 @@ Georges Bosnnet
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er— |
-| [art-002.md](art-002.md) | Art.2– |
+| [art-001.md](art-001.md) | Art. 1er |
+| [art-002.md](art-002.md) | Art.2 |

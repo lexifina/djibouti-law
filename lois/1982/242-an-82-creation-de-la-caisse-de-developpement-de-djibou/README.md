@@ -1,6 +1,6 @@
 # Loi n° 242/AN/82 portant création de la Caisse de Développement de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n242-an-82-portant-creation-de-la-caisse-de-developpement-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n242-an-82-portant-creation-de-la-caisse-de-developpement-de-djibouti/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 51-1151 portant attribution d’une indemnité spéciale à certains fonctionnaires du cadre général des Transmissions de la France d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/11/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1151-portant-attribution-dune-indemnite-speciale-a-certains-fonctionnaires-du-cadre-general-des-transmissions-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/11/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-1151-portant-attribution-dune-indemnite-speciale-a-certains-fonctionnaires-du-cadre-general-des-transmissions-de-la-france-doutre-mer/>
 
 En vigueur : 1951-11-01 (date du Journal officiel qui le publie).
 

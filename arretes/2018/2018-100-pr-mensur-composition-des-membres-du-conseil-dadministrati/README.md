@@ -1,8 +1,8 @@
 # Arrêté n° 2018-100/PR/MENSUR portant composition des membres du Conseil d’Administration de l’Institut Supérieur des Sciences de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-100-pr-mensur-portant-composition-des-membres-du-conseil-dadministration-de-linstitut-superieur-des-sciences-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-100-pr-mensur-portant-composition-des-membres-du-conseil-dadministration-de-linstitut-superieur-des-sciences-de-la-sante/>
 
-En vigueur : 2018-07-09 (date fixÃ©e par le texte).
+En vigueur : 2018-07-09 (date fixée par le texte).
 
 ## Visas
 

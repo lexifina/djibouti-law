@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0530/PR/MEFPCP modifiant l’Arrêté n° 2000-0015/MEFPP du 14/01/04 portant Création du Centre Régional d’Exportation de Bétail.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0530-pr-mefpcp-modifiant-larrete-n2000-0015-mefpp-du-14-01-04-portant-creation-du-centre-regional-dexportation-de-betail/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0530-pr-mefpcp-modifiant-larrete-n2000-0015-mefpp-du-14-01-04-portant-creation-du-centre-regional-dexportation-de-betail/>
 
 En vigueur : 2004-08-15 (date du Journal officiel qui le publie).
 

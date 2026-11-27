@@ -1,6 +1,6 @@
 # Décret n° 2017-227/PR/MDCL portant création et fonctionnement du Comité Interministériel de pilotage du Projet de résorption des bidonvilles dénommé “Programme Zéro Bidonvilles”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-227-pr-mdcl-portant-creation-et-fonctionnement-du-comite-interministeriel-de-pilotage-du-projet-de-resorption-des-bidonvilles-denomme-programme-zero-bidonvilles/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-227-pr-mdcl-portant-creation-et-fonctionnement-du-comite-interministeriel-de-pilotage-du-projet-de-resorption-des-bidonvilles-denomme-programme-zero-bidonvilles/>
 
 En vigueur : 2017-07-13 (date du Journal officiel qui le publie).
 

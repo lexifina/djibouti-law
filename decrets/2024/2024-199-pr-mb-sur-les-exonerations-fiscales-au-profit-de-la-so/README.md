@@ -1,8 +1,8 @@
 # Décret n° 2024-199/PR/MB portant sur les exonérations fiscales au profit de la Société Immobilière et d’Aménagement Foncier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-199-pr-mb-portant-sur-les-exonerations-fiscales-au-profit-de-la-societe-immobiliere-et-damenagement-foncier/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-199-pr-mb-portant-sur-les-exonerations-fiscales-au-profit-de-la-societe-immobiliere-et-damenagement-foncier/>
 
-En vigueur : 2024-07-31 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-07-31 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

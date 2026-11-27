@@ -1,6 +1,6 @@
 # Décret n° n°35 Décret du 22 octobre 1929 et l’arrêté annexé, relatif aux paiements à effectuer pour le compte des services locaux des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 397 du 31/12/1929 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n35-decret-du-22-octobre-1929-et-larrete-annexe-relatif-aux-paiements-a-effectuer-pour-le-compte-des-services-locaux-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 397 du 31/12/1929 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n35-decret-du-22-octobre-1929-et-larrete-annexe-relatif-aux-paiements-a-effectuer-pour-le-compte-des-services-locaux-des-colonies/>
 
 En vigueur : 1929-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ henry
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

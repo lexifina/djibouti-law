@@ -1,6 +1,6 @@
 # Décret n° 46-2650 portant modification du décret du 30 décembre 1912 sur le régime financier des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/08/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2650-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies-2/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/08/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2650-portant-modification-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies-2/>
 
 En vigueur : 1953-08-01 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ SCHUMAN.
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

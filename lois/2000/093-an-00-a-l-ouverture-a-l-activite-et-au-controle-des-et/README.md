@@ -1,8 +1,8 @@
 # Loi n° 93/AN/00/4ème L relative a l’Ouverture, a l’Activité et au Controle des Etablissements de Crédit.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-00-4eme-l-relative-a-louverture-a-lactivite-et-au-controle-des-etablissements-de-credit/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-00-4eme-l-relative-a-louverture-a-lactivite-et-au-controle-des-etablissements-de-credit/>
 
-En vigueur : 2000-07-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-07-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -97,4 +97,4 @@ ISMAÏL OMAR GUELLEH
 | [art-078.md](art-078.md) | Article 78 |
 | [art-079.md](art-079.md) | Article 79 |
 | [art-080.md](art-080.md) | Article 80 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

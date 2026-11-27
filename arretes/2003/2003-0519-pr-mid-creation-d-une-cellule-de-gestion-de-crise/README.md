@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0519/PR/MID portant création d’une cellule de Gestion de Crise.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0519-pr-mid-portant-creation-dune-cellule-de-gestion-de-crise/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0519-pr-mid-portant-creation-dune-cellule-de-gestion-de-crise/>
 
 En vigueur : 2003-07-15 (date du Journal officiel qui le publie).
 

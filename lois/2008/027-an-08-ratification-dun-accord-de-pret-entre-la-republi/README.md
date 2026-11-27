@@ -1,6 +1,6 @@
 # Loi n° 27/AN/08/6ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et la Banque Islamique de Développement (BID).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-08-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-08-6eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-la-banque-islamique-de-developpement-bid/>
 
 En vigueur : 2008-12-15 (date du Journal officiel qui le publie).
 

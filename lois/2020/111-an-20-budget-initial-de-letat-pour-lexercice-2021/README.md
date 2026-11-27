@@ -1,6 +1,6 @@
 # Loi de finances n° 111/AN/20/8ème L portant Budget Initial de l’Etat pour l’exercice 2021.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n111-an-20-8eme-l-portant-budget-initial-de-letat-pour-lexercice-2021/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 24 du 31/12/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n111-an-20-8eme-l-portant-budget-initial-de-letat-pour-lexercice-2021/>
 
 En vigueur : 2021-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

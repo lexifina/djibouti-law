@@ -1,6 +1,6 @@
 # Décret n° 85-116/PR approuvant et rendant exécutoire le budget primitif 1986 de l’Office de Développement du Tourisme.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 31/12/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-116-pr-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-loffice-de-developpement-du-tourisme/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 31/12/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-116-pr-approuvant-et-rendant-executoire-le-budget-primitif-1986-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1985-12-31 (date du Journal officiel qui le publie).
 

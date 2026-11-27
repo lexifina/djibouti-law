@@ -1,6 +1,6 @@
 # Arrêté n° 2018-027/PR/MB portant attribution d’une parcelle de terrain au profit de la Société Djibouti Fishry Industry SARL.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-027-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-djibouti-fishry-industry-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-027-pr-mb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-la-societe-djibouti-fishry-industry-sarl/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

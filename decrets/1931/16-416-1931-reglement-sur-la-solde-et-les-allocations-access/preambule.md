@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art 1er. — Le paragraphe 11 de l’article 55 du décret du 2 mars 1910, portant règlement sur la solde et les allocations accessoires du personnel colonial, est modifié ainsi qu’il suit :
 « Toutefois, , pour certaines affections particulièrement graves (nécessitant des soins longs et dispendieux (trypanosomiase humaine, tuberculose, lèpre, abcès an foie, blessures graves reçues et maladies contractés pendillai la guerre et devant le ennemi par le personnels mobilisé, ainsi que les états cachectique consécutifs aux affections exotiques et aux maladies pestilentielles contractées en service dès traînant une invalidité actuelle de 80 p. 100 au moins reconnue après expertise hospitalière, sans que cette expertise puisse préjuger de la décision des commission de réforme devant lesquelles est
 être éventuellement présent, la solde entière de présence, calculée, s’i y a lieu, sur la base indiquée au paragraphe précédent, pourra être maintenue pendant toute la durée du congé de convalescence, sur avis conforme au conseil supérieur de santé. »

@@ -1,6 +1,6 @@
 # Loi n° 16/AN/03/5ème L portant Règlement définitif du budget de l’Etat de l’exercice 2001.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-03-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2001/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-03-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2001/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

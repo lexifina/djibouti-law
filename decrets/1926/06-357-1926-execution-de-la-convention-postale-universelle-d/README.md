@@ -1,6 +1,6 @@
 # Décret n° 06-357-1926 Exécution de la convention postale universelle du 28 août 1924 et du règlement y annexé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 357 du 31/08/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-357-1926-execution-de-la-convention-postale-universelle-du-28-aout-1924-et-du-reglement-y-annexe/>
+Décret · Journal officiel de la République de Djibouti, n° 357 du 31/08/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-357-1926-execution-de-la-convention-postale-universelle-du-28-aout-1924-et-du-reglement-y-annexe/>
 
 En vigueur : 1926-08-31 (date du Journal officiel qui le publie).
 

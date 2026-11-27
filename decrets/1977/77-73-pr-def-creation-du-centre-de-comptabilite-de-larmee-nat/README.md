@@ -1,8 +1,8 @@
 # Décret n° 77-73/PR/DEF Portant création du Centre de comptabilité de l’armée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-73-pr-def-portant-creation-du-centre-de-comptabilite-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-73-pr-def-portant-creation-du-centre-de-comptabilite-de-larmee-nationale/>
 
-En vigueur : 1977-12-13 (date fixÃ©e par le texte).
+En vigueur : 1977-12-13 (date fixée par le texte).
 
 ## Visas
 

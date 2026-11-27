@@ -1,6 +1,6 @@
 # Décret n° 2002-0255/PR/MID Fixant les modalités d’organisation du scrutin du 10 janvier 2003 portant élection des membres de l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0255-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-du-10-janvier-2003-portant-election-des-membres-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 15/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0255-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-du-10-janvier-2003-portant-election-des-membres-de-lassemblee-nationale/>
 
 En vigueur : 2002-12-15 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

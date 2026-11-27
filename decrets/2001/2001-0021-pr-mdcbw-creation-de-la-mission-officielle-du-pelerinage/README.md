@@ -1,6 +1,6 @@
 # Décret n° 2001-0021/PR/MDCBW portant création de la mission officielle du Pèlerinage pour l’année 2001.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0021-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2001/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0021-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2001/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

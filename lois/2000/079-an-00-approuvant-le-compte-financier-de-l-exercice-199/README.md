@@ -1,6 +1,6 @@
 # Loi n° 79/AN/00/4ème L approuvant le compte financier de l’exercice 1998 de l’Etablissement Public des Hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-00-4eme-l-approuvant-le-compte-financier-de-lexercice-1998-de-letablissement-public-des-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n79-an-00-4eme-l-approuvant-le-compte-financier-de-lexercice-1998-de-letablissement-public-des-hydrocarbures/>
 
 En vigueur : 2000-03-30 (date du Journal officiel qui le publie).
 

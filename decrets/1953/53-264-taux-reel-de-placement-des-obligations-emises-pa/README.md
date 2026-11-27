@@ -1,6 +1,6 @@
 # Décret n° 53-264 concernant le taux réel de placement des obligations émises par la Compagnie du chemin de fer franco-éthiopien de Djibouti à Addis-Abeba.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/07/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-264-concernant-le-taux-reel-de-placement-des-obligations-emises-par-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/07/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-264-concernant-le-taux-reel-de-placement-des-obligations-emises-par-la-compagnie-du-chemin-de-fer-franco-ethiopien-de-djibouti-a-addis-abeba/>
 
 En vigueur : 1953-07-01 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Henri CAILLAVET.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

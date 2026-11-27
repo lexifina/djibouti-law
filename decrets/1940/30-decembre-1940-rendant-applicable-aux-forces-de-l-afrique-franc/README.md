@@ -1,6 +1,6 @@
 # Décret n° 30 décembre 1940 rendant applicable aux Forces de l’Afrique Française Libre les dispositions du décret Guerre du 30 août 1939, relatif aux délégations de solde.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-decembre-1940-rendant-applicable-aux-forces-de-lafrique-francaise-libre-les-dispositions-du-decret-guerre-du-30-aout-1939-relatif-aux-delegations-de-solde/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-decembre-1940-rendant-applicable-aux-forces-de-lafrique-francaise-libre-les-dispositions-du-decret-guerre-du-30-aout-1939-relatif-aux-delegations-de-solde/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 3-464-1935 Publication et mise en application provisoire du traité de commerce et de navigation du 28 mai 1935 entre la République française et le Royaume des Pays-Bas.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 464 du 31/07/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-464-1935-publication-et-mise-en-application-provisoire-du-traite-de-commerce-et-de-navigation-du-28-mai-1935-entre-la-republique-francaise-et-le-royaume-des-pays-bas/>
+Décret · Journal officiel de la République de Djibouti, n° 464 du 31/07/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-464-1935-publication-et-mise-en-application-provisoire-du-traite-de-commerce-et-de-navigation-du-28-mai-1935-entre-la-republique-francaise-et-le-royaume-des-pays-bas/>
 
 En vigueur : 1935-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 80-072/PR portant modification des statuts de la « Société hôtelière d’État de Djibouti»
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-072-pr-portant-modification-des-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-072-pr-portant-modification-des-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ HASSAN GOULED APTIDON
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

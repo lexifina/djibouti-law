@@ -1,6 +1,6 @@
 # Décret n° 2010-0179/PR/MEFPCP portant fixant du prix du foncier ainsi que le prix des voiries par mètre carré cessible du Lotissement de Guelleh Batal II.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0179-pr-mefpcp-portant-fixant-du-prix-du-foncier-ainsi-que-le-prix-des-voiries-par-metre-carre-cessible-du-lotissement-de-guelleh-batal-ii/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0179-pr-mefpcp-portant-fixant-du-prix-du-foncier-ainsi-que-le-prix-des-voiries-par-metre-carre-cessible-du-lotissement-de-guelleh-batal-ii/>
 
 En vigueur : 2010-09-15 (date du Journal officiel qui le publie).
 

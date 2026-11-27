@@ -1,8 +1,8 @@
 # Décret n° 2018-261/PR/MB fixant les nouveaux tarifs des frais collectés par la Direction de la Douane et des Droits Indirects pour Services rendus et abrogeant le texte antérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 30/08/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-261-pr-mb-fixant-les-nouveaux-tarifs-des-frais-collectes-par-la-direction-de-la-douane-et-des-droits-indirects-pour-services-rendus-et-abrogeant-le-texte-anterieur/>
+Décret · Journal officiel de la République de Djibouti, n° 16 du 30/08/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-261-pr-mb-fixant-les-nouveaux-tarifs-des-frais-collectes-par-la-direction-de-la-douane-et-des-droits-indirects-pour-services-rendus-et-abrogeant-le-texte-anterieur/>
 
-En vigueur : 2018-08-23 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-08-23 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

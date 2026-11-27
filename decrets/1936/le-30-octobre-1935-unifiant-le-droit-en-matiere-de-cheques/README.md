@@ -1,6 +1,6 @@
 # Décret n° le 30 octobre 1935. UNIFIANT LE DROIT EN MATIÈRE DE CHÈQUES.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 476 du 30/07/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-30-octobre-1935-unifiant-le-droit-en-matiere-de-cheques/>
+Décret · Journal officiel de la République de Djibouti, n° 476 du 30/07/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-30-octobre-1935-unifiant-le-droit-en-matiere-de-cheques/>
 
 En vigueur : 1936-07-30 (date du Journal officiel qui le publie).
 

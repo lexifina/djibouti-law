@@ -1,6 +1,6 @@
 # Décret n° 05-97-1904 Texte des deux décrets.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 97 du 01/12/1904 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-97-1904-texte-des-deux-decrets/>
+Décret · Journal officiel de la République de Djibouti, n° 97 du 01/12/1904 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-97-1904-texte-des-deux-decrets/>
 
 En vigueur : 1904-12-01 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ ROUVIER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-025.md](art-025.md) | Art. 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

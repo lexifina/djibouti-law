@@ -1,8 +1,8 @@
 # Arrêté n° 2008-0636/PR/MJAP portant prise de fonctions des surveillants Pénitenciers.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0636-pr-mjap-portant-prise-de-fonctions-des-surveillants-penitenciers/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0636-pr-mjap-portant-prise-de-fonctions-des-surveillants-penitenciers/>
 
-En vigueur : 2008-09-11 (date fixÃ©e par le texte).
+En vigueur : 2008-09-11 (date fixée par le texte).
 
 ## Visas
 

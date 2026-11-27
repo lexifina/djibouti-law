@@ -1,6 +1,6 @@
 # Loi n° 159/AN/85/1ère L portant approbation de la signature de la Convention des Nations Unies sur le Droit de la Mer.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-85-1ere-l-portant-approbation-de-la-signature-de-la-convention-des-nations-unies-sur-le-droit-de-la-mer/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-85-1ere-l-portant-approbation-de-la-signature-de-la-convention-des-nations-unies-sur-le-droit-de-la-mer/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

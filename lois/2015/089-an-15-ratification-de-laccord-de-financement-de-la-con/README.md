@@ -1,6 +1,6 @@
 # Loi n° 89/AN/15/7ème L portant ratification de l’Accord de financement de la construction des logements sociaux.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-la-construction-des-logements-sociaux/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-la-construction-des-logements-sociaux/>
 
 En vigueur : 2015-05-31 (date du Journal officiel qui le publie).
 

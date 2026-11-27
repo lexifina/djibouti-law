@@ -1,6 +1,6 @@
 # Loi n° 16/AN/82/1re L fixant la date d’ouverture et ia durée de la 2e session ordinaire de 1982 dite « Session budgétaire. »
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-82-1re-l-fixant-la-date-douverture-et-ia-duree-de-la-2e-session-ordinaire-de-1982-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/11/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-82-1re-l-fixant-la-date-douverture-et-ia-duree-de-la-2e-session-ordinaire-de-1982-dite-session-budgetaire/>
 
 En vigueur : 1982-11-30 (date du Journal officiel qui le publie).
 

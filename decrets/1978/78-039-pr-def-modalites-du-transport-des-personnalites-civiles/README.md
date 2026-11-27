@@ -1,8 +1,8 @@
 # Décret n° 78-039/PR/DEF Fixant les modalités du transport des personnalités civiles sur le appareils de l’armée de l’Air de la République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 24/04/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-039-pr-def-fixant-les-modalites-du-transport-des-personnalites-civiles-sur-le-appareils-de-larmee-de-lair-de-la-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 24/04/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-039-pr-def-fixant-les-modalites-du-transport-des-personnalites-civiles-sur-le-appareils-de-larmee-de-lair-de-la-republique-de-djibouti/>
 
-En vigueur : 1978-04-11 (date fixÃ©e par le texte).
+En vigueur : 1978-04-11 (date fixée par le texte).
 
 ## Visas
 

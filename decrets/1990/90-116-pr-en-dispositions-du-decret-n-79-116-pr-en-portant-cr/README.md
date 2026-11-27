@@ -1,6 +1,6 @@
 # Décret n° 90-116/PR/EN modifiant les dispositions du décret n° 79-116/PR/EN portant création d’un Baccalauréat de l’enseignement du 2ème degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 30/10/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-116-pr-en-modifiant-les-dispositions-du-decret-n-79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-2eme-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 30/10/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-116-pr-en-modifiant-les-dispositions-du-decret-n-79-116-pr-en-portant-creation-dun-baccalaureat-de-lenseignement-du-2eme-degre/>
 
 En vigueur : 1990-10-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0189/PR/MS portant réglementation de l’importation et de la commercialisation du sel iodé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0189-pr-ms-portant-reglementation-de-limportation-et-de-la-commercialisation-du-sel-iode/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0189-pr-ms-portant-reglementation-de-limportation-et-de-la-commercialisation-du-sel-iode/>
 
 En vigueur : 1997-12-30 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ Hassan Gouled Aptidon
 | [art-012.md](art-012.md) | Article12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

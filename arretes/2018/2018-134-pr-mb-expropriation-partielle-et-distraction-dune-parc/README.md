@@ -1,6 +1,6 @@
 # Arrêté n° 2018-134/PR/MB portant Expropriation partielle et distraction d’une parcelle de terrain
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 13/09/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-134-pr-mb-portant-expropriation-partielle-et-distraction-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 13/09/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-134-pr-mb-portant-expropriation-partielle-et-distraction-dune-parcelle-de-terrain/>
 
 En vigueur : 2018-09-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

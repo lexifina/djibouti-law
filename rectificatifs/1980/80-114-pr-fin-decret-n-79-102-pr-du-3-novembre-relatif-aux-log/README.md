@@ -1,6 +1,6 @@
 # Additif n° 80-114/PR/FIN au décret n° 79-102/PR du 3 novembre relatif aux logements administratifs et avantages en nature.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 11/02/1981 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n80-114-pr-fin-au-decret-n-79-102-pr-du-3-novembre-relatif-aux-logements-administratifs-et-avantages-en-nature/>
+Additif · Journal officiel de la République de Djibouti, n° 2 du 11/02/1981 · <https://www.journalofficiel.dj/texte-juridique/additif-n80-114-pr-fin-au-decret-n-79-102-pr-du-3-novembre-relatif-aux-logements-administratifs-et-avantages-en-nature/>
 
 En vigueur : 1981-02-11 (date du Journal officiel qui le publie).
 

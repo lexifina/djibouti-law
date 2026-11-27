@@ -1,6 +1,6 @@
 # Loi n° 89/AN/10/6ème L portant réglementation de la fabrication, de la fourniture et de la distribution des substituts de lait maternel et assurant la protection et l’encouragement de l’allaitement maternel.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-10-6eme-l-portant-reglementation-de-la-fabrication-de-la-fourniture-et-de-la-distribution-des-substituts-de-lait-maternel-et-assurant-la-protection-et-lencouragement-de-l/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n89-an-10-6eme-l-portant-reglementation-de-la-fabrication-de-la-fourniture-et-de-la-distribution-des-substituts-de-lait-maternel-et-assurant-la-protection-et-lencouragement-de-l/>
 
 En vigueur : 2010-08-31 (date du Journal officiel qui le publie).
 

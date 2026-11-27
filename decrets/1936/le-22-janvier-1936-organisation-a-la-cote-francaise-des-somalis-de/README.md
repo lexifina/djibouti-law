@@ -1,6 +1,6 @@
 # Décret n° le 22 janvier 1936 Organisation à la Côte française des Somalis de l’état civil des étrangers jouissant d’un statut spécial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-organisation-a-la-cote-francaise-des-somalis-de-letat-civil-des-etrangers-jouissant-dun-statut-special/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-organisation-a-la-cote-francaise-des-somalis-de-letat-civil-des-etrangers-jouissant-dun-statut-special/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ Léon bérard.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

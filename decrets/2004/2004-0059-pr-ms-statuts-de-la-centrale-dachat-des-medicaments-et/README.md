@@ -1,6 +1,6 @@
 # Décret n° 2004-0059/PR/MS portant statuts de la Centrale d’Achat des Médicaments et Matériels Essentiels (CAMME).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0059-pr-ms-portant-statuts-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0059-pr-ms-portant-statuts-de-la-centrale-dachat-des-medicaments-et-materiels-essentiels-camme/>
 
 En vigueur : 2004-04-15 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
 | [art-037.md](art-037.md) | Article 37 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

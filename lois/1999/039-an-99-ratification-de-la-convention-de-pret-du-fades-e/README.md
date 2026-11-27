@@ -1,6 +1,6 @@
 # Loi n° 39/AN/99/4ème L portant ratification de la Convention de prêt du FADES et du fonds Koweitien pour la réhabilitation de la Centrale de Boulaos I (2ème phase) et celle des groupes G21 et G22
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-99-4eme-l-portant-ratification-de-la-convention-de-pret-du-fades-et-du-fonds-koweitien-pour-la-rehabilitation-de-la-centrale-de-boulaos-i-2eme-phase-et-celle-des-groupes-g21-et-g22/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-99-4eme-l-portant-ratification-de-la-convention-de-pret-du-fades-et-du-fonds-koweitien-pour-la-rehabilitation-de-la-centrale-de-boulaos-i-2eme-phase-et-celle-des-groupes-g21-et-g22/>
 
 En vigueur : 1999-05-31 (date du Journal officiel qui le publie).
 

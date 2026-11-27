@@ -1,6 +1,6 @@
 # Décret n° 162 / AN/91/2e L approuvant le compte administratif pour l’exercice 1989 de l’etablissement public des hydrocarbure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n162-an-91-2e-l-approuvant-le-compte-administratif-pour-lexercice-1989-de-letablissement-public-des-hydrocarbure/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n162-an-91-2e-l-approuvant-le-compte-administratif-pour-lexercice-1989-de-letablissement-public-des-hydrocarbure/>
 
 En vigueur : 1991-07-15 (date du Journal officiel qui le publie).
 

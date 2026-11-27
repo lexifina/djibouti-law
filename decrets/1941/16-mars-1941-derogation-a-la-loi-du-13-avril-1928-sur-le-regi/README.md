@@ -1,6 +1,6 @@
 # Décret n° 16 MARS 1941 portant dérogation a la loi du 13 avril 1928 sur le régime douanier colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mars-1941-portant-derogation-a-la-loi-du-13-avril-1928-sur-le-regime-douanier-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mars-1941-portant-derogation-a-la-loi-du-13-avril-1928-sur-le-regime-douanier-colonial/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ PLATON.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

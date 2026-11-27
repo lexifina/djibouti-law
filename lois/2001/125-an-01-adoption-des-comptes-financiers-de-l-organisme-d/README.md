@@ -1,6 +1,6 @@
 # Loi n° 125/AN/01/4ème L portant adoption des comptes financiers de l’Organisme de Protection Sociale, pour l’exercice 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-01-4eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n125-an-01-4eme-l-portant-adoption-des-comptes-financiers-de-lorganisme-de-protection-sociale-pour-lexercice-1997/>
 
 En vigueur : 2001-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2018-032/PR/MHUE portant démolition pour état de vétusté avancé du bâtiment dit “Soleillet” situé au “Plateau du Serpent”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-032-pr-mhue-portant-demolition-pour-etat-de-vetuste-avance-du-batiment-dit-soleillet-situe-au-plateau-du-serpent/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-032-pr-mhue-portant-demolition-pour-etat-de-vetuste-avance-du-batiment-dit-soleillet-situe-au-plateau-du-serpent/>
 
 En vigueur : 2018-02-15 (date du Journal officiel qui le publie).
 

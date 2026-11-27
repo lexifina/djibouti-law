@@ -1,6 +1,6 @@
 # Décret n° 88-035/PRE/MAEC Portant création d’un Comité National Anti-Apartheid.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-035-pre-maec-portant-creation-dun-comite-national-anti-apartheid/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-035-pre-maec-portant-creation-dun-comite-national-anti-apartheid/>
 
 En vigueur : 1988-05-15 (date du Journal officiel qui le publie).
 

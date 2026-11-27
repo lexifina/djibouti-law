@@ -1,6 +1,6 @@
 # Décret n° le 8 novembre 1938. relatif à l’emploi des aéronefs civils.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 505 du 31/12/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-8-novembre-1938-relatif-a-lemploi-des-aeronefs-civils/>
+Décret · Journal officiel de la République de Djibouti, n° 505 du 31/12/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-8-novembre-1938-relatif-a-lemploi-des-aeronefs-civils/>
 
 En vigueur : 1938-12-31 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Vu l'arrêté du 27 février 1927 relatif à la méme question,
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

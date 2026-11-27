@@ -1,6 +1,6 @@
 # Loi n° 208/AN/86/1ère L portant approbation du cahier des charges du lotissement du boulevard de Guelleh-Batal.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/07/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-86-1ere-l-portant-approbation-du-cahier-des-charges-du-lotissement-du-boulevard-de-guelleh-batal/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/07/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n208-an-86-1ere-l-portant-approbation-du-cahier-des-charges-du-lotissement-du-boulevard-de-guelleh-batal/>
 
 En vigueur : 1986-07-15 (date du Journal officiel qui le publie).
 

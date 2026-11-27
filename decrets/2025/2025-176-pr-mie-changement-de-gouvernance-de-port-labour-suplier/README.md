@@ -1,6 +1,6 @@
 # Décret n° 2025-176/PR/MIE portant changement de gouver nance de port Labour Suplier ( PLS) SAS.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-176-pr-mie-portant-changement-de-gouver-nance-de-port-labour-suplier-pls-sas/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-176-pr-mie-portant-changement-de-gouver-nance-de-port-labour-suplier-pls-sas/>
 
 En vigueur : 2025-07-15 (date du Journal officiel qui le publie).
 

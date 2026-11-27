@@ -1,6 +1,6 @@
 # Loi n° 105/AN/15/7ème L portant ratification de l’Accord de financement de production électrique à Jaban’as.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-production-electrique-a-jabanas/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-production-electrique-a-jabanas/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

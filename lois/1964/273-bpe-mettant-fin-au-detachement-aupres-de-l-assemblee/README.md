@@ -1,6 +1,6 @@
 # Amendement n° 273/BPE mettant fin au détachement auprès de l’Assemblée Territoriale d’un Aide- Opérateur principal du Corps Territorial du Service Météorologique
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/04/1964 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-273-bpe-mettant-fin-au-detachement-aupres-de-lassemblee-territoriale-dun-aide-operateur-principal-du-corps-territorial-du-service-meteorologique/>
+Amendement · Journal officiel de la République de Djibouti, n° 3 du 01/04/1964 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-273-bpe-mettant-fin-au-detachement-aupres-de-lassemblee-territoriale-dun-aide-operateur-principal-du-corps-territorial-du-service-meteorologique/>
 
 En vigueur : 1964-04-01 (date du Journal officiel qui le publie).
 

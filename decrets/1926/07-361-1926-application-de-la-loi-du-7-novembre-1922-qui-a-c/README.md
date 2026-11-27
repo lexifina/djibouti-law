@@ -1,6 +1,6 @@
 # Décret n° 07-361-1926 Application de la loi du 7 novembre 1922, qui a complété l’article 1384 du code civil
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 361 du 31/12/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-361-1926-application-de-la-loi-du-7-novembre-1922-qui-a-complete-larticle-1384-du-code-civil/>
+Décret · Journal officiel de la République de Djibouti, n° 361 du 31/12/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-361-1926-application-de-la-loi-du-7-novembre-1922-qui-a-complete-larticle-1384-du-code-civil/>
 
 En vigueur : 1926-12-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Louis BARIHOU
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |

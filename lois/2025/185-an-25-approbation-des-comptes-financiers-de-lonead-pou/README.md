@@ -1,6 +1,6 @@
 # Loi n° 185/AN/25/9ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2023.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2023/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n185-an-25-9eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2023/>
 
 En vigueur : 2025-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

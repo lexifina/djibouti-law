@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0278/PR/MEFPCP attribuant à Djibouti-Télécom S.A un terrain jouxtant ses bâtiments YAC 1&2.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0278-pr-mefpcp-attribuant-a-djibouti-telecom-s-a-un-terrain-jouxtant-ses-batiments-yac-12/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0278-pr-mefpcp-attribuant-a-djibouti-telecom-s-a-un-terrain-jouxtant-ses-batiments-yac-12/>
 
 En vigueur : 2010-04-15 (date du Journal officiel qui le publie).
 

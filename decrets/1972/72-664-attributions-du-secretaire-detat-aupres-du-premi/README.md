@@ -1,6 +1,6 @@
 # Décret n° 72-664 relatif aux attributions du secrétaire d’Etat auprès du Premier ministre, chargé des départements et territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-664-relatif-aux-attributions-du-secretaire-detat-aupres-du-premier-ministre-charge-des-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-664-relatif-aux-attributions-du-secretaire-detat-aupres-du-premier-ministre-charge-des-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

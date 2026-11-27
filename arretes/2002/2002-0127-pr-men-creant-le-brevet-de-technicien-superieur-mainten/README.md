@@ -1,8 +1,8 @@
 # Arrêté n° 2002-0127/PR/MEN créant le Brevet de Technicien Supérieur « Maintenance Industrielle » et définissant les conditions de délivrance à ce diplôme.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0127-pr-men-creant-le-brevet-de-technicien-superieur-maintenance-industrielle-et-definissant-les-conditions-de-delivrance-a-ce-diplome/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0127-pr-men-creant-le-brevet-de-technicien-superieur-maintenance-industrielle-et-definissant-les-conditions-de-delivrance-a-ce-diplome/>
 
-En vigueur : 2002-02-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2002-02-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

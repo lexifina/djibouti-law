@@ -1,6 +1,6 @@
 # Loi n° 140/AN/06/5ème L portant politique nationale de gestion des risques et des catastrophes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-06-5eme-l-portant-politique-nationale-de-gestion-des-risques-et-des-catastrophes/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n140-an-06-5eme-l-portant-politique-nationale-de-gestion-des-risques-et-des-catastrophes/>
 
 En vigueur : 2006-03-15 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

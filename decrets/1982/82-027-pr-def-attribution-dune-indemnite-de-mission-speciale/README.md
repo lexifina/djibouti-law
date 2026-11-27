@@ -1,6 +1,6 @@
 # Décret n° 82-027/PR/DEF portant attribution d’une indemnité de mission spéciale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-027-pr-def-portant-attribution-dune-indemnite-de-mission-speciale/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-027-pr-def-portant-attribution-dune-indemnite-de-mission-speciale/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2014-021/PR/MTRA portant approbation du budget prévisionnel de l’exercice 2014 de la Caisse Nationale de Sécurité Sociale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-021-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2014-de-la-caisse-nationale-de-securite-sociale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-021-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2014-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

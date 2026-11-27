@@ -1,6 +1,6 @@
 # Décret n° 70-789 portant publication de l’accord conclu entre le Gouvernement de la République française et le Gouvernement du Commonwealth d’Australie en vue d’éviter la double imposition des revenus tirés du transport aérien international, signé à Canberra le 27 mars 1969 .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-789-portant-publication-de-laccord-conclu-entre-le-gouvernement-de-la-republique-francaise-et-le-gouvernement-du-commonwealth-daustralie-en-vue-deviter-la-double-imposi/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-789-portant-publication-de-laccord-conclu-entre-le-gouvernement-de-la-republique-francaise-et-le-gouvernement-du-commonwealth-daustralie-en-vue-deviter-la-double-imposi/>
 
 En vigueur : 1970-10-10 (date du Journal officiel qui le publie).
 

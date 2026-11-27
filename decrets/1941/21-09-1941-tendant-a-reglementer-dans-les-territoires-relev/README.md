@@ -1,6 +1,6 @@
 # Décret n° 21/09/1941 tendant à réglementer dans les territoires relevant de l’autorité du Secrétariat d’Etat aux colonies les ventes aux enchères ou à cri public.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 540 du 30/11/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-09-1941-tendant-a-reglementer-dans-les-territoires-relevant-de-lautorite-du-secretariat-detat-aux-colonies-les-ventes-aux-encheres-ou-a-cri-public/>
+Décret · Journal officiel de la République de Djibouti, n° 540 du 30/11/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-09-1941-tendant-a-reglementer-dans-les-territoires-relevant-de-lautorite-du-secretariat-detat-aux-colonies-les-ventes-aux-encheres-ou-a-cri-public/>
 
 En vigueur : 1941-11-30 (date du Journal officiel qui le publie).
 

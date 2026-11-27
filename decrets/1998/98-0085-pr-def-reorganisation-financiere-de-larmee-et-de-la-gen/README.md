@@ -1,8 +1,8 @@
 # Décret n° 98-0085/PR/DEF portant réorganisation financière de l’armée et de la gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0085-pr-def-portant-reorganisation-financiere-de-larmee-et-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0085-pr-def-portant-reorganisation-financiere-de-larmee-et-de-la-gendarmerie-nationale/>
 
-En vigueur : 1998-07-13 (date fixÃ©e par le texte).
+En vigueur : 1998-07-13 (date fixée par le texte).
 
 ## Visas
 

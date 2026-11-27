@@ -1,6 +1,6 @@
 # Décret n° 53-265 du 28 mars 1953 portant modification au décret n° 51-1523 du 31 décembre 1951, modifiant le décret n° 49-1364 du 2 août 1949 fixant le statut particulier des auxiliaires de gendarmerie des territoires relevant du Ministre de la F.O.M. autres que l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/06/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-265-du-28-mars-1953-portant-modification-au-decret-n-51-1523-du-31-decembre-1951-modifiant-le-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxilia/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/06/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-265-du-28-mars-1953-portant-modification-au-decret-n-51-1523-du-31-decembre-1951-modifiant-le-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxilia/>
 
 En vigueur : 1953-06-01 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ Jean MOREAU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

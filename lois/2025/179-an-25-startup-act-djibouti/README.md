@@ -1,8 +1,8 @@
 # Loi n° 179/AN/25/9ème L portant Startup Act Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-25-9eme-l-portant-startup-act-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-25-9eme-l-portant-startup-act-djibouti/>
 
-En vigueur : 2025-12-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2025-12-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -57,4 +57,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

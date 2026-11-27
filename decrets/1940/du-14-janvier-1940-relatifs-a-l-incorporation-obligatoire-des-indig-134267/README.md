@@ -1,6 +1,6 @@
 # Décret n° du 14 janvier 1940 relatifs à l’incorporation obligatoire des indigènes résidant hors de leur colonie d’origine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-14-janvier-1940-relatifs-a-lincorporation-obligatoire-des-indigenes-residant-hors-de-leur-colonie-dorigine/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-14-janvier-1940-relatifs-a-lincorporation-obligatoire-des-indigenes-residant-hors-de-leur-colonie-dorigine/>
 
 En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
 

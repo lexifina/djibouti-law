@@ -1,6 +1,6 @@
 # Loi n° 129/AN/05/5ème L Portant adoption des comptes financiers définitifs de la RTD pour l’exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-05-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n129-an-05-5eme-l-portant-adoption-des-comptes-financiers-definitifs-de-la-rtd-pour-lexercice-2003/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

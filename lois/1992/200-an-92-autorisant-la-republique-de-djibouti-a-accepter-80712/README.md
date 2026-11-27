@@ -1,6 +1,6 @@
 # Loi n° 200/AN/92/2e L autorisant la République de Djibouti à accepter le troisième amendement aux Statuts du Fonds monétaire internationale
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-92-2e-l-autorisant-la-republique-de-djibouti-a-accepter-le-troisieme-amendement-aux-statuts-du-fonds-monetaire-internationale/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n200-an-92-2e-l-autorisant-la-republique-de-djibouti-a-accepter-le-troisieme-amendement-aux-statuts-du-fonds-monetaire-internationale/>
 
 En vigueur : 1992-04-15 (date du Journal officiel qui le publie).
 

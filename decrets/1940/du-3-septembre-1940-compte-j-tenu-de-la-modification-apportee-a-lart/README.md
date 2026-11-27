@@ -1,6 +1,6 @@
 # Décret n° du 3 septembre 1940, compte j tenu de la modification apportée à l’article 5 de ladite loi par celle du 25 jan vier 1941.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 531 du 28/02/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-3-septembre-1940-compte-j-tenu-de-la-modification-apportee-a-larticle-5-de-ladite-loi-par-celle-du-25-jan-vier-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 531 du 28/02/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-3-septembre-1940-compte-j-tenu-de-la-modification-apportee-a-larticle-5-de-ladite-loi-par-celle-du-25-jan-vier-1941/>
 
 En vigueur : 1941-02-28 (date du Journal officiel qui le publie).
 

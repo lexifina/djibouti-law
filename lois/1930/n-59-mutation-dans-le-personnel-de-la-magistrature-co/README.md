@@ -1,6 +1,6 @@
 # Loi n° n°59 Mutation dans le personnel de la magistrature coloniale. reclassement
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 401 du 30/04/1930 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n59-mutation-dans-le-personnel-de-la-magistrature-coloniale-reclassement/>
+Loi · Journal officiel de la République de Djibouti, n° 401 du 30/04/1930 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n59-mutation-dans-le-personnel-de-la-magistrature-coloniale-reclassement/>
 
 En vigueur : 1930-04-30 (date du Journal officiel qui le publie).
 

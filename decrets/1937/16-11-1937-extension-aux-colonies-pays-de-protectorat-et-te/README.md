@@ -1,6 +1,6 @@
 # Décret n° 16/11/1937 portant extension aux colonies, pays de protectorat et territoires sous mandat, relevant du Ministère des colonies, des dispositions de la loi du 28 janvier 1937 qui a modifié l’article 401 du Code pénal.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 493 du 31/12/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-11-1937-portant-extension-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-dispositions-de-la-loi-du-28-janvier-1937-qui-a-modif/>
+Décret · Journal officiel de la République de Djibouti, n° 493 du 31/12/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-11-1937-portant-extension-aux-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-des-dispositions-de-la-loi-du-28-janvier-1937-qui-a-modif/>
 
 En vigueur : 1937-12-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2014-122/PR/MENSUR fixant les conditions et la procédure d’octroi des équivalences/reconnaissances des diplômes de l’enseignement supérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2014 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2014-122-pr-mensur-fixant-les-conditions-et-la-procedure-doctroi-des-equivalences-reconnaissances-des-diplomes-de-lenseignement-superieur/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2014 · <https://www.journalofficiel.dj/texte-juridique/decret-n2014-122-pr-mensur-fixant-les-conditions-et-la-procedure-doctroi-des-equivalences-reconnaissances-des-diplomes-de-lenseignement-superieur/>
 
-En vigueur : 2014-05-14 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-05-14 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

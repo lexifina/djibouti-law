@@ -1,6 +1,6 @@
 # Loi n° 161/AN/81 Portant adhésion de la République de Djibouti à la Compagnie Interarabe de Garantie des Investissements
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-81-portant-adhesion-de-la-republique-de-djibouti-a-la-compagnie-interarabe-de-garantie-des-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/03/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-81-portant-adhesion-de-la-republique-de-djibouti-a-la-compagnie-interarabe-de-garantie-des-investissements/>
 
 En vigueur : 1981-03-01 (date du Journal officiel qui le publie).
 

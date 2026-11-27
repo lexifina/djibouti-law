@@ -1,6 +1,6 @@
 # Loi n° 83-069/PR portant modification du régime des taux d’intérêt.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/07/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-069-pr-portant-modification-du-regime-des-taux-dinteret/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 31/07/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-069-pr-portant-modification-du-regime-des-taux-dinteret/>
 
 En vigueur : 1983-07-31 (date du Journal officiel qui le publie).
 

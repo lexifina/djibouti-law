@@ -1,6 +1,6 @@
 # Loi n° 195/AN/81 sur la Direction Nationale de la Statistique (DINAS) et abrogeant la délibération n° 87/8è L du 21 janvier 1975.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 01/10/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-81-sur-la-direction-nationale-de-la-statistique-dinas-et-abrogeant-la-deliberation-n87-8e-l-du-21-janvier-1975/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 01/10/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n195-an-81-sur-la-direction-nationale-de-la-statistique-dinas-et-abrogeant-la-deliberation-n87-8e-l-du-21-janvier-1975/>
 
 En vigueur : 1981-10-01 (date du Journal officiel qui le publie).
 

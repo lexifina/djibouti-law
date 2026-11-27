@@ -1,6 +1,6 @@
 # Loi n° 123/AN/11/6ème L portant adoption du Schéma Directeur de la Stratégie Nationale de Développement de la Statistique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-11-6eme-l-portant-adoption-du-schema-directeur-de-la-strategie-nationale-de-developpement-de-la-statistique/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n123-an-11-6eme-l-portant-adoption-du-schema-directeur-de-la-strategie-nationale-de-developpement-de-la-statistique/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 

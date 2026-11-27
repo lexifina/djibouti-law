@@ -1,6 +1,6 @@
 # Décret n° 45-1829 prescrivant l’établissement de listes électorales en Afrique Equatoriale Française, au Cameroun et à la Côte Française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1829-prescrivant-letablissement-de-listes-electorales-en-afrique-equatoriale-francaise-au-cameroun-et-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1829-prescrivant-letablissement-de-listes-electorales-en-afrique-equatoriale-francaise-au-cameroun-et-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 62-519 relatif à l’office de coopération et d’accueil universitaire et abrogeant les dispositions du décret n° 60-614 du 27 juin 1960
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-519-relatif-a-loffice-de-cooperation-et-daccueil-universitaire-et-abrogeant-les-dispositions-du-decret-n-60-614-du-27-juin-1960/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-519-relatif-a-loffice-de-cooperation-et-daccueil-universitaire-et-abrogeant-les-dispositions-du-decret-n-60-614-du-27-juin-1960/>
 
 En vigueur : 1962-04-30 (date du Journal officiel qui le publie).
 

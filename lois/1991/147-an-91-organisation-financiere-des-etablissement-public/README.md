@@ -1,6 +1,6 @@
 # Loi n° 147/AN/91/2ème L portant organisation financière des établissement publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-91-2eme-l-portant-organisation-financiere-des-etablissement-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-91-2eme-l-portant-organisation-financiere-des-etablissement-publics/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 

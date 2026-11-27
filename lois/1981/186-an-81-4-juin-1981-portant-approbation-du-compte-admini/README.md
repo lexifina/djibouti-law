@@ -1,6 +1,6 @@
 # Loi n° 186/AN/81 du 4 juin 1981 portant approbation du compte administratif 1980 de l’Office de Développement du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-81-du-4-juin-1981-portant-approbation-du-compte-administratif-1980-de-loffice-de-developpement-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n186-an-81-du-4-juin-1981-portant-approbation-du-compte-administratif-1980-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 99-0102/PRE portant deuxième Recensement Général de la Population et de l’Habitat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0102-pre-portant-deuxieme-recensement-general-de-la-population-et-de-lhabitat/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0102-pre-portant-deuxieme-recensement-general-de-la-population-et-de-lhabitat/>
 
 En vigueur : 1999-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 22-214-1914 04/08/1914
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 214 du 31/08/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-22-214-1914-04-08-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 214 du 31/08/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-22-214-1914-04-08-1914/>
 
 En vigueur : 1914-08-31 (date du Journal officiel qui le publie).
 

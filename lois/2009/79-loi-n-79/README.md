@@ -1,6 +1,6 @@
 # Loi n° 79
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n79/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n79/>
 
 En vigueur : 2023-03-15 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Par le président de la République,
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 53-27 modifiant l’article 247 du Code pénal (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 01/04/1953 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-53-27-modifiant-larticle-247-du-code-penal-1-2/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 01/04/1953 · <https://www.journalofficiel.dj/texte-juridique/loi-n-53-27-modifiant-larticle-247-du-code-penal-1-2/>
 
 En vigueur : 1953-04-01 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Louis JACQUINOT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

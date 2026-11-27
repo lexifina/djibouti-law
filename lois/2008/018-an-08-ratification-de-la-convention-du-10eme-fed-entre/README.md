@@ -1,6 +1,6 @@
 # Loi n° 18/AN/08/6ème L portant ratification de la Convention du 10ème FED entre la République de Djibouti et la Commission Européenne.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-08-6eme-l-portant-ratification-de-la-convention-du-10eme-fed-entre-la-republique-de-djibouti-et-la-commission-europeenne/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-08-6eme-l-portant-ratification-de-la-convention-du-10eme-fed-entre-la-republique-de-djibouti-et-la-commission-europeenne/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

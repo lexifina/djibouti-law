@@ -1,6 +1,6 @@
 # Arrêté n° 2016-693/PR/MB portant attribution d’une zone de 160 ha au profit du Ministère délégué au Logement.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-693-pr-mb-portant-attribution-dune-zone-de-160-ha-au-profit-du-ministere-delegue-au-logement/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-693-pr-mb-portant-attribution-dune-zone-de-160-ha-au-profit-du-ministere-delegue-au-logement/>
 
 En vigueur : 2016-10-31 (date du Journal officiel qui le publie).
 

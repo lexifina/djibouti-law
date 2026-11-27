@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE I.
 AMNISTIE
 Section I.

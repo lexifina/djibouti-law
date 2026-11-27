@@ -1,6 +1,6 @@
 # Décret n° 30/11/1944 fixant les conditions d’importation en France et dans les territoires français d’Outre-Mer des marchandises étrangères, ainsi que les conditions d’exportation et de réexportation des marchandises hors de France et des territoires d’Outre-Mer à destination de l’étranger, et établissant certaines formalités au point de vue des échanges entre la France et les territoires français d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/02/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-11-1944-fixant-les-conditions-dimportation-en-france-et-dans-les-territoires-francais-doutre-mer-des-marchandises-etrangeres-ainsi-que-les-conditions-dexportation-et-de-reexp/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 01/02/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-11-1944-fixant-les-conditions-dimportation-en-france-et-dans-les-territoires-francais-doutre-mer-des-marchandises-etrangeres-ainsi-que-les-conditions-dexportation-et-de-reexp/>
 
 En vigueur : 1945-02-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2019-332/PR/MEFI portant organisation du Centre de Leadership et d’Entrepreneuriat (CLE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-332-pr-mefi-portant-organisation-du-centre-de-leadership-et-dentrepreneuriat-cle/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-332-pr-mefi-portant-organisation-du-centre-de-leadership-et-dentrepreneuriat-cle/>
 
 En vigueur : 2020-01-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -68,4 +68,4 @@ ISMAÏL OMAR GUELLEH
 | [art-037.md](art-037.md) | Article 37 |
 | [art-038.md](art-038.md) | Article 38 |
 | [art-039.md](art-039.md) | Article 39 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 63-279 relatif au régime des aérodromes et aux servitudes aéronautiques dans les Territoires d’Outre-Mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-279-relatif-au-regime-des-aerodromes-et-aux-servitudes-aeronautiques-dans-les-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-279-relatif-au-regime-des-aerodromes-et-aux-servitudes-aeronautiques-dans-les-territoires-doutre-mer/>
 
 En vigueur : 1963-03-31 (date du Journal officiel qui le publie).
 
@@ -49,4 +49,4 @@ MARC JACQUET.
 | [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
 | [art-021.md](art-021.md) | Art. 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

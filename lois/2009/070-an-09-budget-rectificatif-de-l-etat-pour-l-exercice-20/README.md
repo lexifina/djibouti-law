@@ -1,6 +1,6 @@
 # Loi n° 70/AN/09/6ème L portant Budget rectificatif de l’Etat pour l’Exercice 2009.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-09-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2009/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-09-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2009/>
 
 En vigueur : 2010-02-15 (date du Journal officiel qui le publie).
 

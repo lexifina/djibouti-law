@@ -1,6 +1,6 @@
 # Décret n° n°82 Décret du 21 juin 1930 modifiant le décret du 2 mars 1910 fixant les règles d’allocation de l’indemnité de zone
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n82-decret-du-21-juin-1930-modifiant-le-decret-du-2-mars-1910-fixant-les-regles-dallocation-de-lindemnite-de-zone/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n82-decret-du-21-juin-1930-modifiant-le-decret-du-2-mars-1910-fixant-les-regles-dallocation-de-lindemnite-de-zone/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

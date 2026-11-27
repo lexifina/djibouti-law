@@ -1,6 +1,6 @@
 # Loi n° 70/AN/04/5ème L portant ratification de l’adhésion à l’Agence pour l’assurance du commerce en Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-04-5eme-l-portant-ratification-de-ladhesion-a-lagence-pour-lassurance-du-commerce-en-afrique/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-04-5eme-l-portant-ratification-de-ladhesion-a-lagence-pour-lassurance-du-commerce-en-afrique/>
 
 En vigueur : 2004-07-15 (date du Journal officiel qui le publie).
 

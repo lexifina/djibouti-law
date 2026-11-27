@@ -1,6 +1,6 @@
 # Décret n° 47-982 rendant applicables aux territoires relevant du ministère de la France d‘outre-mer les dispositions du titre Ier de la loi n” 145 du 4 mars 1913 relative aux sociétés par actions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-982-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-du-titre-ier-de-la-loi-n-145-du-4-mars-1913-relative-aux-soc/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-982-rendant-applicables-aux-territoires-relevant-du-ministere-de-la-france-doutre-mer-les-dispositions-du-titre-ier-de-la-loi-n-145-du-4-mars-1913-relative-aux-soc/>
 
 En vigueur : 1947-09-30 (date du Journal officiel qui le publie).
 

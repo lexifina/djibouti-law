@@ -1,9 +1,9 @@
 # Loi n° 110/AN/11/6ème L relative à la lutte
 contre le financement du terrorisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-11-6eme-l-relative-a-la-luttecontre-le-financement-du-terrorisme/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n110-an-11-6eme-l-relative-a-la-luttecontre-le-financement-du-terrorisme/>
 
-En vigueur : 2011-05-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-05-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -61,4 +61,4 @@ ISMAÏL OMAR GUELLEH
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
 | [art-031.md](art-031.md) | Article 31 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° n°22 Décret approuvant l’ouverture d’un crédit supplémentaire de DONS. 597 francs 99 centimes au budget local de la côte française des Somalis (exercice 1932)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 428 du 31/07/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n22-decret-approuvant-louverture-dun-credit-supplementaire-de-dons-597-francs-99-centimes-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 428 du 31/07/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n22-decret-approuvant-louverture-dun-credit-supplementaire-de-dons-597-francs-99-centimes-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1932/>
 
 En vigueur : 1932-07-31 (date du Journal officiel qui le publie).
 

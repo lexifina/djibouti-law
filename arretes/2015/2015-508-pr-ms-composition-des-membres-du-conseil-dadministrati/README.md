@@ -1,8 +1,8 @@
 # Arrêté n° 2015-508/PR/MS portant composition des membres du Conseil d’Administration du Centre National de Référence en Santé de la Reproduction “HOUSSEINA”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-508-pr-ms-portant-composition-des-membres-du-conseil-dadministration-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-508-pr-ms-portant-composition-des-membres-du-conseil-dadministration-du-centre-national-de-reference-en-sante-de-la-reproduction-housseina/>
 
-En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-08-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 5 mai 1938 portant application aux colonies et territoires relevant du ministère du décret-loi du 31 août 1937 interdisant l’installation dans les lieux publics de tous les appareils distributeurs fonctionnant moyennant un enjeu et reposant sur l’adresse ou le hasard.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-mai-1938-portant-application-aux-colonies-et-territoires-relevant-du-ministere-du-decret-loi-du-31-aout-1937-interdisant-linstallation-dans-les-lieux-publics-de-tous-les/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-mai-1938-portant-application-aux-colonies-et-territoires-relevant-du-ministere-du-decret-loi-du-31-aout-1937-interdisant-linstallation-dans-les-lieux-publics-de-tous-les/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 

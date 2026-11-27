@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0052/PR/MCCPT portant approbation du Budget prévisionnel de la Radio-Télévision de Djibouti (R.T.D.) pour l’exercice 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0052-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-r-t-d-pour-lexercice-2002/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0052-pr-mccpt-portant-approbation-du-budget-previsionnel-de-la-radio-television-de-djibouti-r-t-d-pour-lexercice-2002/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

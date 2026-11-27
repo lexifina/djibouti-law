@@ -1,8 +1,8 @@
 # Loi n° 73/AN/00/4ème L portant création et organisation du Ministère de l’Habitat, de l’Urbanisme, de l’Environnement et de l’Aménagement du Territoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-00-4eme-l-portant-creation-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-00-4eme-l-portant-creation-et-organisation-du-ministere-de-lhabitat-de-lurbanisme-de-lenvironnement-et-de-lamenagement-du-territoire/>
 
-En vigueur : 2000-03-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-03-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 60-1306 portant organisation du référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1306-portant-organisation-du-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1306-portant-organisation-du-referendum/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ JEAN FOYER.
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

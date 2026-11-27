@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 Art. V. — La loi du 28 octobre 1940 modi fiant les articles 162 et 368 du Code d’instruclion criminelle est déclarée applicable aux co lonies. Martinique, Guadeloupe et Réunion exceptées, aux pays de protectorat et territoires sous mandat relevant du Département des colonies sous la modification suivante concer nant le dernier alinéa de l’article 368 : « Si la partie civile a consigné, en exécution des textes pris en application du décret susvisé du 30 décembre 1928, les frais «pii n’ont pas été mis à sa charge lui seront restitués ».

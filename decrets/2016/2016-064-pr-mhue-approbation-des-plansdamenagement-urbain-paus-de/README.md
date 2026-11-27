@@ -1,8 +1,8 @@
 # Décret n° 2016-064/PR/MHUE portant approbation des Plansd’Aménagement Urbain (PAUs) des zones de Balbala Sud de Nagad et de Farah Had.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-064-pr-mhue-portant-approbation-des-plansdamenagement-urbain-paus-des-zones-de-balbala-sud-de-nagad-et-de-farah-had/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-064-pr-mhue-portant-approbation-des-plansdamenagement-urbain-paus-des-zones-de-balbala-sud-de-nagad-et-de-farah-had/>
 
-En vigueur : 2016-03-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-03-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

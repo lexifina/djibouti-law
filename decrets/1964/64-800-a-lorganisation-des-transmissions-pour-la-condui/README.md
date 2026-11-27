@@ -1,6 +1,6 @@
 # Décret n° 64-800 relatif à l’organisation des transmissions pour la conduite de la défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/09/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-800-relatif-a-lorganisation-des-transmissions-pour-la-conduite-de-la-defense/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/09/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-800-relatif-a-lorganisation-des-transmissions-pour-la-conduite-de-la-defense/>
 
 En vigueur : 1964-09-01 (date du Journal officiel qui le publie).
 

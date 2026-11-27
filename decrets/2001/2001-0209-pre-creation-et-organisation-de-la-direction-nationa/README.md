@@ -1,6 +1,6 @@
 # Décret n° 2001-0209/PRE portant création et organisation de la Direction Nationale des Archives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2001 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0209-pre-portant-creation-et-organisation-de-la-direction-nationale-des-archives/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2001 · <https://www.journalofficiel.dj/texte-juridique/decret-n2001-0209-pre-portant-creation-et-organisation-de-la-direction-nationale-des-archives/>
 
 En vigueur : 2001-11-15 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

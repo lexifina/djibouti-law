@@ -1,6 +1,6 @@
 # Décret n° 2-139-1908 16 octobre 1907
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 139 du 01/06/1908 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-139-1908-16-octobre-1907/>
+Décret · Journal officiel de la République de Djibouti, n° 139 du 01/06/1908 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-139-1908-16-octobre-1907/>
 
 En vigueur : 1908-06-01 (date du Journal officiel qui le publie).
 
@@ -35,7 +35,7 @@ Louis BARTHOLU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

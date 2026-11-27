@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. l »r . — Sont promulgués à la Côte française des Somalis et dépendances :
 1” Le décret du 26 mai 1937, portant réglementation du logement et de l’ameublement aux colonies;
 2° Le décret du 26 mai 1937, portant réglementation de l’ameublement, domes ticité et frais divers aux colonies:

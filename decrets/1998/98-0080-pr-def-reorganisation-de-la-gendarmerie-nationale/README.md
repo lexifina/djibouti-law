@@ -1,6 +1,6 @@
 # Décret n° 98-0080/PR/DEF portant réorganisation de la gendarmerie nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0080-pr-def-portant-reorganisation-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0080-pr-def-portant-reorganisation-de-la-gendarmerie-nationale/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 

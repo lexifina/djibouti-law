@@ -1,6 +1,6 @@
 # Loi n° 4/AN/87/2e L portant approbation du compte financier définitif de l’exercice 1986 de l’Office National d’Approvisionnement et de Commercialisation (ONAC).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/10/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-87-2e-l-portant-approbation-du-compte-financier-definitif-de-lexercice-1986-de-loffice-national-dapprovisionnement-et-de-commercialisation-onac/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 15/10/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n4-an-87-2e-l-portant-approbation-du-compte-financier-definitif-de-lexercice-1986-de-loffice-national-dapprovisionnement-et-de-commercialisation-onac/>
 
 En vigueur : 1987-10-15 (date du Journal officiel qui le publie).
 

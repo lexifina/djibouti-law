@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0247/PRE portant Agrément au Code des Investissements de la TELE-SAT DJIBOUTI.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0247-pre-portant-agrement-au-code-des-investissements-de-la-tele-sat-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0247-pre-portant-agrement-au-code-des-investissements-de-la-tele-sat-djibouti/>
 
 En vigueur : 2002-04-15 (date du Journal officiel qui le publie).
 

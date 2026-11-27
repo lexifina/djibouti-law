@@ -1,6 +1,6 @@
 # Décret n° 47-334 modifiant le décret n° 46-637 du 6 avril 1946 réglant l’organisation générale et le statut du personnel des services de l’agriculture aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-334-modifiant-le-decret-n-46-637-du-6-avril-1946-reglant-lorganisation-generale-et-le-statut-du-personnel-des-services-de-lagriculture-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 30/03/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-334-modifiant-le-decret-n-46-637-du-6-avril-1946-reglant-lorganisation-generale-et-le-statut-du-personnel-des-services-de-lagriculture-aux-colonies/>
 
 En vigueur : 1947-03-30 (date du Journal officiel qui le publie).
 

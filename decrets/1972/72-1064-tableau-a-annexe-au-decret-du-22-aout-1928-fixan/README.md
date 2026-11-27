@@ -1,6 +1,6 @@
 # Décret n° 72-1064 modifiant le tableau A annexé au décret du 22 août 1928 fixant, dans les territoires d’outre-mer, la nomenclature et la composition des cours et tribunaux (JORF. n° 280 du 1° décembre 1972, p 1244).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 25/01/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1064-modifiant-le-tableau-a-annexe-au-decret-du-22-aout-1928-fixant-dans-les-territoires-doutre-mer-la-nomenclature-et-la-composition-des-cours-et-tribunaux-jorf-n/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 25/01/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-1064-modifiant-le-tableau-a-annexe-au-decret-du-22-aout-1928-fixant-dans-les-territoires-doutre-mer-la-nomenclature-et-la-composition-des-cours-et-tribunaux-jorf-n/>
 
 En vigueur : 1973-01-25 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Jean TAITTINGER.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Décret n° n°48 le décret du 1° » juin 1923, (inséré) modifiant l’article 117 du décret du 30 décembre 1912, sur le régime financier des colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 319 du 30/06/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n48-le-decret-du-1-juin-1923-insere-modifiant-larticle-117-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 319 du 30/06/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n48-le-decret-du-1-juin-1923-insere-modifiant-larticle-117-du-decret-du-30-decembre-1912-sur-le-regime-financier-des-colonies/>
 
 En vigueur : 1923-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 146/AN/85/1ère L Portant modification et remaniement des ressources budgétaires -taxes d’enlèvement d’objets divers par le service de la Voirie du district de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-taxes-denlevement-dobjets-divers-par-le-service-de-la-voirie-du-district-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n146-an-85-1ere-l-portant-modification-et-remaniement-des-ressources-budgetaires-taxes-denlevement-dobjets-divers-par-le-service-de-la-voirie-du-district-de-djibouti/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

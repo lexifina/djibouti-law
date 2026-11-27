@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — Toute personne, père, mère, veuve où enfant d’anciens combattants de la guerre 1914-1948, on de militaires de la guerre 1939-1945 ou des théâtres d’opérations extérieurs tués à l’ennemi on morts en captivité, ou décédés par suite de blessures de guerre ou de leur capture, désirant bénéficier des dispositions du paragraphe 1 de l’article 10 ou de celles de l’article 11 de la loi du 16 août 1947 portant amunistie, devra produire :
 1″ Un extrait de l’acte de décès, soit de l’enfant, soit du conjoint, soit du père, portant la mention Mort pour la France » :
 2 . Un état signalétique et des services de la poisonne décédée délivré par l’autorité militaire, accompagné pour les anciens combattants de la guerre 19141918, soit de la carte du combattant, soit d’un récépissé prouvant cette qualité,

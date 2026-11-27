@@ -1,6 +1,6 @@
 # Décret n° 10-402-1930 26 mars 1930
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 402 du 31/05/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-402-1930-26-mars-1930/>
+Décret · Journal officiel de la République de Djibouti, n° 402 du 31/05/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-402-1930-26-mars-1930/>
 
 En vigueur : 1930-05-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ fRANCAOIS PIETRI.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1er– |
+| [art-001.md](art-001.md) | Art.1er |
 | [art-002.md](art-002.md) | Art. 2 |

@@ -1,6 +1,6 @@
 # Loi n° 210/AN/92/2e L du 14 avril 1992 portant sur la prolongation provisoire du mandat des députés de l’Assemblée Nationale
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-92-2e-l-du-14-avril-1992-portant-sur-la-prolongation-provisoire-du-mandat-des-deputes-de-lassemblee-nationale-2/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n210-an-92-2e-l-du-14-avril-1992-portant-sur-la-prolongation-provisoire-du-mandat-des-deputes-de-lassemblee-nationale-2/>
 
 En vigueur : 1992-04-30 (date du Journal officiel qui le publie).
 

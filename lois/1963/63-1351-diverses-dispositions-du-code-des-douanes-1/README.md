@@ -1,6 +1,6 @@
 # Loi n° 63-1351 modifiant diverses dispositions du code des douanes (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1964 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-63-1351-modifiant-diverses-dispositions-du-code-des-douanes-1/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 31/01/1964 · <https://www.journalofficiel.dj/texte-juridique/loi-n-63-1351-modifiant-diverses-dispositions-du-code-des-douanes-1/>
 
 En vigueur : 1964-01-31 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ EDGARD PISANI.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

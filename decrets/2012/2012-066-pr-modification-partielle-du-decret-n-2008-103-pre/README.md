@@ -1,8 +1,8 @@
 # Décret n° 2012-066/PR portant modification partielle du Décret n° 2008-103/PRE portant création de la Commission Nationale des Droits de l’Homme (CNDH).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-066-pr-portant-modification-partielle-du-decret-n2008-103-pre-portant-creation-de-la-commission-nationale-des-droits-de-lhomme-cndh/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-066-pr-portant-modification-partielle-du-decret-n2008-103-pre-portant-creation-de-la-commission-nationale-des-droits-de-lhomme-cndh/>
 
-En vigueur : 2012-04-02 (date fixÃ©e par le texte).
+En vigueur : 2012-04-02 (date fixée par le texte).
 
 ## Visas
 
@@ -36,4 +36,4 @@ ISMAÏL OMAR GUELLEH
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0750/PR/MEFPCP portant modification de l’Arrêté n° 2003-0192/PR/MEF et l’Arrêté n° 2004-004/PR/MEF portant attribution en concession provisoire d’une parcelle de terrain sise à Balbala PK 12.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0750-pr-mefpcp-portant-modification-de-larrete-n2003-0192-pr-mef-et-larrete-n2004-004-pr-mef-portant-attribution-en-concession-provisoire-dune/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0750-pr-mefpcp-portant-modification-de-larrete-n2003-0192-pr-mef-et-larrete-n2004-004-pr-mef-portant-attribution-en-concession-provisoire-dune/>
 
 En vigueur : 2010-10-31 (date du Journal officiel qui le publie).
 

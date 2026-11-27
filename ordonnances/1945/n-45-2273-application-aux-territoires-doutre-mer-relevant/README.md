@@ -1,6 +1,6 @@
 # Ordonnance n° n’ 45-2273 portant application aux territoires d’outre-mer relevant du Ministre des Colonies des dispositions de l’ordonnance du 13 septembre 1945 relative aux inéligibilités prévues par l’ordonnance vu 21 avril 1944 modifiée par l’ordonnance du 6 avril 1945
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2273-portant-application-aux-territoires-doutre-mer-relevant-du-ministre-des-colonies-des-dispositions-de-lordonnance-du-13-septembre-1945-relative-aux-ineligibilites-p/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 10 du 31/10/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-n-45-2273-portant-application-aux-territoires-doutre-mer-relevant-du-ministre-des-colonies-des-dispositions-de-lordonnance-du-13-septembre-1945-relative-aux-ineligibilites-p/>
 
 En vigueur : 1945-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 97-0172/PR/MI complétant le décret n° 97-0165/PRE/MI portant sur la Commission de distribution des cartes électorales, en vue des élections législatives du vendredi 19 décembre 1997.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0172-pr-mi-completant-le-decret-n-97-0165-pre-mi-portant-sur-la-commission-de-distribution-des-cartes-electorales-en-vue-des-elections-legislatives-du-vendredi-19-decembre-1997/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0172-pr-mi-completant-le-decret-n-97-0165-pre-mi-portant-sur-la-commission-de-distribution-des-cartes-electorales-en-vue-des-elections-legislatives-du-vendredi-19-decembre-1997/>
 
 En vigueur : 1997-12-15 (date du Journal officiel qui le publie).
 

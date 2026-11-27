@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2059 portant extension à l’Algérie et aux territoires relevant du Ministère des Colonies de la législation sur la reconstruction aux dommages causés par la guere.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2059-portant-extension-a-lalgerie-et-aux-territoires-relevant-du-ministere-des-colonies-de-la-legislation-sur-la-reconstruction-aux-dommages-causes-par-la-guere/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2059-portant-extension-a-lalgerie-et-aux-territoires-relevant-du-ministere-des-colonies-de-la-legislation-sur-la-reconstruction-aux-dommages-causes-par-la-guere/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

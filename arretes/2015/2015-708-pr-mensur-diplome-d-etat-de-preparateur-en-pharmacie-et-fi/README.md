@@ -1,6 +1,6 @@
 # Arrêté n° 2015-708/PR/MENSUR Relatif au Diplôme d’Etat de Préparateur en Pharmacie et fixant ses modalités de délivrance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-708-pr-mensur-relatif-au-diplome-detat-de-preparateur-en-pharmacie-et-fixant-ses-modalites-de-delivrance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-708-pr-mensur-relatif-au-diplome-detat-de-preparateur-en-pharmacie-et-fixant-ses-modalites-de-delivrance/>
 
 En vigueur : 2015-11-15 (date du Journal officiel qui le publie).
 

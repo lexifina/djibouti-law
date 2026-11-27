@@ -1,6 +1,6 @@
 # Décret n° 2009-049/PR/MPFBF portant création du “Comité de Coordination National pour la Prise en Charge des Orphelins et Enfants Vulnérables (OEV)”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-049-pr-mpfbf-portant-creation-du-comite-de-coordination-national-pour-la-prise-en-charge-des-orphelins-et-enfants-vulnerables-oev/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-049-pr-mpfbf-portant-creation-du-comite-de-coordination-national-pour-la-prise-en-charge-des-orphelins-et-enfants-vulnerables-oev/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 

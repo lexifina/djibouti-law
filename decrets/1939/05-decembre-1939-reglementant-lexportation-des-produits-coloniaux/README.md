@@ -1,6 +1,6 @@
 # Décret n° 05 décembre 1939 réglementant l’exportation des produits coloniaux,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-decembre-1939-reglementant-lexportation-des-produits-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-decembre-1939-reglementant-lexportation-des-produits-coloniaux/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ Georges MAXDEL
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

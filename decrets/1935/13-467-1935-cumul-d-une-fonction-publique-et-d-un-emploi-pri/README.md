@@ -1,6 +1,6 @@
 # Décret n° 13-467-1935 Cumul d’une fonction publique et d’un emploi privé (personnel des travaux publics et des mines des colonies autres que l’Indochine, la Martinique, la Guadeloupe et la Réunion).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 467 du 31/10/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-personnel-des-travaux-publics-et-des-mines-des-colonies-autres-que-lindochine-la-martinique-l/>
+Décret · Journal officiel de la République de Djibouti, n° 467 du 31/10/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-467-1935-cumul-dune-fonction-publique-et-dun-emploi-prive-personnel-des-travaux-publics-et-des-mines-des-colonies-autres-que-lindochine-la-martinique-l/>
 
 En vigueur : 1935-10-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Louis ROLLIN.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art.2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 72-663 portant transfert au Premier ministre des attributions relatives aux départements et territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 10/08/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-663-portant-transfert-au-premier-ministre-des-attributions-relatives-aux-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 10/08/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-663-portant-transfert-au-premier-ministre-des-attributions-relatives-aux-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1972-08-10 (date du Journal officiel qui le publie).
 

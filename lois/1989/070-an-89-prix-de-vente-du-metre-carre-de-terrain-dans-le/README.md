@@ -1,6 +1,6 @@
 # Loi n° 70/AN/89/2ème L portant prix de vente du mètre carré de terrain dans le lotissement « Hayabeley » (4ème tranche).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-89-2eme-l-portant-prix-de-vente-du-metre-carre-de-terrain-dans-le-lotissement-hayabeley-4eme-tranche/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-89-2eme-l-portant-prix-de-vente-du-metre-carre-de-terrain-dans-le-lotissement-hayabeley-4eme-tranche/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

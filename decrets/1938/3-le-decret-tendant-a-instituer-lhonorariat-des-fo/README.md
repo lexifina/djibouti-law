@@ -1,6 +1,6 @@
 # Décret n° 3° Le décret tendant à instituer l’honorariat des fonctions de gretfier des colonies et territoires sous mandat relevant du ministère des colonies, autres que l’Afrique occidentale française et l’Indochine
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-tendant-a-instituer-lhonorariat-des-fonctions-de-gretfier-des-colonies-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-lafrique-occide/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-le-decret-tendant-a-instituer-lhonorariat-des-fonctions-de-gretfier-des-colonies-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-lafrique-occide/>
 
 En vigueur : 1938-08-31 (date du Journal officiel qui le publie).
 

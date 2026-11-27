@@ -1,8 +1,8 @@
 # Arrêté n° 2014-750/PRE portant annulation de l’arrêté n° 2013-456/PRE du 23 juillet 2013 relatif à l’exportation dérogatoire de ferrailles et déchets de tous autres métaux et autorisant l’OVD à l’exportation des déchets ferreux et tous autres métaux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-750-pre-portant-annulation-de-larrete-n2013-456-pre-du-23-juillet-2013-relatif-a-lexportation-derogatoire-de-ferrailles-et-dechets-de-tous-autres-metaux-et-autorisant-l/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-750-pre-portant-annulation-de-larrete-n2013-456-pre-du-23-juillet-2013-relatif-a-lexportation-derogatoire-de-ferrailles-et-dechets-de-tous-autres-metaux-et-autorisant-l/>
 
-En vigueur : 2014-12-20 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-12-20 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

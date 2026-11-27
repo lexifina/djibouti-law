@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0909/PR/MERN portant approbation du Budget d’Electricité de Djibouti pour l’Exercice 2009.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0909-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2009/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0909-pr-mern-portant-approbation-du-budget-delectricite-de-djibouti-pour-lexercice-2009/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 

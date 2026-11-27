@@ -1,6 +1,6 @@
 # Loi n° 72-339 autorisant la ratification du traité relatif à l’adhésion à la Communauté économique européenne et à la Communauté européenne de l’énergie atomique du Royaume de Danemark, de l’Irlande, du Royaume de Norvège et du Royaume-Uni de Grande-Bretagne et d’Irlande du Nord, signé à Bruxelles le 22 janvier 1972.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1972 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-72-339-autorisant-la-ratification-du-traite-relatif-a-ladhesion-a-la-communaute-economique-europeenne-et-a-la-communaute-europeenne-de-lenergie-atomique-du-royaume-de-da/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 25/05/1972 · <https://www.journalofficiel.dj/texte-juridique/loi-n-72-339-autorisant-la-ratification-du-traite-relatif-a-ladhesion-a-la-communaute-economique-europeenne-et-a-la-communaute-europeenne-de-lenergie-atomique-du-royaume-de-da/>
 
 En vigueur : 1972-05-25 (date du Journal officiel qui le publie).
 

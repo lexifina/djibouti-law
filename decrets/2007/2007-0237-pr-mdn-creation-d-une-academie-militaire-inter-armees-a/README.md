@@ -1,6 +1,6 @@
 # Décret n° 2007-0237/PR/MDN portant création d’une Académie Militaire Inter-Armées (AMIA).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0237-pr-mdn-portant-creation-dune-academie-militaire-inter-armees-amia/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0237-pr-mdn-portant-creation-dune-academie-militaire-inter-armees-amia/>
 
 En vigueur : 2007-12-15 (date du Journal officiel qui le publie).
 

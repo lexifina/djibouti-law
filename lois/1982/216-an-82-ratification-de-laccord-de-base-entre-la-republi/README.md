@@ -1,6 +1,6 @@
 # Loi n° 216/AN/82 portant ratification de l’Accord de base entre la République de Djibouti et le Programme des Nations Unies pour le Développement.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n216-an-82-portant-ratification-de-laccord-de-base-entre-la-rpublique-de-djibouti-et-le-programme-des-nations-unies-pour-le-dveloppement/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n216-an-82-portant-ratification-de-laccord-de-base-entre-la-rpublique-de-djibouti-et-le-programme-des-nations-unies-pour-le-dveloppement/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

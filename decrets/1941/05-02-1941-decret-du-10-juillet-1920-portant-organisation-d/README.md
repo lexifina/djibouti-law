@@ -1,6 +1,6 @@
 # Décret n° 05/02/1941 modifiant le décret du 10 juillet 1920 portant organisation du personnel des administrateurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-02-1941-modifiant-le-decret-du-10-juillet-1920-portant-organisation-du-personnel-des-administrateurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-02-1941-modifiant-le-decret-du-10-juillet-1920-portant-organisation-du-personnel-des-administrateurs-des-colonies/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

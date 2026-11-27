@@ -1,6 +1,6 @@
 # Arrêté n° 2017-034/PRE portant approbation du budget prévisionnel 2017 de l’Office Djiboutien de Développement de l’Energie Géothermique (ODDEG).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-034-pre-portant-approbation-du-budget-previsionnel-2017-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-034-pre-portant-approbation-du-budget-previsionnel-2017-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
 
 En vigueur : 2017-01-31 (date du Journal officiel qui le publie).
 

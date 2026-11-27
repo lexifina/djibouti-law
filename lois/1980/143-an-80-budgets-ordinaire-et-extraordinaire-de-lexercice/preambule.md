@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 _ Article premier – Le budget des recettes ordinaires de l’exercice 1980 est modifié comme suit :
 |
 CHAPITRE

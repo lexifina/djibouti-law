@@ -1,6 +1,6 @@
 # Décret n° 80-150/ PR/ MI complétant le Code de la Route et relatif aux dérogations accordées à certains ensembles de véhicules circulant à vitesse réduite.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 19/07/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-150-pr-mi-completant-le-code-de-la-route-et-relatif-aux-derogations-accordees-a-certains-ensembles-de-vehicules-circulant-a-vitesse-reduite/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 19/07/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-150-pr-mi-completant-le-code-de-la-route-et-relatif-aux-derogations-accordees-a-certains-ensembles-de-vehicules-circulant-a-vitesse-reduite/>
 
 En vigueur : 1981-07-19 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Le Conseil des Ministres entendu en sa séance du 28 DECEMBRE 1980.
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

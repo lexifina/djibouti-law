@@ -1,6 +1,6 @@
 # Décret n° 9-403-1930 Promulgation de l’accord concernant la cessation de la liquidation des biens allemands signé à Paris le 31 décembre 1929 entre la France et l’Allemagne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 403 du 30/06/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-403-1930-promulgation-de-laccord-concernant-la-cessation-de-la-liquidation-des-biens-allemands-signe-a-paris-le-31-decembre-1929-entre-la-france-et-lallemagne/>
+Décret · Journal officiel de la République de Djibouti, n° 403 du 30/06/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-403-1930-promulgation-de-laccord-concernant-la-cessation-de-la-liquidation-des-biens-allemands-signe-a-paris-le-31-decembre-1929-entre-la-france-et-lallemagne/>
 
 En vigueur : 1930-06-30 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ Francois PIÉTRI.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art. 5— |
+| [art-005.md](art-005.md) | Art. 5 |

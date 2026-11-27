@@ -1,6 +1,6 @@
 # Arrêté n° 2018-005/PRE portant approbation du Budget Prévisionnel 2018 de l’Office Djiboutien de Développement de l’Energie Géothermique (ODDEG).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-005-pre-portant-approbation-du-budget-previsionnel-2018-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-005-pre-portant-approbation-du-budget-previsionnel-2018-de-loffice-djiboutien-de-developpement-de-lenergie-geothermique-oddeg/>
 
 En vigueur : 2018-01-15 (date du Journal officiel qui le publie).
 

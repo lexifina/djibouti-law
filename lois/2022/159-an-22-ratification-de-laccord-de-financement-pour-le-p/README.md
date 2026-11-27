@@ -1,6 +1,6 @@
 # Loi n° 159/AN/22/8ème L portant ratification de l’Accord de financement pour le projet de développement des compétences pour l’emploi.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-des-competences-pour-lemploi/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n159-an-22-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-developpement-des-competences-pour-lemploi/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

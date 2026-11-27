@@ -1,6 +1,6 @@
 # Décret n° 10-362-1927 Application aux magistrats coloniaux, du 11 avril 1924 au 1er janvier 1925, des dispositions de l’article 57 de la loi de finances du 30 avril 1921.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 362 du 31/01/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-362-1927-application-aux-magistrats-coloniaux-du-11-avril-1924-au-1er-janvier-1925-des-dispositions-de-larticle-57-de-la-loi-de-finances-du-30-avril-1921/>
+Décret · Journal officiel de la République de Djibouti, n° 362 du 31/01/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-362-1927-application-aux-magistrats-coloniaux-du-11-avril-1924-au-1er-janvier-1925-des-dispositions-de-larticle-57-de-la-loi-de-finances-du-30-avril-1921/>
 
 En vigueur : 1927-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 121/AN/84/1ère L portant reforme de la Composition de la Chambre des Appels Correctionnels de la Cour Judiciaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-84-1ere-l-portant-reforme-de-la-composition-de-la-chambre-des-appels-correctionnels-de-la-cour-judiciaire/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-84-1ere-l-portant-reforme-de-la-composition-de-la-chambre-des-appels-correctionnels-de-la-cour-judiciaire/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

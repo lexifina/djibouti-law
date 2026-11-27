@@ -1,6 +1,6 @@
 # Décret n° 23 OCTOBRE 1941 Modus vivendi commercial franco-suisse
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-octobre-1941-modus-vivendi-commercial-franco-suisse/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-octobre-1941-modus-vivendi-commercial-franco-suisse/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 
@@ -21,7 +21,7 @@ STECKI
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er – |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

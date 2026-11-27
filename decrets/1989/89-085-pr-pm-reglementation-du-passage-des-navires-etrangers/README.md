@@ -1,6 +1,6 @@
 # Décret n° 89-085/PR/PM portant réglementation du passage des navires étrangers dans les eaux territoriales djiboutiennes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-085-pr-pm-portant-reglementation-du-passage-des-navires-etrangers-dans-les-eaux-territoriales-djiboutiennes/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-085-pr-pm-portant-reglementation-du-passage-des-navires-etrangers-dans-les-eaux-territoriales-djiboutiennes/>
 
 En vigueur : 1989-06-29 (date du Journal officiel qui le publie).
 

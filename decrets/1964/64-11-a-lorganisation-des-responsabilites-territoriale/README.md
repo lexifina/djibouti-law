@@ -1,6 +1,6 @@
 # Décret n° 64-11 relatif à l’organisation des responsabilités territoriales de défense dans les départements et territoires d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1964 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-64-11-relatif-a-lorganisation-des-responsabilites-territoriales-de-defense-dans-les-departements-et-territoires-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1964 · <https://www.journalofficiel.dj/texte-juridique/decret-n-64-11-relatif-a-lorganisation-des-responsabilites-territoriales-de-defense-dans-les-departements-et-territoires-doutre-mer/>
 
 En vigueur : 1964-01-31 (date du Journal officiel qui le publie).
 

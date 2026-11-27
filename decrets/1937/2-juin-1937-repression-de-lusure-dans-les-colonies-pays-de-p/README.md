@@ -1,6 +1,6 @@
 # Décret n° 2 juin 1937. Répression de l’usure dans les colonies, pays de protectorat et territoires sous mandat relevant du ministère des colonies, autres que la Guadeloupe, la Martinique et la Réunion.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-juin-1937-repression-de-lusure-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-la/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-juin-1937-repression-de-lusure-dans-les-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-martinique-et-la/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 

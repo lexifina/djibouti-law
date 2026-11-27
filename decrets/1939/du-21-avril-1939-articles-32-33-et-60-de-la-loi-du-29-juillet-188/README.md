@@ -1,6 +1,6 @@
 # Décret n° du 21 avril 1939 modifiant les articles 32. 33 et 60 de la loi du 29 juillet 1881 sur la liberté de la presse.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-avril-1939-modifiant-les-articles-32-33-et-60-de-la-loi-du-29-juillet-1881-sur-la-liberte-de-la-presse/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-avril-1939-modifiant-les-articles-32-33-et-60-de-la-loi-du-29-juillet-1881-sur-la-liberte-de-la-presse/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Georges MANDEL,
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

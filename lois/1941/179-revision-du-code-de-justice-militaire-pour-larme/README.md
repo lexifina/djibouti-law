@@ -1,6 +1,6 @@
 # Loi n° 179 portant révision du Code de justice militaire pour l’armée de terre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 535 du 30/06/1941 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-179-portant-revision-du-code-de-justice-militaire-pour-larmee-de-terre/>
+Loi · Journal officiel de la République de Djibouti, n° 535 du 30/06/1941 · <https://www.journalofficiel.dj/texte-juridique/loi-n-179-portant-revision-du-code-de-justice-militaire-pour-larmee-de-terre/>
 
 En vigueur : 1941-06-30 (date du Journal officiel qui le publie).
 

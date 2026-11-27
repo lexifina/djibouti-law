@@ -1,6 +1,6 @@
 # Décret n° 06-411-1931 Classement du personnels des douanes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 411 du 28/02/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-411-1931-classement-du-personnels-des-douanes/>
+Décret · Journal officiel de la République de Djibouti, n° 411 du 28/02/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-411-1931-classement-du-personnels-des-douanes/>
 
 En vigueur : 1931-02-28 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ T. STÉEG
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

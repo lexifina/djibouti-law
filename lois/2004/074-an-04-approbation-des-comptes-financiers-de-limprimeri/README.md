@@ -1,6 +1,6 @@
 # Loi n° 74/AN/04/5ème L portant approbation des comptes financiers de l’Imprimerie Nationale de Djibouti arrêté au 31/12/2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-04-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arrete-au-31-12-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-04-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arrete-au-31-12-2002/>
 
 En vigueur : 2004-09-15 (date du Journal officiel qui le publie).
 

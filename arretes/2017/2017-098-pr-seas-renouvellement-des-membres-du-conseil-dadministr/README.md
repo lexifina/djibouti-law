@@ -1,6 +1,6 @@
 # Arrêté n° 2017-098/PR/SEAS portant renouvellement des membres du Conseil d’Administration de l’Agence Djiboutienne de Développement Social (ADDS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-098-pr-seas-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-djiboutienne-de-developpement-social-adds/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 13/07/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-098-pr-seas-portant-renouvellement-des-membres-du-conseil-dadministration-de-lagence-djiboutienne-de-developpement-social-adds/>
 
 En vigueur : 2017-07-13 (date du Journal officiel qui le publie).
 

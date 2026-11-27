@@ -1,6 +1,6 @@
 # Loi n° 42/AN/88/2èmeL Portant approbation d’un accord de prêt entre le Fonds Africain de Développement et la Caisse de Développement de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-88-2emel-portant-approbation-dun-accord-de-pret-entre-le-fonds-africain-de-developpement-et-la-caisse-de-developpement-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-88-2emel-portant-approbation-dun-accord-de-pret-entre-le-fonds-africain-de-developpement-et-la-caisse-de-developpement-de-djibouti/>
 
 En vigueur : 1988-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 220/AN/17/8ème L portant adhésion et ratification de statuts du Fonds « Africa 50 ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-17-8eme-l-portant-adhesion-et-ratification-de-statuts-du-fonds-africa-50/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n220-an-17-8eme-l-portant-adhesion-et-ratification-de-statuts-du-fonds-africa-50/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

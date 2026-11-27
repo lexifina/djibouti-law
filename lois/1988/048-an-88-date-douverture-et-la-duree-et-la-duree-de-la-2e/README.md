@@ -1,6 +1,6 @@
 # Loi n° 48/AN/88/2ème L fixant la date d’ouverture et la durée et la durée de la 2éme session ordinaire de 1988 dite « session budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-88-2eme-l-fixant-la-date-douverture-et-la-duree-et-la-duree-de-la-2eme-session-ordinaire-de-1988-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n48-an-88-2eme-l-fixant-la-date-douverture-et-la-duree-et-la-duree-de-la-2eme-session-ordinaire-de-1988-dite-session-budgetaire/>
 
 En vigueur : 1988-12-15 (date du Journal officiel qui le publie).
 

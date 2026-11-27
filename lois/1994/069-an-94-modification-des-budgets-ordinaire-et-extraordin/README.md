@@ -1,6 +1,6 @@
 # Loi n° 69/AN/94/3ème L portant modification des budgets ordinaire et extraordinaire de l’exercice 1994.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-94-3eme-l-portant-modification-des-budgets-ordinaire-et-extraordinaire-de-lexercice-1994/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n69-an-94-3eme-l-portant-modification-des-budgets-ordinaire-et-extraordinaire-de-lexercice-1994/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

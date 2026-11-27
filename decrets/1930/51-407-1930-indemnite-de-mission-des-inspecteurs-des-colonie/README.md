@@ -1,6 +1,6 @@
 # Décret n° 51-407-1930 Indemnité de mission des inspecteurs des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-407-1930-indemnite-de-mission-des-inspecteurs-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-407-1930-indemnite-de-mission-des-inspecteurs-des-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ CGERMAIN-MARTIN.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

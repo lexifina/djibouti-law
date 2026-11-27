@@ -1,6 +1,6 @@
 # Décret n° 91-054/PR/DEF portant modification de la composition de la commission des marchés de l’Armée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-054-pr-def-portant-modification-de-la-composition-de-la-commission-des-marches-de-larmee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-054-pr-def-portant-modification-de-la-composition-de-la-commission-des-marches-de-larmee-nationale/>
 
 En vigueur : 1991-05-15 (date du Journal officiel qui le publie).
 

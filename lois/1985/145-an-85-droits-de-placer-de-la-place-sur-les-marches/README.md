@@ -1,6 +1,6 @@
 # Loi n° 145/AN/85/1ere L concernant les droits de placer de la place sur les marchés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-85-1ere-l-concernant-les-droits-de-placer-de-la-place-sur-les-marches/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 30/04/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-85-1ere-l-concernant-les-droits-de-placer-de-la-place-sur-les-marches/>
 
 En vigueur : 1985-04-30 (date du Journal officiel qui le publie).
 

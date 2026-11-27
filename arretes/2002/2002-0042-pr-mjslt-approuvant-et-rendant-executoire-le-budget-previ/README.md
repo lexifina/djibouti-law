@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0042/PR/MJSLT approuvant et rendant exécutoire le Budget Prévisionnel 2002 de l’Office National du Tourisme de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0042-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2002-de-loffice-national-du-tourisme-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0042-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2002-de-loffice-national-du-tourisme-de-djibouti/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

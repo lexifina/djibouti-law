@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Quiconque recoit, de provenance étrangère, directement ou indirectement, sous quelque forme et à quelque titre que re soit, des fonds de propagande et se livre à une propagande politique, est frappé d’une peine d’emprisonnement de six mois à cinq ans et G une amende de 1.000 francs à 10.000 francs.
 Tous moyens avant servi à commettre l’infraction seront saisis: le jugement ordonnera, selon le cas, leur confiscation, suppression ou destruction.
 Le tribunal pourra prononcer, en outre,

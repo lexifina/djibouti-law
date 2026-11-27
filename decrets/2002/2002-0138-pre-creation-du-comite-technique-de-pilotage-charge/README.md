@@ -1,6 +1,6 @@
 # Décret n° 2002-0138/PRE portant création du comité technique de pilotage chargé de la stratégie nationale du développement du petit enfant 279 djiboutien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0138-pre-portant-creation-du-comite-technique-de-pilotage-charge-de-la-strategie-nationale-du-developpement-du-petit-enfant-279-djiboutien/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0138-pre-portant-creation-du-comite-technique-de-pilotage-charge-de-la-strategie-nationale-du-developpement-du-petit-enfant-279-djiboutien/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

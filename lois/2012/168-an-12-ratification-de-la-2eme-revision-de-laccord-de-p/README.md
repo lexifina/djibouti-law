@@ -1,6 +1,6 @@
 # Loi n° 168/AN/12/6ème L portant ratification de la 2ème révision de l’Accord de partenariat de Cotonou entre le Groupe ACP et l’Union Européenne.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-12-6eme-l-portant-ratification-de-la-2eme-revision-de-laccord-de-partenariat-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-12-6eme-l-portant-ratification-de-la-2eme-revision-de-laccord-de-partenariat-de-cotonou-entre-le-groupe-acp-et-lunion-europeenne/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

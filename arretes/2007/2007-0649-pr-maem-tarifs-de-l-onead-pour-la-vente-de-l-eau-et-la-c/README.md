@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0649/PR/MAEM fixant les tarifs de l’ONEAD pour la vente de l’eau et la collecte de l’assainissement liquide.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0649-pr-maem-fixant-les-tarifs-de-lonead-pour-la-vente-de-leau-et-la-collecte-de-lassainissement-liquide/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0649-pr-maem-fixant-les-tarifs-de-lonead-pour-la-vente-de-leau-et-la-collecte-de-lassainissement-liquide/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Loi de finances n° 134/AN/97/3ème L portant modification des budgets ordinaires et extraordinaires de l’exercice 1997.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n134-an-97-3eme-l-portant-modification-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1997/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 9 du 15/05/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n134-an-97-3eme-l-portant-modification-des-budgets-ordinaires-et-extraordinaires-de-lexercice-1997/>
 
-En vigueur : 1997-05-06 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1997-05-06 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

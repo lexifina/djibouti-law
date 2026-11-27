@@ -1,6 +1,6 @@
 # Décret n° 2007-0164/PRE modifiant la tutelle du Fonds du Développement Economique de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0164-pre-modifiant-la-tutelle-du-fonds-du-developpement-economique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0164-pre-modifiant-la-tutelle-du-fonds-du-developpement-economique-de-djibouti/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

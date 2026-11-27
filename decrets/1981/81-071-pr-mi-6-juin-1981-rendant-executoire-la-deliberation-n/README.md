@@ -1,6 +1,6 @@
 # Décret n° 81-071/PR/MI du 6 juin 1981 rendant exécutoire la délibération n° 2/81 du 6 mai 1981 du conseil d’administration de l’Office des Postes et Télécommunications portant approbation du compte financier de l’office pour l’exercice 1980.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 15/06/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-071-pr-mi-du-6-juin-1981-rendant-executoire-la-deliberation-n-2-81-du-6-mai-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-d/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 15/06/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-071-pr-mi-du-6-juin-1981-rendant-executoire-la-deliberation-n-2-81-du-6-mai-1981-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-approbation-d/>
 
 En vigueur : 1981-06-15 (date du Journal officiel qui le publie).
 

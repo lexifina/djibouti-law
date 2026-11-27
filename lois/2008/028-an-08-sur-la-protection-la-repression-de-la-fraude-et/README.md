@@ -1,6 +1,6 @@
 # Loi n° 28/AN/08/6ème L portant sur la protection, la répression de la fraude et la protection du consommateur.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-08-6eme-l-portant-sur-la-protection-la-repression-de-la-fraude-et-la-protection-du-consommateur/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-08-6eme-l-portant-sur-la-protection-la-repression-de-la-fraude-et-la-protection-du-consommateur/>
 
 En vigueur : 2008-12-31 (date du Journal officiel qui le publie).
 
@@ -98,4 +98,4 @@ ISMAÏL OMAR GUELLEH
 | [art-071.md](art-071.md) | Article 71 |
 | [art-072.md](art-072.md) | Article 72 |
 | [art-073.md](art-073.md) | Article 73 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

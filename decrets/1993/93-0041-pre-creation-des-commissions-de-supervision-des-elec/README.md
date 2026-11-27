@@ -1,6 +1,6 @@
 # Décret n° 93-0041/PRE portant création des commissions de supervision des élections pour l’élection présidentielle des 7 et 21 mai 1993.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 18/04/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0041-pre-portant-creation-des-commissions-de-supervision-des-elections-pour-lelection-presidentielle-des-7-et-21-mai-1993/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 18/04/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0041-pre-portant-creation-des-commissions-de-supervision-des-elections-pour-lelection-presidentielle-des-7-et-21-mai-1993/>
 
 En vigueur : 1993-04-18 (date du Journal officiel qui le publie).
 

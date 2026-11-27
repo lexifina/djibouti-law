@@ -1,6 +1,6 @@
 # Décret n° 2021-056/PR/MCCPT fixant les conditions de production, de programmation et de diffusion des émissions relatives à la campagne électorale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-056-pr-mccpt-fixant-les-conditions-de-production-de-programmation-et-de-diffusion-des-emissions-relatives-a-la-campagne-electorale/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-056-pr-mccpt-fixant-les-conditions-de-production-de-programmation-et-de-diffusion-des-emissions-relatives-a-la-campagne-electorale/>
 
 En vigueur : 2021-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

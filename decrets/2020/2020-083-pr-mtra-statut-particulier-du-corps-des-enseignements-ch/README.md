@@ -1,6 +1,6 @@
 # Décret n° 2020-083/PR/MTRA portant statut particulier du corps des enseignements-chercheurs de l’Université.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-083-pr-mtra-portant-statut-particulier-du-corps-des-enseignements-chercheurs-de-luniversite/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-083-pr-mtra-portant-statut-particulier-du-corps-des-enseignements-chercheurs-de-luniversite/>
 
 En vigueur : 2020-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -141,4 +141,4 @@ ISMAÏL OMAR GUELLEH
 | [art-070.md](art-070.md) | Article 70 |
 | [art-071.md](art-071.md) | Article 71 |
 | [art-072.md](art-072.md) | Article 72 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

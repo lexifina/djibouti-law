@@ -1,6 +1,6 @@
 # Décret n° 2013-034/PRE portant création de la zone franche East Africa Holding sise route 19 au PK12.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-034-pre-portant-creation-de-la-zone-franche-east-africa-holding-sise-route-19-au-pk12/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-034-pre-portant-creation-de-la-zone-franche-east-africa-holding-sise-route-19-au-pk12/>
 
 En vigueur : 2013-03-31 (date du Journal officiel qui le publie).
 

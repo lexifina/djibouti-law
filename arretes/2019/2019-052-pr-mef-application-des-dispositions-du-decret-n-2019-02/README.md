@@ -1,6 +1,6 @@
 # Arrêté n° 2019-052/PR/MEF portant application des dispositions du décret n° 2019-022/PR relatif à la reforme de l’administration de certains établissements et offices publics.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 14/02/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-052-pr-mef-portant-application-des-dispositions-du-decret-n2019-022-pr-relatif-a-la-reforme-de-ladministration-de-certains-etablissements-et-offices-publics/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 14/02/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-052-pr-mef-portant-application-des-dispositions-du-decret-n2019-022-pr-relatif-a-la-reforme-de-ladministration-de-certains-etablissements-et-offices-publics/>
 
 En vigueur : 2019-02-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

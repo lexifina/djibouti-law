@@ -1,6 +1,6 @@
 # Décret n° 79-095/PR/DEF portant création d’un Conseil de Défense.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-095-pr-def-portant-creation-dun-conseil-de-defense/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-095-pr-def-portant-creation-dun-conseil-de-defense/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ HASSAN GOULED APTIDON
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

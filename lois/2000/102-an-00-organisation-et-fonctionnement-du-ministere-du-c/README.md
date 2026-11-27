@@ -1,6 +1,6 @@
 # Loi n° 102/AN/00/4ème L portant organisation et fonctionnement du Ministère du Commerce, de l’Industrie et de l’Artisanat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-00-4eme-l-portant-organisation-et-fonctionnement-du-ministere-du-commerce-de-lindustrie-et-de-lartisanat/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-00-4eme-l-portant-organisation-et-fonctionnement-du-ministere-du-commerce-de-lindustrie-et-de-lartisanat/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 
@@ -79,4 +79,4 @@ ISMAÏL OMAR GUELLEH
 | [art-057.md](art-057.md) | Article 57 |
 | [art-058.md](art-058.md) | Article 58 |
 | [art-059.md](art-059.md) | Article 59 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

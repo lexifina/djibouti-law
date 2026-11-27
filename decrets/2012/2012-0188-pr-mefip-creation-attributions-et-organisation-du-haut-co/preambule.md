@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 TITRE I : DE LA CREATION ET DES ATTRIBUTIONS

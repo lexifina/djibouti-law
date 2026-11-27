@@ -1,6 +1,6 @@
 # Ordonnance n° 16/11/1943 organisant la protection des mineurs séparés de leurs parents ou tuteurs par suite des événements de guerre.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-16-11-1943-organisant-la-protection-des-mineurs-separes-de-leurs-parents-ou-tuteurs-par-suite-des-evenements-de-guerre/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 8 du 01/08/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-16-11-1943-organisant-la-protection-des-mineurs-separes-de-leurs-parents-ou-tuteurs-par-suite-des-evenements-de-guerre/>
 
 En vigueur : 1945-08-01 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ R. PLEVEN.
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [art-009.md](art-009.md) | Art. 9 — |
+| [art-009.md](art-009.md) | Art. 9 |

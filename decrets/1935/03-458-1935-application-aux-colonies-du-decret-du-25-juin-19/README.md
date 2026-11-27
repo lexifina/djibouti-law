@@ -1,6 +1,6 @@
 # Décret n° 03-458-1935 Application aux colonies du décret du 25 juin 1934, relatif à l’organisation de la comptabilité de l’Etat,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 458 du 31/01/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-458-1935-application-aux-colonies-du-decret-du-25-juin-1934-relatif-a-lorganisation-de-la-comptabilite-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 458 du 31/01/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-458-1935-application-aux-colonies-du-decret-du-25-juin-1934-relatif-a-lorganisation-de-la-comptabilite-de-letat/>
 
 En vigueur : 1935-01-31 (date du Journal officiel qui le publie).
 
@@ -24,6 +24,6 @@ GERMAIX-MARTIX,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |
+| [preambule.md](preambule.md) | Préambule |

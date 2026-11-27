@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0276/PR/MJSLT approuvant et rendant exécutoire le budget prévisionnel 2003 de l’Établissement «Stade El Hadj Hassan Gouled Aptidon».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0276-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2003-de-letablissement-stade-el-hadj-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0276-pr-mjslt-approuvant-et-rendant-executoire-le-budget-previsionnel-2003-de-letablissement-stade-el-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2003-04-15 (date du Journal officiel qui le publie).
 

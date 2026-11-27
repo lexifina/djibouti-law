@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0429/PR/SEL portant renouvellement des membres du Conseil d’Administration de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0429-pr-sel-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0429-pr-sel-portant-renouvellement-des-membres-du-conseil-dadministration-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

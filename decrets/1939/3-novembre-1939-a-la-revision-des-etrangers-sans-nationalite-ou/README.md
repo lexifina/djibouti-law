@@ -1,6 +1,6 @@
 # Décret n° 3 novembre 1939 relatif à la révision des étrangers sans nationalité ou bénéficiaires du droit d’asile,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-relatif-a-la-revision-des-etrangers-sans-nationalite-ou-beneficiaires-du-droit-dasile/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-relatif-a-la-revision-des-etrangers-sans-nationalite-ou-beneficiaires-du-droit-dasile/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 

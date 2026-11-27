@@ -1,6 +1,6 @@
 # Décret n° 2025-344/PR/MTFPS fixant le régime de rémunération et des avantages Sociaux alloués aux fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-344-pr-mtfps-fixant-le-regime-de-remuneration-et-des-avantages-sociaux-alloues-aux-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-344-pr-mtfps-fixant-le-regime-de-remuneration-et-des-avantages-sociaux-alloues-aux-fonctionnaires/>
 
 En vigueur : 2025-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -92,4 +92,4 @@ ISMAÏL OMAR GUELLEH
 | [art-055.md](art-055.md) | Article 55 |
 | [art-056.md](art-056.md) | Article 56 |
 | [art-057.md](art-057.md) | Article 57 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

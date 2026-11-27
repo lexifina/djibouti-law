@@ -1,6 +1,6 @@
 # Loi n° 068/AN/19/8ème L portant ratification de l’Accord de financement pour le projet de renforcement des opportunités d’apprentissage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n068-an-19-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-renforcement-des-opportunites-dapprentissage/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n068-an-19-8eme-l-portant-ratification-de-laccord-de-financement-pour-le-projet-de-renforcement-des-opportunites-dapprentissage/>
 
 En vigueur : 2020-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

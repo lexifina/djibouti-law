@@ -1,6 +1,6 @@
 # Loi de finances n° 158/AN/16/7ème L portant Règlement Définitif du budget de l’Etat pour l’exercice 2015.
 
-Loi de finances Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n158-an-16-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2015/>
+Loi de finances · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-de-finances-n158-an-16-7eme-l-portant-reglement-definitif-du-budget-de-letat-pour-lexercice-2015/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

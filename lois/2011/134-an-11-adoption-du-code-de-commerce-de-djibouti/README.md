@@ -1,8 +1,8 @@
 # Loi n° 134/AN/11/6ème L portant adoption du Code de Commerce de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/08/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-11-6eme-l-portant-adoption-du-code-de-commerce-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/08/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n134-an-11-6eme-l-portant-adoption-du-code-de-commerce-de-djibouti/>
 
-En vigueur : 2012-08-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-08-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

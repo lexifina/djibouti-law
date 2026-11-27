@@ -1,8 +1,8 @@
 # Décret n° 2000-0088/PR/MEN créant et organisant le Diplôme d’Etudes pour l’Enseignement des Sciences et Technologies Tertiaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0088-pr-men-creant-et-organisant-le-diplome-detudes-pour-lenseignement-des-sciences-et-technologies-tertiaires/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0088-pr-men-creant-et-organisant-le-diplome-detudes-pour-lenseignement-des-sciences-et-technologies-tertiaires/>
 
-En vigueur : 2000-03-30 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-03-30 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

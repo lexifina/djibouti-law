@@ -1,8 +1,8 @@
 # Décret n° 2015-179/PR/MD relatif aux conditions et modalités de règlement des frais de mission des personnels des FAD en déplacement à l’Etranger (courte durée).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-179-pr-md-relatif-aux-conditions-et-modalites-de-reglement-des-frais-de-mission-des-personnels-des-fad-en-deplacement-a-letranger-courte-duree/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-179-pr-md-relatif-aux-conditions-et-modalites-de-reglement-des-frais-de-mission-des-personnels-des-fad-en-deplacement-a-letranger-courte-duree/>
 
-En vigueur : 2015-06-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-06-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

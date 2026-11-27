@@ -1,8 +1,8 @@
 # Arrêté n° 2001-0075/PR/EN portant création d’un Baccalauréat Professionnel section : Logistique de Transport.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0075-pr-en-portant-creation-dun-baccalaureat-professionnel-section-logistique-de-transport/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0075-pr-en-portant-creation-dun-baccalaureat-professionnel-section-logistique-de-transport/>
 
-En vigueur : 2001-02-01 (date fixÃ©e par le texte).
+En vigueur : 2001-02-01 (date fixée par le texte).
 
 ## Visas
 

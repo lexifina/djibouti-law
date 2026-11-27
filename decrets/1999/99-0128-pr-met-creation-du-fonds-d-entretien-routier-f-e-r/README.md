@@ -1,8 +1,8 @@
 # Décret n° 99-0128/PR/MET portant création du Fonds d’Entretien Routier (F.E.R.).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0128-pr-met-portant-creation-du-fonds-dentretien-routier-f-e-r/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0128-pr-met-portant-creation-du-fonds-dentretien-routier-f-e-r/>
 
-En vigueur : 1999-08-14 (date fixÃ©e par le texte).
+En vigueur : 1999-08-14 (date fixée par le texte).
 
 ## Visas
 

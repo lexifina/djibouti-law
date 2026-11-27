@@ -1,6 +1,6 @@
 # Loi n° 102/AN/90/2eL portant adhésion de Ia République de Djibouti aux protocoles additionnels aux conventions de Genéve, relatifs a la Protection des victimes des conflits armés internationaux et non internationaux, adoptés le 8 juin 1977.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1990 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-90-2el-portant-adhesion-de-ia-republique-de-djibouti-aux-protocoles-additionnels-aux-conventions-de-geneve-relatifs-a-la-protection-des-victimes-des-conflits-armes-internationaux-et/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1990 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-90-2el-portant-adhesion-de-ia-republique-de-djibouti-aux-protocoles-additionnels-aux-conventions-de-geneve-relatifs-a-la-protection-des-victimes-des-conflits-armes-internationaux-et/>
 
 En vigueur : 1990-02-15 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Vu le protocole additionnel aux conventions de. Genéve, relatif à la Protectio
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

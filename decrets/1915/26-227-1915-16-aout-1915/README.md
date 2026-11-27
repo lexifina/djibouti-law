@@ -1,6 +1,6 @@
 # Décret n° 26-227-1915 16 Août 1915.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 227 du 30/09/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-26-227-1915-16-aout-1915/>
+Décret · Journal officiel de la République de Djibouti, n° 227 du 30/09/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-26-227-1915-16-aout-1915/>
 
 En vigueur : 1915-09-30 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ A. RIBOT.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

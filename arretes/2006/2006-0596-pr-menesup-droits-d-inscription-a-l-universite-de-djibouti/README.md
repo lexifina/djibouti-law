@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0596/PR/MENESUP fixant de droits d’inscription à l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0596-pr-menesup-fixant-de-droits-dinscription-a-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0596-pr-menesup-fixant-de-droits-dinscription-a-luniversite-de-djibouti/>
 
 En vigueur : 2006-08-31 (date du Journal officiel qui le publie).
 

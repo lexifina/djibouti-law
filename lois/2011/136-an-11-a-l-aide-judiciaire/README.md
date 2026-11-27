@@ -1,6 +1,6 @@
 # Loi n° 136/AN/11/6ème L relative à l’aide judiciaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-11-6eme-l-relative-a-laide-judiciaire/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2011 · <https://www.journalofficiel.dj/texte-juridique/loi-n136-an-11-6eme-l-relative-a-laide-judiciaire/>
 
 En vigueur : 2011-07-31 (date du Journal officiel qui le publie).
 
@@ -66,4 +66,4 @@ ISMAÏL OMAR GUELLEH
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
 | [art-036.md](art-036.md) | Article 36 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

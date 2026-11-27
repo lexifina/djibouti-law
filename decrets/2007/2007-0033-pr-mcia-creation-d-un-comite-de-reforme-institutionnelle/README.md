@@ -1,8 +1,8 @@
 # Décret n° 2007-0033/PR/MCIA portant création d’un comité de réforme institutionnelle de la Chambre de Commerce de Djibouti (CCD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0033-pr-mcia-portant-creation-dun-comite-de-reforme-institutionnelle-de-la-chambre-de-commerce-de-djibouti-ccd/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0033-pr-mcia-portant-creation-dun-comite-de-reforme-institutionnelle-de-la-chambre-de-commerce-de-djibouti-ccd/>
 
-En vigueur : 2007-02-08 (date fixÃ©e par le texte).
+En vigueur : 2007-02-08 (date fixée par le texte).
 
 ## Visas
 

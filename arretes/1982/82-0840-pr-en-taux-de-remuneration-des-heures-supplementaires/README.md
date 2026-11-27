@@ -1,8 +1,8 @@
 # Arrêté n° 82-0840/PR/EN fixant les taux de rémunération des heures supplémentaires effectuées par les personnels enseignants des établissements du Second degré, de l’Enseignement technique et de l’École normale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 08/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0840-pr-en-fixant-les-taux-de-remuneration-des-heures-supplementaires-effectuees-par-les-personnels-enseignants-des-etablissements-du-second-degre-de-lenseignement-technique-et-de/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 08/07/1982 · <https://www.journalofficiel.dj/texte-juridique/arrete-n82-0840-pr-en-fixant-les-taux-de-remuneration-des-heures-supplementaires-effectuees-par-les-personnels-enseignants-des-etablissements-du-second-degre-de-lenseignement-technique-et-de/>
 
-En vigueur : 1982-09-15 (date fixÃ©e par le texte).
+En vigueur : 1982-09-15 (date fixée par le texte).
 
 | Fichier | Disposition |
 | --- | --- |

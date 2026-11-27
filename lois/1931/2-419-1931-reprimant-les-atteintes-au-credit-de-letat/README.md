@@ -1,6 +1,6 @@
 # Loi n° 2-419-1931 réprimant les atteintes au crédit de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 419 du 31/10/1931 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-2-419-1931-reprimant-les-atteintes-au-credit-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 419 du 31/10/1931 · <https://www.journalofficiel.dj/texte-juridique/loi-n-2-419-1931-reprimant-les-atteintes-au-credit-de-letat/>
 
 En vigueur : 1931-10-31 (date du Journal officiel qui le publie).
 

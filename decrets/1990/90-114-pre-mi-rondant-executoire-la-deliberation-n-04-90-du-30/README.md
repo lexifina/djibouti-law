@@ -1,6 +1,6 @@
 # Décret n° 90-114/PRE/MI rondant exécutoire la délibération n° 04/90 du 30 septembre 1990 du conseil d’administration de l’Office des Postes et Télécommunications portant fixation des taxes des télécommunications du régime intérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 29/11/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-114-pre-mi-rondant-executoire-la-deliberation-n04-90-du-30-septembre-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-fixation-des-taxes-d/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 29/11/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-114-pre-mi-rondant-executoire-la-deliberation-n04-90-du-30-septembre-1990-du-conseil-dadministration-de-loffice-des-postes-et-telecommunications-portant-fixation-des-taxes-d/>
 
 En vigueur : 1990-11-29 (date du Journal officiel qui le publie).
 

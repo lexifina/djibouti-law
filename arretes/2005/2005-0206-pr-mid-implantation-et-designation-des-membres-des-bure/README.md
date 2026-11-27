@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0206/PR/MID portant implantation et désignation des membres des bureaux de vote.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 07/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0206-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 07/04/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0206-pr-mid-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
 
 En vigueur : 2005-04-07 (date du Journal officiel qui le publie).
 

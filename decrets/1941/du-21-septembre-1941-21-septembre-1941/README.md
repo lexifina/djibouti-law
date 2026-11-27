@@ -1,6 +1,6 @@
 # Décret n° du 21 septembre 1941. du 21 septembre 1941.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 538 du 30/09/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-septembre-1941-du-21-septembre-1941/>
+Décret · Journal officiel de la République de Djibouti, n° 538 du 30/09/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-21-septembre-1941-du-21-septembre-1941/>
 
 En vigueur : 1941-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 145/AN/91 /2ème L relative aux conditions d’exercice de la pharmacie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-91-2eme-l-relative-aux-conditions-dexercice-de-la-pharmacie/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n145-an-91-2eme-l-relative-aux-conditions-dexercice-de-la-pharmacie/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

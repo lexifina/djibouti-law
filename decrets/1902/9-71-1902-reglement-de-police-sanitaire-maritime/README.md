@@ -1,6 +1,6 @@
 # Décret n° 9-71-1902 portant règlement de police sanitaire maritime.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 71 du 15/11/1902 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-9-71-1902-portant-reglement-de-police-sanitaire-maritime/>
+Décret · Journal officiel de la République de Djibouti, n° 71 du 15/11/1902 · <https://www.journalofficiel.dj/texte-juridique/decret-n-9-71-1902-portant-reglement-de-police-sanitaire-maritime/>
 
 En vigueur : 1902-11-15 (date du Journal officiel qui le publie).
 

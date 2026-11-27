@@ -1,6 +1,6 @@
 # Loi n° No 374 bis Texte de la loi du 25 juin 1902.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 254 du 31/12/1917 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-no-374-bis-texte-de-la-loi-du-25-juin-1902/>
+Loi · Journal officiel de la République de Djibouti, n° 254 du 31/12/1917 · <https://www.journalofficiel.dj/texte-juridique/loi-n-no-374-bis-texte-de-la-loi-du-25-juin-1902/>
 
 En vigueur : 1917-12-31 (date du Journal officiel qui le publie).
 

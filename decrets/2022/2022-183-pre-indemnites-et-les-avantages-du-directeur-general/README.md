@@ -1,8 +1,8 @@
 # Décret n° 2022-183/PRE fixant les indemnités et les avantages du Directeur Général de l’Autorité Nationale, de Coordination, de Régulation et de Contrôle en matière de Sécurité et Sûreté Nucléaires, Radiologiques, Chimiques et Biologiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-183-pre-fixant-les-indemnites-et-les-avantages-du-directeur-general-de-lautorite-nationale-de-coordination-de-regulation-et-de-controle-en-matiere-de-securite-et-surete-nucle/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-183-pre-fixant-les-indemnites-et-les-avantages-du-directeur-general-de-lautorite-nationale-de-coordination-de-regulation-et-de-controle-en-matiere-de-securite-et-surete-nucle/>
 
-En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

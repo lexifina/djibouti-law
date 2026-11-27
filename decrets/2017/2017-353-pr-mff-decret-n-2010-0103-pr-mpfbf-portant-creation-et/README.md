@@ -1,6 +1,6 @@
 # Décret n° 2017-353/PR/MFF modifiant le Décret n° 2010-0103/PR/MPFBF portant création et organisation d’un Comité National de Pilotage et d’un Comité Technique pour l’élaboration, la mise en œuvre et le suivi évaluation du Plan Stratégique National pour l’Enfance à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-353-pr-mff-modifiant-le-decret-n2010-0103-pr-mpfbf-portant-creation-et-organisation-dun-comite-national-de-pilotage-et-dun-comite-technique-pour-lelaboration-la-mise-en/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-353-pr-mff-modifiant-le-decret-n2010-0103-pr-mpfbf-portant-creation-et-organisation-dun-comite-national-de-pilotage-et-dun-comite-technique-pour-lelaboration-la-mise-en/>
 
 En vigueur : 2017-11-15 (date du Journal officiel qui le publie).
 

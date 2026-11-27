@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er, — Les dispositions générales du décret du 29 août 1926 susvisé sont applicables aux fonctionnaires des cadres ci-dessous énumérés dont les émoluments ont été revisés en exécution de a loi du 13 juillet 1925:
 À. — Personnel civil de l’administration pénitentiaire coloniale.
 Personnel des travaux pénitentiaires coloniaux;

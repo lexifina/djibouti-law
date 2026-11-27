@@ -1,6 +1,6 @@
 # Décret n° 87-004/PR/FIN pris pour l’application de la loi n° 230/ AN/86/1re L du 6 janvier 1987 relative à la souscription obligatoire de certificats de dépôt au trésor national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-004-pr-fin-pris-pour-lapplication-de-la-loi-n-230-an-86-1re-l-du-6-janvier-1987-relative-a-la-souscription-obligatoire-de-certificats-de-depot-au-tresor-national/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-004-pr-fin-pris-pour-lapplication-de-la-loi-n-230-an-86-1re-l-du-6-janvier-1987-relative-a-la-souscription-obligatoire-de-certificats-de-depot-au-tresor-national/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

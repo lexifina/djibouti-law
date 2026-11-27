@@ -1,6 +1,6 @@
 # Décret n° 46-2594 tions saisissables ou cessibles des soldes, allocations et traitements des troupes coloniales à la charge du Département des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2594-tions-saisissables-ou-cessibles-des-soldes-allocations-et-traitements-des-troupes-coloniales-a-la-charge-du-departement-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-2594-tions-saisissables-ou-cessibles-des-soldes-allocations-et-traitements-des-troupes-coloniales-a-la-charge-du-departement-des-colonies/>
 
 En vigueur : 1946-12-31 (date du Journal officiel qui le publie).
 

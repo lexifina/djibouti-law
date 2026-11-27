@@ -1,6 +1,6 @@
 # Décret n° 60-1326 fixant les conditions d’application dans les territoires d’outre-mer des dispositions du décret n° 60-1324 du 13 décembre 1960 portant organisation du scrutin pour le référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 26/12/1960 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1326-fixant-les-conditions-dapplication-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-60-1324-du-13-decembre-1960-portant-organisation-du-scrutin-pour-le-re/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 26/12/1960 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-1326-fixant-les-conditions-dapplication-dans-les-territoires-doutre-mer-des-dispositions-du-decret-n-60-1324-du-13-decembre-1960-portant-organisation-du-scrutin-pour-le-re/>
 
 En vigueur : 1960-12-26 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ROBERT LECOURT.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,8 +1,8 @@
 # Loi n° 42/AN/14/7ème L portant réorganisation du Ministère de l’Energie chargé des ressources naturelles.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2014 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-14-7eme-l-portant-reorganisation-du-ministere-de-lenergie-charge-des-ressources-naturelles/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2014 · <https://www.journalofficiel.dj/texte-juridique/loi-n42-an-14-7eme-l-portant-reorganisation-du-ministere-de-lenergie-charge-des-ressources-naturelles/>
 
-En vigueur : 2014-06-25 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-06-25 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -82,4 +82,4 @@ ISMAÏL OMAR GUELLEH
 | [art-049.md](art-049.md) | Article 49 |
 | [art-050.md](art-050.md) | Article 50 |
 | [art-051.md](art-051.md) | Article 51 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

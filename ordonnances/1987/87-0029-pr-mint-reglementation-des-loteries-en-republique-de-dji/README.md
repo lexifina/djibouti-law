@@ -1,8 +1,8 @@
 # Ordonnance n° 87-0029/PR/MINT portant réglementation des loteries en République de Djibouti.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 25/06/1987 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-0029-pr-mint-portant-reglementation-des-loteries-en-republique-de-djibouti/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 4 du 25/06/1987 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n87-0029-pr-mint-portant-reglementation-des-loteries-en-republique-de-djibouti/>
 
-En vigueur : 1987-05-12 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1987-05-12 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

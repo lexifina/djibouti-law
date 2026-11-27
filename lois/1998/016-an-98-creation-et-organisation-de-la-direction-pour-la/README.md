@@ -1,6 +1,6 @@
 # Loi n° 16/AN/98/4ème L portant création et organisation de la Direction Pour la Promotion de la Femme et de la Famille.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/07/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-98-4eme-l-portant-creation-et-organisation-de-la-direction-pour-la-promotion-de-la-femme-et-de-la-famille/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/07/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n16-an-98-4eme-l-portant-creation-et-organisation-de-la-direction-pour-la-promotion-de-la-femme-et-de-la-famille/>
 
 En vigueur : 1998-07-15 (date du Journal officiel qui le publie).
 

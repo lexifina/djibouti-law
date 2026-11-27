@@ -1,6 +1,6 @@
 # Arrêté n° 2018-111/PR/MENSUR portant création du Diplôme d’Etat Infirmier « Grade Licence Professionnelle ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-111-pr-mensur-portant-creation-du-diplome-detat-infirmier-grade-licence-professionnelle/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-111-pr-mensur-portant-creation-du-diplome-detat-infirmier-grade-licence-professionnelle/>
 
 En vigueur : 2018-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

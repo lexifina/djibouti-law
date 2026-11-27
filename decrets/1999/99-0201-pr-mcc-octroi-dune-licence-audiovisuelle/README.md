@@ -1,8 +1,8 @@
 # Décret n° 99-0201/PR/MCC portant octroi d’une licence audiovisuelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0201-pr-mcc-portant-octroi-dune-licence-audiovisuelle/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0201-pr-mcc-portant-octroi-dune-licence-audiovisuelle/>
 
-En vigueur : 1999-10-09 (date fixÃ©e par le texte).
+En vigueur : 1999-10-09 (date fixée par le texte).
 
 ## Visas
 

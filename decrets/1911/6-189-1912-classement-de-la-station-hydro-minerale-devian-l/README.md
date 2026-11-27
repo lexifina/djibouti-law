@@ -1,6 +1,6 @@
 # Décret n° 6-189-1912 portant le classement de la station hydro-minérale d’Évian-les-Bains et d’une circulaire notificative du 20 septembre suivant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 189 du 01/08/1912 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-189-1912-portant-le-classement-de-la-station-hydro-minerale-devian-les-bains-et-dune-circulaire-notificative-du-20-septembre-suivant/>
+Décret · Journal officiel de la République de Djibouti, n° 189 du 01/08/1912 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-189-1912-portant-le-classement-de-la-station-hydro-minerale-devian-les-bains-et-dune-circulaire-notificative-du-20-septembre-suivant/>
 
 En vigueur : 1912-08-01 (date du Journal officiel qui le publie).
 

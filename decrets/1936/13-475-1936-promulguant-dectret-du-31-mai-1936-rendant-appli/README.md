@@ -1,6 +1,6 @@
 # Décret n° 13-475-1936 promulguant déctret du 31 mai 1936 rendant applicable aux colonies la loi du 4 mars 1932 modifiant certaines dispositions de la loi du D mars 1928 portant révision du Code de justice militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-475-1936-promulguant-dectret-du-31-mai-1936-rendant-applicable-aux-colonies-la-loi-du-4-mars-1932-modifiant-certaines-dispositions-de-la-loi-du-d-mars-1928-portant-revision-du-code/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-475-1936-promulguant-dectret-du-31-mai-1936-rendant-applicable-aux-colonies-la-loi-du-4-mars-1932-modifiant-certaines-dispositions-de-la-loi-du-d-mars-1928-portant-revision-du-code/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 
@@ -17,4 +17,4 @@ A.ANNET
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art.1 er — |
+| [art-001.md](art-001.md) | Art.1 er |

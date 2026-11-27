@@ -1,6 +1,6 @@
 # Décret n° 2009-0146/RE/MDN portant validation du plan Directeur de Développementd du Secteur Primaire en République de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0146-re-mdn-portant-validation-du-plan-directeur-de-developpementd-du-secteur-primaire-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0146-re-mdn-portant-validation-du-plan-directeur-de-developpementd-du-secteur-primaire-en-republique-de-djibouti/>
 
 En vigueur : 2009-07-15 (date du Journal officiel qui le publie).
 

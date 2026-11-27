@@ -1,6 +1,6 @@
 # Décret n° 3 novembre 1939. modifiant l’’article 2 du décret du 1° septembre 1939 relatif aux actions en justice et aux prescriptions et délais de procédures e intéressant les mobilisés,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 519 du 28/02/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-modifiant-larticle-2-du-decret-du-1-septembre-1939-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedures-e-interessant-les-mobil/>
+Décret · Journal officiel de la République de Djibouti, n° 519 du 28/02/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-novembre-1939-modifiant-larticle-2-du-decret-du-1-septembre-1939-relatif-aux-actions-en-justice-et-aux-prescriptions-et-delais-de-procedures-e-interessant-les-mobil/>
 
 En vigueur : 1940-02-28 (date du Journal officiel qui le publie).
 

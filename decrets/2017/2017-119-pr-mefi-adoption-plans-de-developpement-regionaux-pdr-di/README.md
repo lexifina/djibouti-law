@@ -1,6 +1,6 @@
 # Décret n° 2017-119/PR/MEFI portant adoption PLANS DE DEVELOPPEMENT REGIONAUX (PDR) DIKHIL- ALI SABIEH-TADJOURA-OBOCK-ARTA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-119-pr-mefi-portant-adoption-plans-de-developpement-regionaux-pdr-dikhil-ali-sabieh-tadjoura-obock-arta/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-119-pr-mefi-portant-adoption-plans-de-developpement-regionaux-pdr-dikhil-ali-sabieh-tadjoura-obock-arta/>
 
 En vigueur : 2017-03-30 (date du Journal officiel qui le publie).
 

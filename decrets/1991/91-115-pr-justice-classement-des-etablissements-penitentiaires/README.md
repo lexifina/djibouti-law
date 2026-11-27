@@ -1,6 +1,6 @@
 # Décret n° 91‑115/PR/JUSTICE portant classement des établissements pénitentiaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91115-pr-justice-portant-classement-des-etablissements-penitentiaires/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 15/08/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91%e2%80%91115-pr-justice-portant-classement-des-etablissements-penitentiaires/>
 
 En vigueur : 1991-08-15 (date du Journal officiel qui le publie).
 

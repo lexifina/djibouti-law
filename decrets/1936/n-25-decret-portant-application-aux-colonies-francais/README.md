@@ -1,6 +1,6 @@
 # Décret n° n°25 Décret portant application aux colonies françaises, pays de protectorat et territoires sous mandat dépendant du ministère des colonies des dispositions du décret du 30 octobre 1935 unifiant le droit en matière de chèque
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n25-decret-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-des-dispositions-du-decret-du-30-octobr/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n25-decret-portant-application-aux-colonies-francaises-pays-de-protectorat-et-territoires-sous-mandat-dependant-du-ministere-des-colonies-des-dispositions-du-decret-du-30-octobr/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 

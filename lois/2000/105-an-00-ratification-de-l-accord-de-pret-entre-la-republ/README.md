@@ -1,6 +1,6 @@
 # Loi n° 105/AN/00/4ème L portant ratification de l’Accord de Prêt entre la République de Djibouti et la Banque Mondiale (IDA) pour le projet de Réhabilitation du Corridor Routier International.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-00-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida-pour-le-projet-de-rehabilitation-du-corridor-routier-internati/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n105-an-00-4eme-l-portant-ratification-de-laccord-de-pret-entre-la-republique-de-djibouti-et-la-banque-mondiale-ida-pour-le-projet-de-rehabilitation-du-corridor-routier-internati/>
 
 En vigueur : 2000-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 69-329 relatif aux brevets, licences et certificats du personnel navigant professionnel de l’Aéronautique civile
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 10/07/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-329-relatif-aux-brevets-licences-et-certificats-du-personnel-navigant-professionnel-de-laeronautique-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 10/07/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-329-relatif-aux-brevets-licences-et-certificats-du-personnel-navigant-professionnel-de-laeronautique-civile/>
 
 En vigueur : 1969-07-10 (date du Journal officiel qui le publie).
 
@@ -37,4 +37,4 @@ Michel INCHAUSPE.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Arrêté n° 2015-705/PR/MB portant attribution d’une parcelle de terrain de 4ha sise dans la zone de Nagad.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-705-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-4ha-sise-dans-la-zone-de-nagad/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-705-pr-mb-portant-attribution-dune-parcelle-de-terrain-de-4ha-sise-dans-la-zone-de-nagad/>
 
 En vigueur : 2015-11-15 (date du Journal officiel qui le publie).
 

@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I
 ORGANISATION
 Chapitre I : Principes généraux

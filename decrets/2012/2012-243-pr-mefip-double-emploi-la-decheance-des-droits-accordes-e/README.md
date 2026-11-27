@@ -2,7 +2,7 @@
 – La déchéance des droits accordés en vertu du titre foncier n° 79.
 – L’attribution de des droits à SIDHWA HOSPITALITY SARL.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-243-pr-mefip-portant-double-emploi-la-decheance-des-droits-accordes-en-vertu-du-titre-foncier-n79-lattribution-de-des-droits-a-sidhwa-hospitality-sarl/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-243-pr-mefip-portant-double-emploi-la-decheance-des-droits-accordes-en-vertu-du-titre-foncier-n79-lattribution-de-des-droits-a-sidhwa-hospitality-sarl/>
 
 En vigueur : 2012-11-15 (date du Journal officiel qui le publie).
 

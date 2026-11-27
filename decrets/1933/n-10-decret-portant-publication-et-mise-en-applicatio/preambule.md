@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1°, — L’avenant à la convention commerciale du 15 mars 1929 entre la France et l’Estonie, signé à Paris le 27 avril 1933 et dont la teneur suit, sera inséré an Journal officiel et sera mis en application provisoire à partir du 6 juillet 1933, en attendant son approbation par le Sénat et la Chambre des députés.
 AVENANT A LA CONVENTION DE COMMERCE DU 15 MARS 1929 ENTRE LA FRANCE ET L’ESTONIE, SIGNÉ A PARIS LE 27 AVRIL 1933
 Le Gouvernement francais et le Gouvernement estonien, animés du commun désir de tenir compte de la situation économique actuelle, et en attendant la conclusion d’un nouvel arrangement qui permette d’améliorer les échanges commerciaux entre les deux pays ont convenu d’apporter à la convention franco-estonienne du 15 mars 1929, complétée par les protocoles des 11 juillet 1930, 30 octobre 1930 et 16 mars 1932, les modifications ci-après

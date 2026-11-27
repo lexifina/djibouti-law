@@ -1,6 +1,6 @@
 # Décret n° 2016-306/PRE créant une société dénommée “GREAT HORN INVESTMENT HOLDINGS S.A.S”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-306-pre-creant-une-societe-denommee-great-horn-investment-holdings-s-a-s/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-306-pre-creant-une-societe-denommee-great-horn-investment-holdings-s-a-s/>
 
 En vigueur : 2016-11-15 (date du Journal officiel qui le publie).
 

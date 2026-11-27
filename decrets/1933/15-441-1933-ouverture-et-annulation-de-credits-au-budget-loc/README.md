@@ -1,6 +1,6 @@
 # Décret n° 15-441-1933 Ouverture et annulation de crédits au budget local de la Côte française des Somalis, exercice 1932.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 441 du 31/08/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-441-1933-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1932/>
+Décret · Journal officiel de la République de Djibouti, n° 441 du 31/08/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-441-1933-ouverture-et-annulation-de-credits-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1932/>
 
 En vigueur : 1933-08-31 (date du Journal officiel qui le publie).
 

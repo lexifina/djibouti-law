@@ -1,8 +1,8 @@
 # Décret n° 73-238 modifiant le décret du 6 février 1950 sur les frais de déplacement des militaires de l’armée de terre en service dans les territoires et départements d’outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1973 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-73-238-modifiant-le-decret-du-6-fevrier-1950-sur-les-frais-de-deplacement-des-militaires-de-larmee-de-terre-en-service-dans-les-territoires-et-departements-doutre-me/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1973 · <https://www.journalofficiel.dj/texte-juridique/decret-n-73-238-modifiant-le-decret-du-6-fevrier-1950-sur-les-frais-de-deplacement-des-militaires-de-larmee-de-terre-en-service-dans-les-territoires-et-departements-doutre-me/>
 
-En vigueur : 1973-01-01 (date fixÃ©e par le texte).
+En vigueur : 1973-01-01 (date fixée par le texte).
 
 ## Visas
 

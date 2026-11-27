@@ -1,6 +1,6 @@
 # Décret n° 2011-0162/PR/MTCRA portant affiliation des Médiateurs de la République au régime des Députés et membres du Gouvernement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0162-pr-mtcra-portant-affiliation-des-mediateurs-de-la-republique-au-regime-des-deputes-et-membres-du-gouvernement/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0162-pr-mtcra-portant-affiliation-des-mediateurs-de-la-republique-au-regime-des-deputes-et-membres-du-gouvernement/>
 
 En vigueur : 2011-09-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 44/AN/83/1re L fixant la date d’ouverture et la durée de la 1ére session ordinaire de 1983.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/06/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-83-1re-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1983/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/06/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n44-an-83-1re-l-fixant-la-date-douverture-et-la-duree-de-la-1ere-session-ordinaire-de-1983/>
 
 En vigueur : 1983-06-30 (date du Journal officiel qui le publie).
 

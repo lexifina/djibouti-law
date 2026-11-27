@@ -1,6 +1,6 @@
 # Décret n° 35 réglant la répartition des volontaires entre les Forces Françaises Libres de Terre. de Mer et de l’Air
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-35-reglant-la-repartition-des-volontaires-entre-les-forces-francaises-libres-de-terre-de-mer-et-de-lair/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-35-reglant-la-repartition-des-volontaires-entre-les-forces-francaises-libres-de-terre-de-mer-et-de-lair/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

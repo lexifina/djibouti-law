@@ -1,6 +1,6 @@
 # Arrêté n° 2019-117/PR/MB portant distraction et incorporation d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-117-pr-mb-portant-distraction-et-incorporation-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-117-pr-mb-portant-distraction-et-incorporation-dune-parcelle-de-terrain/>
 
 En vigueur : 2019-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

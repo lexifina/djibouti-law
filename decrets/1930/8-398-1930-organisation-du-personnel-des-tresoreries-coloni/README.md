@@ -1,6 +1,6 @@
 # Décret n° 8-398-1930 Organisation du personnel des trésoreries coloniales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-398-1930-organisation-du-personnel-des-tresoreries-coloniales/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-398-1930-organisation-du-personnel-des-tresoreries-coloniales/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ André Maginot.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

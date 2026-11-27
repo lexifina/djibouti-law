@@ -1,6 +1,6 @@
 # Décret n° n° 51-1523 du 31 décembre 1951 portant modification du décret n° 49-1364 du 2 août 1949 fixant le statut particulier des auxiliaires de gendarmerie des territoires relevant du Ministre de la FOM. autres que l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/06/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1523-du-31-decembre-1951-portant-modification-du-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxiliaires-de-gendarmerie-des-territoires-relevant-d/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/06/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-51-1523-du-31-decembre-1951-portant-modification-du-decret-n-49-1364-du-2-aout-1949-fixant-le-statut-particulier-des-auxiliaires-de-gendarmerie-des-territoires-relevant-d/>
 
 En vigueur : 1953-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 74-13 étendant et adaptant aux Territoires d’outre-mer certaines dispositions du code-de l’aviation civile (2e partie) (JORF n° 9 du 10 janvier 1974, pages 385, 386 et 387) – (arrêté de promulgation n° 66/SLAG du 31 janvier 1974)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 25/02/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-13-etendant-et-adaptant-aux-territoires-doutre-mer-certaines-dispositions-du-code-de-laviation-civile-2e-partie-jorf-n-9-du-10-janvier-1974-pages-385-386-et-387-a/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 25/02/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-13-etendant-et-adaptant-aux-territoires-doutre-mer-certaines-dispositions-du-code-de-laviation-civile-2e-partie-jorf-n-9-du-10-janvier-1974-pages-385-386-et-387-a/>
 
 En vigueur : 1974-02-25 (date du Journal officiel qui le publie).
 

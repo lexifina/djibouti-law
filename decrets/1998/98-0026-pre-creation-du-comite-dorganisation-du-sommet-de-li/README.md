@@ -1,6 +1,6 @@
 # Décret n° 98-0026/PRE Portant création du Comité d’Organisation du Sommet de l’IGAD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0026-pre-portant-creation-du-comite-dorganisation-du-sommet-de-ligad/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0026-pre-portant-creation-du-comite-dorganisation-du-sommet-de-ligad/>
 
 En vigueur : 1998-03-15 (date du Journal officiel qui le publie).
 

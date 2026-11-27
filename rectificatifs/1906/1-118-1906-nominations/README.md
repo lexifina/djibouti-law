@@ -1,6 +1,6 @@
 # Erratum n° 1-118-1906 Nominations
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 118 du 01/09/1906 Â· <https://www.journalofficiel.dj/texte-juridique/erratum-n-1-118-1906-nominations/>
+Erratum · Journal officiel de la République de Djibouti, n° 118 du 01/09/1906 · <https://www.journalofficiel.dj/texte-juridique/erratum-n-1-118-1906-nominations/>
 
 En vigueur : 1906-09-01 (date du Journal officiel qui le publie).
 

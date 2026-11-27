@@ -1,8 +1,8 @@
 # Décret n° 2011-0229/PR modifiant le décret n° 2003-0067/PR/MEF du 29 mars 2003 portant création d’une commission nationale chargé de l’élaboration d’une nouvelle réglementation comptable.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0229-pr-modifiant-le-decret-n2003-0067-pr-mef-du-29-mars-2003-portant-creation-dune-commission-nationale-charge-de-lelaboration-dune-nouvelle-reglem/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0229-pr-modifiant-le-decret-n2003-0067-pr-mef-du-29-mars-2003-portant-creation-dune-commission-nationale-charge-de-lelaboration-dune-nouvelle-reglem/>
 
-En vigueur : 2011-12-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2011-12-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

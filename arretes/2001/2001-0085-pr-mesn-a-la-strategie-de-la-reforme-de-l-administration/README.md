@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0085/PR/MESN relatif à la Stratégie de la Réforme de l’Administration Publique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0085-pr-mesn-relatif-a-la-strategie-de-la-reforme-de-ladministration-publique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0085-pr-mesn-relatif-a-la-strategie-de-la-reforme-de-ladministration-publique/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

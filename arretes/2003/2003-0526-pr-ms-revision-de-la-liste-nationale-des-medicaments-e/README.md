@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0526/PR/MS portant révision de la liste nationale des médicaments et petits matériels essentiels, année 2002, 1ère révision.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0526-pr-ms-portant-revision-de-la-liste-nationale-des-medicaments-et-petits-materiels-essentiels-annee-2002-1ere-revision/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0526-pr-ms-portant-revision-de-la-liste-nationale-des-medicaments-et-petits-materiels-essentiels-annee-2002-1ere-revision/>
 
 En vigueur : 2003-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° n°27 Loi du 1 août 1929 portant ratification du décret du 28 mai 1925, prohibant dans les colonies françaises et les pays de protectorat autres que le Maroc et la Tunisie, la sortie jetons frappés en bronze d’aluminium lorsque l’envoi. a pour destination des pays autres que la France, les. colonies et pays dé protectorat francais
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 395 du 31/10/1929 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-n27-loi-du-1-aout-1929-portant-ratification-du-decret-du-28-mai-1925-prohibant-dans-les-colonies-francaises-et-les-pays-de-protectorat-autres-que-le-maroc-et-la-tunisie-la-sortie/>
+Loi · Journal officiel de la République de Djibouti, n° 395 du 31/10/1929 · <https://www.journalofficiel.dj/texte-juridique/loi-n-n27-loi-du-1-aout-1929-portant-ratification-du-decret-du-28-mai-1925-prohibant-dans-les-colonies-francaises-et-les-pays-de-protectorat-autres-que-le-maroc-et-la-tunisie-la-sortie/>
 
 En vigueur : 1929-10-31 (date du Journal officiel qui le publie).
 

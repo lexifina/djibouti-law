@@ -1,6 +1,6 @@
 # Ordonnance n° 45-1554 du 16 juillet 1945 relative au dépôt des devises étrangères et des valeurs mobilières étrangères conservées sur les territoires relevant du ministre des colonies.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1554-du-16-juillet-1945-relative-au-depot-des-devises-etrangeres-et-des-valeurs-mobilieres-etrangeres-conservees-sur-les-territoires-relevant-du-ministre-des-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-1554-du-16-juillet-1945-relative-au-depot-des-devises-etrangeres-et-des-valeurs-mobilieres-etrangeres-conservees-sur-les-territoires-relevant-du-ministre-des-colonies/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 
@@ -41,4 +41,4 @@ P. GIACOBBI.
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

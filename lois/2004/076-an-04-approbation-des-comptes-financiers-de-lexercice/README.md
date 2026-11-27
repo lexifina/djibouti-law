@@ -1,6 +1,6 @@
 # Loi n° 76/AN/04/5ème L portant approbation des Comptes Financiers de l’Exercice 2002 du Pôle Universitaire de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-04-5eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2002-du-pole-universitaire-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n76-an-04-5eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2002-du-pole-universitaire-de-djibouti/>
 
 En vigueur : 2004-09-15 (date du Journal officiel qui le publie).
 

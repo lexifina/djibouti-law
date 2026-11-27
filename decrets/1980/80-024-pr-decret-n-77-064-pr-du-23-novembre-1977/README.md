@@ -1,6 +1,6 @@
 # Décret n° 80-024/PR modifiant le décret n° 77-064/PR du 23 Novembre 1977.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-024-pr-modifiant-le-decret-n-77-064-pr-du-23-novembre-1977/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-024-pr-modifiant-le-decret-n-77-064-pr-du-23-novembre-1977/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

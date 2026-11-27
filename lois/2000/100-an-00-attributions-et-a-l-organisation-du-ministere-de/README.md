@@ -1,6 +1,6 @@
 # Loi n° 100/AN/00/4ème L relative aux attributions et à l’organisation du Ministère de la Justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-00-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n100-an-00-4eme-l-relative-aux-attributions-et-a-lorganisation-du-ministere-de-la-justice/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ISMAÏL OMAR GUELLEH
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Ordonnance n° 45-2690 du 2 novembre 1945 relative à l’organisation) judiciaire des colonies, pays de protectorat et territoires relevant du ministère des colonies
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2690-du-2-novembre-1945-relative-a-lorganisation-judiciaire-des-colonies-pays-de-protectorat-et-territoires-relevant-du-ministere-des-colonies/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-45-2690-du-2-novembre-1945-relative-a-lorganisation-judiciaire-des-colonies-pays-de-protectorat-et-territoires-relevant-du-ministere-des-colonies/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

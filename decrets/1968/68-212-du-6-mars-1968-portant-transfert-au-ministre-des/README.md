@@ -1,6 +1,6 @@
 # Décret n° 68-212 du 6 mars 1968 portant transfert au Ministre des Transports des attributions du Ministre d’Etat chargé des départements et territoires d’outrener en ce qui concerne les services des affaires maritimes dans les territoires d’outre-mer (JORF. du 7 mars 1968, p. 2419)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1968 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-68-212-du-6-mars-1968-portant-transfert-au-ministre-des-transports-des-attributions-du-ministre-detat-charge-des-departements-et-territoires-doutrener-en-ce-qui-concerne-le/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 10/10/1968 · <https://www.journalofficiel.dj/texte-juridique/decret-n-68-212-du-6-mars-1968-portant-transfert-au-ministre-des-transports-des-attributions-du-ministre-detat-charge-des-departements-et-territoires-doutrener-en-ce-qui-concerne-le/>
 
 En vigueur : 1968-10-10 (date du Journal officiel qui le publie).
 
@@ -31,4 +31,4 @@ Jean CHAMANT. .
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

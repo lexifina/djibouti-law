@@ -1,6 +1,6 @@
 # Loi n° 72/AN/09/6ème L portant adoption de la Stratégie Nationale du Développement du Commerce.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-09-6eme-l-portant-adoption-de-la-strategie-nationale-du-developpement-du-commerce/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 28/02/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n72-an-09-6eme-l-portant-adoption-de-la-strategie-nationale-du-developpement-du-commerce/>
 
 En vigueur : 2010-02-28 (date du Journal officiel qui le publie).
 

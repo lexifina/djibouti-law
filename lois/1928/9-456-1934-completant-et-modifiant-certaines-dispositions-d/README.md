@@ -1,6 +1,6 @@
 # Loi n° 9-456-1934 complétant et modifiant certaines dispositions de la loi du 9 mars 1928 portant revision du Code de justice militaire pour l’armée de terre.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 456 du 30/11/1934 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-9-456-1934-completant-et-modifiant-certaines-dispositions-de-la-loi-du-9-mars-1928-portant-revision-du-code-de-justice-militaire-pour-larmee-de-terre/>
+Loi · Journal officiel de la République de Djibouti, n° 456 du 30/11/1934 · <https://www.journalofficiel.dj/texte-juridique/loi-n-9-456-1934-completant-et-modifiant-certaines-dispositions-de-la-loi-du-9-mars-1928-portant-revision-du-code-de-justice-militaire-pour-larmee-de-terre/>
 
 En vigueur : 1934-11-30 (date du Journal officiel qui le publie).
 

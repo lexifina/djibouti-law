@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0438/PR/MAEM-RH portant création d’une Unité de Coordination et d’un Comité de Pilotage Projet de Développement de Micro finance et de la Micro entreprise (PDMM).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0438-pr-maem-rh-portant-creation-dune-unite-de-coordination-et-dun-comite-de-pilotage-projet-de-developpement-de-micro-finance-et-de-la-micro-entreprise-pdmm/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0438-pr-maem-rh-portant-creation-dune-unite-de-coordination-et-dun-comite-de-pilotage-projet-de-developpement-de-micro-finance-et-de-la-micro-entreprise-pdmm/>
 
 En vigueur : 2004-06-15 (date du Journal officiel qui le publie).
 

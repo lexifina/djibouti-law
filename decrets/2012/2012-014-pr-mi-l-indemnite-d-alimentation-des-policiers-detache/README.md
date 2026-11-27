@@ -1,6 +1,6 @@
 # Décret n° 2012-014/PR/MI portant l’indemnité d’alimentation des policiers détachés à la prison civile d’obock.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-014-pr-mi-portant-lindemnite-dalimentation-des-policiers-detaches-a-la-prison-civile-dobock/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-014-pr-mi-portant-lindemnite-dalimentation-des-policiers-detaches-a-la-prison-civile-dobock/>
 
 En vigueur : 2012-01-31 (date du Journal officiel qui le publie).
 

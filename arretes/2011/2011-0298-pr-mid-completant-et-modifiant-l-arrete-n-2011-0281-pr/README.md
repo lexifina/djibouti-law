@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0298/PR/MID complétant et modifiant l’Arrêté n° 2011-0281/PR/MID du 21 mars 2011 portant implantation et désignation des membres des bureaux de vote.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0298-pr-mid-completant-et-modifiant-larrete-n2011-0281-pr-mid-du-21-mars-2011-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0298-pr-mid-completant-et-modifiant-larrete-n2011-0281-pr-mid-du-21-mars-2011-portant-implantation-et-designation-des-membres-des-bureaux-de-vote/>
 
 En vigueur : 2011-03-31 (date du Journal officiel qui le publie).
 

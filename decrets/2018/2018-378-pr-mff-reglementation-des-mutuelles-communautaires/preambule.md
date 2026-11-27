@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 CHAPITRE I :
 DE L’OBJET, DEFINITION, DU CHAMP D’APPLICATION

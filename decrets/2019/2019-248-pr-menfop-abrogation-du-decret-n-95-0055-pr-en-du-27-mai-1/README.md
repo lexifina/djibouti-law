@@ -1,6 +1,6 @@
 # Décret n° 2019-248/PR/MENFOP portant abrogation du Décret n° 95-0055/PR/EN du 27 mai 1995 et créant le Baccalauréat professionnel.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-248-pr-menfop-portant-abrogation-du-decret-n95-0055-pr-en-du-27-mai-1995-et-creant-le-baccalaureat-professionnel/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-248-pr-menfop-portant-abrogation-du-decret-n95-0055-pr-en-du-27-mai-1995-et-creant-le-baccalaureat-professionnel/>
 
 En vigueur : 2019-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -64,4 +64,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

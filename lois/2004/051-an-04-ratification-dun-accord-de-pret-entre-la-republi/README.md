@@ -1,6 +1,6 @@
 # Loi n° 51/AN/04/5ème L portant ratification d’un Accord de Prêt entre la République de Djibouti et le Fonds Africain de Développement (Santé).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-sante/>
+Loi · Journal officiel de la République de Djibouti, n° 9 du 15/05/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n51-an-04-5eme-l-portant-ratification-dun-accord-de-pret-entre-la-republique-de-djibouti-et-le-fonds-africain-de-developpement-sante/>
 
 En vigueur : 2004-05-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 120/AN/84/1ere L introduisant en République de Djibouti, en matière civile et commerciale, la catégorie des jugements réputés contradictoires et diverses modifications relatives à l’appel et à l’opposition.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 29/11/1984 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-84-1ere-l-introduisant-en-republique-de-djibouti-en-matiere-civile-et-commerciale-la-categorie-des-jugements-reputes-contradictoires-et-diverses-modifications-relatives-a-lappel/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 29/11/1984 · <https://www.journalofficiel.dj/texte-juridique/loi-n120-an-84-1ere-l-introduisant-en-republique-de-djibouti-en-matiere-civile-et-commerciale-la-categorie-des-jugements-reputes-contradictoires-et-diverses-modifications-relatives-a-lappel/>
 
 En vigueur : 1984-11-29 (date du Journal officiel qui le publie).
 

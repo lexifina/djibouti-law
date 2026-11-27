@@ -1,8 +1,8 @@
 # Loi n° 176/AN/24/9ème L Portant sur l’obligation de la vaccination des enfants de moins de 5 ans et des femmes enceintes.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-24-9eme-l-portant-sur-lobligation-de-la-vaccination-des-enfants-de-moins-de-5-ans-et-des-femmes-enceintes/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n176-an-24-9eme-l-portant-sur-lobligation-de-la-vaccination-des-enfants-de-moins-de-5-ans-et-des-femmes-enceintes/>
 
-En vigueur : 2025-07-06 (date fixÃ©e par le texte).
+En vigueur : 2025-07-06 (date fixée par le texte).
 
 ## Visas
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

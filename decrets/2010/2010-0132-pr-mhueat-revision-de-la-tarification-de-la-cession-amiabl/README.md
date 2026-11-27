@@ -1,6 +1,6 @@
 # Décret n° 2010-0132/PR/MHUEAT portant révision de la tarification de la cession amiable dans les Anciens Quartiers de Djibouti-ville et de Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0132-pr-mhueat-portant-revision-de-la-tarification-de-la-cession-amiable-dans-les-anciens-quartiers-de-djibouti-ville-et-de-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0132-pr-mhueat-portant-revision-de-la-tarification-de-la-cession-amiable-dans-les-anciens-quartiers-de-djibouti-ville-et-de-balbala/>
 
 En vigueur : 2010-07-15 (date du Journal officiel qui le publie).
 

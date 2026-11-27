@@ -1,6 +1,6 @@
 # Loi n° 218/AN/86/1re L portant approbation des comptes définitifs 1985 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-86-1re-l-portant-approbation-des-comptes-definitifs-1985-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n218-an-86-1re-l-portant-approbation-des-comptes-definitifs-1985-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

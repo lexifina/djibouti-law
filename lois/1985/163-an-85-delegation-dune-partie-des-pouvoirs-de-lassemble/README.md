@@ -1,6 +1,6 @@
 # Loi n° 163/AN/85/1ère L portant délégation d’une partie des pouvoirs de l’Assemblée Nationale à la commission permanente jusqu’à l’ouverture de la deuxième session ordinaire dite « Session budgétaire » de 1985.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-85-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-dite-session-bud/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n163-an-85-1ere-l-portant-delegation-dune-partie-des-pouvoirs-de-lassemblee-nationale-a-la-commission-permanente-jusqua-louverture-de-la-deuxieme-session-ordinaire-dite-session-bud/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0409/PR/MID prescrivant à l’occasion du 27ème Anniversaire de l’Indépendance le Ravalement des Façades de la Ville de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0409-pr-mid-prescrivant-a-loccasion-du-27eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0409-pr-mid-prescrivant-a-loccasion-du-27eme-anniversaire-de-lindependance-le-ravalement-des-facades-de-la-ville-de-djibouti/>
 
 En vigueur : 2004-06-15 (date du Journal officiel qui le publie).
 

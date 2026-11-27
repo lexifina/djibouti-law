@@ -1,6 +1,6 @@
 # Loi n° 20 DECEMBRE 1884 concernant la répression des infractions à la convention internationale du 14 mars 1884 concernant la protection des câbles sous-marins.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/10/1951 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-20-decembre-1884-concernant-la-repression-des-infractions-a-la-convention-internationale-du-14-mars-1884-concernant-la-protection-des-cables-sous-marins/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 01/10/1951 · <https://www.journalofficiel.dj/texte-juridique/loi-n-20-decembre-1884-concernant-la-repression-des-infractions-a-la-convention-internationale-du-14-mars-1884-concernant-la-protection-des-cables-sous-marins/>
 
 En vigueur : 1951-10-01 (date du Journal officiel qui le publie).
 
@@ -46,4 +46,4 @@ MARTIN-FEUILLÉE.
 | [art-018.md](art-018.md) | Art. 18 |
 | [art-019.md](art-019.md) | Art. 19 |
 | [art-020.md](art-020.md) | Art. 20 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

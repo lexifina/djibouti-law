@@ -1,6 +1,6 @@
 # Ordonnance n° 79-091/PR portant création d’un établissement public à caractère industriel et commercial dénommé Établissement Public des Hydrocarbures
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-091-pr-portant-creation-dun-etablissement-public-a-caractere-industriel-et-commercial-denomme-etablissement-public-des-hydrocarbures/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-091-pr-portant-creation-dun-etablissement-public-a-caractere-industriel-et-commercial-denomme-etablissement-public-des-hydrocarbures/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # 2023-050/PR/MD portant au grade de lieutenant à titre exceptionnel, le sous-lieutenant Doualeh Meraneh Guedi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-050-pr-md-portant-au-grade-de-lieutenant-a-titre-exceptionnel-le-sous-lieutenant-doualeh-meraneh-guedi/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-050-pr-md-portant-au-grade-de-lieutenant-a-titre-exceptionnel-le-sous-lieutenant-doualeh-meraneh-guedi/>
 
 En vigueur : 2023-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

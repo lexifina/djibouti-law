@@ -1,6 +1,6 @@
 # Décret n° 2017-214/PR/MET complétant le Décret n° 2016-072/PR/MET modifiant le Décret n° 2015-272/PR/MET portant Organisation et Fonctionnement de l’Autorité de l’Aviation Civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 29/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-214-pr-met-completant-le-decret-n2016-072-pr-met-modifiant-le-decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 29/06/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-214-pr-met-completant-le-decret-n2016-072-pr-met-modifiant-le-decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
 
 En vigueur : 2017-06-29 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ ISMAÏL OMAR GUELLEH
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

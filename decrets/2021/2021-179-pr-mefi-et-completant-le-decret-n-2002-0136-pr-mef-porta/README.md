@@ -1,6 +1,6 @@
 # Décret n° 2021-179/PR/MEFI modifiant et complétant le décret n° 2002- 0136/PR/MEF portant création du Bureau National d’assurance de la COMESA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 29/07/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-179-pr-mefi-modifiant-et-completant-le-decret-n2002-0136-pr-mef-portant-creation-du-bureau-national-dassurance-de-la-comesa/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 29/07/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-179-pr-mefi-modifiant-et-completant-le-decret-n2002-0136-pr-mef-portant-creation-du-bureau-national-dassurance-de-la-comesa/>
 
 En vigueur : 2021-07-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 2023-053/PR/MJAPDH portant organisation de la formation initiale des auditeurs de justice à l’Ecole Nationale d’Etudes Judiciaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-053-pr-mjapdh-portant-organisation-de-la-formation-initiale-des-auditeurs-de-justice-a-lecole-nationale-detudes-judiciaires/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-053-pr-mjapdh-portant-organisation-de-la-formation-initiale-des-auditeurs-de-justice-a-lecole-nationale-detudes-judiciaires/>
 
 En vigueur : 2023-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -38,4 +38,4 @@ Pénitentiaires, chargé des Droits de l’Homme.
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

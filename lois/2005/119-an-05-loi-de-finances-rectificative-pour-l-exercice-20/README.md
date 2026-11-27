@@ -1,6 +1,6 @@
 # Loi n° 119/AN/05/5ème L Portant Loi de Finances rectificative pour l’exercice 2005.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-05-5eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2005/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n119-an-05-5eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2005/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

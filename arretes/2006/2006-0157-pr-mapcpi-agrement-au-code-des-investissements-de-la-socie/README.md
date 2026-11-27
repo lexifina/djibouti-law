@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0157/PR/MAPCPI portant Agrément au Code des Investissements de la société «Samex Tours & Travel».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0157-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-samex-tours-travel/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 28/02/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0157-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-samex-tours-travel/>
 
 En vigueur : 2006-02-28 (date du Journal officiel qui le publie).
 

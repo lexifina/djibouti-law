@@ -1,6 +1,6 @@
 # Loi n° 96/AN/95/3e L portent approbation des Comptes administratifs de la Chambre Internationale de Commerce et d’industrie de Djibouti et des Magasins généraux pour l’exercice 1994.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-95-3e-l-portent-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1994/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 15/04/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n96-an-95-3e-l-portent-approbation-des-comptes-administratifs-de-la-chambre-internationale-de-commerce-et-dindustrie-de-djibouti-et-des-magasins-generaux-pour-lexercice-1994/>
 
 En vigueur : 1996-04-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 16-407-1930 Réglementation du travail public obligatoire aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 407 du 31/10/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-407-1930-reglementation-du-travail-public-obligatoire-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 407 du 31/10/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-407-1930-reglementation-du-travail-public-obligatoire-aux-colonies/>
 
 En vigueur : 1930-10-31 (date du Journal officiel qui le publie).
 

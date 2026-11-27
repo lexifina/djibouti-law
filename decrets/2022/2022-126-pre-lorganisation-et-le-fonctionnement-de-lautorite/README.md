@@ -1,8 +1,8 @@
 # Décret n° 2022-126/PRE fixant l’organisation et le fonctionnement de l’Autorité Nationale, de Coordination, de Régulation et de Contrôle en matière de Sécurité et Sûreté Nucléaires, Radiologiques, Chimiques et Biologiques.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-126-pre-fixant-lorganisation-et-le-fonctionnement-de-lautorite-nationale-de-coordination-de-regulation-et-de-controle-en-matiere-de-securite-et-surete-nucleaires-radiologique/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-126-pre-fixant-lorganisation-et-le-fonctionnement-de-lautorite-nationale-de-coordination-de-regulation-et-de-controle-en-matiere-de-securite-et-surete-nucleaires-radiologique/>
 
-En vigueur : 2022-06-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-06-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -69,4 +69,4 @@ ISMAÏL OMAR GUELLEH
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

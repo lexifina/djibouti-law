@@ -1,6 +1,6 @@
 # Décret n° 89-144/PRE relatif aux déplacements des membres du gouvernement par voie aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-144-pre-relatif-aux-deplacements-des-membres-du-gouvernement-par-voie-aerienne/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-144-pre-relatif-aux-deplacements-des-membres-du-gouvernement-par-voie-aerienne/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

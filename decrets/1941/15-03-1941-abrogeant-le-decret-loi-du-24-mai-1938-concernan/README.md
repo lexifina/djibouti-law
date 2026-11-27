@@ -1,6 +1,6 @@
 # Décret n° 15/03/1941 abrogeant le décret-loi du 24 mai 1938 concernant le séjour en France des fonctionnaires coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 536 du 31/07/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-15-03-1941-abrogeant-le-decret-loi-du-24-mai-1938-concernant-le-sejour-en-france-des-fonctionnaires-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 536 du 31/07/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-15-03-1941-abrogeant-le-decret-loi-du-24-mai-1938-concernant-le-sejour-en-france-des-fonctionnaires-coloniaux/>
 
 En vigueur : 1941-07-31 (date du Journal officiel qui le publie).
 

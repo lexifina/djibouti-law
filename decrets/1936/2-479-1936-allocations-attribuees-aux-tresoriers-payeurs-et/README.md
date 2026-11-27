@@ -1,6 +1,6 @@
 # Décret n° 2-479-1936 Allocations attribuées aux trésoriers-payeurs et trésoriers particuliers des colonies pour assurer le payement de leur personnel et pour frais de bureau, de matériel et de loyer pour les bureaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-479-1936-allocations-attribuees-aux-tresoriers-payeurs-et-tresoriers-particuliers-des-colonies-pour-assurer-le-payement-de-leur-personnel-et-pour-frais-de-bureau-de-materiel-et-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-479-1936-allocations-attribuees-aux-tresoriers-payeurs-et-tresoriers-particuliers-des-colonies-pour-assurer-le-payement-de-leur-personnel-et-pour-frais-de-bureau-de-materiel-et-de-l/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

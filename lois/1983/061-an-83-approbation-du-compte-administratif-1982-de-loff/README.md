@@ -1,6 +1,6 @@
 # Loi n° 61/AN/83/1 ère L portant approbation du compte administratif 1982 de l’Office de Développement du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-83-1-ere-l-portant-approbation-du-compte-administratif-1982-de-loffice-de-developpement-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n61-an-83-1-ere-l-portant-approbation-du-compte-administratif-1982-de-loffice-de-developpement-du-tourisme/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ HASSAN GOULED APTIDON
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

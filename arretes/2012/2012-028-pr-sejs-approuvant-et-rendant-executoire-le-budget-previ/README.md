@@ -1,6 +1,6 @@
 # Arrêté n° 2012-028/PR/SEJS approuvant et rendant exécutoire le budget prévisionnel 2012 du stade AL HADJ HASSAN GOULED.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-028-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2012-du-stade-al-hadj-hassan-gouled/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-028-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2012-du-stade-al-hadj-hassan-gouled/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

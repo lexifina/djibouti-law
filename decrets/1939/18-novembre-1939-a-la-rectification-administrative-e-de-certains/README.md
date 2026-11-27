@@ -1,6 +1,6 @@
 # Décret n° 18 novembre 1939 relatif à la rectification administrative e de certains ‘actes de l’état civil, dressés pendant la durée des hostilités,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 517 du 31/12/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-novembre-1939-relatif-a-la-rectification-administrative-e-de-certains-actes-de-letat-civil-dresses-pendant-la-duree-des-hostilites/>
+Décret · Journal officiel de la République de Djibouti, n° 517 du 31/12/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-novembre-1939-relatif-a-la-rectification-administrative-e-de-certains-actes-de-letat-civil-dresses-pendant-la-duree-des-hostilites/>
 
 En vigueur : 1939-12-31 (date du Journal officiel qui le publie).
 
@@ -34,6 +34,6 @@ greorges MANDEIL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

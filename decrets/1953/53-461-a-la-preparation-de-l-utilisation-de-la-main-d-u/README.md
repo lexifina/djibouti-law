@@ -1,6 +1,6 @@
 # Décret n° 53-461 relatif à la préparation de l’utilisation de la main-d’œuvre pour le temps de guerre dans les territoires relevant du Ministre de la France d’Outre-Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 01/09/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-53-461-relatif-a-la-preparation-de-lutilisation-de-la-main-doeuvre-pour-le-temps-de-guerre-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 01/09/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-53-461-relatif-a-la-preparation-de-lutilisation-de-la-main-doeuvre-pour-le-temps-de-guerre-dans-les-territoires-relevant-du-ministre-de-la-france-doutre-mer/>
 
 En vigueur : 1953-09-01 (date du Journal officiel qui le publie).
 

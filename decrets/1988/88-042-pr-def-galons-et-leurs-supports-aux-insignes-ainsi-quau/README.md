@@ -1,8 +1,8 @@
 # Décret n° 88-042/PR/DEF relatif aux galons et leurs supports, aux insignes ainsi qu’aux conditions du port et à la composition des tenues dans l’Armée nationale djiboutienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-042-pr-def-relatif-aux-galons-et-leurs-supports-aux-insignes-ainsi-quaux-conditions-du-port-et-a-la-composition-des-tenues-dans-larmee-nationale-djiboutienne/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-042-pr-def-relatif-aux-galons-et-leurs-supports-aux-insignes-ainsi-quaux-conditions-du-port-et-a-la-composition-des-tenues-dans-larmee-nationale-djiboutienne/>
 
-En vigueur : 1988-06-27 (date fixÃ©e par le texte).
+En vigueur : 1988-06-27 (date fixée par le texte).
 
 ## Visas
 

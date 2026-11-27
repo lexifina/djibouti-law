@@ -1,6 +1,6 @@
 # Loi n° 99/AN/20/8ème L portant révision de la loi n° 53/AN/14/7ème L portant organisation du Ministère du Budget.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-20-8eme-l-portant-revision-de-la-loi-n53-an-14-7eme-l-portant-organisation-du-ministere-du-budget/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n99-an-20-8eme-l-portant-revision-de-la-loi-n53-an-14-7eme-l-portant-organisation-du-ministere-du-budget/>
 
 En vigueur : 2020-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -108,4 +108,4 @@ ISMAÏL OMAR GUELLEH
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
 | [art-048.md](art-048.md) | Article 48 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

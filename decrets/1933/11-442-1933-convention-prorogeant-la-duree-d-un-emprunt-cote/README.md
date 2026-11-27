@@ -1,6 +1,6 @@
 # Décret n° 11-442-1933 Convention prorogeant la durée d’un emprunt (Côte française des Somalis).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 442 du 30/09/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-11-442-1933-convention-prorogeant-la-duree-dun-emprunt-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 442 du 30/09/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-11-442-1933-convention-prorogeant-la-duree-dun-emprunt-cote-francaise-des-somalis/>
 
 En vigueur : 1933-09-30 (date du Journal officiel qui le publie).
 
@@ -24,5 +24,5 @@ Georges BONNET..
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |

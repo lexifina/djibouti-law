@@ -1,6 +1,6 @@
 # Arrêté n° 2019-087/PR/MB portant modification de l’arrêté n° 2018-115/PR/MB portant attribution d’une parcelle de terrain à Tadjourah.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-087-pr-mb-portant-modification-de-larrete-n2018-115-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-tadjourah/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-087-pr-mb-portant-modification-de-larrete-n2018-115-pr-mb-portant-attribution-dune-parcelle-de-terrain-a-tadjourah/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

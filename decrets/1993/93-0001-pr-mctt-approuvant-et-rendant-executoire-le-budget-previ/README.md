@@ -1,6 +1,6 @@
 # Décret n° 93-0001/PR/MCTT Approuvant et rendant exécutoire le Budget Prévisionnel de l’Exercice 1992 de l’Office National d’Approvisionnement et de Commercialisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0001-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-1992-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 16/01/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0001-pr-mctt-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-1992-de-loffice-national-dapprovisionnement-et-de-commercialisation/>
 
 En vigueur : 1993-01-16 (date du Journal officiel qui le publie).
 

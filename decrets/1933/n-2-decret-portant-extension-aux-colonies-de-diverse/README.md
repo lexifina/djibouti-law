@@ -1,6 +1,6 @@
 # Décret n° n°2 Décret portant extension aux colonies de diverses lois modifiant certains articles du Code civil, du Code de procédure civile, du Code pénal et du Code d’instruction criminelle
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 445 du 31/12/1933 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-extension-aux-colonies-de-diverses-lois-modifiant-certains-articles-du-code-civil-du-code-de-procedure-civile-du-code-penal-et-du-code-dinstruction-crimine/>
+Décret · Journal officiel de la République de Djibouti, n° 445 du 31/12/1933 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-decret-portant-extension-aux-colonies-de-diverses-lois-modifiant-certains-articles-du-code-civil-du-code-de-procedure-civile-du-code-penal-et-du-code-dinstruction-crimine/>
 
 En vigueur : 1933-12-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ albert dalimier
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |

@@ -1,6 +1,6 @@
 # Loi n° 74/AN/94/3ème L portant Amnistie.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-94-3eme-l-portant-amnistie/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n74-an-94-3eme-l-portant-amnistie/>
 
 En vigueur : 1995-01-15 (date du Journal officiel qui le publie).
 

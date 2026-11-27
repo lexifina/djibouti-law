@@ -1,6 +1,6 @@
 # Décret n° 02-195-1913 7 décembre 1912.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 195 du 31/01/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-195-1913-7-decembre-1912/>
+Décret · Journal officiel de la République de Djibouti, n° 195 du 31/01/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-195-1913-7-decembre-1912/>
 
 En vigueur : 1913-01-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Aristide BRIAND.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

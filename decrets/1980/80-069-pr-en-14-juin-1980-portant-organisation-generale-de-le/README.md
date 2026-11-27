@@ -1,6 +1,6 @@
 # Décret n° 80-069/PR/EN DU 14 JUIN 1980 portant organisation generale de l’Ecole Normale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n80-069-pr-en-du-14-juin-1980-portant-organisation-generale-de-lecole-normale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n80-069-pr-en-du-14-juin-1980-portant-organisation-generale-de-lecole-normale/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 
@@ -16,11 +16,11 @@ le Conseil des Ministres entendu en sa séance du 13 mai 1980;
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [art-008.md](art-008.md) | Art. 8 — |
+| [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
@@ -39,4 +39,4 @@ le Conseil des Ministres entendu en sa séance du 13 mai 1980;
 | [art-024.md](art-024.md) | Art. 24 |
 | [art-025.md](art-025.md) | Art. 25 |
 | [art-026.md](art-026.md) | Art. 26 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

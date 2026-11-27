@@ -1,6 +1,6 @@
 # Décret n° 2011-0125/PR/MS /PR/MS portant statut de l’Hôpital de Pneumo-phtisiologie PAUL FAURE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 14/07/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0125-pr-ms-pr-ms-portant-statut-de-lhopital-de-pneumo-phtisiologie-paul-faure/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 14/07/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0125-pr-ms-pr-ms-portant-statut-de-lhopital-de-pneumo-phtisiologie-paul-faure/>
 
 En vigueur : 2011-07-14 (date du Journal officiel qui le publie).
 
@@ -149,4 +149,4 @@ ISMAIL OMAR GUELLEH
 | [art-105.md](art-105.md) | Article 105 |
 | [art-106.md](art-106.md) | Article 106 |
 | [art-107.md](art-107.md) | Article 107 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

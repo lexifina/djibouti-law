@@ -1,6 +1,6 @@
 # Amendement n° 85-0389/MCTT portant réglementation des enquêtes statistiques des services publics auprès de la population pour l’année 1985.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1985 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n85-0389-mctt-portant-reglementation-des-enquetes-statistiques-des-services-publics-aupres-de-la-population-pour-lannee-1985/>
+Amendement · Journal officiel de la République de Djibouti, n° 3 du 30/03/1985 · <https://www.journalofficiel.dj/texte-juridique/amendement-n85-0389-mctt-portant-reglementation-des-enquetes-statistiques-des-services-publics-aupres-de-la-population-pour-lannee-1985/>
 
 En vigueur : 1985-03-30 (date du Journal officiel qui le publie).
 

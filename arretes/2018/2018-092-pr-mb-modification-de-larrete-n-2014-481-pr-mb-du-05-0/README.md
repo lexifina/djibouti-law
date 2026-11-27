@@ -1,6 +1,6 @@
 # Arrêté n° 2018-092/PR/MB portant modification de l’Arrêté n° 2014-481/PR/MB du 05/07/2014.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-092-pr-mb-portant-modification-de-larrete-n2014-481-pr-mb-du-05-07-2014/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-092-pr-mb-portant-modification-de-larrete-n2014-481-pr-mb-du-05-07-2014/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

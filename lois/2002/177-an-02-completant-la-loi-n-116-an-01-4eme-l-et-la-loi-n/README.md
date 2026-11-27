@@ -1,6 +1,6 @@
 # Loi n° 177/AN/02/4ème L complétant la loi n° 116/AN/01/4ème L et la loi n° 141/AN/01 portant réorganisation et changement de la dénomination de l’ISERST en Centre de Recherche Scientifique de Djibouti, CERD.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-02-4eme-l-completant-la-loi-n116-an-01-4eme-l-et-la-loi-n141-an-01-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-de-recherche-scientifiqu/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n177-an-02-4eme-l-completant-la-loi-n116-an-01-4eme-l-et-la-loi-n141-an-01-portant-reorganisation-et-changement-de-la-denomination-de-liserst-en-centre-de-recherche-scientifiqu/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

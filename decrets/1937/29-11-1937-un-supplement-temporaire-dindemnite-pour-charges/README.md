@@ -1,6 +1,6 @@
 # Décret n° 29/11/1937 instituant un supplément temporaire d’indemnité pour charges militaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 493 du 31/12/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-29-11-1937-instituant-un-supplement-temporaire-dindemnite-pour-charges-militaires/>
+Décret · Journal officiel de la République de Djibouti, n° 493 du 31/12/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-29-11-1937-instituant-un-supplement-temporaire-dindemnite-pour-charges-militaires/>
 
 En vigueur : 1937-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2015-328/PR/MI fixant la date de l’élection présidentielle et portant convocation du collège électoral.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-328-pr-mi-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-college-electoral/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-328-pr-mi-fixant-la-date-de-lelection-presidentielle-et-portant-convocation-du-college-electoral/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

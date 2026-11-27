@@ -1,6 +1,6 @@
 # Décret n° 27 août 1940 Le décret relatif aux dettes résultant de l’importation de marchandises originaires ou en provenance de Suède
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 528 du 30/11/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-27-aout-1940-le-decret-relatif-aux-dettes-resultant-de-limportation-de-marchandises-originaires-ou-en-provenance-de-suede/>
+Décret · Journal officiel de la République de Djibouti, n° 528 du 30/11/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-27-aout-1940-le-decret-relatif-aux-dettes-resultant-de-limportation-de-marchandises-originaires-ou-en-provenance-de-suede/>
 
 En vigueur : 1940-11-30 (date du Journal officiel qui le publie).
 

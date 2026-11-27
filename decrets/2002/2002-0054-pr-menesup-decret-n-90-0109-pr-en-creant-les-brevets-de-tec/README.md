@@ -1,6 +1,6 @@
 # Décret n° 2002-0054/PR/MENESUP modifiant le décret n° 90-0109/PR/EN créant les brevets de techniciens supérieurs, définissant les conditions d’accès à ce diplôme et les conditions de délivrance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0054-pr-menesup-modifiant-le-decret-n90-0109-pr-en-creant-les-brevets-de-techniciens-superieurs-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-d/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0054-pr-menesup-modifiant-le-decret-n90-0109-pr-en-creant-les-brevets-de-techniciens-superieurs-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-d/>
 
 En vigueur : 2002-04-15 (date du Journal officiel qui le publie).
 

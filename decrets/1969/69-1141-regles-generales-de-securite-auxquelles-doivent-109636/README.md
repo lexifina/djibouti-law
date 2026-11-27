@@ -1,6 +1,6 @@
 # Décret n° 69-1141 fixant les règles générales de sécurité auxquelles doivent satisfaire les navires français autres que les navires de plaisance d’une longueur inférieure à 25 mètres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1141-fixant-les-regles-generales-de-securite-auxquelles-doivent-satisfaire-les-navires-francais-autres-que-les-navires-de-plaisance-dune-longueur-inferieure-a-25-metres/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/06/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1141-fixant-les-regles-generales-de-securite-auxquelles-doivent-satisfaire-les-navires-francais-autres-que-les-navires-de-plaisance-dune-longueur-inferieure-a-25-metres/>
 
 En vigueur : 1970-06-01 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Henry REY.
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

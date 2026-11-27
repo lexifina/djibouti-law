@@ -1,6 +1,6 @@
 # Décret n° 79-023/PR portant création d’une organisation des ressources en eau.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-023-pr-portant-creation-dune-organisation-des-ressources-en-eau/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-023-pr-portant-creation-dune-organisation-des-ressources-en-eau/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ HASSAN GOULED APTIDON.
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Article 10 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

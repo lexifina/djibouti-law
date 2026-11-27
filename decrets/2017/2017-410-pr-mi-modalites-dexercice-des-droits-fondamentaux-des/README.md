@@ -1,6 +1,6 @@
 # Décret n° 2017-410/PR/MI fixant les modalités d’exercice des droits fondamentaux des réfugiés et demandeurs d’asile en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-410-pr-mi-fixant-les-modalites-dexercice-des-droits-fondamentaux-des-refugies-et-demandeurs-dasile-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 14/12/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-410-pr-mi-fixant-les-modalites-dexercice-des-droits-fondamentaux-des-refugies-et-demandeurs-dasile-en-republique-de-djibouti/>
 
 En vigueur : 2017-12-14 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ISMAÏL OMAR GUELLEH
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

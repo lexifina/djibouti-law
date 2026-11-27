@@ -1,6 +1,6 @@
 # Décret n° 82-063/PR/DEF portant responsabilité des cadres de l’Armée nationale dans l’entretien des matériels.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/11/1982 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n82-063-pr-def-portant-responsabilite-des-cadres-de-larmee-nationale-dans-lentretien-des-materiels/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/11/1982 · <https://www.journalofficiel.dj/texte-juridique/decret-n82-063-pr-def-portant-responsabilite-des-cadres-de-larmee-nationale-dans-lentretien-des-materiels/>
 
 En vigueur : 1982-11-15 (date du Journal officiel qui le publie).
 
@@ -28,4 +28,4 @@ LE Conseil des Ministres entendu en sa séprce du 22 juin 1982.
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

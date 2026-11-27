@@ -1,6 +1,6 @@
 # Loi n° 190/AN/85/1ère L portant approbation des comptes définitifs 1982-1983-1984 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 16/01/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-85-1ere-l-portant-approbation-des-comptes-definitifs-1982-1983-1984-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 16/01/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n190-an-85-1ere-l-portant-approbation-des-comptes-definitifs-1982-1983-1984-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1986-01-16 (date du Journal officiel qui le publie).
 

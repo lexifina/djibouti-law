@@ -1,6 +1,6 @@
 # Décret n° 19/03/937 Madagascar et DÉPENDANCES, Côte Française des SOMALIS et GROUPE du Pacifique.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 485 du 30/04/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-19-03-937-madagascar-et-dependances-cote-francaise-des-somalis-et-groupe-du-pacifique/>
+Décret · Journal officiel de la République de Djibouti, n° 485 du 30/04/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-19-03-937-madagascar-et-dependances-cote-francaise-des-somalis-et-groupe-du-pacifique/>
 
 En vigueur : 1937-04-30 (date du Journal officiel qui le publie).
 

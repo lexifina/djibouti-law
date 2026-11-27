@@ -1,6 +1,6 @@
 # Décret n° 91-078/PR/J modifiant le décret n° 89-101/PR/J du 20.07.89 relatif aux syndics-administrateurs judiciaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n91-078-pr-j-modifiant-le-decret-n-89-101-pr-j-du-20-07-89-relatif-aux-syndics-administrateurs-judiciaires/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n91-078-pr-j-modifiant-le-decret-n-89-101-pr-j-du-20-07-89-relatif-aux-syndics-administrateurs-judiciaires/>
 
 En vigueur : 1991-06-15 (date du Journal officiel qui le publie).
 

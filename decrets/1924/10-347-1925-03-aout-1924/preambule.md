@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er –Nul ne peut êlre nommé aux fonetions judiciaires dans une colonie, ainsi que dans un pays de protectorat ou un lerritoire à mandal raltaché au ministère des colonies, s’il ne remplil les conditions exigées par la loi du 20 avril 1810 et s’il n’a, en outre, subi avec succès les éprouves soit de l’examen de sortie de l’école coloniale (section de la magistralure), soit de l’examen professionnel prévu ci-dessous, ou sil ne se trouve dans une des catégories menliionnéés aux arlicles 3. 2 alinéa. et 8 ci-apres.
 Art 2 — L’examen professionnel est le même que celui qui a été inslilué par le décret du 13 février 1908 pour les candidats aux fonctions judic’aires en France, en Algérie ou en Tunisie et dont le programme est fixé par arrèlé du Garde des sceaux, Ministre de la justice, Cel examen à lieu dans les conditions délerminées par les arkicles 3, 6, 7, 8, 9 et 10 du décret précité..
 Les candidals aux fouctions de la magisrature coloniale subissent l’examen dans une série snéciale.

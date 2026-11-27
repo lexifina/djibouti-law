@@ -1,8 +1,8 @@
 # Loi n° 158/AN/22/8ème L portant ratification par la République de Djibouti de l’amendement de Kigali au Protocole de Montréal relatif aux substances appauvrissant la couche d’ozone.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-22-8eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-kigali-au-protocole-de-montreal-relatif-aux-substances-appauvrissant-la-couche-dozone/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n158-an-22-8eme-l-portant-ratification-par-la-republique-de-djibouti-de-lamendement-de-kigali-au-protocole-de-montreal-relatif-aux-substances-appauvrissant-la-couche-dozone/>
 
-En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2022-07-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

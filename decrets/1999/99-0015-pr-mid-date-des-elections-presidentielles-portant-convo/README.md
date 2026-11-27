@@ -1,6 +1,6 @@
 # Décret n° 99-0015/PR/MID fixant la date des élections Présidentielles, portant convocation du corps électoral et fixant les dates de dépôt des candidatures.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0015-pr-mid-fixant-la-date-des-elections-presidentielles-portant-convocation-du-corps-electoral-et-fixant-les-dates-de-depot-des-candidatures/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0015-pr-mid-fixant-la-date-des-elections-presidentielles-portant-convocation-du-corps-electoral-et-fixant-les-dates-de-depot-des-candidatures/>
 
 En vigueur : 1999-02-15 (date du Journal officiel qui le publie).
 

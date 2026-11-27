@@ -1,6 +1,6 @@
 # Décret n° 01-209-1914 24/02/1914
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 209 du 31/03/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-209-1914-24-02-1914/>
+Décret · Journal officiel de la République de Djibouti, n° 209 du 31/03/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-209-1914-24-02-1914/>
 
 En vigueur : 1914-03-31 (date du Journal officiel qui le publie).
 

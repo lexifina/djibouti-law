@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er.— Les allocations temporaires, instituées par les lois du 23 février 1919 et du 21 octobre 1919 sont remplacées, à compter du 1er janvier 1920, par les majorations de pensions et les allocations temporatres aux veuves agées de plus de cinquante-cinq ans, prévues aux articles ci-aprés.
 Art, 2.— Sous les réserves prévues aux art articles 5 et suivants des pensions inscrites au Trésor public et fondées sur la durée des services, quel qu’en soit le montant, quel que sorent l’âge, l’état-crvil el la situation de famille des titulaires, seront, à compter du 1e janvier 1926, l’objet d’une majoration fixée, savoir.
 pour les titulaires des pensions d’ancienneté:

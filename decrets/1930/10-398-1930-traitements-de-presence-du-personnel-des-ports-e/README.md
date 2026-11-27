@@ -1,6 +1,6 @@
 # Décret n° 10-398-1930 Traitements de présence du personnel des ports et rades dans les colonies autres que l’Indochine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-398-1930-traitements-de-presence-du-personnel-des-ports-et-rades-dans-les-colonies-autres-que-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-398-1930-traitements-de-presence-du-personnel-des-ports-et-rades-dans-les-colonies-autres-que-lindochine/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 

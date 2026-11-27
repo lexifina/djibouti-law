@@ -1,6 +1,6 @@
 # Décret n° 12 mai 1937. Majoration de 10 p. 100 de l’indemnité spéciale de séjour en France prévue à l’article 92 du décret du 2 mars 1910 sur la solde et les accessoires de solde du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 487 du 30/06/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mai-1937-majoration-de-10-p-100-de-lindemnite-speciale-de-sejour-en-france-prevue-a-larticle-92-du-decret-du-2-mars-1910-sur-la-solde-et-les-accessoires-de-solde-2/>
+Décret · Journal officiel de la République de Djibouti, n° 487 du 30/06/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-12-mai-1937-majoration-de-10-p-100-de-lindemnite-speciale-de-sejour-en-france-prevue-a-larticle-92-du-decret-du-2-mars-1910-sur-la-solde-et-les-accessoires-de-solde-2/>
 
 En vigueur : 1937-06-30 (date du Journal officiel qui le publie).
 
@@ -21,4 +21,4 @@ Marins MOUTET.
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

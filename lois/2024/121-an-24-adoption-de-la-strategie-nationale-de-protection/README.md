@@ -1,8 +1,8 @@
 # Loi n° 121/AN/24/9ème L portant adoption de la Stratégie Nationale de Protection Sociale non Contributive pour le renforcement du Capital Humain 2023-2027 de la République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 14/07/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-24-9eme-l-portant-adoption-de-la-strategie-nationale-de-protection-sociale-non-contributive-pour-le-renforcement-du-capital-humain-2023-2027-de-la-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 08 du 14/07/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n121-an-24-9eme-l-portant-adoption-de-la-strategie-nationale-de-protection-sociale-non-contributive-pour-le-renforcement-du-capital-humain-2023-2027-de-la-republique-de-djibouti/>
 
-En vigueur : 2024-07-10 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-07-10 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

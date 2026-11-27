@@ -1,6 +1,6 @@
 # Décret n° 2020-063/PR/MTRA instituant des mesures exceptionnelles durant la pandémie du coronavirus Covid 19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-063-pr-mtra-instituant-des-mesures-exceptionnelles-durant-la-pandemie-du-coronavirus-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-063-pr-mtra-instituant-des-mesures-exceptionnelles-durant-la-pandemie-du-coronavirus-covid-19/>
 
 En vigueur : 2020-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

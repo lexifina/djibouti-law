@@ -1,6 +1,6 @@
 # Décret n° 04-256-1918 MINISTÈRE DES FINANCES
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 256 du 28/02/1918 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-256-1918-ministere-des-finances/>
+Décret · Journal officiel de la République de Djibouti, n° 256 du 28/02/1918 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-256-1918-ministere-des-finances/>
 
 En vigueur : 1918-02-28 (date du Journal officiel qui le publie).
 
@@ -36,6 +36,6 @@ Le ministre des coloni s
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2— |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

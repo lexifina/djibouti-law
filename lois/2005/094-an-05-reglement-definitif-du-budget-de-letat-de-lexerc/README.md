@@ -1,6 +1,6 @@
 # Loi n° 94/AN/05/5ème L Portant Règlement définitif du budget de l’état de l’Exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-05-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-05-5eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-2003/>
 
 En vigueur : 2005-01-31 (date du Journal officiel qui le publie).
 

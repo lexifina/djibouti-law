@@ -1,6 +1,6 @@
 # Décret n° 51-246 pour l’application de la loi du 22 août 1950 concernant les moyens de transport pour le pèlerinage de la Mecque.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/09/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-246-pour-lapplication-de-la-loi-du-22-aout-1950-concernant-les-moyens-de-transport-pour-le-pelerinage-de-la-mecque/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/09/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-246-pour-lapplication-de-la-loi-du-22-aout-1950-concernant-les-moyens-de-transport-pour-le-pelerinage-de-la-mecque/>
 
 En vigueur : 1951-09-01 (date du Journal officiel qui le publie).
 

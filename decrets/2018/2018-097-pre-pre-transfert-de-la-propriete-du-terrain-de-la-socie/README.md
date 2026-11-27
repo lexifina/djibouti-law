@@ -1,8 +1,8 @@
 # Décret n° 2018-097/PRE/PRE portant transfert de la propriété du Terrain de la société DCT (TF 9619) à l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-097-pre-pre-portant-transfert-de-la-propriete-du-terrain-de-la-societe-dct-tf-9619-a-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-097-pre-pre-portant-transfert-de-la-propriete-du-terrain-de-la-societe-dct-tf-9619-a-letat/>
 
-En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-03-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

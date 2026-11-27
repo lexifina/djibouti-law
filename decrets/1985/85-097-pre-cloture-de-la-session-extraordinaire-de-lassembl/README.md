@@ -1,6 +1,6 @@
 # Décret n° 85-097/PRE portant clôture de la session extraordinaire de l’Assemblée nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-097-pre-portant-cloture-de-la-session-extraordinaire-de-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-097-pre-portant-cloture-de-la-session-extraordinaire-de-lassemblee-nationale/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

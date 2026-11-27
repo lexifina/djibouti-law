@@ -1,6 +1,6 @@
 # Décret n° 85-004/PR/PM réglementant la navigation des boutres.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-004-pr-pm-reglementant-la-navigation-des-boutres/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-004-pr-pm-reglementant-la-navigation-des-boutres/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ HASSAN GOULED APTIDON.
 | [art-002.md](art-002.md) | Article 2 |
 | [art-003.md](art-003.md) | Article 3 |
 | [art-004.md](art-004.md) | Article 4 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

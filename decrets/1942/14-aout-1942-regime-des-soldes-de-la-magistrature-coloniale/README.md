@@ -1,6 +1,6 @@
 # Décret n° 14 août 1942 modifiant le régime des soldes de la magistrature coloniale
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-aout-1942-modifiant-le-regime-des-soldes-de-la-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-aout-1942-modifiant-le-regime-des-soldes-de-la-magistrature-coloniale/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 89-136/PR fixant les conditions de rémunération et avantages accordés aux con- tôleurs financiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-136-pr-fixant-les-conditions-de-remuneration-et-avantages-accordes-aux-con-toleurs-financiers/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-136-pr-fixant-les-conditions-de-remuneration-et-avantages-accordes-aux-con-toleurs-financiers/>
 
 En vigueur : 1989-10-31 (date du Journal officiel qui le publie).
 

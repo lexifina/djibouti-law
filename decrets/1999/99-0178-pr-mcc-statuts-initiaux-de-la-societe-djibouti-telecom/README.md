@@ -1,6 +1,6 @@
 # Décret n° 99-0178/PR/MCC portant statuts initiaux de la société Djibouti Télécom
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0178-pr-mcc-portant-statuts-initiaux-de-la-societe-djibouti-telecom/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0178-pr-mcc-portant-statuts-initiaux-de-la-societe-djibouti-telecom/>
 
 En vigueur : 1999-09-30 (date du Journal officiel qui le publie).
 

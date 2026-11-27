@@ -1,6 +1,6 @@
 # Décret n° 2016-148/PRE fixant les attributions des Ministères.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-148-pre-fixant-les-attributions-des-ministeres/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-148-pre-fixant-les-attributions-des-ministeres/>
 
 En vigueur : 2016-06-30 (date du Journal officiel qui le publie).
 

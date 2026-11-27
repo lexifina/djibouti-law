@@ -1,6 +1,6 @@
 # Loi n° 32/AN/03/5ème L portant création de la Société de Production d’Eau Minérale d’Ali-Sabieh.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-03-5eme-l-portant-creation-de-la-societe-de-production-deau-minerale-dali-sabieh/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n32-an-03-5eme-l-portant-creation-de-la-societe-de-production-deau-minerale-dali-sabieh/>
 
 En vigueur : 2003-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 188/AN/92/2e L portant approbation des comptes définitif de 1990 du Port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-92-2e-l-portant-approbation-des-comptes-definitif-de-1990-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n188-an-92-2e-l-portant-approbation-des-comptes-definitif-de-1990-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

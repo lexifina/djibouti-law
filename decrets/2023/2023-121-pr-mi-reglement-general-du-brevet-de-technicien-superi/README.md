@@ -1,6 +1,6 @@
 # 2023-121/PR/MI portant règlement général du brevet de technicien supérieur.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/2023-121-pr-mi-portant-reglement-general-du-brevet-de-technicien-superieur/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2023 · <https://www.journalofficiel.dj/texte-juridique/2023-121-pr-mi-portant-reglement-general-du-brevet-de-technicien-superieur/>
 
 En vigueur : 2023-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

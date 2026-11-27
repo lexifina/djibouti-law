@@ -1,6 +1,6 @@
 # Arrêté n° 2010-349/PRE Portant approbation des Documents Type des Procédures de Passation des Marchés Publics de la République de Djibouti (Annexes I, II, III et IV).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 23/05/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-349-pre-portant-approbation-des-documents-type-des-procedures-de-passation-des-marches-publics-de-la-republique-de-djibouti-annexes-i-ii-iii-et-iv/>
+Arrêté · Journal officiel de la République de Djibouti, n° 4 du 23/05/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-349-pre-portant-approbation-des-documents-type-des-procedures-de-passation-des-marches-publics-de-la-republique-de-djibouti-annexes-i-ii-iii-et-iv/>
 
 En vigueur : 2010-05-23 (date du Journal officiel qui le publie).
 

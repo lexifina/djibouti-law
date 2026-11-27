@@ -1,8 +1,8 @@
 # Arrêté n° 2015-348/PR/MHUE portant création du Comité National chargé de la préparation de la Conférence de Paris (COP 21).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-348-pr-mhue-portant-creation-du-comite-national-charge-de-la-preparation-de-la-conference-de-paris-cop-21/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-348-pr-mhue-portant-creation-du-comite-national-charge-de-la-preparation-de-la-conference-de-paris-cop-21/>
 
-En vigueur : 2015-05-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2015-05-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

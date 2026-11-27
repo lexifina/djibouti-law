@@ -1,6 +1,6 @@
 # Décret n° 2000-0204/PR/MEFPCP relatif à l’indemnisation des victimes d’accident corporel de la circulation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0204-pr-mefpcp-relatif-a-lindemnisation-des-victimes-daccident-corporel-de-la-circulation/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0204-pr-mefpcp-relatif-a-lindemnisation-des-victimes-daccident-corporel-de-la-circulation/>
 
 En vigueur : 2000-07-31 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

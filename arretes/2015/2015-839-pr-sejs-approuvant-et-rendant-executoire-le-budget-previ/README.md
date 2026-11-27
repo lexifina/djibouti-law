@@ -1,6 +1,6 @@
 # Arrêté n° 2015-839/PR/SEJS approuvant et rendant exécutoire le Budget Prévisionnel 2016 du Stade AL HADJI HASSAN GOULED APTIDON.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-839-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-du-stade-al-hadji-hassan-gouled-aptidon/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-839-pr-sejs-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-du-stade-al-hadji-hassan-gouled-aptidon/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

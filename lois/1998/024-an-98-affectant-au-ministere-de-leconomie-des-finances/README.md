@@ -1,6 +1,6 @@
 # Loi n° 24/AN/98/4ème L affectant au Ministère de l’Économie, des Finances et de la Planification, chargé de la Privatisation, une parcelle de terrain sise à Balbala Hayableh Nord.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-98-4eme-l-affectant-au-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation-une-parcelle-de-terrain-sise-a-balbala-hayableh-nord/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-98-4eme-l-affectant-au-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-privatisation-une-parcelle-de-terrain-sise-a-balbala-hayableh-nord/>
 
 En vigueur : 1998-11-15 (date du Journal officiel qui le publie).
 

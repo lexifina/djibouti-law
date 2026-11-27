@@ -1,6 +1,6 @@
 # Ordonnance n° 81-023/PR prorogeant-l ’ordonnance n° 78-082 / PR du 2 novembre 1978
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 15/03/1981 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-023-pr-prorogeant-l-ordonnance-n-78-082-pr-du-2-novembre-1978/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 6 du 15/03/1981 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n81-023-pr-prorogeant-l-ordonnance-n-78-082-pr-du-2-novembre-1978/>
 
 En vigueur : 1981-03-15 (date du Journal officiel qui le publie).
 

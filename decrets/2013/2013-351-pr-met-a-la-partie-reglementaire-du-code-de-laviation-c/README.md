@@ -1,8 +1,8 @@
 # Décret n° 2013-351/PR/MET relatif à la partie règlementaire du code de l’aviation civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-351-pr-met-relatif-a-la-partie-reglementaire-du-code-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-351-pr-met-relatif-a-la-partie-reglementaire-du-code-de-laviation-civile/>
 
-En vigueur : 2013-12-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-12-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

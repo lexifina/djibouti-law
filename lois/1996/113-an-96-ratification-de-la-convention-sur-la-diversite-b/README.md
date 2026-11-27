@@ -1,6 +1,6 @@
 # Loi n° 113/AN/96/3e L portant ratification de la convention sur la diversité biologique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-96-3e-l-portant-ratification-de-la-convention-sur-la-diversite-biologique/>
+Loi · Journal officiel de la République de Djibouti, n° 17 du 15/09/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-96-3e-l-portant-ratification-de-la-convention-sur-la-diversite-biologique/>
 
 En vigueur : 1996-09-15 (date du Journal officiel qui le publie).
 

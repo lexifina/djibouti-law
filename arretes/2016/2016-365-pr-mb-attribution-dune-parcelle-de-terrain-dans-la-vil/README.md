@@ -1,6 +1,6 @@
 # Arrêté n° 2016-365/PR/MB portant attribution d’une parcelle de terrain dans la ville de Tadjourah à la Société S.O.C.O.P.I.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-365-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-de-tadjourah-a-la-societe-s-o-c-o-p-i/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 31/05/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-365-pr-mb-portant-attribution-dune-parcelle-de-terrain-dans-la-ville-de-tadjourah-a-la-societe-s-o-c-o-p-i/>
 
 En vigueur : 2016-05-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 4 février 1937 PERSONNEL COLONIAL
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 484 du 31/03/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-fevrier-1937-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 484 du 31/03/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-fevrier-1937-personnel-colonial/>
 
 En vigueur : 1937-03-31 (date du Journal officiel qui le publie).
 

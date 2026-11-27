@@ -1,6 +1,6 @@
 # Décret n° 2016-321/PR/MB portant modification du Décret n° 2016-279/PR/MB relatif à l’octroi d’une parcelle de terrain au profit de Touchroad International Holdings Group.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-321-pr-mb-portant-modification-du-decret-n2016-279-pr-mb-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-321-pr-mb-portant-modification-du-decret-n2016-279-pr-mb-relatif-a-loctroi-dune-parcelle-de-terrain-au-profit-de-touchroad-international-holdings-group/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 92-0122/PR/MI portant création des commissions de supervision des élections législatives du 18 décembre 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/11/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0122-pr-mi-portant-creation-des-commissions-de-supervision-des-elections-legislatives-du-18-decembre-1992/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/11/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0122-pr-mi-portant-creation-des-commissions-de-supervision-des-elections-legislatives-du-18-decembre-1992/>
 
 En vigueur : 1992-11-30 (date du Journal officiel qui le publie).
 

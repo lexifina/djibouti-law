@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0819/PR/MEFPCP portant déchéance des droits accordé sur le titre foncier n° 703.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0819-pr-mefpcp-portant-decheance-des-droits-accorde-sur-le-titre-foncier-n703/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0819-pr-mefpcp-portant-decheance-des-droits-accorde-sur-le-titre-foncier-n703/>
 
 En vigueur : 2008-11-30 (date du Journal officiel qui le publie).
 

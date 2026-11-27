@@ -1,6 +1,6 @@
 # Décret n° 6-398-1930 Application aux navires français ayant leur port d’attache dans les colonies et les territoires sous mandat des dispositions de la loi du 17 décembre 1926 portant code disciplinaire et pénal de la marine marchande.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 398 du 31/01/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-398-1930-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-les-territoires-sous-mandat-des-dispositions-de-la-loi-du-17-decembre-1926-portant-co/>
+Décret · Journal officiel de la République de Djibouti, n° 398 du 31/01/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-398-1930-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-les-territoires-sous-mandat-des-dispositions-de-la-loi-du-17-decembre-1926-portant-co/>
 
 En vigueur : 1930-01-31 (date du Journal officiel qui le publie).
 
@@ -30,4 +30,4 @@ Pierre Forgeot.
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [art-008.md](art-008.md) | Art. 8 — |
+| [art-008.md](art-008.md) | Art. 8 |

@@ -1,6 +1,6 @@
 # Décret n° 2-267-1919 20 Septembre 1918.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 267 du 31/01/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-267-1919-20-septembre-1918/>
+Décret · Journal officiel de la République de Djibouti, n° 267 du 31/01/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-267-1919-20-septembre-1918/>
 
 En vigueur : 1919-01-31 (date du Journal officiel qui le publie).
 

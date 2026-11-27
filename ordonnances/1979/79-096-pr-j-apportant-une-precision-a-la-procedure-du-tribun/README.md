@@ -1,6 +1,6 @@
 # Ordonnance n° 79-096/PR/J apportant une précision à la procédure du Tribunal de Sûreté la République.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-096-pr-j-apportant-une-precision-a-la-procedure-du-tribunal-de-surete-la-republique/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n79-096-pr-j-apportant-une-precision-a-la-procedure-du-tribunal-de-surete-la-republique/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

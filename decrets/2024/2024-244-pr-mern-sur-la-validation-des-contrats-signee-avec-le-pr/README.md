@@ -1,8 +1,8 @@
 # Décret n° 2024-244/PR/MERN portant sur la validation des contrats signée avec le producteur indépendant de l’Energie pour le projet Grand Bara Solar 25 MW plus 5 MWh de batterie de stockage.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-244-pr-mern-portant-sur-la-validation-des-contrats-signee-avec-le-producteur-independant-de-lenergie-pour-le-projet-grand-bara-solar-25-mw-plus-5-mwh-de-batterie-de-stockag/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-244-pr-mern-portant-sur-la-validation-des-contrats-signee-avec-le-producteur-independant-de-lenergie-pour-le-projet-grand-bara-solar-25-mw-plus-5-mwh-de-batterie-de-stockag/>
 
-En vigueur : 2024-09-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-09-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

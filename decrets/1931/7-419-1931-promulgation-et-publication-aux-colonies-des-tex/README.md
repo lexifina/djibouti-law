@@ -1,6 +1,6 @@
 # Décret n° 7-419-1931 Promulgation et publication aux colonies des textes législatifs et réglementaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 419 du 31/10/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-7-419-1931-promulgation-et-publication-aux-colonies-des-textes-legislatifs-et-reglementaires/>
+Décret · Journal officiel de la République de Djibouti, n° 419 du 31/10/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-7-419-1931-promulgation-et-publication-aux-colonies-des-textes-legislatifs-et-reglementaires/>
 
 En vigueur : 1931-10-31 (date du Journal officiel qui le publie).
 

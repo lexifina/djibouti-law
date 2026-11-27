@@ -1,6 +1,6 @@
 # Décret n° 94-0116/PR/IFN définissant les conditions de vente des 40 villas de Gabode III et des logements de la cité des Fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0116-pr-ifn-definissant-les-conditions-de-vente-des-40-villas-de-gabode-iii-et-des-logements-de-la-cite-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0116-pr-ifn-definissant-les-conditions-de-vente-des-40-villas-de-gabode-iii-et-des-logements-de-la-cite-des-fonctionnaires/>
 
 En vigueur : 1994-09-15 (date du Journal officiel qui le publie).
 

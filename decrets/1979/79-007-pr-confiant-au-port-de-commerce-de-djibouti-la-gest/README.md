@@ -1,6 +1,6 @@
 # Décret n° 79-007/PR confiant au port de commerce de Djibouti la gestion et l’exploitation du bac « Le Goubet ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-007-pr-confiant-au-port-de-commerce-de-djibouti-la-gestion-et-lexploitation-du-bac-le-goubet/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-007-pr-confiant-au-port-de-commerce-de-djibouti-la-gestion-et-lexploitation-du-bac-le-goubet/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 

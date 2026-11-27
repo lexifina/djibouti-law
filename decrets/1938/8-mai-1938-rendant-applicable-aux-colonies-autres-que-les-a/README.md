@@ -1,6 +1,6 @@
 # Décret n° 8 mai 1938 rendant applicable aux colonies autres que les Antilles et la Réunion, aux pays de protectorat et territoires sous mandat relevant du ministère, les dis positions de la loi du 18 février 1938, qui a modifié les textes du Code civil relatifs à la capacité de la femme mariée.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 498 du 31/05/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mai-1938-rendant-applicable-aux-colonies-autres-que-les-antilles-et-la-reunion-aux-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-les-dis-positions-de-la-lo/>
+Décret · Journal officiel de la République de Djibouti, n° 498 du 31/05/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-8-mai-1938-rendant-applicable-aux-colonies-autres-que-les-antilles-et-la-reunion-aux-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-les-dis-positions-de-la-lo/>
 
 En vigueur : 1938-05-31 (date du Journal officiel qui le publie).
 
@@ -23,5 +23,5 @@ Paul REYNAUD
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

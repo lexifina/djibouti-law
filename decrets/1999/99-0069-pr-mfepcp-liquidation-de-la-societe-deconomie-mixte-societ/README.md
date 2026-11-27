@@ -1,8 +1,8 @@
 # Décret n° 99-0069/PR/MFEPCP portant liquidation de la Société d’Économie Mixte Société d’Exploitation des Eaux de Tadjourah (S.E.E.T.)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0069-pr-mfepcp-portant-liquidation-de-la-societe-deconomie-mixte-societe-dexploitation-des-eaux-de-tadjourah-s-e-e-t/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0069-pr-mfepcp-portant-liquidation-de-la-societe-deconomie-mixte-societe-dexploitation-des-eaux-de-tadjourah-s-e-e-t/>
 
-En vigueur : 1999-05-24 (date fixÃ©e par le texte).
+En vigueur : 1999-05-24 (date fixée par le texte).
 
 ## Visas
 

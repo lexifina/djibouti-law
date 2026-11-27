@@ -1,6 +1,6 @@
 # Loi n° 40/AN/88/2ème L Portant ratification du protocole d’accord entre le Gouvernement de la République de Djibouti et les Établissements saoudiens de Rahbani et du Développement des Ressources internationales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-88-2eme-l-portant-ratification-du-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-les-etablissements-saoudiens-de-rahbani-et-du-developpement-des-ressources/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n40-an-88-2eme-l-portant-ratification-du-protocole-daccord-entre-le-gouvernement-de-la-republique-de-djibouti-et-les-etablissements-saoudiens-de-rahbani-et-du-developpement-des-ressources/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

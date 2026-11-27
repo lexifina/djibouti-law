@@ -1,6 +1,6 @@
 # Loi n° 36/AN/03/5ème L portant approbation les comptes financiers 2001 de l’Établissement «Stade El Hadj Hassan Gouled Aptidon».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-03-5eme-l-portant-approbation-les-comptes-financiers-2001-de-letablissement-stade-el-hadj-hassan-gouled-aptidon/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n36-an-03-5eme-l-portant-approbation-les-comptes-financiers-2001-de-letablissement-stade-el-hadj-hassan-gouled-aptidon/>
 
 En vigueur : 2003-11-30 (date du Journal officiel qui le publie).
 

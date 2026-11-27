@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0453/PR/MESR portant réglementation propre au diplôme national menant au grade Licence Appliquée mention “Topographie”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0453-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-licence-appliquee-mention-topographie/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0453-pr-mesr-portant-reglementation-propre-au-diplome-national-menant-au-grade-licence-appliquee-mention-topographie/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

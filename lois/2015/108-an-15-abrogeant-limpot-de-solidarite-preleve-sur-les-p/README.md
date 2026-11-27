@@ -1,6 +1,6 @@
 # Loi n° 108/AN/15/7ème L abrogeant l’impôt de solidarité prélevé sur les prestations et les pensions des régimes général et publics gérés par la C.N.S.S.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-15-7eme-l-abrogeant-limpot-de-solidarite-preleve-sur-les-prestations-et-les-pensions-des-regimes-general-et-publics-geres-par-la-c-n-s-s/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-15-7eme-l-abrogeant-limpot-de-solidarite-preleve-sur-les-prestations-et-les-pensions-des-regimes-general-et-publics-geres-par-la-c-n-s-s/>
 
 En vigueur : 2015-12-15 (date du Journal officiel qui le publie).
 

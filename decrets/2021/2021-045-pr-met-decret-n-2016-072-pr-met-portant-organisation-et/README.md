@@ -1,6 +1,6 @@
 # Décret n° 2021-045/PR/MET modifiant le Décret n° 2016- 072/PR/MET portant organisation et fonctionnement de l’Autorité de l’Aviation Civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2021 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2021-045-pr-met-modifiant-le-decret-n2016-072-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2021 · <https://www.journalofficiel.dj/texte-juridique/decret-n2021-045-pr-met-modifiant-le-decret-n2016-072-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
 
 En vigueur : 2021-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -119,4 +119,4 @@ ISMAÏL OMAR GUELLEH
 | [art-045.md](art-045.md) | Article 45 |
 | [art-046.md](art-046.md) | Article 46 |
 | [art-047.md](art-047.md) | Article 47 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

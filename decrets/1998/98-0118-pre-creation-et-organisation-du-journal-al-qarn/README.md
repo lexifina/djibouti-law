@@ -1,6 +1,6 @@
 # Décret n° 98-0118/PRE portant création et organisation du journal « Al Qarn ».
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0118-pre-portant-creation-et-organisation-du-journal-al-qarn/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0118-pre-portant-creation-et-organisation-du-journal-al-qarn/>
 
 En vigueur : 1998-10-15 (date du Journal officiel qui le publie).
 

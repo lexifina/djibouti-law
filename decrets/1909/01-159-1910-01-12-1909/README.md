@@ -1,6 +1,6 @@
 # Décret n° 01-159-1910 01/12/1909
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 159 du 01/02/1910 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-159-1910-01-12-1909/>
+Décret · Journal officiel de la République de Djibouti, n° 159 du 01/02/1910 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-159-1910-01-12-1909/>
 
 En vigueur : 1910-02-01 (date du Journal officiel qui le publie).
 

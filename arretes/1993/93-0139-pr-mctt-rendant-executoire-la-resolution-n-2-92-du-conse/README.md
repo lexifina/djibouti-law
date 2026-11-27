@@ -1,6 +1,6 @@
 # Arrêté n° 93-0139/PR/MCTT rendant exécutoire la résolution n° 2/92 du conseil d’administration de l’Aéroport de Djibouti et portant approbation du budget prévisionnel rectificatif de l’exercice 1992.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1993 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0139-pr-mctt-rendant-executoire-la-resolution-n2-92-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-previsionnel-rectificatif-de-lexer/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/1993 · <https://www.journalofficiel.dj/texte-juridique/arrete-n93-0139-pr-mctt-rendant-executoire-la-resolution-n2-92-du-conseil-dadministration-de-laeroport-de-djibouti-et-portant-approbation-du-budget-previsionnel-rectificatif-de-lexer/>
 
 En vigueur : 1993-01-31 (date du Journal officiel qui le publie).
 

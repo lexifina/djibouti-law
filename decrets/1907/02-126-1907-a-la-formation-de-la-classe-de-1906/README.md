@@ -1,6 +1,6 @@
 # Décret n° 02-126-1907 relatif à la formation de la classe de 1906.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 126 du 01/05/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-126-1907-relatif-a-la-formation-de-la-classe-de-1906/>
+Décret · Journal officiel de la République de Djibouti, n° 126 du 01/05/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-126-1907-relatif-a-la-formation-de-la-classe-de-1906/>
 
 En vigueur : 1907-05-01 (date du Journal officiel qui le publie).
 

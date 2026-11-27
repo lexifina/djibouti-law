@@ -1,6 +1,6 @@
 # Loi n° 22/07/1942 rendant applicables aux colonies les dispositions de la loi du 22 juillet 1941 modifiées par la loi du 17 novembre 1941 sur les entreprises, biens et valeurs appartenant aux Juifs.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 548 du 31/07/1942 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-22-07-1942-rendant-applicables-aux-colonies-les-dispositions-de-la-loi-du-22-juillet-1941-modifiees-par-la-loi-du-17-novembre-1941-sur-les-entreprises-biens-et-valeurs-appartenant-aux-ju/>
+Loi · Journal officiel de la République de Djibouti, n° 548 du 31/07/1942 · <https://www.journalofficiel.dj/texte-juridique/loi-n-22-07-1942-rendant-applicables-aux-colonies-les-dispositions-de-la-loi-du-22-juillet-1941-modifiees-par-la-loi-du-17-novembre-1941-sur-les-entreprises-biens-et-valeurs-appartenant-aux-ju/>
 
 En vigueur : 1942-07-31 (date du Journal officiel qui le publie).
 

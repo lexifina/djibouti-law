@@ -1,6 +1,6 @@
 # Décret n° 87-005/PR/FIN fixant les règles de fonctionnement du fonds de réserve institué par la loi de finances n° 130 du 30 décembre 1984.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-005-pr-fin-fixant-les-regles-de-fonctionnement-du-fonds-de-reserve-institue-par-la-loi-de-finances-n-130-du-30-decembre-1984/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-005-pr-fin-fixant-les-regles-de-fonctionnement-du-fonds-de-reserve-institue-par-la-loi-de-finances-n-130-du-30-decembre-1984/>
 
 En vigueur : 1987-01-15 (date du Journal officiel qui le publie).
 

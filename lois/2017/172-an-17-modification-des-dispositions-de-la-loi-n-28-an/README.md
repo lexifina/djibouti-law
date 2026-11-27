@@ -1,8 +1,8 @@
 # Loi n° 172/AN/17/7ème L portant modification des dispositions de la loi n° 28/AN/7ème L portant amendement de la loi n° 153/AN/12/6ème L instituant le tarif applicable aux permis de travail pour les travailleurs étrangers en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-17-7eme-l-portant-modification-des-dispositions-de-la-loi-n28-an-7eme-l-portant-amendement-de-la-loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-trava/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-17-7eme-l-portant-modification-des-dispositions-de-la-loi-n28-an-7eme-l-portant-amendement-de-la-loi-n153-an-12-6eme-l-instituant-le-tarif-applicable-aux-permis-de-trava/>
 
-En vigueur : 2017-06-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2017-06-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

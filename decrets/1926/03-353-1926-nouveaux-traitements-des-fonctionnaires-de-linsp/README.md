@@ -1,6 +1,6 @@
 # Décret n° 03-353-1926 Nouveaux traitements des fonctionnaires de l’inspection générale des travaux publics des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 353 du 30/04/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-353-1926-nouveaux-traitements-des-fonctionnaires-de-linspection-generale-des-travaux-publics-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 353 du 30/04/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-353-1926-nouveaux-traitements-des-fonctionnaires-de-linspection-generale-des-travaux-publics-des-colonies/>
 
 En vigueur : 1926-04-30 (date du Journal officiel qui le publie).
 

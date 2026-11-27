@@ -1,6 +1,6 @@
 # Rectificatif n° 2024-056/PR/MTFPS partiel à la décision n° 2020-519/PR/MTFPS du 17 novembre 2020 portant versement de Mme. Barwaqo Houssein Kidar.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 04 du 29/02/2024 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2024-056-pr-mtfps-partiel-a-la-decision-n-2020-519-pr-mtfps-du-17-novembre-2020-portant-versement-de-mme-barwaqo-houssein-kidar/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 04 du 29/02/2024 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-2024-056-pr-mtfps-partiel-a-la-decision-n-2020-519-pr-mtfps-du-17-novembre-2020-portant-versement-de-mme-barwaqo-houssein-kidar/>
 
 En vigueur : 2024-03-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

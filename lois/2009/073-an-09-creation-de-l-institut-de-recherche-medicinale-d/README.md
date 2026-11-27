@@ -1,6 +1,6 @@
 # Loi n° 73/AN/09/6ème L portant création de l’Institut de Recherche Médicinale de Djibouti au sein du Centre d’Etudes et de Recherches Scientifiques de Djibouti (CERD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2010 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-09-6eme-l-portant-creation-de-linstitut-de-recherche-medicinale-de-djibouti-au-sein-du-centre-detudes-et-de-recherches-scientifiques-de-djibouti-cerd/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2010 · <https://www.journalofficiel.dj/texte-juridique/loi-n73-an-09-6eme-l-portant-creation-de-linstitut-de-recherche-medicinale-de-djibouti-au-sein-du-centre-detudes-et-de-recherches-scientifiques-de-djibouti-cerd/>
 
 En vigueur : 2010-01-14 (date du Journal officiel qui le publie).
 

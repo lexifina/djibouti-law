@@ -1,6 +1,6 @@
 # Décret n° 6-431-1932 Primes d’engagement et de rengagement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 431 du 30/10/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-431-1932-primes-dengagement-et-de-rengagement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 431 du 30/10/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-431-1932-primes-dengagement-et-de-rengagement-aux-colonies/>
 
 En vigueur : 1932-10-30 (date du Journal officiel qui le publie).
 

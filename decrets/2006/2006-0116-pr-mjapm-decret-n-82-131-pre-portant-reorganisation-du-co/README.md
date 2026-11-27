@@ -1,8 +1,8 @@
 # Décret n° 2006-0116/PR/MJAPM modifiant le Décret n° 82-131/PRE portant Réorganisation du Conseil du Contentieux Administratif de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0116-pr-mjapm-modifiant-le-decret-n82-131-pre-portant-reorganisation-du-conseil-du-contentieux-administratif-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0116-pr-mjapm-modifiant-le-decret-n82-131-pre-portant-reorganisation-du-conseil-du-contentieux-administratif-de-djibouti/>
 
-En vigueur : 2006-05-07 (date fixÃ©e par le texte).
+En vigueur : 2006-05-07 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° n° 52-263 du 25 février 1952 portant attribution d’une indemnité de costume d’audience aux magistrats de l’ordre judiciaire et aux greffiers en chef des juridictions des territoires d’outre-mer
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 01/04/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-263-du-25-fevrier-1952-portant-attribution-dune-indemnite-de-costume-daudience-aux-magistrats-de-lordre-judiciaire-et-aux-greffiers-en-chef-des-j/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 01/04/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-52-263-du-25-fevrier-1952-portant-attribution-dune-indemnite-de-costume-daudience-aux-magistrats-de-lordre-judiciaire-et-aux-greffiers-en-chef-des-j/>
 
 En vigueur : 1952-04-01 (date du Journal officiel qui le publie).
 
@@ -47,5 +47,5 @@ Léon MARTINAUD-DEPLAT,
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-004.md](art-004.md) | Art. 4 |
+| [art-005.md](art-005.md) | Art. 5 |

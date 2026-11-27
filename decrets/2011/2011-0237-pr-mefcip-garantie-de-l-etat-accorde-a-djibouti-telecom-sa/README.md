@@ -1,6 +1,6 @@
 # Décret n° 2011-0237/PR/MEFCIP portant garantie de l’Etat accordé à Djibouti Télécom SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0237-pr-mefcip-portant-garantie-de-letat-accorde-a-djibouti-telecom-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 31/12/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0237-pr-mefcip-portant-garantie-de-letat-accorde-a-djibouti-telecom-sa/>
 
 En vigueur : 2011-12-31 (date du Journal officiel qui le publie).
 

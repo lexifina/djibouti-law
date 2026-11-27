@@ -1,6 +1,6 @@
 # Loi n° 137/AN/06/5ème L portant approbation du compte financiers de la Caisse Nationale des Retraites (CNR) pour l’Exercice 2003.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-06-5eme-l-portant-approbation-du-compte-financiers-de-la-caisse-nationale-des-retraites-cnr-pour-lexercice-2003/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/loi-n137-an-06-5eme-l-portant-approbation-du-compte-financiers-de-la-caisse-nationale-des-retraites-cnr-pour-lexercice-2003/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 94‑0034/PR/DEF portant création d’une commission nationale chargée du suivi des opérations de démobilisation
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910034-pr-def-portant-creation-dune-commission-nationale-chargee-du-suivi-des-operations-de-demobilisation/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94%e2%80%910034-pr-def-portant-creation-dune-commission-nationale-chargee-du-suivi-des-operations-de-demobilisation/>
 
-En vigueur : 1994-03-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1994-03-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 161-04-1914 la loi du 14 juillet 1908 et les décrets des 16 août 1908, 21 avril 1909 et 2 mai 1913. Textes de ces actes
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 210 du 30/04/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-161-04-1914-la-loi-du-14-juillet-1908-et-les-decrets-des-16-aout-1908-21-avril-1909-et-2-mai-1913-textes-de-ces-actes/>
+Décret · Journal officiel de la République de Djibouti, n° 210 du 30/04/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-161-04-1914-la-loi-du-14-juillet-1908-et-les-decrets-des-16-aout-1908-21-avril-1909-et-2-mai-1913-textes-de-ces-actes/>
 
 En vigueur : 1914-04-30 (date du Journal officiel qui le publie).
 
@@ -19,4 +19,4 @@ R.Poincare
 | Fichier | Disposition |
 | --- | --- |
 | [art-008.md](art-008.md) | Art. 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

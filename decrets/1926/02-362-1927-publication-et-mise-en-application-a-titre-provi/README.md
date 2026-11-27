@@ -1,6 +1,6 @@
 # Décret n° 02-362-1927 Publication et mise en application à titre provisoire de la convention de commerce entre la France et la Grèce, signée à Paris le 8 septembre 1926.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 362 du 31/01/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-362-1927-publication-et-mise-en-application-a-titre-provisoire-de-la-convention-de-commerce-entre-la-france-et-la-grece-signee-a-paris-le-8-septembre-1926/>
+Décret · Journal officiel de la République de Djibouti, n° 362 du 31/01/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-362-1927-publication-et-mise-en-application-a-titre-provisoire-de-la-convention-de-commerce-entre-la-france-et-la-grece-signee-a-paris-le-8-septembre-1926/>
 
 En vigueur : 1927-01-31 (date du Journal officiel qui le publie).
 

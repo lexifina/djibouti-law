@@ -1,6 +1,6 @@
 # Arrêté n° 2020-029/PRE additif à l’Arrêté n° 2020-007/PRE du 9 janvier 2020 portant exonération d’impôts et de taxes des activités du Projet de Modernisation de l’Administration Publique.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/2020 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-029-pre-additif-a-larrete-n2020-007-pre-du-9-janvier-2020-portant-exoneration-dimpots-et-de-taxes-des-activites-du-projet-de-modernisation-de-ladministration-publique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 13/02/2020 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2020-029-pre-additif-a-larrete-n2020-007-pre-du-9-janvier-2020-portant-exoneration-dimpots-et-de-taxes-des-activites-du-projet-de-modernisation-de-ladministration-publique/>
 
 En vigueur : 2020-02-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

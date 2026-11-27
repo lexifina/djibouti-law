@@ -1,6 +1,6 @@
 # Décret n° 47-894 portant attribution d’indemnités de fonctions aux colonies aux juges el aux juges suppléants des tribunaux de 1e et 2e classe, charges de l’instruction à titre temporaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-894-portant-attribution-dindemnites-de-fonctions-aux-colonies-aux-juges-el-aux-juges-suppleants-des-tribunaux-de-1e-et-2e-classe-charges-de-linstruction-a-titre-temporaire/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/06/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-894-portant-attribution-dindemnites-de-fonctions-aux-colonies-aux-juges-el-aux-juges-suppleants-des-tribunaux-de-1e-et-2e-classe-charges-de-linstruction-a-titre-temporaire/>
 
 En vigueur : 1947-06-30 (date du Journal officiel qui le publie).
 

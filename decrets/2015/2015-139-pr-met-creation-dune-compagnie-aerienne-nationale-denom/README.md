@@ -1,6 +1,6 @@
 # Décret n° 2015-139/PR/MET portant création d’une compagnie aérienne nationale dénommée “AIR DJIBOUTI S.A.S”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-139-pr-met-portant-creation-dune-compagnie-aerienne-nationale-denommee-air-djibouti-s-a-s/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-139-pr-met-portant-creation-dune-compagnie-aerienne-nationale-denommee-air-djibouti-s-a-s/>
 
 En vigueur : 2015-05-14 (date du Journal officiel qui le publie).
 

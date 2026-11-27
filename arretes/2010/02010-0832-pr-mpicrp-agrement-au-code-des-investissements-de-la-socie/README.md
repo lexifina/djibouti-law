@@ -1,6 +1,6 @@
 # Arrêté n° 02010-0832/PR/MPICRP portant Agrément au Code des Investissements de la Société “Safintra Djibouti Sarl”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n02010-0832-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-safintra-djibouti-sarl/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 30/12/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n02010-0832-pr-mpicrp-portant-agrement-au-code-des-investissements-de-la-societe-safintra-djibouti-sarl/>
 
 En vigueur : 2010-12-30 (date du Journal officiel qui le publie).
 

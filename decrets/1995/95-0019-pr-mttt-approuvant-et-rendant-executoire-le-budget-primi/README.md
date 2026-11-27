@@ -1,6 +1,6 @@
 # Décret n° 95-0019/PR/MTTT Approuvant et rendant exécutoire le Budget primitif 1995 de l’Office National du Tourisme et de l’Artisanat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1995 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n95-0019-pr-mttt-approuvant-et-rendant-executoire-le-budget-primitif-1995-de-loffice-national-du-tourisme-et-de-lartisanat/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1995 · <https://www.journalofficiel.dj/texte-juridique/decret-n95-0019-pr-mttt-approuvant-et-rendant-executoire-le-budget-primitif-1995-de-loffice-national-du-tourisme-et-de-lartisanat/>
 
 En vigueur : 1995-02-15 (date du Journal officiel qui le publie).
 
@@ -18,4 +18,4 @@ Sur Proposition du Ministre des Transports, du Tourisme et des Télécommunicati
 | --- | --- |
 | [art-001.md](art-001.md) | Article Premier |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

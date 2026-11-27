@@ -1,6 +1,6 @@
 # Décret n° 2002-0007/PR/MEN portant rattachement au Lycée d’Etat de Djibouti des classes du secondaire général et technologique tertiaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0007-pr-men-portant-rattachement-au-lycee-detat-de-djibouti-des-classes-du-secondaire-general-et-technologique-tertiaire/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0007-pr-men-portant-rattachement-au-lycee-detat-de-djibouti-des-classes-du-secondaire-general-et-technologique-tertiaire/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

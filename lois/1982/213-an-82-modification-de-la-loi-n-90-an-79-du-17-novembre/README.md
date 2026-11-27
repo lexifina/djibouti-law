@@ -1,6 +1,6 @@
 # Loi n° 213/AN/82 portant modification de la Loi n°90/AN/79 du 17 novembre 1979 sur l’exécution des décisions de justice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/03/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n213-an-82-portant-modification-de-la-loi-n90-an-79-du-17-novembre-1979-sur-lexcution-des-dcisions-de-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/03/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n213-an-82-portant-modification-de-la-loi-n90-an-79-du-17-novembre-1979-sur-lexcution-des-dcisions-de-justice/>
 
 En vigueur : 1982-03-15 (date du Journal officiel qui le publie).
 

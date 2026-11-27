@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0041/PR/MAPCPI portant Agrément au Code des Investissements de la Société «African Investment Bank – S.A.Z.F».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0041-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-african-investment-bank-s-a-z-f/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0041-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-african-investment-bank-s-a-z-f/>
 
 En vigueur : 2001-01-15 (date du Journal officiel qui le publie).
 

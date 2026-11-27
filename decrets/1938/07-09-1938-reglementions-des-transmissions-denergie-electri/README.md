@@ -1,6 +1,6 @@
 # Décret n° 07/09/1938 portant réglementions des transmissions d’énergie électrique dans la colonie de la Cote Française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 503 du 31/10/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-07-09-1938-portant-reglementions-des-transmissions-denergie-electrique-dans-la-colonie-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 503 du 31/10/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-07-09-1938-portant-reglementions-des-transmissions-denergie-electrique-dans-la-colonie-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-10-31 (date du Journal officiel qui le publie).
 
@@ -61,4 +61,4 @@ Georges MANDEL.
 | [art-039.md](art-039.md) | Art. 39 |
 | [art-040.md](art-040.md) | Art. 40 |
 | [art-041.md](art-041.md) | Art. 41 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

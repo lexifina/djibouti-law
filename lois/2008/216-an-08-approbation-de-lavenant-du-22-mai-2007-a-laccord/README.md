@@ -1,6 +1,6 @@
 # Loi n° 216/AN/08/5ème L portant approbation de l’Avenant du 22 mai 2007 à l’Accord de Concession entre la République de Djibouti et la Société Doraleh Container Terminal SA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n216-an-08-5eme-l-portant-approbation-de-lavenant-du-22-mai-2007-a-laccord-de-concession-entre-la-republique-de-djibouti-et-la-societe-doraleh-container-terminal-sa/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n216-an-08-5eme-l-portant-approbation-de-lavenant-du-22-mai-2007-a-laccord-de-concession-entre-la-republique-de-djibouti-et-la-societe-doraleh-container-terminal-sa/>
 
 En vigueur : 2008-01-31 (date du Journal officiel qui le publie).
 

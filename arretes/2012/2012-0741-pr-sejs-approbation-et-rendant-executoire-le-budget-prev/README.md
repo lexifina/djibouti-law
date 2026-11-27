@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0741/PR/SEJS portant approbation et rendant Exécutoire le Budget prévisionnel de l’Exercice 2013 du Stade Al Hadji Hassan Gouled.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0741-pr-sejs-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-stade-al-hadji-hassan-gouled/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0741-pr-sejs-portant-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2013-du-stade-al-hadji-hassan-gouled/>
 
 En vigueur : 2012-12-31 (date du Journal officiel qui le publie).
 

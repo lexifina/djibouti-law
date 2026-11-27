@@ -1,6 +1,6 @@
 # Loi n° 3/AN/03/5ème L portant adoption des comptes financiers de l’OPS exercice 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-03-5eme-l-portant-adoption-des-comptes-financiers-de-lops-exercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n3-an-03-5eme-l-portant-adoption-des-comptes-financiers-de-lops-exercice-2000/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

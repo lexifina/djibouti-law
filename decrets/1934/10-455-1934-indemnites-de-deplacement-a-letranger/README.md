@@ -1,6 +1,6 @@
 # Décret n° 10-455-1934 Indemnités de déplacement à l’étranger.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 455 du 31/10/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-455-1934-indemnites-de-deplacement-a-letranger/>
+Décret · Journal officiel de la République de Djibouti, n° 455 du 31/10/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-455-1934-indemnites-de-deplacement-a-letranger/>
 
 En vigueur : 1934-10-31 (date du Journal officiel qui le publie).
 

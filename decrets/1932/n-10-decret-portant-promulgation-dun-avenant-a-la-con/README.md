@@ -1,6 +1,6 @@
 # Décret n° n°10 Décret portant promulgation d’un avenant à la convention commerciale franco-roumaine du 27 août 1930 signé le 5 janvier 1932 entre la France et la Roumanie
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 428 du 31/07/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-decret-portant-promulgation-dun-avenant-a-la-convention-commerciale-franco-roumaine-du-27-aout-1930-signe-le-5-janvier-1932-entre-la-france-et-la-roumanie/>
+Décret · Journal officiel de la République de Djibouti, n° 428 du 31/07/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n10-decret-portant-promulgation-dun-avenant-a-la-convention-commerciale-franco-roumaine-du-27-aout-1930-signe-le-5-janvier-1932-entre-la-france-et-la-roumanie/>
 
 En vigueur : 1932-07-31 (date du Journal officiel qui le publie).
 

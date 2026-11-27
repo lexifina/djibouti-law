@@ -1,6 +1,6 @@
 # Loi n° 237/AN/82 complétant et modifiant certains articles du code des marchés publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 01/05/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n237-an-82-completant-et-modifiant-certains-articles-du-code-des-marches-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 01/05/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n237-an-82-completant-et-modifiant-certains-articles-du-code-des-marches-publics/>
 
 En vigueur : 1982-05-01 (date du Journal officiel qui le publie).
 

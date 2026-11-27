@@ -1,6 +1,6 @@
 # Loi n° 202/AN/07/5ème L fixant les conditions d’exercice des activités privées de surveillance et de gardiennage.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-07-5eme-l-fixant-les-conditions-dexercice-des-activites-privees-de-surveillance-et-de-gardiennage/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n202-an-07-5eme-l-fixant-les-conditions-dexercice-des-activites-privees-de-surveillance-et-de-gardiennage/>
 
 En vigueur : 2007-12-31 (date du Journal officiel qui le publie).
 

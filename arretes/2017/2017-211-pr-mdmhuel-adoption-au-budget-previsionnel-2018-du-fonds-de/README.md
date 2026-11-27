@@ -1,6 +1,6 @@
 # Arrêté n° 2017-211/PR/MDMHUEL portant adoption au budget prévisionnel 2018 du Fonds de l’Habitat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-211-pr-mdmhuel-portant-adoption-au-budget-previsionnel-2018-du-fonds-de-lhabitat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-211-pr-mdmhuel-portant-adoption-au-budget-previsionnel-2018-du-fonds-de-lhabitat/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

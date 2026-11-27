@@ -1,6 +1,6 @@
 # Loi n° 16-261-1918 relatire à la suppression du registre des inscriptions en matière hypothécaire el modifiant les articles 2148, 2150, 2152, 2153 et 2108 du code civil.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 261 du 31/07/1918 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-16-261-1918-relatire-a-la-suppression-du-registre-des-inscriptions-en-matiere-hypothecaire-el-modifiant-les-articles-2148-2150-2152-2153-et-2108-du-code-civil/>
+Loi · Journal officiel de la République de Djibouti, n° 261 du 31/07/1918 · <https://www.journalofficiel.dj/texte-juridique/loi-n-16-261-1918-relatire-a-la-suppression-du-registre-des-inscriptions-en-matiere-hypothecaire-el-modifiant-les-articles-2148-2150-2152-2153-et-2108-du-code-civil/>
 
 En vigueur : 1918-07-31 (date du Journal officiel qui le publie).
 

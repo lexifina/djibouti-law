@@ -1,6 +1,6 @@
 # Arrêté n° 2012-092/PR/MCCPT portant adoption du projet du budget prévisionnel 2012 de l’Imprimerie Nationale de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-092-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2012-de-limprimerie-nationale-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 3 du 15/02/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-092-pr-mccpt-portant-adoption-du-projet-du-budget-previsionnel-2012-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2012-02-15 (date du Journal officiel qui le publie).
 

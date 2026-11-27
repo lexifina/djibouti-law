@@ -1,6 +1,6 @@
 # Décret n° 2020-149/PR/MET fixant le cadre de supervision de la sécurité de l’Aviation Civile à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 13/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-149-pr-met-fixant-le-cadre-de-supervision-de-la-securite-de-laviation-civile-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 13/07/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-149-pr-met-fixant-le-cadre-de-supervision-de-la-securite-de-laviation-civile-a-djibouti/>
 
 En vigueur : 2020-07-14 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

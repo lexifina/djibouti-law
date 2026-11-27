@@ -1,6 +1,6 @@
 # Décret n° 2011-0106/PR/MJAP portant remise gracieuse de peines.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0106-pr-mjap-portant-remise-gracieuse-de-peines/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-0106-pr-mjap-portant-remise-gracieuse-de-peines/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

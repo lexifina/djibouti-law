@@ -1,6 +1,6 @@
 # Loi n° 18/AN/87/2ème L portant règlement définitif du budget de l’État de l’exercice 1986
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-87-2eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1986/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n18-an-87-2eme-l-portant-reglement-definitif-du-budget-de-letat-de-lexercice-1986/>
 
 En vigueur : 1988-01-15 (date du Journal officiel qui le publie).
 

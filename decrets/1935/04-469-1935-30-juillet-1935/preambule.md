@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Les modalité du application du décret du 16 prélévement général de 10 p. 100 sur les dépenses
 publiques aux dépenses de personnel de l’Etat et des collectivités visées à l’article 1er , dernier
 alinéa, dudit décret (départements, communues établissements publics, Algérie, colonies,

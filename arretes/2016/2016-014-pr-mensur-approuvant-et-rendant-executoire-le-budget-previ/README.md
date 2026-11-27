@@ -1,6 +1,6 @@
 # Arrêté n° 2016-014/PR/MENSUR approuvant et rendant exécutoire le Budget prévisionnel de l’exercice 2016 de l’Institut Supérieur des Sciences de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-014-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-de-linstitut-superieur-des-sciences-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-014-pr-mensur-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-de-linstitut-superieur-des-sciences-de-la-sante/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

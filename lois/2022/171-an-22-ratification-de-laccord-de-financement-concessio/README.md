@@ -1,6 +1,6 @@
 # Loi n° 171/AN/22/8ème L portant ratification de l’accord de financement concessionnel pour le projet de réduction des risques, d’inclusion et de valorisation des économies pastorales dans la Come de l’Afrique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-22-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-pour-le-projet-de-reduction-des-risques-dinclusion-et-de-valorisation-des-economies-pastorales-dans-la-com/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n171-an-22-8eme-l-portant-ratification-de-laccord-de-financement-concessionnel-pour-le-projet-de-reduction-des-risques-dinclusion-et-de-valorisation-des-economies-pastorales-dans-la-com/>
 
 En vigueur : 2022-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

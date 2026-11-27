@@ -1,6 +1,6 @@
 # Décret n° 249 prescrivant l’ouverture d’un compte avec la Caisse Centrale dans les écritures des Trésoriers coloniaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-249-prescrivant-louverture-dun-compte-avec-la-caisse-centrale-dans-les-ecritures-des-tresoriers-coloniaux/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-249-prescrivant-louverture-dun-compte-avec-la-caisse-centrale-dans-les-ecritures-des-tresoriers-coloniaux/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 14-364-1927 12 février 1927
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 364 du 31/03/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-14-364-1927-12-fevrier-1927/>
+Décret · Journal officiel de la République de Djibouti, n° 364 du 31/03/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-14-364-1927-12-fevrier-1927/>
 
 En vigueur : 1927-03-31 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ Louis BATHOU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |

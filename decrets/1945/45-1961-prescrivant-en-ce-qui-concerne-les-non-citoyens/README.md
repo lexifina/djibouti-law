@@ -1,6 +1,6 @@
 # Décret n° 45-1961 prescrivant en ce qui concerne les non-citoyens jouissant de l’électorat politique rétablissement des listes électorales en A. O.F., Togo, A.EF., au Cameroun et à la Côte française des Somalis pour l’application de l’ordonnance du 22 août 1945 fixant le mode de représentation à l’Assemblée Nationale Constituante des territoires d’outre-mer relevant du Ministère des colonies. (inséré au J.O.R.F. du 1er septembre 1945)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1961-prescrivant-en-ce-qui-concerne-les-non-citoyens-jouissant-de-lelectorat-politique-retablissement-des-listes-electorales-en-a-o-f-togo-a-ef-au-cameroun-et-a-la-co/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1961-prescrivant-en-ce-qui-concerne-les-non-citoyens-jouissant-de-lelectorat-politique-retablissement-des-listes-electorales-en-a-o-f-togo-a-ef-au-cameroun-et-a-la-co/>
 
 En vigueur : 1945-09-30 (date du Journal officiel qui le publie).
 

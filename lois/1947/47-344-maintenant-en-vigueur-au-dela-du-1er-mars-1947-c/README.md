@@ -1,6 +1,6 @@
 # Loi n° 47-344 maintenant en vigueur au delà du 1er mars 1947 certaines dispositions prorogées pur lu loi du 10 mai 1916 portant fixation de lu date légale de cessation des hostilités.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 30/03/1947 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-47-344-maintenant-en-vigueur-au-dela-du-1er-mars-1947-certaines-dispositions-prorogees-pur-lu-loi-du-10-mai-1916-portant-fixation-de-lu-date-legale-de-cessation-des-hostilites/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 30/03/1947 · <https://www.journalofficiel.dj/texte-juridique/loi-n-47-344-maintenant-en-vigueur-au-dela-du-1er-mars-1947-certaines-dispositions-prorogees-pur-lu-loi-du-10-mai-1916-portant-fixation-de-lu-date-legale-de-cessation-des-hostilites/>
 
 En vigueur : 1947-03-30 (date du Journal officiel qui le publie).
 

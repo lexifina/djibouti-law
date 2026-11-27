@@ -1,6 +1,6 @@
 # Décret n° 28-468-1935 Décret approuvant les conventions du 30 octobres relatives au Crédit colonial et réglant le transfert de certains prêts du Crédit national au Crédit colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-468-1935-decret-approuvant-les-conventions-du-30-octobres-relatives-au-credit-colonial-et-reglant-le-transfert-de-certains-prets-du-credit-national-au-credit-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-468-1935-decret-approuvant-les-conventions-du-30-octobres-relatives-au-credit-colonial-et-reglant-le-transfert-de-certains-prets-du-credit-national-au-credit-colonial/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

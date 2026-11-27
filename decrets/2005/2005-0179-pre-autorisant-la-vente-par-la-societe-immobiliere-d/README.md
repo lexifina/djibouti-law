@@ -1,6 +1,6 @@
 # Décret n° 2005-0179/PRE Autorisant la vente par la Société Immobilière de Djibouti de ses parts dans le capital de la Société Djibouti Dry Port SAZF.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0179-pre-autorisant-la-vente-par-la-societe-immobiliere-de-djibouti-de-ses-parts-dans-le-capital-de-la-societe-djibouti-dry-port-sazf/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0179-pre-autorisant-la-vente-par-la-societe-immobiliere-de-djibouti-de-ses-parts-dans-le-capital-de-la-societe-djibouti-dry-port-sazf/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

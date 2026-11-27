@@ -1,6 +1,6 @@
 # Décret n° 2007-0129/PR/MAEM portant organisation administrative de l’Office National de l’Eau et de l’Assainissement de Djibouti (ONEAD).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 14/06/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0129-pr-maem-portant-organisation-administrative-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-onead/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 14/06/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0129-pr-maem-portant-organisation-administrative-de-loffice-national-de-leau-et-de-lassainissement-de-djibouti-onead/>
 
 En vigueur : 2007-06-14 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-011.md](art-011.md) | Article 11 |
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

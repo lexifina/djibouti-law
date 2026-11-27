@@ -1,6 +1,6 @@
 # Loi n° 170/AN/17/7ème L portant ratification de l’Accord de financement additionnel pour le projet de construction de la route Tadjourah-Balho (KFAED).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-17-7eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-de-construction-de-la-route-tadjourah-balho-kfaed/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n170-an-17-7eme-l-portant-ratification-de-laccord-de-financement-additionnel-pour-le-projet-de-construction-de-la-route-tadjourah-balho-kfaed/>
 
 En vigueur : 2017-02-15 (date du Journal officiel qui le publie).
 

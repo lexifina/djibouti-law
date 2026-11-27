@@ -1,6 +1,6 @@
 # Décret n° 2015-296/PR/SEMHUEL portant définition des critères de cession et de mise en valeur des parcelles du lotissement dénommé “NASSIB”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-296-pr-semhuel-portant-definition-des-criteres-de-cession-et-de-mise-en-valeur-des-parcelles-du-lotissement-denomme-nassib/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-296-pr-semhuel-portant-definition-des-criteres-de-cession-et-de-mise-en-valeur-des-parcelles-du-lotissement-denomme-nassib/>
 
 En vigueur : 2015-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 46-241 modifiant celui du 26 mai 1937 portant réglementation du logement et de l’ameublement aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-241-modifiant-celui-du-26-mai-1937-portant-reglementation-du-logement-et-de-lameublement-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-241-modifiant-celui-du-26-mai-1937-portant-reglementation-du-logement-et-de-lameublement-aux-colonies/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

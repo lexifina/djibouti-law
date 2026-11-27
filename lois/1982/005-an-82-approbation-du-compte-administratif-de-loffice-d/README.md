@@ -1,6 +1,6 @@
 # Loi n° 5/AN/82 portant approbation du compte administratif de l’Office des Postes et Télécommunications pour l’exercice 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-82-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1981/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n5-an-82-portant-approbation-du-compte-administratif-de-loffice-des-postes-et-telecommunications-pour-lexercice-1981/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

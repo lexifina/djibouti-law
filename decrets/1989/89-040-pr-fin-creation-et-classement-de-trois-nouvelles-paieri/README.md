@@ -1,8 +1,8 @@
 # Décret n° 89-040/PR/FIN portant création et classement de trois nouvelles paieries du Trésor, et fixant l’indemnité mensuelle de responsabilité et le montant du cautionnement à constituer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/03/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-040-pr-fin-portant-creation-et-classement-de-trois-nouvelles-paieries-du-tresor-et-fixant-lindemnite-mensuelle-de-responsabilite-et-le-montant-du-cautionnement-a-constituer/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 30/03/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-040-pr-fin-portant-creation-et-classement-de-trois-nouvelles-paieries-du-tresor-et-fixant-lindemnite-mensuelle-de-responsabilite-et-le-montant-du-cautionnement-a-constituer/>
 
-En vigueur : 1989-03-26 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1989-03-26 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

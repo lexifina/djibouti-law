@@ -1,8 +1,8 @@
 # Décret n° 2012-0106/PR/MET projet de décret fixant le cahier de charges applicable au contrôle technique automobile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0106-pr-met-projet-de-decret-fixant-le-cahier-de-charges-applicable-au-controle-technique-automobile/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-0106-pr-met-projet-de-decret-fixant-le-cahier-de-charges-applicable-au-controle-technique-automobile/>
 
-En vigueur : 2012-05-13 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2012-05-13 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -75,4 +75,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

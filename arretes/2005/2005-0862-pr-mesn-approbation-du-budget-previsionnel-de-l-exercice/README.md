@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0862/PR/MESN Portant approbation du budget prévisionnel de l’exercice 2006 de l’Organisme de Protection Sociale (OPS).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0862-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2006-de-lorganisme-de-protection-sociale-ops/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0862-pr-mesn-portant-approbation-du-budget-previsionnel-de-lexercice-2006-de-lorganisme-de-protection-sociale-ops/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

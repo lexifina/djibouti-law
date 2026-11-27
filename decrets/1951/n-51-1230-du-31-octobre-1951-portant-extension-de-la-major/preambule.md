@@ -1,3 +1,3 @@
-# PrÃ©ambule
+# Préambule
 Art, 1, — A compter du 19 sestembre 1951, les personnels civils appartenaut aux cadres énumérés dans les tablesus 1 et II annexés au décret n° 51-519 &u 5 mai 1951, ainsi que les magistrats en service dans les territoires relevant de l’autorité du Ministre de la France d’Outre-Mer, énumérés ci-après :
 Afrique Occidentale Française, Togo, Cameroun, Afrique Équatoriale Française, Madagascar et dépendances, Territoire des Comores, Côte Française des Somalis, Saint-Pierre et Miquelon, reçoivent aplication de la majoration des traitements et soldes instituée par les articles ler et 2 du décret n° 51-1120 du 26 septembre 1951.

@@ -1,6 +1,6 @@
 # Loi n° 85/AN/95/3ème L portant approbation des comptes financiers de l’exercice 1993 du port Autonome International de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-95-3eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1993-du-port-autonome-international-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n85-an-95-3eme-l-portant-approbation-des-comptes-financiers-de-lexercice-1993-du-port-autonome-international-de-djibouti/>
 
 En vigueur : 1995-07-15 (date du Journal officiel qui le publie).
 

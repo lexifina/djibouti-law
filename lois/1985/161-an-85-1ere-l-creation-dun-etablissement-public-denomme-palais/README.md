@@ -1,6 +1,6 @@
 # Loi n° 161/AN /85/1ère L portant création d’un établissement public dénommé « Palais du Peuple ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 30/06/1985 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-85-1ere-l-portant-creation-dun-etablissement-public-denomme-palais-du-peuple/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 30/06/1985 · <https://www.journalofficiel.dj/texte-juridique/loi-n161-an-85-1ere-l-portant-creation-dun-etablissement-public-denomme-palais-du-peuple/>
 
 En vigueur : 1985-06-30 (date du Journal officiel qui le publie).
 

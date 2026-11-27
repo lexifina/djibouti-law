@@ -1,6 +1,6 @@
 # Décret n° 31-413-1931 Applicable aux colonies, pays le protectorat et territoires sous mandat relevant du ministère des colonies, l’article 1er de la loi du 21 décembre 1930 modifiant l’article 1834 du Code civil.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 413 du 30/04/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-31-413-1931-applicable-aux-colonies-pays-le-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-larticle-1er-de-la-loi-du-21-decembre-1930-modifiant-l/>
+Décret · Journal officiel de la République de Djibouti, n° 413 du 30/04/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-31-413-1931-applicable-aux-colonies-pays-le-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-larticle-1er-de-la-loi-du-21-decembre-1930-modifiant-l/>
 
 En vigueur : 1931-04-30 (date du Journal officiel qui le publie).
 
@@ -22,5 +22,5 @@ Léon BÉRARD.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

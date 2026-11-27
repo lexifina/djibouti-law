@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0349/PR/MENESUP portant création et organisation d’un Comité de Pilotage de la Réforme du Baccalauréat.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0349-pr-menesup-portant-creation-et-organisation-dun-comite-de-pilotage-de-la-reforme-du-baccalaureat/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0349-pr-menesup-portant-creation-et-organisation-dun-comite-de-pilotage-de-la-reforme-du-baccalaureat/>
 
 En vigueur : 2008-05-15 (date du Journal officiel qui le publie).
 

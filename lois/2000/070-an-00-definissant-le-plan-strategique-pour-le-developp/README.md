@@ -1,6 +1,6 @@
 # Loi n° 70/AN/00/4ème L définissant le plan stratégique pour le Développement du Tourisme en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-00-4eme-l-definissant-le-plan-strategique-pour-le-developpement-du-tourisme-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 15/03/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n70-an-00-4eme-l-definissant-le-plan-strategique-pour-le-developpement-du-tourisme-en-republique-de-djibouti/>
 
 En vigueur : 2000-03-15 (date du Journal officiel qui le publie).
 

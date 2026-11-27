@@ -1,6 +1,6 @@
 # Décret n° 2000-0277/PRE additif au décret n° 2000-172/PR/EFPP portant création d’un Comité de suivi des travaux de la table ronde au Koweït.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0277-pre-additif-au-decret-n2000-172-pr-efpp-portant-creation-dun-comite-de-suivi-des-travaux-de-la-table-ronde-au-koweit/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0277-pre-additif-au-decret-n2000-172-pr-efpp-portant-creation-dun-comite-de-suivi-des-travaux-de-la-table-ronde-au-koweit/>
 
 En vigueur : 2000-11-15 (date du Journal officiel qui le publie).
 

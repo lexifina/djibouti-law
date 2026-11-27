@@ -1,6 +1,6 @@
 # Ordonnance n° 77-077/PR/J portant amnistie partielle.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 09/01/1978 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-077-pr-j-portant-amnistie-partielle/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 09/01/1978 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-077-pr-j-portant-amnistie-partielle/>
 
 En vigueur : 1978-01-09 (date du Journal officiel qui le publie).
 

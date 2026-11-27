@@ -1,6 +1,6 @@
 # Arrêté n° 2003-0779/PR/MERN portant exonération à titre exceptionnel des impôts, droits et taxes sur le contrat clé en main entre l’EDD et le consortium Caterpillar-IMM.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0779-pr-mern-portant-exoneration-a-titre-exceptionnel-des-impots-droits-et-taxes-sur-le-contrat-cle-en-main-entre-ledd-et-le-consortium-caterpillar-imm/>
+Arrêté · Journal officiel de la République de Djibouti, n° 19 du 15/10/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0779-pr-mern-portant-exoneration-a-titre-exceptionnel-des-impots-droits-et-taxes-sur-le-contrat-cle-en-main-entre-ledd-et-le-consortium-caterpillar-imm/>
 
 En vigueur : 2003-10-15 (date du Journal officiel qui le publie).
 

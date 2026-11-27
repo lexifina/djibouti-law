@@ -1,6 +1,6 @@
 # Loi n° 67-559 modifiant et complétant la loi n° 66-537 du 24 juillet 1966 sur les sociétés commerciales et l’ordonnance n° 58-1352 du 27 décembre 1958 réprimant certaines infractions en matière de registre du commerce (1).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 10/09/1967 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-67-559-modifiant-et-completant-la-loi-n-66-537-du-24-juillet-1966-sur-les-societes-commerciales-et-lordonnance-n-58-1352-du-27-decembre-1958-reprimant-certaines-infractions/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 10/09/1967 · <https://www.journalofficiel.dj/texte-juridique/loi-n-67-559-modifiant-et-completant-la-loi-n-66-537-du-24-juillet-1966-sur-les-societes-commerciales-et-lordonnance-n-58-1352-du-27-decembre-1958-reprimant-certaines-infractions/>
 
 En vigueur : 1967-09-10 (date du Journal officiel qui le publie).
 

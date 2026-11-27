@@ -1,6 +1,6 @@
 # Décret n° n° 46 -2045 portant approbation de la convention conclue avec la Société Air-France pour l’exploitation des lignes aériennes francaises.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/10/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2045-portant-approbation-de-la-convention-conclue-avec-la-societe-air-france-pour-lexploitation-des-lignes-aeriennes-francaises/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/10/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-46-2045-portant-approbation-de-la-convention-conclue-avec-la-societe-air-france-pour-lexploitation-des-lignes-aeriennes-francaises/>
 
 En vigueur : 1946-10-31 (date du Journal officiel qui le publie).
 

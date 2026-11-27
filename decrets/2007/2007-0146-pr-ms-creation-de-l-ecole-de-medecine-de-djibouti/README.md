@@ -1,6 +1,6 @@
 # Décret n° 2007-0146/PR/MS portant création de l’Ecole de Médecine de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0146-pr-ms-portant-creation-de-lecole-de-medecine-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0146-pr-ms-portant-creation-de-lecole-de-medecine-de-djibouti/>
 
 En vigueur : 2007-07-15 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ ISMAÏL OMAR GUELLEH
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

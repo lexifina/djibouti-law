@@ -1,6 +1,6 @@
 # Décret n° n°16 décret instituant dans chaque colonie, protectorat où territoire sous mandat une contribution exceptionnelle sur les revenus de plus de 80,000 francs.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 465 du 31/08/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-instituant-dans-chaque-colonie-protectorat-ou-territoire-sous-mandat-une-contribution-exceptionnelle-sur-les-revenus-de-plus-de-80000-francs/>
+Décret · Journal officiel de la République de Djibouti, n° 465 du 31/08/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n16-decret-instituant-dans-chaque-colonie-protectorat-ou-territoire-sous-mandat-une-contribution-exceptionnelle-sur-les-revenus-de-plus-de-80000-francs/>
 
 En vigueur : 1935-08-31 (date du Journal officiel qui le publie).
 
@@ -30,7 +30,7 @@ marcel regnier
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

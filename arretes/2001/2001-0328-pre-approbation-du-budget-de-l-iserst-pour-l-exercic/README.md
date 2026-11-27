@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0328/PRE portant approbation du budget de l’ISERST pour l’exercice 2001.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0328-pre-portant-approbation-du-budget-de-liserst-pour-lexercice-2001/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0328-pre-portant-approbation-du-budget-de-liserst-pour-lexercice-2001/>
 
 En vigueur : 2001-04-30 (date du Journal officiel qui le publie).
 
@@ -26,4 +26,4 @@ ISMAÏL OMAR GUELLEH
 | --- | --- |
 | [art-001.md](art-001.md) | Article 1er |
 | [art-002.md](art-002.md) | Article 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

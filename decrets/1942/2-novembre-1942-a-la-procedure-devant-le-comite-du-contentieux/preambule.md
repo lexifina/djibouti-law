@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art. Ier. Les recours formés par les personnes physiques ou morales devant le Comité du contentieux font l’objet :
 a dans les possessions françaises soumises à l’autorité du Comité national. dune déclaration de recours appuyée d’un exposé au moins sommaire des faits, moyens et conclosions, enregistrée au gouvernement de la colonie ;
 h dans les territoires sous protectorat ou mandat français, d’une déclaration appuyée d’un exposé analogue, enregistrée au siège de la délégation ou de la représentation du Comité national ;

@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0345/PR/MID prescrivant le Ravalement des Façades de la Ville de Djibouti à l’Occasion du 33ème Anniversaire de l’Indépendance.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0345-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-33eme-anniversaire-de-lindependance/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0345-pr-mid-prescrivant-le-ravalement-des-facades-de-la-ville-de-djibouti-a-loccasion-du-33eme-anniversaire-de-lindependance/>
 
 En vigueur : 2010-05-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2014-023/PR/MESR approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2014 de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-023-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-023-pr-mesr-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2014-de-luniversite-de-djibouti/>
 
 En vigueur : 2014-01-15 (date du Journal officiel qui le publie).
 

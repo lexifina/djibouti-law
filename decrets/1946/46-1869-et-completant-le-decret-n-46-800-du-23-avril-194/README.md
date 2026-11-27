@@ -1,6 +1,6 @@
 # Décret n° 46-1869 modifiant et complétant le décret n° 46-800 du 23 avril 1946 relatif à l’indemnisation des pertes et à la reprise des bénéfices résultant de la modification des taux de change dans la zone franc.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1869-modifiant-et-completant-le-decret-n-46-800-du-23-avril-1946-relatif-a-lindemnisation-des-pertes-et-a-la-reprise-des-benefices-resultant-de-la-modification-des-taux-de/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1869-modifiant-et-completant-le-decret-n-46-800-du-23-avril-1946-relatif-a-lindemnisation-des-pertes-et-a-la-reprise-des-benefices-resultant-de-la-modification-des-taux-de/>
 
 En vigueur : 1946-09-30 (date du Journal officiel qui le publie).
 

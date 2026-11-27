@@ -1,6 +1,6 @@
 # Décret n° 92-0020 ‘PR/Ml endantexécutoire la délibération 03/91 du conseil d’’administration de l Office des Postes ’et Télécommunications, portant approbation du budget prévisionnel de l’Office pour l’exercice 1992.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n92-0020-pr-ml-endantexecutoire-la-deliberation-03-91-du-conseil-dadministration-de-l-office-des-postes-et-telecommunications-portant-approbation-du-budget-p/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/decret-n92-0020-pr-ml-endantexecutoire-la-deliberation-03-91-du-conseil-dadministration-de-l-office-des-postes-et-telecommunications-portant-approbation-du-budget-p/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

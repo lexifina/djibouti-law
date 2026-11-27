@@ -1,6 +1,6 @@
 # Loi n° 58/AN/99/4ème L accordant en concession provisoire une parcelle de terrain sise au lotissement Guelleh Batal à la Société d’Éducation et de Promotion Culturelle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-99-4eme-l-accordant-en-concession-provisoire-une-parcelle-de-terrain-sise-au-lotissement-guelleh-batal-a-la-societe-deducation-et-de-promotion-culturelle/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-99-4eme-l-accordant-en-concession-provisoire-une-parcelle-de-terrain-sise-au-lotissement-guelleh-batal-a-la-societe-deducation-et-de-promotion-culturelle/>
 
 En vigueur : 1999-10-31 (date du Journal officiel qui le publie).
 

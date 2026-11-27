@@ -1,6 +1,6 @@
 # Décret n° 2026-055/PR/MI portant publication de la liste des candidats pour les élections présidentielles du 10 avril 2026.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 03 du 16/03/2026 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2026-055-pr-mi-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-10-avril-2026/>
+Décret · Journal officiel de la République de Djibouti, n° 03 du 16/03/2026 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2026-055-pr-mi-portant-publication-de-la-liste-des-candidats-pour-les-elections-presidentielles-du-10-avril-2026/>
 
 En vigueur : 2026-03-17 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

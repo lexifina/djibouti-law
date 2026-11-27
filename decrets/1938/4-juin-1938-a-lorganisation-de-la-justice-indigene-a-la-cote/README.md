@@ -1,6 +1,6 @@
 # Décret n° 4 juin 1938 relatif à l’organisation de la justice indigène à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-juin-1938-relatif-a-lorganisation-de-la-justice-indigene-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-juin-1938-relatif-a-lorganisation-de-la-justice-indigene-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

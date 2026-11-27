@@ -1,6 +1,6 @@
 # Arrêté n° 2019-037/PR/MB portant attribution une parcelle de terrain d’extension au profit de la Société NAKHEL RESORTS DJIBOUTI FZE.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-037-pr-mb-portant-attribution-une-parcelle-de-terrain-dextension-au-profit-de-la-societe-nakhel-resorts-djibouti-fze/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-037-pr-mb-portant-attribution-une-parcelle-de-terrain-dextension-au-profit-de-la-societe-nakhel-resorts-djibouti-fze/>
 
 En vigueur : 2019-02-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Additif n° 970/PERS à l’arrêté n° 732//PERS du 18 juillet 1975 portant délégation de signature, modifiant l’arrêté n° 876/PERS du 1er octobre 1974 et abrogeant l’arrêté n° 23/PERS du 3 janvier 1975.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 10/10/1975 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-970-pers-a-larrete-n-732-pers-du-18-juillet-1975-portant-delegation-de-signature-modifiant-larrete-n-876-pers-du-1er-octobre-1974-et-abrogeant-larret/>
+Additif · Journal officiel de la République de Djibouti, n° 19 du 10/10/1975 · <https://www.journalofficiel.dj/texte-juridique/additif-n-970-pers-a-larrete-n-732-pers-du-18-juillet-1975-portant-delegation-de-signature-modifiant-larrete-n-876-pers-du-1er-octobre-1974-et-abrogeant-larret/>
 
 En vigueur : 1975-10-10 (date du Journal officiel qui le publie).
 

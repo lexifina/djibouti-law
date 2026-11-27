@@ -1,6 +1,6 @@
 # Ordonnance n° 3 relatif à la formule exécutoire des arrêts, jugements, etc.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-3-relatif-a-la-formule-executoire-des-arrets-jugements-etc/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-3-relatif-a-la-formule-executoire-des-arrets-jugements-etc/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

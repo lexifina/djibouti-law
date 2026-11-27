@@ -1,6 +1,6 @@
 # Décret n° 6-479-1936 promulguant dans la colonie le décret du 12 septembre 1936 abrogeant les dispositions du décret du 24 janvier 1935 fixant l’effectif du cadre métropolitain des postes, télégraphes et téléphones détaché à la Côte française des Somalis.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-479-1936-promulguant-dans-la-colonie-le-decret-du-12-septembre-1936-abrogeant-les-dispositions-du-decret-du-24-janvier-1935-fixant-leffectif-du-cadre-metropolitain-des-postes-tel/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-479-1936-promulguant-dans-la-colonie-le-decret-du-12-septembre-1936-abrogeant-les-dispositions-du-decret-du-24-janvier-1935-fixant-leffectif-du-cadre-metropolitain-des-postes-tel/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 
@@ -35,4 +35,4 @@ Robert JARDILLIER.
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

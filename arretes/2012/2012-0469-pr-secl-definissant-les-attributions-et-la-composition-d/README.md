@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0469/PR/SECL définissant les attributions et la composition de la Commission nationale de la Propriété Foncière.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0469-pr-secl-definissant-les-attributions-et-la-composition-de-la-commission-nationale-de-la-propriete-fonciere/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0469-pr-secl-definissant-les-attributions-et-la-composition-de-la-commission-nationale-de-la-propriete-fonciere/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

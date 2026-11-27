@@ -1,6 +1,6 @@
 # Loi n° 56/AN/94/3e L du 18 octobre 1994 portant diverses mesures destinées à faciliter la création des entreprises et des sociétés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 31/10/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-94-3e-l-du-18-octobre-1994-portant-diverses-mesures-destinees-a-faciliter-la-creation-des-entreprises-et-des-societes/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 31/10/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n56-an-94-3e-l-du-18-octobre-1994-portant-diverses-mesures-destinees-a-faciliter-la-creation-des-entreprises-et-des-societes/>
 
 En vigueur : 1994-10-31 (date du Journal officiel qui le publie).
 

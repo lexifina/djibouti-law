@@ -1,8 +1,8 @@
 # Décret n° 2019-013/PR/MERN pris pour l’application de la Loi n° 88/AN/15/7eL portant réglementation des activités des producteurs indépendants d’électricité.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-013-pr-mern-pris-pour-lapplication-de-la-loi-n88-an-15-7el-portant-reglementation-des-activites-des-producteurs-independants-delectricite/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-013-pr-mern-pris-pour-lapplication-de-la-loi-n88-an-15-7el-portant-reglementation-des-activites-des-producteurs-independants-delectricite/>
 
-En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-01-21 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -88,4 +88,4 @@ ISMAÏL OMAR GUELLEH
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
 | [art-035.md](art-035.md) | Article 35 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 2003-0202/PRE portant réglementation des activités économiques des Zones Franches à Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0202-pre-portant-reglementation-des-activites-economiques-des-zones-franches-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0202-pre-portant-reglementation-des-activites-economiques-des-zones-franches-a-djibouti/>
 
 En vigueur : 2003-10-15 (date du Journal officiel qui le publie).
 

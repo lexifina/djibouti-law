@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Artiecle premier. -— Le traitement de parité d’office attribué aux receveurs dé l’enregistrement, des domaines et du timbre en servic aux colonies est fixé de la facon suivante :
 Receveur de be classe………………2.400
 Meceveur de 6 classe anrès deux ans de grade ………….2.500

@@ -1,6 +1,6 @@
 # Arrêté n° 2004-0360/PRE portant approbation du Budget du CERD pour l’Exercice 2004.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2004 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0360-pre-portant-approbation-du-budget-du-cerd-pour-lexercice-2004/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2004 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2004-0360-pre-portant-approbation-du-budget-du-cerd-pour-lexercice-2004/>
 
 En vigueur : 2004-05-30 (date du Journal officiel qui le publie).
 

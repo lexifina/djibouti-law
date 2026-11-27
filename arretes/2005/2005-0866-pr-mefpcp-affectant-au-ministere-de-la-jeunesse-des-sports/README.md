@@ -1,6 +1,6 @@
 # Arrêté n° 2005-0866/PR/MEFPCP Affectant au Ministère de la Jeunesse, des Sports, des Loisirs et du Tourisme, une parcelle de terrain sise Gabode IV.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0866-pr-mefpcp-affectant-au-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme-une-parcelle-de-terrain-sise-gabode-iv/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0866-pr-mefpcp-affectant-au-ministere-de-la-jeunesse-des-sports-des-loisirs-et-du-tourisme-une-parcelle-de-terrain-sise-gabode-iv/>
 
 En vigueur : 2005-12-31 (date du Journal officiel qui le publie).
 

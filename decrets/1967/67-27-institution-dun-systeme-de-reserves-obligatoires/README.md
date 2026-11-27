@@ -1,6 +1,6 @@
 # Décret n° 67-27 portant institution d’un système de réserves obligatoires applicable aux établissements bancaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 01/03/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-67-27-portant-institution-dun-systeme-de-reserves-obligatoires-applicable-aux-etablissements-bancaires/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 01/03/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-67-27-portant-institution-dun-systeme-de-reserves-obligatoires-applicable-aux-etablissements-bancaires/>
 
 En vigueur : 1967-03-01 (date du Journal officiel qui le publie).
 

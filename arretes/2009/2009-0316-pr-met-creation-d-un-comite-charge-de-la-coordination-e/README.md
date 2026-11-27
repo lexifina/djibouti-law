@@ -1,8 +1,8 @@
 # Arrêté n° 2009-0316/PR/MET portant création d’un Comité chargé de la Coordination et du Suivi pour la mise en place du Centre Régional de Formation Maritime.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0316-pr-met-portant-creation-dun-comite-charge-de-la-coordination-et-du-suivi-pour-la-mise-en-place-du-centre-regional-de-formation-maritime/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0316-pr-met-portant-creation-dun-comite-charge-de-la-coordination-et-du-suivi-pour-la-mise-en-place-du-centre-regional-de-formation-maritime/>
 
-En vigueur : 2009-04-19 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2009-04-19 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 85-113/PRE portant création du comité d’organisation de l’assemblée des chefs d’État et de gouvernement de l’IGADD.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 31/12/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-113-pre-portant-creation-du-comite-dorganisation-de-lassemblee-des-chefs-detat-et-de-gouvernement-de-ligadd/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 31/12/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-113-pre-portant-creation-du-comite-dorganisation-de-lassemblee-des-chefs-detat-et-de-gouvernement-de-ligadd/>
 
 En vigueur : 1985-12-31 (date du Journal officiel qui le publie).
 

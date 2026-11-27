@@ -1,6 +1,6 @@
 # Décret n° 5-232-1916 Le Président de la République française,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 232 du 29/02/1916 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-5-232-1916-le-president-de-la-republique-francaise/>
+Décret · Journal officiel de la République de Djibouti, n° 232 du 29/02/1916 · <https://www.journalofficiel.dj/texte-juridique/decret-n-5-232-1916-le-president-de-la-republique-francaise/>
 
 En vigueur : 1916-02-29 (date du Journal officiel qui le publie).
 

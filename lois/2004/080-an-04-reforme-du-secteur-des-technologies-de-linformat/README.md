@@ -1,6 +1,6 @@
 # Loi n° 80/AN/04/5ème L portant Réforme du Secteur des Technologies de l’Information et de la Communication.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/10/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-04-5eme-l-portant-reforme-du-secteur-des-technologies-de-linformation-et-de-la-communication/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 31/10/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-an-04-5eme-l-portant-reforme-du-secteur-des-technologies-de-linformation-et-de-la-communication/>
 
 En vigueur : 2004-10-31 (date du Journal officiel qui le publie).
 
@@ -32,4 +32,4 @@ Le Conseil des Ministres entendu en sa séance du 13 iuillet 2004 :
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

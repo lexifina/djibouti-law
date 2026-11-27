@@ -1,8 +1,8 @@
 # Décret n° 2024-319/PRE portant délivrance de Licence de Fourniture de Service Internet et Data.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret2024-319-pre-portant-delivrance-de-licence-de-fourniture-de-service-internet-et-data/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2024 · <https://www.journalofficiel.dj/texte-juridique/decret2024-319-pre-portant-delivrance-de-licence-de-fourniture-de-service-internet-et-data/>
 
-En vigueur : 2024-12-01 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-12-01 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

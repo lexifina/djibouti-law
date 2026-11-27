@@ -1,6 +1,6 @@
 # Décret n° 2010-0083/PRE fixant les attributions, la composition, les modalités d’organisation et de fonctionnement de la Commission Nationale des Marchés Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 23/05/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0083-pre-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la-commission-nationale-des-marches-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 23/05/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0083-pre-fixant-les-attributions-la-composition-les-modalites-dorganisation-et-de-fonctionnement-de-la-commission-nationale-des-marches-publics/>
 
 En vigueur : 2010-05-23 (date du Journal officiel qui le publie).
 
@@ -55,4 +55,4 @@ ISMAÏL OMAR GUELLEH
 | [art-032.md](art-032.md) | Article 32 |
 | [art-033.md](art-033.md) | Article 33 |
 | [art-034.md](art-034.md) | Article 34 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

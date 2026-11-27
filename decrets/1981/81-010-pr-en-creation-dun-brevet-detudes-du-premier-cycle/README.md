@@ -1,6 +1,6 @@
 # Décret n° 81-010/PR/EN portant création d’un Brevet d’Études du Premier Cycle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 03/01/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-010-pr-en-portant-creation-dun-brevet-detudes-du-premier-cycle/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 03/01/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-010-pr-en-portant-creation-dun-brevet-detudes-du-premier-cycle/>
 
 En vigueur : 1981-01-03 (date du Journal officiel qui le publie).
 

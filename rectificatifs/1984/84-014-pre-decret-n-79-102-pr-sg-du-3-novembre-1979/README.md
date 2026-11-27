@@ -1,6 +1,6 @@
 # Rectificatif n° 84-014/PRE au décret n° 79-102/PR/SG du 3 novembre 1979.
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n84-014-pre-au-decret-n79-102-pr-sg-du-3-novembre-1979/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n84-014-pre-au-decret-n79-102-pr-sg-du-3-novembre-1979/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 175/AN/22/8ème L portant organisation et fonctionnement du Ministère du Commerce et du Tourisme.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-22-8eme-l-portant-organisation-et-fonctionnement-du-ministere-du-commerce-et-du-tourisme/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n175-an-22-8eme-l-portant-organisation-et-fonctionnement-du-ministere-du-commerce-et-du-tourisme/>
 
 En vigueur : 2023-01-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -50,4 +50,4 @@ A ADOPTÉ, EN SA TROISIEME SEANCE PUBLIQUE DU 21/12/2022, LA LOI DONT LA TENEUR 
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
 | [art-024.md](art-024.md) | Article 24 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 64/AN/83/1 ère L portant approbation de quatre conventions internationales concernant la navigation maritime.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 30/09/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-83-1-ere-l-portant-approbation-de-quatre-conventions-internationales-concernant-la-navigation-maritime/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 30/09/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n64-an-83-1-ere-l-portant-approbation-de-quatre-conventions-internationales-concernant-la-navigation-maritime/>
 
 En vigueur : 1983-09-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2025-116/PR/MEFI portant privatisation de la Compagnie Nouvelle de Commerce (CNC).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2025-116-pr-mefi-portant-privatisation-de-la-compagnie-nouvelle-de-commerce-cnc/>
+Décret · Journal officiel de la République de Djibouti, n° 09 du 15/05/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n2025-116-pr-mefi-portant-privatisation-de-la-compagnie-nouvelle-de-commerce-cnc/>
 
 En vigueur : 2025-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

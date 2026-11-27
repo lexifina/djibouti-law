@@ -1,6 +1,6 @@
 # Loi n° 179/AN/17/7ème L portant modification de la loi 159/AN/12/6ème L fixant les redevances de l’Office djiboutien de la propriété Industrielle et commerciale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-17-7eme-l-portant-modification-de-la-loi-159-an-12-6eme-l-fixant-les-redevances-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n179-an-17-7eme-l-portant-modification-de-la-loi-159-an-12-6eme-l-fixant-les-redevances-de-loffice-djiboutien-de-la-propriete-industrielle-et-commerciale/>
 
 En vigueur : 2017-05-31 (date du Journal officiel qui le publie).
 

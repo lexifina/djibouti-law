@@ -1,6 +1,6 @@
 # Arrêté n° 2010-466/PR/MENESUP modifiant l’Arrêté n° 2008-0164/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade Licence et au titre de Diplôme d’études universitaires générales mention « Langues Etrangères Appliquées” “Option Anglais/Français ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-466-pr-menesup-modifiant-larrete-n2008-0164-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-licence-et-au-titre-de-diplome-detudes-universi/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-466-pr-menesup-modifiant-larrete-n2008-0164-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-licence-et-au-titre-de-diplome-detudes-universi/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

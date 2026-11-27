@@ -1,6 +1,6 @@
 # Décret n° 2016-072/PR/MET modifiant le Décret n° 2015-272/PR/MET portant Organisation et Fonctionnement de l’Autorité de l’Aviation Civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-072-pr-met-modifiant-le-decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-072-pr-met-modifiant-le-decret-n2015-272-pr-met-portant-organisation-et-fonctionnement-de-lautorite-de-laviation-civile/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ ISMAÏL OMAR GUELLEH
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
 | [art-023.md](art-023.md) | Article 23 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

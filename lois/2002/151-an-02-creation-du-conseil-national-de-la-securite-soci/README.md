@@ -1,6 +1,6 @@
 # Loi n° 151/AN/02/4ème L portant création du Conseil National de la Sécurité Sociale (C.N.S.S.).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-02-4eme-l-portant-creation-du-conseil-national-de-la-securite-sociale-c-n-s-s/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n151-an-02-4eme-l-portant-creation-du-conseil-national-de-la-securite-sociale-c-n-s-s/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

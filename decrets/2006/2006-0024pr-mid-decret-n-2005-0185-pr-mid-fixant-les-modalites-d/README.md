@@ -1,6 +1,6 @@
 # Décret n° 2006-0024PR/MID modifiant le décret n° 2005-0185/PR/MID fixant les modalités d’organisation du scrutin portant élection des membres des Assemblées Régionales et communales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 22/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0024pr-mid-modifiant-le-decret-n2005-0185-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-portant-election-des-membres-des-assemblees-regionales-et-communales/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 22/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0024pr-mid-modifiant-le-decret-n2005-0185-pr-mid-fixant-les-modalites-dorganisation-du-scrutin-portant-election-des-membres-des-assemblees-regionales-et-communales/>
 
 En vigueur : 2006-02-22 (date du Journal officiel qui le publie).
 
@@ -34,4 +34,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

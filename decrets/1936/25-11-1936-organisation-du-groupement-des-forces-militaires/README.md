@@ -1,6 +1,6 @@
 # Décret n° 25/11/1936 Organisation du groupement des forces militaires stationnées aux colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-25-11-1936-organisation-du-groupement-des-forces-militaires-stationnees-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-25-11-1936-organisation-du-groupement-des-forces-militaires-stationnees-aux-colonies/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

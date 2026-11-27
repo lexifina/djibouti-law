@@ -1,6 +1,6 @@
 # Décret n° 94-0013/PR/MINT relatif au régime de solde des gradés issus des appelés durant les obligations légales de service national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1994 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n94-0013-pr-mint-relatif-au-regime-de-solde-des-grades-issus-des-appeles-durant-les-obligations-legales-de-service-national/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/1994 · <https://www.journalofficiel.dj/texte-juridique/decret-n94-0013-pr-mint-relatif-au-regime-de-solde-des-grades-issus-des-appeles-durant-les-obligations-legales-de-service-national/>
 
 En vigueur : 1994-01-31 (date du Journal officiel qui le publie).
 

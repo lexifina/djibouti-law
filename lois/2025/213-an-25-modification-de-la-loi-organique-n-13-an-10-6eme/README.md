@@ -1,6 +1,6 @@
 # Loi organique n° 213/AN/25/9ème L portant modification de la Loi organique n° 13/AN/10/6ème L modifiant la Loi organique n° 1/AN/92/2ème L relative aux élections.
 
-Loi organique Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 17/02/2026 Â· <https://www.journalofficiel.dj/texte-juridique/loi-organique-n-213-an-25-9eme-l-portant-modification-de-la-loi-organique-n-13-an-10-6eme-l-modifiant-la-loi-organique-n-1-an-92-2eme-l-relative-aux-elections/>
+Loi organique · Journal officiel de la République de Djibouti, n° 02 du 17/02/2026 · <https://www.journalofficiel.dj/texte-juridique/loi-organique-n-213-an-25-9eme-l-portant-modification-de-la-loi-organique-n-13-an-10-6eme-l-modifiant-la-loi-organique-n-1-an-92-2eme-l-relative-aux-elections/>
 
 En vigueur : 2026-02-18 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

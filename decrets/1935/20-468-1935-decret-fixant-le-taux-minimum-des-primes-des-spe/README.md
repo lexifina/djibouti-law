@@ -1,6 +1,6 @@
 # Décret n° 20-468-1935 Décret fixant le taux minimum des primes des spécialistes appartenant à des corps stationnés hors de la métropole.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 468 du 30/11/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-20-468-1935-decret-fixant-le-taux-minimum-des-primes-des-specialistes-appartenant-a-des-corps-stationnes-hors-de-la-metropole/>
+Décret · Journal officiel de la République de Djibouti, n° 468 du 30/11/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-20-468-1935-decret-fixant-le-taux-minimum-des-primes-des-specialistes-appartenant-a-des-corps-stationnes-hors-de-la-metropole/>
 
 En vigueur : 1935-11-30 (date du Journal officiel qui le publie).
 

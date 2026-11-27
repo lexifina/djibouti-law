@@ -1,6 +1,6 @@
 # Décret n° du 16 février 1946 plaçant un inspecteur général météorologiste de 1er classe du Service météorologique colonial dans la position de mission.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-16-fevrier-1946-placant-un-inspecteur-general-meteorologiste-de-1er-classe-du-service-meteorologique-colonial-dans-la-position-de-mission/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-16-fevrier-1946-placant-un-inspecteur-general-meteorologiste-de-1er-classe-du-service-meteorologique-colonial-dans-la-position-de-mission/>
 
 En vigueur : 1946-03-31 (date du Journal officiel qui le publie).
 

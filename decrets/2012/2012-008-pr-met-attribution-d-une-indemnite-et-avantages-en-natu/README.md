@@ -1,8 +1,8 @@
 # Décret n° 2012-008/PR/MET portant attribution d’une indemnité et avantages en nature au Commandant des Gardes-côtes.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-008-pr-met-portant-attribution-dune-indemnite-et-avantages-en-nature-au-commandant-des-gardes-cotes/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-008-pr-met-portant-attribution-dune-indemnite-et-avantages-en-nature-au-commandant-des-gardes-cotes/>
 
-En vigueur : 2012-01-10 (date fixÃ©e par le texte).
+En vigueur : 2012-01-10 (date fixée par le texte).
 
 ## Visas
 

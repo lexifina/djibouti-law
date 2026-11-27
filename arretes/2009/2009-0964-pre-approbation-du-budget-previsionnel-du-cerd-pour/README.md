@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0964/PRE portant approbation du Budget prévisionnel du CERD pour l’année 2010.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0964-pre-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2010/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0964-pre-portant-approbation-du-budget-previsionnel-du-cerd-pour-lannee-2010/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

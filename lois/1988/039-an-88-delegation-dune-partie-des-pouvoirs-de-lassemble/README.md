@@ -1,6 +1,6 @@
 # Loi n° 39/AN/88/2ème L Portant délégation d’une partie des pouvoirs de l’Assemblés nationale à la Commission permanente, jusqu’à l’ouverture de la 2ème session ordinaire de 1988, dite session budgétaire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-88-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassembles-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1988-dite-session/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-88-2eme-l-portant-delegation-dune-partie-des-pouvoirs-de-lassembles-nationale-a-la-commission-permanente-jusqua-louverture-de-la-2eme-session-ordinaire-de-1988-dite-session/>
 
 En vigueur : 1988-06-15 (date du Journal officiel qui le publie).
 

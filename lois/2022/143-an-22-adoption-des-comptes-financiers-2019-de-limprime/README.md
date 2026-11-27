@@ -1,6 +1,6 @@
 # Loi n° 143/AN/22/8ème L portant adoption des comptes financiers 2019 de l’Imprimerie Nationale de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 28/04/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-22-8eme-l-portant-adoption-des-comptes-financiers-2019-de-limprimerie-nationale-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 28/04/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n143-an-22-8eme-l-portant-adoption-des-comptes-financiers-2019-de-limprimerie-nationale-de-djibouti/>
 
 En vigueur : 2022-04-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

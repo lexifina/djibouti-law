@@ -1,8 +1,8 @@
 # Décret n° 2004-0134/PR/MEFPCP modifiant le Décret n° 2004-0085/PR/MEFPP du 06 mai 2004 portant organisation du Ministère de l’Économie, des Finances et de la Planification, chargé de la Privatisation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0134-pr-mefpcp-modifiant-le-decret-n2004-0085-pr-mefpp-du-06-mai-2004-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-priva/>
+Décret · Journal officiel de la République de Djibouti, n° 14 du 31/07/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0134-pr-mefpcp-modifiant-le-decret-n2004-0085-pr-mefpp-du-06-mai-2004-portant-organisation-du-ministere-de-leconomie-des-finances-et-de-la-planification-charge-de-la-priva/>
 
-En vigueur : 2004-07-20 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2004-07-20 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

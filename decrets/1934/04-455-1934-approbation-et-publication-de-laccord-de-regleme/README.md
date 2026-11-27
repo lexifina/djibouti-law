@@ -1,8 +1,8 @@
 # Décret n° 04-455-1934 Approbation et publication de l’accord de règlement des payements commerciaux conclu entre la France et la Roumanie le 11 août 1934.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 455 du 31/10/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-04-455-1934-approbation-et-publication-de-laccord-de-reglement-des-payements-commerciaux-conclu-entre-la-france-et-la-roumanie-le-11-aout-1934/>
+Décret · Journal officiel de la République de Djibouti, n° 455 du 31/10/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-04-455-1934-approbation-et-publication-de-laccord-de-reglement-des-payements-commerciaux-conclu-entre-la-france-et-la-roumanie-le-11-aout-1934/>
 
-En vigueur : 1934-08-20 (date fixÃ©e par le texte).
+En vigueur : 1934-08-20 (date fixée par le texte).
 
 ## Visas
 
@@ -31,6 +31,6 @@ GERMAIN-MARTIN.
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
-| [art-005.md](art-005.md) | Art. 5 — |
+| [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |

@@ -1,8 +1,8 @@
 # Arrêté n° 2014-022/PR/MTRA portant approbation du budget prévisionnel de l’exercice 2014 de l’Agence Nationale de l’Emploi, de la Formation et de l’Insertion Professionnelle (ANEFIP).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-022-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2014-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-022-pr-mtra-portant-approbation-du-budget-previsionnel-de-lexercice-2014-de-lagence-nationale-de-lemploi-de-la-formation-et-de-linsertion-professionnelle-anefip/>
 
-En vigueur : 2014-01-09 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2014-01-09 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

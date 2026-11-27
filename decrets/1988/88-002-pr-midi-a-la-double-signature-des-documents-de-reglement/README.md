@@ -1,6 +1,6 @@
 # Décret n° 88-002/PR/MIDI Relatif à la double signature des documents de règlement de dépenses d’Électricité de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n88-002-pr-midi-relatif-a-la-double-signature-des-documents-de-reglement-de-depenses-delectricite-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/1988 · <https://www.journalofficiel.dj/texte-juridique/decret-n88-002-pr-midi-relatif-a-la-double-signature-des-documents-de-reglement-de-depenses-delectricite-de-djibouti/>
 
 En vigueur : 1988-01-15 (date du Journal officiel qui le publie).
 

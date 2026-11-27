@@ -1,6 +1,6 @@
 # Décret n° n°52 le décret du 10 octabre 1919 relatif aux successions des ressortissants étrangers décédés aux colonies. .
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 277 du 30/11/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n52-le-decret-du-10-octabre-1919-relatif-aux-successions-des-ressortissants-etrangers-decedes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 277 du 30/11/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n52-le-decret-du-10-octabre-1919-relatif-aux-successions-des-ressortissants-etrangers-decedes-aux-colonies/>
 
 En vigueur : 1919-11-30 (date du Journal officiel qui le publie).
 
@@ -24,4 +24,4 @@ stephen pichon
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

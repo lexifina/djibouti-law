@@ -1,6 +1,6 @@
 # Décret n° 93-0044/PRE portant modification du décret n° 93-0037/PRE du 8 avril 1993 fixant les modalités d’organisation de l’élection présidentielle de mai 1993.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 02/05/1993 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n93-0044-pre-portant-modification-du-decret-n-93-0037-pre-du-8-avril-1993-fixant-les-modalites-dorganisation-de-lelection-presidentielle-de-mai-1993/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 02/05/1993 · <https://www.journalofficiel.dj/texte-juridique/decret-n93-0044-pre-portant-modification-du-decret-n-93-0037-pre-du-8-avril-1993-fixant-les-modalites-dorganisation-de-lelection-presidentielle-de-mai-1993/>
 
 En vigueur : 1993-05-02 (date du Journal officiel qui le publie).
 
@@ -28,5 +28,5 @@ Sur proposition du ministre de l’Intérieur et de la Décentralisation.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
+| [art-001.md](art-001.md) | Article premier |
 | [art-002.md](art-002.md) | Art. 2 |

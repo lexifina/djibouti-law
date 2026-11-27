@@ -1,6 +1,6 @@
 # Décret n° 61-369 relatif à l’exercice de la profession de marin à bord des navires immatriculés dans les territoires d’outre-mer de la République.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 30/04/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-61-369-relatif-a-lexercice-de-la-profession-de-marin-a-bord-des-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 30/04/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-61-369-relatif-a-lexercice-de-la-profession-de-marin-a-bord-des-navires-immatricules-dans-les-territoires-doutre-mer-de-la-republique/>
 
 En vigueur : 1961-04-30 (date du Journal officiel qui le publie).
 

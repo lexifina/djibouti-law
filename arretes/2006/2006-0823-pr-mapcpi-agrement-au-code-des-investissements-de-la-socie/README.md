@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0823/PR/MAPCPI portant Agrément au Code des Investissements de la Société “INMA OF DJIBOUTI”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 14/12/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0823-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-inma-of-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 14/12/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0823-pr-mapcpi-portant-agrement-au-code-des-investissements-de-la-societe-inma-of-djibouti/>
 
 En vigueur : 2006-12-14 (date du Journal officiel qui le publie).
 

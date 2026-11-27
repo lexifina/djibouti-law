@@ -1,6 +1,6 @@
 # Décret n° le 13 octobre 1938 portant fixation des indemnités ou prestations auxquelles peut donner droit l’emploi de militaires déplacés pour le maintien de l’ordre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 504 du 30/11/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-octobre-1938-portant-fixation-des-indemnites-ou-prestations-auxquelles-peut-donner-droit-lemploi-de-militaires-deplaces-pour-le-maintien-de-lordre/>
+Décret · Journal officiel de la République de Djibouti, n° 504 du 30/11/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-13-octobre-1938-portant-fixation-des-indemnites-ou-prestations-auxquelles-peut-donner-droit-lemploi-de-militaires-deplaces-pour-le-maintien-de-lordre/>
 
 En vigueur : 1938-11-30 (date du Journal officiel qui le publie).
 

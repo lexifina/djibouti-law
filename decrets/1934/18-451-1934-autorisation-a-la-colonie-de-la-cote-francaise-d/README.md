@@ -1,6 +1,6 @@
 # Décret n° 18-451-1934 Autorisation à la colonie de la Côte francaise des Somalis de passer avec la banque de l’Indochine une convention pour proroger la durée d’un emprunt et contracter un nouveau prêt.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 451 du 30/06/1934 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-451-1934-autorisation-a-la-colonie-de-la-cote-francaise-des-somalis-de-passer-avec-la-banque-de-lindochine-une-convention-pour-proroger-la-duree-dun-emprunt-et-contracter/>
+Décret · Journal officiel de la République de Djibouti, n° 451 du 30/06/1934 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-451-1934-autorisation-a-la-colonie-de-la-cote-francaise-des-somalis-de-passer-avec-la-banque-de-lindochine-une-convention-pour-proroger-la-duree-dun-emprunt-et-contracter/>
 
 En vigueur : 1934-06-30 (date du Journal officiel qui le publie).
 

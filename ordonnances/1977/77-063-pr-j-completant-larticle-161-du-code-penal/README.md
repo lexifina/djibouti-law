@@ -1,6 +1,6 @@
 # Ordonnance n° 77-063/PR/J complétant l’article 161 du code pénal.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 12/12/1977 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-063-pr-j-completant-larticle-161-du-code-penal/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 13 du 12/12/1977 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n77-063-pr-j-completant-larticle-161-du-code-penal/>
 
 En vigueur : 1977-12-12 (date du Journal officiel qui le publie).
 

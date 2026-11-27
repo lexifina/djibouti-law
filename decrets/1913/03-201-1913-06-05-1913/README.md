@@ -1,6 +1,6 @@
 # Décret n° 03-201-1913 06/05/1913
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 201 du 31/07/1913 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-201-1913-06-05-1913/>
+Décret · Journal officiel de la République de Djibouti, n° 201 du 31/07/1913 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-201-1913-06-05-1913/>
 
 En vigueur : 1913-07-31 (date du Journal officiel qui le publie).
 

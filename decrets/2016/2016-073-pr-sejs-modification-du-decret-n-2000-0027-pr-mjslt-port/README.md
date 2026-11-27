@@ -1,6 +1,6 @@
 # Décret n° 2016-073/PR/SEJS portant modification du décret n° 2000-0027/PR/MJSLT portant création d’un Comité National de lutte contre les Drogues.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-073-pr-sejs-portant-modification-du-decret-n2000-0027-pr-mjslt-portant-creation-dun-comite-national-de-lutte-contre-les-drogues/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-073-pr-sejs-portant-modification-du-decret-n2000-0027-pr-mjslt-portant-creation-dun-comite-national-de-lutte-contre-les-drogues/>
 
 En vigueur : 2016-03-31 (date du Journal officiel qui le publie).
 

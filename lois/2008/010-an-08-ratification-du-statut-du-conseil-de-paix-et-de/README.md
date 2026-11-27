@@ -1,6 +1,6 @@
 # Loi n° 10/AN/08/6ème L portant ratification du Statut du Conseil de Paix et de Sécurité Arabe.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-08-6eme-l-portant-ratification-du-statut-du-conseil-de-paix-et-de-securite-arabe/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-08-6eme-l-portant-ratification-du-statut-du-conseil-de-paix-et-de-securite-arabe/>
 
 En vigueur : 2008-06-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 10-343-1925 Emplois réservés aux colonies aux anciens militaires indigènes réformés ou libérés.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 343 du 30/06/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-343-1925-emplois-reserves-aux-colonies-aux-anciens-militaires-indigenes-reformes-ou-liberes/>
+Décret · Journal officiel de la République de Djibouti, n° 343 du 30/06/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-343-1925-emplois-reserves-aux-colonies-aux-anciens-militaires-indigenes-reformes-ou-liberes/>
 
 En vigueur : 1925-06-30 (date du Journal officiel qui le publie).
 

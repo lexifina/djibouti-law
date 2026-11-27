@@ -1,6 +1,6 @@
 # Décret n° 87-052/PR/PM portant création du Conseil National de la Mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 15/09/1987 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n87-052-pr-pm-portant-creation-du-conseil-national-de-la-mer/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 15/09/1987 · <https://www.journalofficiel.dj/texte-juridique/decret-n87-052-pr-pm-portant-creation-du-conseil-national-de-la-mer/>
 
 En vigueur : 1987-09-15 (date du Journal officiel qui le publie).
 

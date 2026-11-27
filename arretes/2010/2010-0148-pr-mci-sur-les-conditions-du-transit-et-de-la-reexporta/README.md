@@ -1,6 +1,6 @@
 # Arrêté n° 2010-0148/PR/MCI portant sur les conditions du transit et de la réexportation des feux d’artifices vers la République du Yémen via les ports et aéroports de la République de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0148-pr-mci-portant-sur-les-conditions-du-transit-et-de-la-reexportation-des-feux-dartifices-vers-la-republique-du-yemen-via-les-ports-et-aeroports-de-la-republique-de-djib/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-0148-pr-mci-portant-sur-les-conditions-du-transit-et-de-la-reexportation-des-feux-dartifices-vers-la-republique-du-yemen-via-les-ports-et-aeroports-de-la-republique-de-djib/>
 
 En vigueur : 2010-03-15 (date du Journal officiel qui le publie).
 

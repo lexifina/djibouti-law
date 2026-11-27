@@ -1,6 +1,6 @@
 # Loi n° 181/AN/17/7ème L portant organisation du Ministère auprès de la Présidence, chargé des investissements.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-17-7eme-l-portant-organisation-du-ministere-aupres-de-la-presidence-charge-des-investissements/>
+Loi · Journal officiel de la République de Djibouti, n° 8 du 30/04/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n181-an-17-7eme-l-portant-organisation-du-ministere-aupres-de-la-presidence-charge-des-investissements/>
 
 En vigueur : 2017-04-30 (date du Journal officiel qui le publie).
 
@@ -79,4 +79,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

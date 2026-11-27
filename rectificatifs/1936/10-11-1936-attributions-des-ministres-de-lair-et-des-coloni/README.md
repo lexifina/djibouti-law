@@ -1,6 +1,6 @@
 # Rectificatif n° 10/11/1936 relatif aux attributions des Ministres de l’air et des colonies en matière d’aéronautique civile dans les colonies et pays de protectorat relevant du Département des colonies. (Rectificatif.)
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 481 du 31/12/1936 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-10-11-1936-relatif-aux-attributions-des-ministres-de-lair-et-des-colonies-en-matiere-daeronautique-civile-dans-les-colonies-et-pays-de-protectorat-relevant-du-departem/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 481 du 31/12/1936 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-10-11-1936-relatif-aux-attributions-des-ministres-de-lair-et-des-colonies-en-matiere-daeronautique-civile-dans-les-colonies-et-pays-de-protectorat-relevant-du-departem/>
 
 En vigueur : 1936-12-31 (date du Journal officiel qui le publie).
 

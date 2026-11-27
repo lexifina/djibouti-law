@@ -1,6 +1,6 @@
 # Décret n° 85-103/PR/AG portant sur la protection de la faune et des fonds sous-marins et modifiant le décret n° 80-062.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 31/10/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-103-pr-ag-portant-sur-la-protection-de-la-faune-et-des-fonds-sous-marins-et-modifiant-le-decret-n-80-062/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 31/10/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-103-pr-ag-portant-sur-la-protection-de-la-faune-et-des-fonds-sous-marins-et-modifiant-le-decret-n-80-062/>
 
 En vigueur : 1985-10-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 90-0109/PR/EN Créant les Brevets de Technicien Supérieur, définissant les conditions d’accès à ce diplôme et les conditions de délivrance
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/1990 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n90-0109-pr-en-creant-les-brevets-de-technicien-superieur-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-delivrance/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/1990 · <https://www.journalofficiel.dj/texte-juridique/decret-n90-0109-pr-en-creant-les-brevets-de-technicien-superieur-definissant-les-conditions-dacces-a-ce-diplome-et-les-conditions-de-delivrance/>
 
 En vigueur : 1990-09-30 (date du Journal officiel qui le publie).
 
@@ -50,4 +50,4 @@ HASSAN GOULED APTIDON
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

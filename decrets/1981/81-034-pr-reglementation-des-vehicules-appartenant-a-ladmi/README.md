@@ -1,6 +1,6 @@
 # Décret n° 81-034/PR portant règlementation des véhicules appartenant à l’Administration et aux Établissements Publics.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-034-pr-portant-reglementation-des-vehicules-appartenant-a-ladministration-et-aux-etablissements-publics/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-034-pr-portant-reglementation-des-vehicules-appartenant-a-ladministration-et-aux-etablissements-publics/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

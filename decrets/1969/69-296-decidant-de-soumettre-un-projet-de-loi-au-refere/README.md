@@ -1,6 +1,6 @@
 # Décret n° 69-296 décidant de soumettre un projet de loi au référendum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 21/04/1969 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-296-decidant-de-soumettre-un-projet-de-loi-au-referendum/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 21/04/1969 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-296-decidant-de-soumettre-un-projet-de-loi-au-referendum/>
 
 En vigueur : 1969-04-21 (date du Journal officiel qui le publie).
 

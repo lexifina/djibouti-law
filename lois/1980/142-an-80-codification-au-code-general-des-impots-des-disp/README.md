@@ -1,6 +1,6 @@
 # Loi n° 142/AN/80 portant codification au Code général des Impôts des dispositions régissant l’impôt général de solidarité sur les revenus et les bénéfices.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-80-portant-codification-au-code-general-des-impots-des-dispositions-regissant-limpot-general-de-solidarite-sur-les-revenus-et-les-benefices/>
+Loi · Journal officiel de la République de Djibouti, n° 6 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n142-an-80-portant-codification-au-code-general-des-impots-des-dispositions-regissant-limpot-general-de-solidarite-sur-les-revenus-et-les-benefices/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

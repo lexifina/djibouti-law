@@ -1,6 +1,6 @@
 # Décret n° 2004-0223/PR/MJAPM réglementant la profession d’assistants de Maadoun Al-Chari.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2004 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0223-pr-mjapm-reglementant-la-profession-dassistants-de-maadoun-al-chari/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2004 · <https://www.journalofficiel.dj/texte-juridique/decret-n2004-0223-pr-mjapm-reglementant-la-profession-dassistants-de-maadoun-al-chari/>
 
 En vigueur : 2004-12-15 (date du Journal officiel qui le publie).
 

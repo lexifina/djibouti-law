@@ -1,6 +1,6 @@
 # Décret n° n°43 le décret du 20 octobre 1923 (inséré) qui approuve le compte définitif des recettes et des dépenses de la Côte française des Somalis (exercice 1922)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 324 du 30/11/1923 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n43-le-decret-du-20-octobre-1923-insere-qui-approuve-le-compte-definitif-des-recettes-et-des-depenses-de-la-cote-francaise-des-somalis-exercice-1922/>
+Décret · Journal officiel de la République de Djibouti, n° 324 du 30/11/1923 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n43-le-decret-du-20-octobre-1923-insere-qui-approuve-le-compte-definitif-des-recettes-et-des-depenses-de-la-cote-francaise-des-somalis-exercice-1922/>
 
 En vigueur : 1923-11-30 (date du Journal officiel qui le publie).
 

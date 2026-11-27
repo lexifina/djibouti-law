@@ -1,6 +1,6 @@
 # Décret n° 18/09/1937 18/09/1937
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 491 du 31/10/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-18-09-1937-18-09-1937-2/>
+Décret · Journal officiel de la République de Djibouti, n° 491 du 31/10/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-18-09-1937-18-09-1937-2/>
 
 En vigueur : 1937-10-31 (date du Journal officiel qui le publie).
 

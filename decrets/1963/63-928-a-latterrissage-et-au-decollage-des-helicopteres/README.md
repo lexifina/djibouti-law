@@ -1,6 +1,6 @@
 # Décret n° 63-928 relatif à l’atterrissage et au décollage des hélicoptères dans les territoires d’outremer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1963 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-63-928-relatif-a-latterrissage-et-au-decollage-des-helicopteres-dans-les-territoires-doutremer/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 30/09/1963 · <https://www.journalofficiel.dj/texte-juridique/decret-n-63-928-relatif-a-latterrissage-et-au-decollage-des-helicopteres-dans-les-territoires-doutremer/>
 
 En vigueur : 1963-09-30 (date du Journal officiel qui le publie).
 

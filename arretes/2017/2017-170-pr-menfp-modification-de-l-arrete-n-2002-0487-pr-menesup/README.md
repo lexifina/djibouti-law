@@ -1,6 +1,6 @@
 # Arrêté n° 2017-170/PR/MENFP portant modification de l’Arrêté n° 2002- 0487/PR/MENESUP portant création d’une Commission Nationale pour l’Education, la Science et la Culture (CNESC).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-170-pr-menfp-portant-modification-de-larrete-n2002-0487-pr-menesup-portant-creation-dune-commission-nationale-pour-leducation-la-science-et-la-culture-cnesc/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-170-pr-menfp-portant-modification-de-larrete-n2002-0487-pr-menesup-portant-creation-dune-commission-nationale-pour-leducation-la-science-et-la-culture-cnesc/>
 
 En vigueur : 2017-11-30 (date du Journal officiel qui le publie).
 

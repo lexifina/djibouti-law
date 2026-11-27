@@ -1,6 +1,6 @@
 # Décret n° 71-145 modifiant et complé- tant le décret n° 67-27 du 9 janvier 1967 portant institution d’un système de réserves obligatoires applicable aux établissements ‘bancaires (J.O.R.F. du 24 février 1971, p. 1865). Fpromulgué par arrêté n° 275/SLAG du 10 mai 1971].
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 25/05/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-71-145-modifiant-et-comple-tant-le-decret-n-67-27-du-9-janvier-1967-portant-institution-dun-systeme-de-reserves-obligatoires-applicable-aux-etablissements-ba/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 25/05/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-71-145-modifiant-et-comple-tant-le-decret-n-67-27-du-9-janvier-1967-portant-institution-dun-systeme-de-reserves-obligatoires-applicable-aux-etablissements-ba/>
 
 En vigueur : 1971-05-25 (date du Journal officiel qui le publie).
 
@@ -28,5 +28,5 @@ Vu l'avis du Conseil national du crédit ;
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-002.md](art-002.md) | Art. 2 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-002.md](art-002.md) | Art. 2 |
+| [preambule.md](preambule.md) | Préambule |

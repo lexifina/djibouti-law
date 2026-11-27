@@ -1,8 +1,8 @@
 # Arrêté n° 2003-0275/PR/MCCPT portant règlement des dettes de l’ex OPT.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2003 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0275-pr-mccpt-portant-reglement-des-dettes-de-lex-opt/>
+Arrêté · Journal officiel de la République de Djibouti, n° 7 du 15/04/2003 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2003-0275-pr-mccpt-portant-reglement-des-dettes-de-lex-opt/>
 
-En vigueur : 2003-04-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-04-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

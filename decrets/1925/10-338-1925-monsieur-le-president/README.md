@@ -1,6 +1,6 @@
 # Décret n° 10-338-1925 Monsieur le Président,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 338 du 31/01/1925 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-338-1925-monsieur-le-president/>
+Décret · Journal officiel de la République de Djibouti, n° 338 du 31/01/1925 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-338-1925-monsieur-le-president/>
 
 En vigueur : 1925-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 52-935 Réglementant lès obligations professionnelles des médecins, chirurgiens-dentistes et sages-femmes diplômées des écoles de médecine et de pharmacie de Dakar, Tananarive et Pondichéry
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 01/12/1952 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-52-935-reglementant-les-obligations-professionnelles-des-medecins-chirurgiens-dentistes-et-sages-femmes-diplomees-des-ecoles-de-medecine-et-de-pharmacie-de-dakar-tananarive-et-pondic/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 01/12/1952 · <https://www.journalofficiel.dj/texte-juridique/decret-n-52-935-reglementant-les-obligations-professionnelles-des-medecins-chirurgiens-dentistes-et-sages-femmes-diplomees-des-ecoles-de-medecine-et-de-pharmacie-de-dakar-tananarive-et-pondic/>
 
 En vigueur : 1952-12-01 (date du Journal officiel qui le publie).
 

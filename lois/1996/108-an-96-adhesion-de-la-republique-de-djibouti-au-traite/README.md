@@ -1,6 +1,6 @@
 # Loi n° 108/AN/96/3e L portant adhésion de la République de Djibouti au Traité de Non Prolifération (TNP) des armes nucléaires.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1996 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-96-3e-l-portant-adhesion-de-la-republique-de-djibouti-au-traite-de-non-proliferation-tnp-des-armes-nucleaires/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1996 · <https://www.journalofficiel.dj/texte-juridique/loi-n108-an-96-3e-l-portant-adhesion-de-la-republique-de-djibouti-au-traite-de-non-proliferation-tnp-des-armes-nucleaires/>
 
 En vigueur : 1996-06-15 (date du Journal officiel qui le publie).
 

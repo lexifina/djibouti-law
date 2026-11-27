@@ -1,6 +1,6 @@
 # Décret n° 46-1614 modifiant le décret n° 46-236 du 18 février 1946 déter minant les dispositions spéciales prises en faveur des fonctionnaires de différents cadres dépendant du Ministre de la France d’outre-mer ayant dû quitter leur emploi par suite d’événements de guerre.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1614-modifiant-le-decret-n-46-236-du-18-fevrier-1946-deter-minant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-de-differents-cadres-dependant-du-ministre-de/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-46-1614-modifiant-le-decret-n-46-236-du-18-fevrier-1946-deter-minant-les-dispositions-speciales-prises-en-faveur-des-fonctionnaires-de-differents-cadres-dependant-du-ministre-de/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

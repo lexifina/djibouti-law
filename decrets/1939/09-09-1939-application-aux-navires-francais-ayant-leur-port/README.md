@@ -1,6 +1,6 @@
 # Décret n° 09/09/1939 portant application aux navires français ayant leur port d’attache dans les colonies et les territoires sous mandat, des dispositions du décret du 6 juin 1939 modifiant le code disciplinaire et pénal de la marine marchande.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-09-1939-portant-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-les-territoires-sous-mandat-des-dispositions-du-decret-du-6-juin-1939-modifi/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-09-1939-portant-application-aux-navires-francais-ayant-leur-port-dattache-dans-les-colonies-et-les-territoires-sous-mandat-des-dispositions-du-decret-du-6-juin-1939-modifi/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 

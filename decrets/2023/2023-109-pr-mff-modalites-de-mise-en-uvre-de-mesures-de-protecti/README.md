@@ -1,6 +1,6 @@
 # Décret n° 2023-109/PR/MFF relatif aux modalités de mise en œuvre de mesures de protection et de prévention des mineurs sur les dangers en ligne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-109-pr-mff-relatif-aux-modalites-de-mise-en-oeuvre-de-mesures-de-protection-et-de-prevention-des-mineurs-sur-les-dangers-en-ligne/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-109-pr-mff-relatif-aux-modalites-de-mise-en-oeuvre-de-mesures-de-protection-et-de-prevention-des-mineurs-sur-les-dangers-en-ligne/>
 
 En vigueur : 2023-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

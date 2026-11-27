@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 TITRE I
 Des rangs et préséances
 SECTION PREMIÈRE

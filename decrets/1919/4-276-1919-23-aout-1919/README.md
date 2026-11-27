@@ -1,6 +1,6 @@
 # Décret n° 4-276-1919 le 23 août 1919.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 276 du 31/10/1919 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-276-1919-le-23-aout-1919/>
+Décret · Journal officiel de la République de Djibouti, n° 276 du 31/10/1919 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-276-1919-le-23-aout-1919/>
 
 En vigueur : 1919-10-31 (date du Journal officiel qui le publie).
 

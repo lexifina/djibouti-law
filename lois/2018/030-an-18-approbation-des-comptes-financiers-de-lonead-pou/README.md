@@ -1,6 +1,6 @@
 # Loi n° 30/AN/18/8ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2016.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2019 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-18-8eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2016/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2019 · <https://www.journalofficiel.dj/texte-juridique/loi-n30-an-18-8eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2016/>
 
 En vigueur : 2019-07-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

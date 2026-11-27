@@ -1,6 +1,6 @@
 # Décret n° n° 49-374 lé décret n° 49-374 du 20 mars 1949..
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1949 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-49-374-le-decret-n-49-374-du-20-mars-1949/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 31/03/1949 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-49-374-le-decret-n-49-374-du-20-mars-1949/>
 
 En vigueur : 1949-03-31 (date du Journal officiel qui le publie).
 
@@ -32,6 +32,6 @@ André MORICE.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1 — |
+| [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |

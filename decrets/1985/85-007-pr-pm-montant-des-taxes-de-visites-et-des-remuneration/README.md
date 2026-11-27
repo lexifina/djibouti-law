@@ -1,6 +1,6 @@
 # Décret n° 85-007/PR/PM fixant le montant des taxes de visites et des rémunérations d’expert pour la délivrance et le renouvellement des titres de sécurité des navires
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1985 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n85-007-pr-pm-fixant-le-montant-des-taxes-de-visites-et-des-remunerations-dexpert-pour-la-delivrance-et-le-renouvellement-des-titres-de-securite-des-navires/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 31/01/1985 · <https://www.journalofficiel.dj/texte-juridique/decret-n85-007-pr-pm-fixant-le-montant-des-taxes-de-visites-et-des-remunerations-dexpert-pour-la-delivrance-et-le-renouvellement-des-titres-de-securite-des-navires/>
 
 En vigueur : 1985-01-31 (date du Journal officiel qui le publie).
 

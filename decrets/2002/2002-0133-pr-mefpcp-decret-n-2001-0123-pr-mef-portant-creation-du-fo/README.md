@@ -1,6 +1,6 @@
 # Décret n° 2002-0133/PR/MEFPCP modifiant Le décret n° 2001-0123/PR/MEF Portant Création du Fonds de Développement Economique de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0133-pr-mefpcp-modifiant-le-decret-n2001-0123-pr-mef-portant-creation-du-fonds-de-developpement-economique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0133-pr-mefpcp-modifiant-le-decret-n2001-0123-pr-mef-portant-creation-du-fonds-de-developpement-economique-de-djibouti/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

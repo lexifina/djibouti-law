@@ -1,6 +1,6 @@
 # Loi n° 24/AN/88/2e L Accordant des parcelles de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-88-2e-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 31/01/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n24-an-88-2e-l-accordant-des-parcelles-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1988-01-31 (date du Journal officiel qui le publie).
 

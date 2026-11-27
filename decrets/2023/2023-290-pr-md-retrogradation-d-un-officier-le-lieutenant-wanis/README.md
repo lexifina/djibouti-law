@@ -1,6 +1,6 @@
 # Décret n° 2023-290/PR/MD portant rétrogradation d’un officier, le lieutenant Wanis Wahib Mahamoud.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-290-pr-md-portant-retrogradation-dun-officier-le-lieutenant-wanis-wahib-mahamoud-2/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2023-290-pr-md-portant-retrogradation-dun-officier-le-lieutenant-wanis-wahib-mahamoud-2/>
 
 En vigueur : 2023-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

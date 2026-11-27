@@ -1,6 +1,6 @@
 # Décret n° 81-137/PR/MCTT fixant Ic date des élections consuiaires et la répartition des siéges pourvoir entre résidents nationaux et étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/12/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-137-pr-mctt-fixant-ic-date-des-elections-consuiaires-et-la-repartition-des-sieges-pourvoir-entre-residents-nationaux-et-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/12/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-137-pr-mctt-fixant-ic-date-des-elections-consuiaires-et-la-repartition-des-sieges-pourvoir-entre-residents-nationaux-et-etrangers/>
 
 En vigueur : 1981-12-31 (date du Journal officiel qui le publie).
 

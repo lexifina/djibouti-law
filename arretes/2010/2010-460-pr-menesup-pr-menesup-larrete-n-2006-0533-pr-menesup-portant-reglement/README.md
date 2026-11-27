@@ -1,6 +1,6 @@
 # Arrêté n° 2010-460/PR/MENESUP/PR/MENESUP modifiant l’Arrêté n° 2006-0533/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de Licence et au titre de Diplôme d’études universitaires générales mention « Mathématiques Informatique ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2010 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-460-pr-menesup-pr-menesup-modifiant-larrete-n2006-0533-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-de/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2010 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2010-460-pr-menesup-pr-menesup-modifiant-larrete-n2006-0533-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-diplome-de/>
 
 En vigueur : 2010-07-31 (date du Journal officiel qui le publie).
 

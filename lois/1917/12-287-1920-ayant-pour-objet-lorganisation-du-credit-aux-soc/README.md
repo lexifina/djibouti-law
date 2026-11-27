@@ -1,6 +1,6 @@
 # Loi n° 12-287-1920 ayant pour objet l’organisation du crédit aux sociétés coopératives de consommation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 287 du 30/09/1920 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-12-287-1920-ayant-pour-objet-lorganisation-du-credit-aux-societes-cooperatives-de-consommation/>
+Loi · Journal officiel de la République de Djibouti, n° 287 du 30/09/1920 · <https://www.journalofficiel.dj/texte-juridique/loi-n-12-287-1920-ayant-pour-objet-lorganisation-du-credit-aux-societes-cooperatives-de-consommation/>
 
 En vigueur : 1920-09-30 (date du Journal officiel qui le publie).
 
@@ -34,7 +34,7 @@ CLÉMENTEL.
 | [art-008.md](art-008.md) | Art. 8 |
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
-| [art-011.md](art-011.md) | Art. 11 — |
+| [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |

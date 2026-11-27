@@ -1,6 +1,6 @@
 # Décret n° 06-466-1935 Approbation du compte définitif du budget local de la Côte française des Somalis pour l’exercice 1933.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 466 du 30/09/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-06-466-1935-approbation-du-compte-definitif-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1933/>
+Décret · Journal officiel de la République de Djibouti, n° 466 du 30/09/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-06-466-1935-approbation-du-compte-definitif-du-budget-local-de-la-cote-francaise-des-somalis-pour-lexercice-1933/>
 
 En vigueur : 1935-09-30 (date du Journal officiel qui le publie).
 

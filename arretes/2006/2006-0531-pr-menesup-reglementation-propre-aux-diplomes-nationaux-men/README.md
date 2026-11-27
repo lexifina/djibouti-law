@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0531/PR/MENESUP portant réglementation propre aux diplômes nationaux menant au grade de licence et au titre de piplôme d’études universitaires générales mention “Biologie géologie”.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0531-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-piplome-detudes-universitaires-generales-mention-bio/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0531-pr-menesup-portant-reglementation-propre-aux-diplomes-nationaux-menant-au-grade-de-licence-et-au-titre-de-piplome-detudes-universitaires-generales-mention-bio/>
 
 En vigueur : 2006-07-31 (date du Journal officiel qui le publie).
 

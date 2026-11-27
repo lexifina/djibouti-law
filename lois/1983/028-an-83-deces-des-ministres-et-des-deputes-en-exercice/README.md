@@ -1,6 +1,6 @@
 # Loi n° 28/AN/83/1ère L relatif au décès des Ministres et des Députés en exercice.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 28/02/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-83-1ere-l-relatif-au-deces-des-ministres-et-des-deputes-en-exercice/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 28/02/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n28-an-83-1ere-l-relatif-au-deces-des-ministres-et-des-deputes-en-exercice/>
 
 En vigueur : 1983-02-28 (date du Journal officiel qui le publie).
 

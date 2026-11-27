@@ -1,8 +1,8 @@
 # Arrêté n° 2005-0486/PR/MERN Portant modification des Tarifs de vente d’Énergie Électrique et des Redevances Accessoires.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0486-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-0486-pr-mern-portant-modification-des-tarifs-de-vente-denergie-electrique-et-des-redevances-accessoires/>
 
-En vigueur : 2005-08-31 (date fixÃ©e par le texte).
+En vigueur : 2005-08-31 (date fixée par le texte).
 
 ## Visas
 

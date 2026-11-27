@@ -1,6 +1,6 @@
 # Loi n° 80-008/PR portant statuts de la Société hôtelière d’Etat de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n80-008-pr-portant-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n80-008-pr-portant-statuts-de-la-societe-hoteliere-detat-de-djibouti/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 
@@ -17,7 +17,7 @@ Le Conseil des Ministres entendu en sa séance du 15 janvier 1980.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 – |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
@@ -26,7 +26,7 @@ Le Conseil des Ministres entendu en sa séance du 15 janvier 1980.
 | [art-009.md](art-009.md) | Art. 9 |
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
-| [art-012.md](art-012.md) | Art. 12 – |
+| [art-012.md](art-012.md) | Art. 12 |
 | [art-013.md](art-013.md) | Art. 13 |
 | [art-014.md](art-014.md) | Art. 14 |
 | [art-015.md](art-015.md) | Art. 15 |
@@ -40,4 +40,4 @@ Le Conseil des Ministres entendu en sa séance du 15 janvier 1980.
 | [art-023.md](art-023.md) | Art. 23 |
 | [art-024.md](art-024.md) | Art. 24 |
 | [art-025.md](art-025.md) | Art. 25 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

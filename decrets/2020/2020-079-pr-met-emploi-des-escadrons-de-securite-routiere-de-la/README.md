@@ -1,8 +1,8 @@
 # Décret n° 2020-079/PR/MET portant emploi des Escadrons de Sécurité Routière de la Gendarmerie Nationale par la Société Djibouti Ports Corridor Road SA.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 14/05/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-079-pr-met-portant-emploi-des-escadrons-de-securite-routiere-de-la-gendarmerie-nationale-par-la-societe-djibouti-ports-corridor-road-sa/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 14/05/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-079-pr-met-portant-emploi-des-escadrons-de-securite-routiere-de-la-gendarmerie-nationale-par-la-societe-djibouti-ports-corridor-road-sa/>
 
-En vigueur : 2020-05-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2020-05-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

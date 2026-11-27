@@ -1,6 +1,6 @@
 # Décret n° 2013-074/PRE portant approbation du Sharehorders Agreement et du Share Purchase Agreement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-074-pre-portant-approbation-du-sharehorders-agreement-et-du-share-purchase-agreement/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-074-pre-portant-approbation-du-sharehorders-agreement-et-du-share-purchase-agreement/>
 
 En vigueur : 2013-04-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 222/AN/17/8ème L portant Code de déontologie des Agents publics.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/06/2018 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-17-8eme-l-portant-code-de-deontologie-des-agents-publics/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 28/06/2018 · <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-17-8eme-l-portant-code-de-deontologie-des-agents-publics/>
 
 En vigueur : 2018-06-29 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -90,4 +90,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

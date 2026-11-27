@@ -1,6 +1,6 @@
 # Décret n° 2010-0055/PR/MDN portant sur les avantages en nature accordés aux Autorités de la Gendarmerie Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0055-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-autorites-de-la-gendarmerie-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0055-pr-mdn-portant-sur-les-avantages-en-nature-accordes-aux-autorites-de-la-gendarmerie-nationale/>
 
 En vigueur : 2010-03-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ VU Le Décret n°2008-0084/PRE du 27 mars 2008 portant nomination des membres du
 | [art-004.md](art-004.md) | Article 4 |
 | [art-005.md](art-005.md) | Article 5 |
 | [art-006.md](art-006.md) | Article 6 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

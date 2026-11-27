@@ -1,6 +1,6 @@
 # Décret n° 51-458 portant publication de la Convention de Berne pour la protection des œuvres littéraires et artistiques, signée le 9 septembre 1886, complétée à Paris le 4 mai 1896, revisée à Berlin le 13 novembre 1908, complétée à Berne le 20 mars 1914, révisée à Rome le 2 juin 1928 et revisée à Bruxelles le 26 juin 1948.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 01/05/1953 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-458-portant-publication-de-la-convention-de-berne-pour-la-protection-des-oeuvres-litteraires-et-artistiques-signee-le-9-septembre-1886-completee-a-paris-le-4-mai-1896-revisee-a-b/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 01/05/1953 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-458-portant-publication-de-la-convention-de-berne-pour-la-protection-des-oeuvres-litteraires-et-artistiques-signee-le-9-septembre-1886-completee-a-paris-le-4-mai-1896-revisee-a-b/>
 
 En vigueur : 1953-05-01 (date du Journal officiel qui le publie).
 

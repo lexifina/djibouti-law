@@ -1,6 +1,6 @@
 # Décret n° 02-420-1931 27 novembre 1931
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 420 du 30/11/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-02-420-1931-27-novembre-1931/>
+Décret · Journal officiel de la République de Djibouti, n° 420 du 30/11/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-02-420-1931-27-novembre-1931/>
 
 En vigueur : 1931-11-30 (date du Journal officiel qui le publie).
 
@@ -42,9 +42,9 @@ Adolphe Lanbry.
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art.2 |
 | [art-003.md](art-003.md) | Art.3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
-| [art-007.md](art-007.md) | Art. 7 — |
+| [art-007.md](art-007.md) | Art. 7 |
 | [art-008.md](art-008.md) | Art. 8 |
-| [art-009.md](art-009.md) | Art. 9 — |
+| [art-009.md](art-009.md) | Art. 9 |

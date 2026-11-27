@@ -1,6 +1,6 @@
 # Décret n° n°2 Le décret portant réglementation des loyers des locaux d’habitation à la Côte française des Somalis,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 488 du 31/07/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-le-decret-portant-reglementation-des-loyers-des-locaux-dhabitation-a-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 488 du 31/07/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n2-le-decret-portant-reglementation-des-loyers-des-locaux-dhabitation-a-la-cote-francaise-des-somalis/>
 
 En vigueur : 1937-07-31 (date du Journal officiel qui le publie).
 

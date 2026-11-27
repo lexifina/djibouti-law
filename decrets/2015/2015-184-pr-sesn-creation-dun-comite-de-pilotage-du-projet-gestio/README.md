@@ -1,6 +1,6 @@
 # Décret n° 2015-184/PR/SESN portant création d’un Comité de Pilotage du Projet Gestion des déchets solides à Balbala.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2015 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2015-184-pr-sesn-portant-creation-dun-comite-de-pilotage-du-projet-gestion-des-dechets-solides-a-balbala/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 30/06/2015 · <https://www.journalofficiel.dj/texte-juridique/decret-n2015-184-pr-sesn-portant-creation-dun-comite-de-pilotage-du-projet-gestion-des-dechets-solides-a-balbala/>
 
 En vigueur : 2015-06-30 (date du Journal officiel qui le publie).
 

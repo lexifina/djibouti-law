@@ -1,6 +1,6 @@
 # Décret n° 16 mai 1936 16 mai 1936
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 475 du 30/06/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1936-16-mai-1936/>
+Décret · Journal officiel de la République de Djibouti, n° 475 du 30/06/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-mai-1936-16-mai-1936/>
 
 En vigueur : 1936-06-30 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 50-399 relative à la francisation du nom patronymique et au prénom des étrangers .
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 31/03/1961 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-50-399-relative-a-la-francisation-du-nom-patronymique-et-au-prenom-des-etrangers/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 31/03/1961 · <https://www.journalofficiel.dj/texte-juridique/loi-n-50-399-relative-a-la-francisation-du-nom-patronymique-et-au-prenom-des-etrangers/>
 
 En vigueur : 1961-03-31 (date du Journal officiel qui le publie).
 

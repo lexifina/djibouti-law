@@ -1,6 +1,6 @@
 # Décret n° 2025-326/PR/MEFI concernant les principes et modalités de mise en œuvre du contrôle qualité de la profession d’expert-comptable en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2025 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-326-pr-mefi-concernant-les-principes-et-modalites-de-mise-en-oeuvre-du-controle-qualite-de-la-profession-dexpert-comptable-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2025 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2025-326-pr-mefi-concernant-les-principes-et-modalites-de-mise-en-oeuvre-du-controle-qualite-de-la-profession-dexpert-comptable-en-republique-de-djibouti/>
 
 En vigueur : 2025-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

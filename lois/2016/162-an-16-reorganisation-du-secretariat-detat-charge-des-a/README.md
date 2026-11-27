@@ -1,6 +1,6 @@
 # Loi n° 162/AN/16/7ème L portant réorganisation du Secrétariat d’Etat chargé des Affaires Sociales.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2017 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-16-7eme-l-portant-reorganisation-du-secretariat-detat-charge-des-affaires-sociales/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2017 · <https://www.journalofficiel.dj/texte-juridique/loi-n162-an-16-7eme-l-portant-reorganisation-du-secretariat-detat-charge-des-affaires-sociales/>
 
 En vigueur : 2017-01-15 (date du Journal officiel qui le publie).
 
@@ -81,4 +81,4 @@ ISMAÏL OMAR GUELLEH
 | [art-019.md](art-019.md) | Article 19 |
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

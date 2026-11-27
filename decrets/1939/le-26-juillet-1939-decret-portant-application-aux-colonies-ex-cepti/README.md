@@ -1,6 +1,6 @@
 # Décret n° le 26 juillet 1939. Décret portant application aux colonies, ex- ception faite des Antilles et de la Réunion, ainsi qu’aux pays de protectorat et aux territoires sous mandat relevant du minis tére des colonies, des dispositions de larti- cle 1‘° du décret du 16 juillet 1936 majo- rant au profit de l’Etat le taux de certaines amendes pénales tel qu’il a été modifié par le décret du 30 octobre 1935.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 514 du 30/09/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-26-juillet-1939-decret-portant-application-aux-colonies-ex-ception-faite-des-antilles-et-de-la-reunion-ainsi-quaux-pays-de-protectorat-et-aux-territoires-sous-mandat-relevant/>
+Décret · Journal officiel de la République de Djibouti, n° 514 du 30/09/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-26-juillet-1939-decret-portant-application-aux-colonies-ex-ception-faite-des-antilles-et-de-la-reunion-ainsi-quaux-pays-de-protectorat-et-aux-territoires-sous-mandat-relevant/>
 
 En vigueur : 1939-09-30 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ Paul Marchandeau.
 | Fichier | Disposition |
 | --- | --- |
 | [art-003.md](art-003.md) | Art. 3 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

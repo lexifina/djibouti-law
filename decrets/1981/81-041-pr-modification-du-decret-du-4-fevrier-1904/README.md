@@ -1,6 +1,6 @@
 # Décret n° 81-041/PR Portant modification du décret du 4 février 1904.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/04/1981 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n81-041-pr-portant-modification-du-decret-du-4-fevrier-1904/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 01/04/1981 · <https://www.journalofficiel.dj/texte-juridique/decret-n81-041-pr-portant-modification-du-decret-du-4-fevrier-1904/>
 
 En vigueur : 1981-04-01 (date du Journal officiel qui le publie).
 

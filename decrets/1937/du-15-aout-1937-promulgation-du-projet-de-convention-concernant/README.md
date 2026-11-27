@@ -1,6 +1,6 @@
 # Décret n° du 15 août 1937. portant promulgation du projet de convention concernant le travail forcé ou obligatoire adopté par la Conférence internationale du travail dans sa quatorzième session tenue à Genève du 10 au 28 juin 1930 (voir Journal officiel de la République française du 19 avril 1937, pages 9346 et suivantes)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 490 du 30/09/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-15-aout-1937-portant-promulgation-du-projet-de-convention-concernant-le-travail-force-ou-obligatoire-adopte-par-la-conference-internationale-du-travail-dans-sa-quatorzieme-session/>
+Décret · Journal officiel de la République de Djibouti, n° 490 du 30/09/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-15-aout-1937-portant-promulgation-du-projet-de-convention-concernant-le-travail-force-ou-obligatoire-adopte-par-la-conference-internationale-du-travail-dans-sa-quatorzieme-session/>
 
 En vigueur : 1937-09-30 (date du Journal officiel qui le publie).
 

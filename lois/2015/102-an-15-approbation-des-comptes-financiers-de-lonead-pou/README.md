@@ -1,6 +1,6 @@
 # Loi n° 102/AN/15/7ème L portant approbation des comptes financiers de l’ONEAD pour l’exercice 2012.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-15-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2012/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n102-an-15-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2012/>
 
 En vigueur : 2015-07-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2018-295/PR/MD portant création d’une Ecole Internationale de Perfectionnement de la Pratique de la Police Judiciaire (EI3PJ)
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-295-pr-md-portant-creation-dune-ecole-internationale-de-perfectionnement-de-la-pratique-de-la-police-judiciaire-ei3pj/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-295-pr-md-portant-creation-dune-ecole-internationale-de-perfectionnement-de-la-pratique-de-la-police-judiciaire-ei3pj/>
 
 En vigueur : 2018-10-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

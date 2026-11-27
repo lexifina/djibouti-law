@@ -1,6 +1,6 @@
 # Loi n° 74-1115 relatif aux fonclusions encourues durant la période d’interception du service postal, ainsi qu’a la prorogation et a la suspension de divers délais (JORE n° 303 du 28 décembre 1974, pages 13121 et 13122) [Arrêté de promulgation n° 145/SLAG du 30 ianvier’ 1075 )
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1975 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-74-1115-relatif-aux-fonclusions-encourues-durant-la-periode-dinterception-du-service-postal-ainsi-qua-la-prorogation-et-a-la-suspension-de-divers-delais-jore-n/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 10/02/1975 · <https://www.journalofficiel.dj/texte-juridique/loi-n-74-1115-relatif-aux-fonclusions-encourues-durant-la-periode-dinterception-du-service-postal-ainsi-qua-la-prorogation-et-a-la-suspension-de-divers-delais-jore-n/>
 
 En vigueur : 1975-02-10 (date du Journal officiel qui le publie).
 

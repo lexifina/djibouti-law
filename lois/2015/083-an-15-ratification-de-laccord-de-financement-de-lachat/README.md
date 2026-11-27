@@ -1,6 +1,6 @@
 # Loi n° 83/AN/15/7ème L portant ratification de l’Accord de financement de l’achat des produits pétroliers raffinés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2015 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-lachat-des-produits-petroliers-raffines/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 15/01/2015 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-15-7eme-l-portant-ratification-de-laccord-de-financement-de-lachat-des-produits-petroliers-raffines/>
 
 En vigueur : 2015-01-15 (date du Journal officiel qui le publie).
 

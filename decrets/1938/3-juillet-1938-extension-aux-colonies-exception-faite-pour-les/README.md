@@ -1,6 +1,6 @@
 # Décret n° 3 juillet 1938 portant extension aux colonies, exception faite pour les Antilles et la Réunion ainsi qu’aux pays de protectorat et aux territoires sous mandat relevant du Ministère des colonies des dispositions de la loi du 5 avril 1937 sur la responsabilité civile des membres de l’enseignement public.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 500 du 31/07/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-juillet-1938-portant-extension-aux-colonies-exception-faite-pour-les-antilles-et-la-reunion-ainsi-quaux-pays-de-protectorat-et-aux-territoires-sous-mandat-relevant-du-ministere-de/>
+Décret · Journal officiel de la République de Djibouti, n° 500 du 31/07/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-juillet-1938-portant-extension-aux-colonies-exception-faite-pour-les-antilles-et-la-reunion-ainsi-quaux-pays-de-protectorat-et-aux-territoires-sous-mandat-relevant-du-ministere-de/>
 
 En vigueur : 1938-07-31 (date du Journal officiel qui le publie).
 

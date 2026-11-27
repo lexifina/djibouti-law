@@ -1,6 +1,6 @@
 # Rectificatif n° 1348 (J.O. CES: du 1er août 1966. n° 8)
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1966 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1348-j-o-ces-du-1er-aout-1966-n-8/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 8 du 01/08/1966 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1348-j-o-ces-du-1er-aout-1966-n-8/>
 
 En vigueur : 1966-08-01 (date du Journal officiel qui le publie).
 

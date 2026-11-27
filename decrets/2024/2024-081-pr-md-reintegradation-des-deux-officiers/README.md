@@ -1,6 +1,6 @@
 # Décret n° 2024-081/PR/MD portant réintégradation des deux officiers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 08 du 30/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2024-081-pr-md-portant-reintegradation-des-deux-officiers/>
+Décret · Journal officiel de la République de Djibouti, n° 08 du 30/04/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2024-081-pr-md-portant-reintegradation-des-deux-officiers/>
 
 En vigueur : 2024-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

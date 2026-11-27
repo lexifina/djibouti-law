@@ -1,8 +1,8 @@
 # Loi n° 165/AN/22/8ème L portant réorganisation de l’Inspection Générale des Finances.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 22/02/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-22-8eme-l-portant-reorganisation-de-linspection-generale-des-finances/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 22/02/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n165-an-22-8eme-l-portant-reorganisation-de-linspection-generale-des-finances/>
 
-En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2023-01-17 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -49,4 +49,4 @@ DONT LA TENEUR SUIT :
 | [art-024.md](art-024.md) | Article 24 |
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

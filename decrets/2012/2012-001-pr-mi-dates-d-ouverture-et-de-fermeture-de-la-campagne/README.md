@@ -1,6 +1,6 @@
 # Décret n° 2012-001/PR/MI fixant les dates d’ouverture et de fermeture de la campagne électorale pour les Elections Régionales et Communales du 20 janvier et 10 février 2012.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2012-001-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/decret-n2012-001-pr-mi-fixant-les-dates-douverture-et-de-fermeture-de-la-campagne-electorale-pour-les-elections-regionales-et-communales-du-20-janvier-et-10-fevrier-2012/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

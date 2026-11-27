@@ -1,6 +1,6 @@
 # Décret n° 09/03/1939 portant approbation du budget spécial sur fonds d’emprunt de la Côte française des Somalis (exercice 1939).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 509 du 30/04/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-09-03-1939-portant-approbation-du-budget-special-sur-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1939/>
+Décret · Journal officiel de la République de Djibouti, n° 509 du 30/04/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-09-03-1939-portant-approbation-du-budget-special-sur-fonds-demprunt-de-la-cote-francaise-des-somalis-exercice-1939/>
 
 En vigueur : 1939-04-30 (date du Journal officiel qui le publie).
 

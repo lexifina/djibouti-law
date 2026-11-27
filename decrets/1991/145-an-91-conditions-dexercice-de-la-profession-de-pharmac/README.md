@@ -1,6 +1,6 @@
 # Décret n° 145/AN/91/2e L relative aux conditions d’exercice de la profession de pharmacien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n145-an-91-2e-l-relative-aux-conditions-dexercice-de-la-profession-de-pharmacien/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/decret-n145-an-91-2e-l-relative-aux-conditions-dexercice-de-la-profession-de-pharmacien/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 
@@ -17,5 +17,5 @@ Vu le decret n°90-128/PRE du 25 novembre 1990 portant remaniement ministerel du
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Article premier — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-001.md](art-001.md) | Article premier |
+| [preambule.md](preambule.md) | Préambule |

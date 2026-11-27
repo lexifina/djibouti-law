@@ -1,6 +1,6 @@
 # Loi n° 94/AN/20/8ème L portant ratification de la Charte de l’organisation de coopération pour l’éducation (OCE).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 29/07/2020 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-20-8eme-l-portant-ratification-de-la-charte-de-lorganisation-de-cooperation-pour-leducation-oce/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 29/07/2020 · <https://www.journalofficiel.dj/texte-juridique/loi-n94-an-20-8eme-l-portant-ratification-de-la-charte-de-lorganisation-de-cooperation-pour-leducation-oce/>
 
 En vigueur : 2020-07-30 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

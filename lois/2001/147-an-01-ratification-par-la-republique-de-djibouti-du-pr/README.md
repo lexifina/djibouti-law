@@ -1,6 +1,6 @@
 # Loi n° 147/AN/01/4ème L portant ratification par la République de Djibouti du Protocole de Cartagena sur la Prévention des Risques Biotechnologiques relatif à la Convention sur la Diversité Biologique.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2001 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-01-4eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-cartagena-sur-la-prevention-des-risques-biotechnologiques-relatif-a-la-convention-sur-la-diversite-biolog/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2001 · <https://www.journalofficiel.dj/texte-juridique/loi-n147-an-01-4eme-l-portant-ratification-par-la-republique-de-djibouti-du-protocole-de-cartagena-sur-la-prevention-des-risques-biotechnologiques-relatif-a-la-convention-sur-la-diversite-biolog/>
 
 En vigueur : 2001-12-31 (date du Journal officiel qui le publie).
 

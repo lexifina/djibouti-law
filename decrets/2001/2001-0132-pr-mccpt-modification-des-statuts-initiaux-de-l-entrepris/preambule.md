@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 «Pendant la période transitoire l’entreprise publique Djibouti Télécom est administré par un Conseil d’Administration composé de neuf (9) membres ainsi reparti :
 – Mr. Mohamed Hassan Abdillahi, Représentant de la Présidence ;
 – Mr. Abdoulkader Dileïta Mohamed, Représentant de la Primature ;

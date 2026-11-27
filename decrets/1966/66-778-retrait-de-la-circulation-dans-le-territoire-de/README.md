@@ -1,6 +1,6 @@
 # Décret n° 66-778 portant retrait de la circulation dans le Territoire de la Côte Française des Somalis des billets du type «banque de l’Indochine »
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 01/12/1966 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-66-778-portant-retrait-de-la-circulation-dans-le-territoire-de-la-cote-francaise-des-somalis-des-billets-du-type-banque-de-lindochine/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 01/12/1966 · <https://www.journalofficiel.dj/texte-juridique/decret-n-66-778-portant-retrait-de-la-circulation-dans-le-territoire-de-la-cote-francaise-des-somalis-des-billets-du-type-banque-de-lindochine/>
 
 En vigueur : 1966-12-01 (date du Journal officiel qui le publie).
 

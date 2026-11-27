@@ -1,6 +1,6 @@
 # Décret n° 98-0040/PRE relatif à la mise en place de la Commission Nationale de Pilotage de la réforme du secteur des Postes et Télécommunications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/1998 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n98-0040-pre-relatif-a-la-mise-en-place-de-la-commission-nationale-de-pilotage-de-la-reforme-du-secteur-des-postes-et-telecommunications/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/1998 · <https://www.journalofficiel.dj/texte-juridique/decret-n98-0040-pre-relatif-a-la-mise-en-place-de-la-commission-nationale-de-pilotage-de-la-reforme-du-secteur-des-postes-et-telecommunications/>
 
 En vigueur : 1998-04-30 (date du Journal officiel qui le publie).
 

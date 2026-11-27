@@ -1,6 +1,6 @@
 # Arrêté n° 2017-203/PR/MAMCBW portant approbation du Budget Prévisionnel du Diwan des Biens Waqfs pour l’exercice 2018.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-203-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-des-biens-waqfs-pour-lexercice-2018/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-203-pr-mamcbw-portant-approbation-du-budget-previsionnel-du-diwan-des-biens-waqfs-pour-lexercice-2018/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

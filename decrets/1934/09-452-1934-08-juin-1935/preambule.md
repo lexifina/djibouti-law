@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er — Le tableau 11 bis annexé au décret du 20 décembre 1903 est complété comme suit :
 « 4e catégorie. — Ajouter : « Côte française des Somalis ».
 Art, 2, — L’alinéa Z du nota faisant suite anu tarif n° 12 est complété comme suit :

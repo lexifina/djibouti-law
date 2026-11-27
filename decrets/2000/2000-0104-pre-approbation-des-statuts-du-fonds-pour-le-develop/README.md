@@ -1,6 +1,6 @@
 # Décret n° 2000-0104/PRE portant approbation des statuts du Fonds pour le Développement Economique de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0104-pre-portant-approbation-des-statuts-du-fonds-pour-le-developpement-economique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0104-pre-portant-approbation-des-statuts-du-fonds-pour-le-developpement-economique-de-djibouti/>
 
 En vigueur : 2000-04-30 (date du Journal officiel qui le publie).
 

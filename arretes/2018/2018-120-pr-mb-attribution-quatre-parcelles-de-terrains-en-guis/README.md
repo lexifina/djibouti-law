@@ -1,6 +1,6 @@
 # Arrêté n° 2018-120/PR/MB portant attribution quatre parcelles de terrains en guise de compensation.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2018 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-120-pr-mb-portant-attribution-quatre-parcelles-de-terrains-en-guise-de-compensation/>
+Arrêté · Journal officiel de la République de Djibouti, n° 15 du 15/08/2018 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2018-120-pr-mb-portant-attribution-quatre-parcelles-de-terrains-en-guise-de-compensation/>
 
 En vigueur : 2018-08-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

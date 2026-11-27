@@ -1,6 +1,6 @@
 # Décret n° du 6 septembre 1938 relatif au financement des marchés de l’Etat et des collectivités publiques passés dans les colonies autres que les Antilles et la Réunion, dans les pays de protectorat et territoires sous mandat du Togo et du Cameroun.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 502 du 30/09/1938 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-6-septembre-1938-relatif-au-financement-des-marches-de-letat-et-des-collectivites-publiques-passes-dans-les-colonies-autres-que-les-antilles-et-la-reunion-dans-les-pays-de-protec/>
+Décret · Journal officiel de la République de Djibouti, n° 502 du 30/09/1938 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-6-septembre-1938-relatif-au-financement-des-marches-de-letat-et-des-collectivites-publiques-passes-dans-les-colonies-autres-que-les-antilles-et-la-reunion-dans-les-pays-de-protec/>
 
 En vigueur : 1938-09-30 (date du Journal officiel qui le publie).
 

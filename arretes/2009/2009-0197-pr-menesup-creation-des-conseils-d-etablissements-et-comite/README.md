@@ -1,6 +1,6 @@
 # Arrêté n° 2009-0197/PR/MENESUP portant création des Conseils d’Etablissements et Comités de Gestion des Etablissements scolaires et réglementant les partenariats avec les Associations des Parents d’Elèves.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2009 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0197-pr-menesup-portant-creation-des-conseils-detablissements-et-comites-de-gestion-des-etablissements-scolaires-et-reglementant-les-partenariats-avec-les-associations-des/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2009 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2009-0197-pr-menesup-portant-creation-des-conseils-detablissements-et-comites-de-gestion-des-etablissements-scolaires-et-reglementant-les-partenariats-avec-les-associations-des/>
 
 En vigueur : 2009-03-15 (date du Journal officiel qui le publie).
 
@@ -47,4 +47,4 @@ ISMAÏL OMAR GUELLEH
 | [art-025.md](art-025.md) | Article 25 |
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

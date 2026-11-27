@@ -1,6 +1,6 @@
 # Arrêté n° 2015-520/PR/MAMCBW portant mise en place du Bureau des Affaires des Pèlerins de Djibouti du Hajj 2015.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-520-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2015/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-520-pr-mamcbw-portant-mise-en-place-du-bureau-des-affaires-des-pelerins-de-djibouti-du-hajj-2015/>
 
 En vigueur : 2015-08-31 (date du Journal officiel qui le publie).
 

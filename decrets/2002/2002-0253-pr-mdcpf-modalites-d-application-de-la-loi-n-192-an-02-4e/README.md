@@ -1,6 +1,6 @@
 # Décret n° 2002-0253/PR/MDCPF Portant modalités d’application de la loi n° 192/AN/02/4ème L du 13/11/2002 Instituant le système de Quota dans les fonctions Electives et dans l’Administration de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0253-pr-mdcpf-portant-modalites-dapplication-de-la-loi-n192-an-02-4eme-l-du-13-11-2002-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-la/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0253-pr-mdcpf-portant-modalites-dapplication-de-la-loi-n192-an-02-4eme-l-du-13-11-2002-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-la/>
 
 En vigueur : 2002-12-15 (date du Journal officiel qui le publie).
 

@@ -1,8 +1,8 @@
 # Décret n° 2016-302/PR/MTRA portant création du statut particulier des ingénieurs et spécialistes en Technologies de l’Information et des Communications de l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2016-302-pr-mtra-portant-creation-du-statut-particulier-des-ingenieurs-et-specialistes-en-technologies-de-linformation-et-des-communications-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 15/11/2016 · <https://www.journalofficiel.dj/texte-juridique/decret-n2016-302-pr-mtra-portant-creation-du-statut-particulier-des-ingenieurs-et-specialistes-en-technologies-de-linformation-et-des-communications-de-letat/>
 
-En vigueur : 2016-11-03 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2016-11-03 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

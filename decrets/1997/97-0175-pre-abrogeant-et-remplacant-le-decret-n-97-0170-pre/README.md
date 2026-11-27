@@ -1,6 +1,6 @@
 # Décret n° 97-0175/PRE abrogeant et remplaçant le décret n° 97-0170/PRE portant publication des listes de candidats et ouverture de la campagne électorale pour les élections législatives du 19 décembre 1997.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 30/12/1997 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n97-0175-pre-abrogeant-et-remplacant-le-decret-n97-0170-pre-portant-publication-des-listes-de-candidats-et-ouverture-de-la-campagne-electorale-pour-les-elections-legislatives-du-19/>
+Décret · Journal officiel de la République de Djibouti, n° 24 du 30/12/1997 · <https://www.journalofficiel.dj/texte-juridique/decret-n97-0175-pre-abrogeant-et-remplacant-le-decret-n97-0170-pre-portant-publication-des-listes-de-candidats-et-ouverture-de-la-campagne-electorale-pour-les-elections-legislatives-du-19/>
 
 En vigueur : 1997-12-30 (date du Journal officiel qui le publie).
 

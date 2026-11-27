@@ -1,6 +1,6 @@
 # Loi n° 65/AN/94/3e L portant création du régime de Zone franche industrielle.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 15/12/1994 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-94-3e-l-portant-creation-du-regime-de-zone-franche-industrielle/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 15/12/1994 · <https://www.journalofficiel.dj/texte-juridique/loi-n65-an-94-3e-l-portant-creation-du-regime-de-zone-franche-industrielle/>
 
 En vigueur : 1994-12-15 (date du Journal officiel qui le publie).
 
@@ -74,4 +74,4 @@ HASSAN GOULED APTIDON.
 | [art-051.md](art-051.md) | Article 51 |
 | [art-052.md](art-052.md) | Article 52 |
 | [art-053.md](art-053.md) | Article 53 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

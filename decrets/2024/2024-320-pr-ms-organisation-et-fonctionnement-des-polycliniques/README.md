@@ -1,6 +1,6 @@
 # Décret n° 2024-320/PR/MS portant organisation et fonctionnement des polycliniques de santé.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-320-pr-ms-portant-organisation-et-fonctionnement-des-polycliniques-de-sante/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-320-pr-ms-portant-organisation-et-fonctionnement-des-polycliniques-de-sante/>
 
 En vigueur : 2024-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-009.md](art-009.md) | Article 9 |
 | [art-010.md](art-010.md) | Article 10 |
 | [art-011.md](art-011.md) | Article 11 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

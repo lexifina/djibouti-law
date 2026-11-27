@@ -1,6 +1,6 @@
 # Loi n° 004/AN/23/9ème L instituant la fonction de l’Audit Interne dans les institutions publiques
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n004-an-23-9eme-l-instituant-la-fonction-de-laudit-interne-dans-les-institutions-publiques/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n004-an-23-9eme-l-instituant-la-fonction-de-laudit-interne-dans-les-institutions-publiques/>
 
 En vigueur : 2023-06-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -52,4 +52,4 @@ A ADOPTÉ, EN SA DEUXIEME SEANCE PUBLIQUE DU 22/05/2023, LA LOI DONT LA TENEUR S
 | [art-026.md](art-026.md) | Article 26 |
 | [art-027.md](art-027.md) | Article 27 |
 | [art-028.md](art-028.md) | Article 28 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

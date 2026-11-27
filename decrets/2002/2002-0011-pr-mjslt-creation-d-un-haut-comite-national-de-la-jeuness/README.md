@@ -1,6 +1,6 @@
 # Décret n° 2002-0011/PR/MJSLT portant création d’un Haut Comité National de la Jeunesse.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0011-pr-mjslt-portant-creation-dun-haut-comite-national-de-la-jeunesse/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0011-pr-mjslt-portant-creation-dun-haut-comite-national-de-la-jeunesse/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2022-326/PR/MI fixant la représentation de la Ville de Djibouti et de chaque région à l’Assemblée Nationale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-326-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-326-pr-mi-fixant-la-representation-de-la-ville-de-djibouti-et-de-chaque-region-a-lassemblee-nationale/>
 
 En vigueur : 2022-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,8 +1,8 @@
 # Décret n° 99-0188/PR/MCC portant organisation de la Direction des Postes et des Télécommunications.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 16/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0188-pr-mcc-portant-organisation-de-la-direction-des-postes-et-des-telecommunications/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 16/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0188-pr-mcc-portant-organisation-de-la-direction-des-postes-et-des-telecommunications/>
 
-En vigueur : 1999-10-09 (date fixÃ©e par le texte).
+En vigueur : 1999-10-09 (date fixée par le texte).
 
 ## Visas
 
@@ -35,4 +35,4 @@ ISMAÏL OMAR GUELLEH
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
 | [art-009.md](art-009.md) | Article 9 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

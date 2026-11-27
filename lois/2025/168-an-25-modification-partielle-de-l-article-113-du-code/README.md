@@ -1,6 +1,6 @@
 # Loi n° 168/AN/25/9ème L portant modification partielle de l’article 113 du Code de Travail.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2025 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-25-9eme-l-portant-modification-partielle-de-larticle-113-du-code-de-travail/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2025 · <https://www.journalofficiel.dj/texte-juridique/loi-n168-an-25-9eme-l-portant-modification-partielle-de-larticle-113-du-code-de-travail/>
 
 En vigueur : 2025-07-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

@@ -1,6 +1,6 @@
 # Décret n° 62-362 modifiant le décret n° 57-598 du 13 mai 1957 fixant les règles de l’air, les attributions et le rôle des services civils de la circulation aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1962 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-62-362-modifiant-le-decret-n-57-598-du-13-mai-1957-fixant-les-regles-de-lair-les-attributions-et-le-role-des-services-civils-de-la-circulation-aerienne/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1962 · <https://www.journalofficiel.dj/texte-juridique/decret-n-62-362-modifiant-le-decret-n-57-598-du-13-mai-1957-fixant-les-regles-de-lair-les-attributions-et-le-role-des-services-civils-de-la-circulation-aerienne/>
 
 En vigueur : 1962-08-31 (date du Journal officiel qui le publie).
 

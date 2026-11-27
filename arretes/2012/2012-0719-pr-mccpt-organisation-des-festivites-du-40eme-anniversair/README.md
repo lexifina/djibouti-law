@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0719/PR/MCCPT portant Organisation des Festivités du 40ème Anniversaire de la Transcription du Somali.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0719-pr-mccpt-portant-organisation-des-festivites-du-40eme-anniversaire-de-la-transcription-du-somali/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0719-pr-mccpt-portant-organisation-des-festivites-du-40eme-anniversaire-de-la-transcription-du-somali/>
 
 En vigueur : 2012-12-15 (date du Journal officiel qui le publie).
 

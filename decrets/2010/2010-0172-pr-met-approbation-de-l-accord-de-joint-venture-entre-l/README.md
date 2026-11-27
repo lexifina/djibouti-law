@@ -1,6 +1,6 @@
 # Décret n° 2010-0172/PR/MET portant approbation de l’Accord de Joint-Venture entre le Ministère de l’Equipement et des Transports et la Société “Gulf Auto Link General Trading Compagny Dubai”.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2010 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0172-pr-met-portant-approbation-de-laccord-de-joint-venture-entre-le-ministere-de-lequipement-et-des-transports-et-la-societe-gulf-auto-link-general-trad/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 15/09/2010 · <https://www.journalofficiel.dj/texte-juridique/decret-n2010-0172-pr-met-portant-approbation-de-laccord-de-joint-venture-entre-le-ministere-de-lequipement-et-des-transports-et-la-societe-gulf-auto-link-general-trad/>
 
 En vigueur : 2010-09-15 (date du Journal officiel qui le publie).
 

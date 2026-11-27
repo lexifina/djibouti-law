@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0221/PR/MET relatif à l’établissement d’une Commission d’enquête administrative et technique portant sur l’accident d’aéronef survenu dans les eaux territoriales le 17 mars 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0221-pr-met-relatif-a-letablissement-dune-commission-denquete-administrative-et-technique-portant-sur-laccident-daeronef-survenu-dans-le/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0221-pr-met-relatif-a-letablissement-dune-commission-denquete-administrative-et-technique-portant-sur-laccident-daeronef-survenu-dans-le/>
 
 En vigueur : 2002-03-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 21 janvier 1937 MAGISTRATURE COLONIALE.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 483 du 28/02/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-21-janvier-1937-magistrature-coloniale/>
+Décret · Journal officiel de la République de Djibouti, n° 483 du 28/02/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-21-janvier-1937-magistrature-coloniale/>
 
 En vigueur : 1937-02-28 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2008-0001/PR/MID fixant la date d’ouverture et de fermeture de la campaqne électorale pour les élections législatives du 08 Février 2008.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 08/01/2008 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0001-pr-mid-fixant-la-date-douverture-et-de-fermeture-de-la-campaqne-electorale-pour-les-elections-legislatives-du-08-fevrier-2008/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 08/01/2008 · <https://www.journalofficiel.dj/texte-juridique/decret-n2008-0001-pr-mid-fixant-la-date-douverture-et-de-fermeture-de-la-campaqne-electorale-pour-les-elections-legislatives-du-08-fevrier-2008/>
 
 En vigueur : 2008-01-08 (date du Journal officiel qui le publie).
 

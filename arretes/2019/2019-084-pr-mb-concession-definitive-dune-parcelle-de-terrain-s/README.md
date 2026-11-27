@@ -1,6 +1,6 @@
 # Arrêté n° 2019-084/PR/MB portant la concession définitive d’une parcelle de terrain sise Plateau du Serpent.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-084-pr-mb-portant-la-concession-definitive-dune-parcelle-de-terrain-sise-plateau-du-serpent/>
+Arrêté · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-084-pr-mb-portant-la-concession-definitive-dune-parcelle-de-terrain-sise-plateau-du-serpent/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

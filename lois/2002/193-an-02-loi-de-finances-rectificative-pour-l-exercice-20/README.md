@@ -1,6 +1,6 @@
 # Loi n° 193/AN/02/4ème L Portant Loi de Finances rectificative pour l’exercice 2002.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-02-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2002/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-02-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2002/>
 
 En vigueur : 2002-12-31 (date du Journal officiel qui le publie).
 
@@ -39,4 +39,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

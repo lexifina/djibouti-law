@@ -1,8 +1,8 @@
 # Décret n° 2024-248/PR/MJC portant règlementation des archives publiques et privées en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 18 du 30/09/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-248-pr-mjc-portant-reglementation-des-archives-publiques-et-privees-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 18 du 30/09/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-248-pr-mjc-portant-reglementation-des-archives-publiques-et-privees-en-republique-de-djibouti/>
 
-En vigueur : 2024-09-30 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2024-09-30 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 
@@ -59,4 +59,4 @@ ISMAÏL OMAR GUELLEH
 | [art-028.md](art-028.md) | Article 28 |
 | [art-029.md](art-029.md) | Article 29 |
 | [art-030.md](art-030.md) | Article 30 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

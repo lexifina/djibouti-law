@@ -1,6 +1,6 @@
 # Arrêté n° 2016-012/PR/MEFI approbation et rendant exécutoire le Budget prévisionnel de l’Exercice 2016 du Fonds de Développement Economique de Djibouti (FDED).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-012-pr-mefi-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-du-fonds-de-developpement-economique-de-djibouti-fded/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-012-pr-mefi-approbation-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2016-du-fonds-de-developpement-economique-de-djibouti-fded/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

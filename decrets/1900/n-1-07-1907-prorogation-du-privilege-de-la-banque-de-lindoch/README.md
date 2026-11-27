@@ -1,6 +1,6 @@
 # Décret n° 1-07-1907 portant prorogation du privilège de la Banque de l’Indochine et approuvant les modifications apportées aux statuts de cet établissement.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 128 du 01/07/1907 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1-07-1907-portant-prorogation-du-privilege-de-la-banque-de-lindochine-et-approuvant-les-modifications-apportees-aux-statuts-de-cet-etablissement/>
+Décret · Journal officiel de la République de Djibouti, n° 128 du 01/07/1907 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1-07-1907-portant-prorogation-du-privilege-de-la-banque-de-lindochine-et-approuvant-les-modifications-apportees-aux-statuts-de-cet-etablissement/>
 
 En vigueur : 1907-07-01 (date du Journal officiel qui le publie).
 

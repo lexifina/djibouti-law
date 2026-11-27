@@ -1,6 +1,6 @@
 # Décret n° 74-152 relatif à la profession d’avocat dans les territoires de la Nouvelle-Calédonie, de la Polynésie française et dans le territoire Français des Afars et des Issas.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 25/03/1974 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-74-152-relatif-a-la-profession-davocat-dans-les-territoires-de-la-nouvelle-caledonie-de-la-polynesie-francaise-et-dans-le-territoire-francais-des-afars-et-des-issas/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 25/03/1974 · <https://www.journalofficiel.dj/texte-juridique/decret-n-74-152-relatif-a-la-profession-davocat-dans-les-territoires-de-la-nouvelle-caledonie-de-la-polynesie-francaise-et-dans-le-territoire-francais-des-afars-et-des-issas/>
 
 En vigueur : 1974-03-25 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ Le Conseil d'Etat (section de l’intérieur) entendu,
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-003.md](art-003.md) | Art. 3 |
+| [art-004.md](art-004.md) | Art. 4 |

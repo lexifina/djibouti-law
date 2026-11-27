@@ -1,6 +1,6 @@
 # Loi n° 124/AN/16/7ème L portant approbation des Comptes Financiers de l’ONEAD pour l’exercice 2013.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 29/02/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-16-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2013/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 29/02/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n124-an-16-7eme-l-portant-approbation-des-comptes-financiers-de-lonead-pour-lexercice-2013/>
 
 En vigueur : 2016-02-29 (date du Journal officiel qui le publie).
 

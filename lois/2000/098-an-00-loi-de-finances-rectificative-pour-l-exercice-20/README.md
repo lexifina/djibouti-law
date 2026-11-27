@@ -1,6 +1,6 @@
 # Loi n° 98/AN/00/4ème L portant loi de Finances rectificative pour l’exercice 2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2000 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-00-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2000 · <https://www.journalofficiel.dj/texte-juridique/loi-n98-an-00-4eme-l-portant-loi-de-finances-rectificative-pour-lexercice-2000/>
 
 En vigueur : 2000-08-15 (date du Journal officiel qui le publie).
 

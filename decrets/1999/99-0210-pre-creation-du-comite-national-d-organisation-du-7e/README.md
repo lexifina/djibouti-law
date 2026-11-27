@@ -1,6 +1,6 @@
 # Décret n° 99-0210/PRE portant création du Comité National d’Organisation du 7ème Sommet Ordinaire des Chefs d’État et de Gouvernements de l’IGAD du 15 au 25 novembre 1999.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0210-pre-portant-creation-du-comite-national-dorganisation-du-7eme-sommet-ordinaire-des-chefs-detat-et-de-gouvernements-de-ligad-du-15-au-25-novembre-1999/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0210-pre-portant-creation-du-comite-national-dorganisation-du-7eme-sommet-ordinaire-des-chefs-detat-et-de-gouvernements-de-ligad-du-15-au-25-novembre-1999/>
 
 En vigueur : 1999-10-31 (date du Journal officiel qui le publie).
 

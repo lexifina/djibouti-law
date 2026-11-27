@@ -1,6 +1,6 @@
 # Loi n° 39/AN/24/9ème L portant adoption des comptes financiers 2020 de l’ISSS.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 09 du 15/05/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-24-9eme-l-portant-adoption-des-comptes-financiers-2020-de-lisss/>
+Loi · Journal officiel de la République de Djibouti, n° 09 du 15/05/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n39-an-24-9eme-l-portant-adoption-des-comptes-financiers-2020-de-lisss/>
 
 En vigueur : 2024-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

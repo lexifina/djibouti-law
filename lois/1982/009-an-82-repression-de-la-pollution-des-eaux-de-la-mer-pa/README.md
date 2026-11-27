@@ -1,6 +1,6 @@
 # Loi n° 9/AN/82 portant répression de la pollution des eaux de la mer par les hydrocarbures.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-82-portant-repression-de-la-pollution-des-eaux-de-la-mer-par-les-hydrocarbures/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n9-an-82-portant-repression-de-la-pollution-des-eaux-de-la-mer-par-les-hydrocarbures/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 2009-0101/PR/MEFPP portant transfert de propriété des droits accordés par le décret n°2006-0127/PR/MEFPC au profit de Cheik Ahmed Ben Rached Al Makthoum.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/2009 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0101-pr-mefpp-portant-transfert-de-proprit-des-droits-accords-par-le-dcret-n2006-0127-pr-mefpc-au-profit-de-cheik-ahmed-ben-rached-al-makthoum/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 31/05/2009 · <https://www.journalofficiel.dj/texte-juridique/decret-n2009-0101-pr-mefpp-portant-transfert-de-proprit-des-droits-accords-par-le-dcret-n2006-0127-pr-mefpc-au-profit-de-cheik-ahmed-ben-rached-al-makthoum/>
 
 En vigueur : 2009-05-31 (date du Journal officiel qui le publie).
 

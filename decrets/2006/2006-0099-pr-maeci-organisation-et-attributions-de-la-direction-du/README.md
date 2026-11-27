@@ -1,6 +1,6 @@
 # Décret n° 2006-0099/PR/MAECI portant organisation et attributions de la Direction du Protocole d’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 15/04/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0099-pr-maeci-portant-organisation-et-attributions-de-la-direction-du-protocole-detat/>
+Décret · Journal officiel de la République de Djibouti, n° 7 du 15/04/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0099-pr-maeci-portant-organisation-et-attributions-de-la-direction-du-protocole-detat/>
 
 En vigueur : 2006-04-15 (date du Journal officiel qui le publie).
 

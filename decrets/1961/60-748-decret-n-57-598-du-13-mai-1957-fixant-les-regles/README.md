@@ -1,6 +1,6 @@
 # Décret n° 60-748 modifiant le décret n° 57-598 du 13 mai 1957 fixant les règles de l’air, les attributions et le rôle des services civils de la circulation aérienne.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/05/1961 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-60-748-modifiant-le-decret-n-57-598-du-13-mai-1957-fixant-les-regles-de-lair-les-attributions-et-le-role-des-services-civils-de-la-circulation-aerienne/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/05/1961 · <https://www.journalofficiel.dj/texte-juridique/decret-n-60-748-modifiant-le-decret-n-57-598-du-13-mai-1957-fixant-les-regles-de-lair-les-attributions-et-le-role-des-services-civils-de-la-circulation-aerienne/>
 
 En vigueur : 1961-05-31 (date du Journal officiel qui le publie).
 
@@ -23,4 +23,4 @@ Robert BüRrox.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |

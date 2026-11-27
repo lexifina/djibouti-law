@@ -1,6 +1,6 @@
 # Loi n° 222/AN/86/1re L Fixant la date d’ouverture et la durée de la 2ème session ordinaire de 1986 dite « Session Budgétaire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 15/12/1986 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-86-1re-l-fixant-la-date-douverture-et-la-duree-de-la-2eme-session-ordinaire-de-1986-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 15/12/1986 · <https://www.journalofficiel.dj/texte-juridique/loi-n222-an-86-1re-l-fixant-la-date-douverture-et-la-duree-de-la-2eme-session-ordinaire-de-1986-dite-session-budgetaire/>
 
 En vigueur : 1986-12-15 (date du Journal officiel qui le publie).
 

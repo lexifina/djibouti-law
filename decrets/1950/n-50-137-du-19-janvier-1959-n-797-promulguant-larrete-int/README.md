@@ -1,6 +1,6 @@
 # Décret n° n° 50-137 du 19 janvier 1959, n° 797 promulguant l’arrêté interministériel du 24 juin 1950 fixant le minimum des fonds disponibles des caisses de réserve pour la période triennale 1950-1951-1952.,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 01/08/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n-50-137-du-19-janvier-1959-n-797-promulguant-larrete-interministeriel-du-24-juin-1950-fixant-le-minimum-des-fonds-disponibles-des-caisses-de-reserve-pour-la-periode-tr/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 01/08/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n-50-137-du-19-janvier-1959-n-797-promulguant-larrete-interministeriel-du-24-juin-1950-fixant-le-minimum-des-fonds-disponibles-des-caisses-de-reserve-pour-la-periode-tr/>
 
 En vigueur : 1950-08-01 (date du Journal officiel qui le publie).
 

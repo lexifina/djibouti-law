@@ -1,6 +1,6 @@
 # Loi n° 17/AN/87/2e L du 19 novembre 1987 fixant la date d’ouverture et la durée de la 2e session ordinaire 1987 dite «session budgétaire».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/12/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-87-2e-l-du-19-novembre-1987-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-1987-dite-session-budgetaire/>
+Loi · Journal officiel de la République de Djibouti, n° 16 du 31/12/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n17-an-87-2e-l-du-19-novembre-1987-fixant-la-date-douverture-et-la-duree-de-la-2e-session-ordinaire-1987-dite-session-budgetaire/>
 
 En vigueur : 1987-12-31 (date du Journal officiel qui le publie).
 

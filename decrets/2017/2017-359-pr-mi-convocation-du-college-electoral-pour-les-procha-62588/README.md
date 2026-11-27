@@ -1,6 +1,6 @@
 # Décret n° 2017-359/PR/MI portant convocation du collège électoral pour les prochaines échéances législatives.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 29/11/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-359-pr-mi-portant-convocation-du-college-electoral-pour-les-prochaines-echeances-legislatives-2/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 29/11/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-359-pr-mi-portant-convocation-du-college-electoral-pour-les-prochaines-echeances-legislatives-2/>
 
 En vigueur : 2017-11-29 (date du Journal officiel qui le publie).
 

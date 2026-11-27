@@ -1,8 +1,8 @@
 # Décret n° 2003-0071/PR/MESN portant modalité de mise en place opérationnelle de la stratégie d’élaboration de la « Politique Nationale de l’Emploi.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0071-pr-mesn-portant-modalite-de-mise-en-place-operationnelle-de-la-strategie-delaboration-de-la-politique-nationale-de-lemploi/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/05/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0071-pr-mesn-portant-modalite-de-mise-en-place-operationnelle-de-la-strategie-delaboration-de-la-politique-nationale-de-lemploi/>
 
-En vigueur : 2003-05-08 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2003-05-08 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

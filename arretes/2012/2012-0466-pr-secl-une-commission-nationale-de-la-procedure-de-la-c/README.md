@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0466/PR/SECL instituant une Commission Nationale de la procédure de la Cession Amiable.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0466-pr-secl-instituant-une-commission-nationale-de-la-procedure-de-la-cession-amiable/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0466-pr-secl-instituant-une-commission-nationale-de-la-procedure-de-la-cession-amiable/>
 
 En vigueur : 2012-07-31 (date du Journal officiel qui le publie).
 

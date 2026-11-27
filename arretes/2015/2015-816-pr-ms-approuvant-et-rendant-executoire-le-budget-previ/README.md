@@ -1,6 +1,6 @@
 # Arrêté n° 2015-816/PR/MS approuvant et rendant exécutoire le Budget prévisionnel 2016 de l’Hôpital Dar-El-Hanan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2015 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-816-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-dar-el-hanan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2015 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2015-816-pr-ms-approuvant-et-rendant-executoire-le-budget-previsionnel-2016-de-lhopital-dar-el-hanan/>
 
 En vigueur : 2015-12-31 (date du Journal officiel qui le publie).
 

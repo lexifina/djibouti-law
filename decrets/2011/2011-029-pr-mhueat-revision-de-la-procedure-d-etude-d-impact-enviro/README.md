@@ -1,6 +1,6 @@
 # Décret n° 2011-029/PR/MHUEAT portant révision de la procédure d’étude d’impact environnemental.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2011 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2011-029-pr-mhueat-portant-revision-de-la-procedure-detude-dimpact-environnemental/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2011 · <https://www.journalofficiel.dj/texte-juridique/decret-n2011-029-pr-mhueat-portant-revision-de-la-procedure-detude-dimpact-environnemental/>
 
 En vigueur : 2011-02-28 (date du Journal officiel qui le publie).
 
@@ -66,4 +66,4 @@ ISMAÏL OMAR GUELLEH
 | [art-040.md](art-040.md) | Article 40 |
 | [art-041.md](art-041.md) | Article 41 |
 | [art-042.md](art-042.md) | Article 42 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

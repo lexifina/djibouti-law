@@ -1,6 +1,6 @@
 # Loi n° 15/AN/03/5ème L portant approbation des comptes financiers de l’Imprimerie Nationale de Djibouti arrêtés au 31/12/2000.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-03-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arretes-au-31-12-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n15-an-03-5eme-l-portant-approbation-des-comptes-financiers-de-limprimerie-nationale-de-djibouti-arretes-au-31-12-2000/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

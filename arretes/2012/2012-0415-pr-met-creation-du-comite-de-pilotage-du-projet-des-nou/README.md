@@ -1,6 +1,6 @@
 # Arrêté n° 2012-0415/PR/MET portant création du Comité de pilotage du projet des nouveaux chemins de fer.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0415-pr-met-portant-creation-du-comite-de-pilotage-du-projet-des-nouveaux-chemins-de-fer/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-0415-pr-met-portant-creation-du-comite-de-pilotage-du-projet-des-nouveaux-chemins-de-fer/>
 
 En vigueur : 2012-07-15 (date du Journal officiel qui le publie).
 

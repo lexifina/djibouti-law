@@ -1,6 +1,6 @@
 # Décret n° 2024-071/PR/MJDH portant mesures de Grâce Présidentielle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 07 du 15/04/2024 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2024-071-pr-mjdh-portant-mesures-de-grace-presidentielle/>
+Décret · Journal officiel de la République de Djibouti, n° 07 du 15/04/2024 · <https://www.journalofficiel.dj/texte-juridique/decret-n2024-071-pr-mjdh-portant-mesures-de-grace-presidentielle/>
 
 En vigueur : 2024-05-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

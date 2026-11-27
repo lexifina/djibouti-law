@@ -1,6 +1,6 @@
 # Décret n° le 22 janvier 1936 Réalisation, par le Gouvernement de la Côte française des Somalis, d’une 2e tranche de 5 millions, sur l’emprunt de 44 millions.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 471 du 29/02/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-realisation-par-le-gouvernement-de-la-cote-francaise-des-somalis-dune-2e-tranche-de-5-millions-sur-lemprunt-de-44-millions/>
+Décret · Journal officiel de la République de Djibouti, n° 471 du 29/02/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-22-janvier-1936-realisation-par-le-gouvernement-de-la-cote-francaise-des-somalis-dune-2e-tranche-de-5-millions-sur-lemprunt-de-44-millions/>
 
 En vigueur : 1936-02-29 (date du Journal officiel qui le publie).
 

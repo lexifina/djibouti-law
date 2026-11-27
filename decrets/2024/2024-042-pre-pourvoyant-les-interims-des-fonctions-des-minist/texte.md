@@ -1,2 +1,0 @@
-Par décret n°2024-042/PRE, du Président de la République, chef du Gouvernement, en date du 26 février 2024, pendant la durée de l’absence de S.E.M. MOHAMED WARSAMA DIRIEH, l’intérim des fonctions du Ministre du Commerce et du Tourisme sera assuré par S.E.M. ISMAN IBRAHIM ROBLEH, Ministre du Budget cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

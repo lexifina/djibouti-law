@@ -1,6 +1,6 @@
 # Arrêté n° 2013-805/PR/MENSUR portant composition des membres du Conseil d’Administration de l’Institut Supérieur des Sciences de la Santé.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-805-pr-mensur-portant-composition-des-membres-du-conseil-dadministration-de-linstitut-superieur-des-sciences-de-la-sante/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-805-pr-mensur-portant-composition-des-membres-du-conseil-dadministration-de-linstitut-superieur-des-sciences-de-la-sante/>
 
 En vigueur : 2013-12-31 (date du Journal officiel qui le publie).
 

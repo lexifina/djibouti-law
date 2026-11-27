@@ -1,6 +1,6 @@
 # Loi n° 173/AN/12/6ème L portant ratification de la convention de l’Organisation de la Conférence Islamique sur la lutte contre le Terrorisme International.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2012 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-12-6eme-l-portant-ratification-de-la-convention-de-lorganisation-de-la-conference-islamique-sur-la-lutte-contre-le-terrorisme-international/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2012 · <https://www.journalofficiel.dj/texte-juridique/loi-n173-an-12-6eme-l-portant-ratification-de-la-convention-de-lorganisation-de-la-conference-islamique-sur-la-lutte-contre-le-terrorisme-international/>
 
 En vigueur : 2012-10-31 (date du Journal officiel qui le publie).
 

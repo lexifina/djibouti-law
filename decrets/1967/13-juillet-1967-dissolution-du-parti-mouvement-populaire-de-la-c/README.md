@@ -1,6 +1,6 @@
 # Décret n° 13 JUILLET 1967 portant dissolution du Parti Mouvement populaire de la Côte Française des Somalis
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 10/08/1967 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-juillet-1967-portant-dissolution-du-parti-mouvement-populaire-de-la-cote-francaise-des-somalis/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 10/08/1967 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-juillet-1967-portant-dissolution-du-parti-mouvement-populaire-de-la-cote-francaise-des-somalis/>
 
 En vigueur : 1967-08-10 (date du Journal officiel qui le publie).
 

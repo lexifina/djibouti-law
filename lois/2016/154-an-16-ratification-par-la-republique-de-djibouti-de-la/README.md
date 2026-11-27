@@ -1,6 +1,6 @@
 # Loi n° 154/AN/16/7ème L portant ratification par la République de Djibouti de l’Accord de Paris.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2016 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-16-7eme-l-portant-ratification-par-la-republique-de-djibouti-de-laccord-de-paris/>
+Loi · Journal officiel de la République de Djibouti, n° 20 du 31/10/2016 · <https://www.journalofficiel.dj/texte-juridique/loi-n154-an-16-7eme-l-portant-ratification-par-la-republique-de-djibouti-de-laccord-de-paris/>
 
 En vigueur : 2016-10-31 (date du Journal officiel qui le publie).
 

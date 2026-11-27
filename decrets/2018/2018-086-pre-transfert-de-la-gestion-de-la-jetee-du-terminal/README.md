@@ -1,8 +1,8 @@
 # Décret n° 2018-086/PRE portant transfert de la gestion de la jetée du Terminal Pétrolier de Doraleh.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 28/02/2018 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2018-086-pre-portant-transfert-de-la-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh/>
+Décret · Journal officiel de la République de Djibouti, n° 4 du 28/02/2018 · <https://www.journalofficiel.dj/texte-juridique/decret-n2018-086-pre-portant-transfert-de-la-gestion-de-la-jetee-du-terminal-petrolier-de-doraleh/>
 
-En vigueur : 2018-02-22 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2018-02-22 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

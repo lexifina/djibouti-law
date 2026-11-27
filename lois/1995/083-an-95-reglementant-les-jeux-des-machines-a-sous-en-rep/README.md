@@ -1,8 +1,8 @@
 # Loi n° 83/AN/95/3e L réglementant les jeux des machines à sous en République de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 31/05/1995 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-95-3e-l-reglementant-les-jeux-des-machines-a-sous-en-republique-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 31/05/1995 · <https://www.journalofficiel.dj/texte-juridique/loi-n83-an-95-3e-l-reglementant-les-jeux-des-machines-a-sous-en-republique-de-djibouti/>
 
-En vigueur : 1995-05-28 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1995-05-28 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

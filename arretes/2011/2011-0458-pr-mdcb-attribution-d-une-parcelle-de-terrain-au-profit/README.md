@@ -1,6 +1,6 @@
 # Arrêté n° 2011-0458/PR/MDCB portant attribution d’une parcelle de terrain au profit de l’Association des Aveugles.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0458-pr-mdcb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-lassociation-des-aveugles/>
+Arrêté · Journal officiel de la République de Djibouti, n° 12 du 30/06/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-0458-pr-mdcb-portant-attribution-dune-parcelle-de-terrain-au-profit-de-lassociation-des-aveugles/>
 
 En vigueur : 2011-06-30 (date du Journal officiel qui le publie).
 

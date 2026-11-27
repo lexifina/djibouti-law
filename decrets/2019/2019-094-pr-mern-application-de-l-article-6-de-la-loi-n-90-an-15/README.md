@@ -1,6 +1,6 @@
 # Décret n° 2019-094/PR/MERN portant application de l’article 6 de la loi n° 90/AN/15/7ème L relatif aux conditions et modalités d’application de l’audit énergétique obligatoire et périodique en République de Djibouti.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-094-pr-mern-portant-application-de-larticle-6-de-la-loi-n90-an-15-7eme-l-relatif-aux-conditions-et-modalites-dapplication-de-laudit-energetique-obligatoire-et-per/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-094-pr-mern-portant-application-de-larticle-6-de-la-loi-n90-an-15-7eme-l-relatif-aux-conditions-et-modalites-dapplication-de-laudit-energetique-obligatoire-et-per/>
 
 En vigueur : 2019-05-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -44,4 +44,4 @@ ISMAÏL OMAR GUELLEH
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
 | [art-017.md](art-017.md) | Article 17 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

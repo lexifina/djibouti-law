@@ -1,6 +1,6 @@
 # Décret n° n°70 Décret du 19 juillet 1930 fixant les traitements du personnel permanent du contrôle de chemin de fer franco éthiopien
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n70-decret-du-19-juillet-1930-fixant-les-traitements-du-personnel-permanent-du-controle-de-chemin-de-fer-franco-ethiopien/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n70-decret-du-19-juillet-1930-fixant-les-traitements-du-personnel-permanent-du-controle-de-chemin-de-fer-franco-ethiopien/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

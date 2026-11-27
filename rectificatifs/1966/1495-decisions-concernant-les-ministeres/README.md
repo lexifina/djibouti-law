@@ -1,6 +1,6 @@
 # Additif n° 1495 Décisions concernant les Ministères
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1966 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n-1495-decisions-concernant-les-ministeres/>
+Additif · Journal officiel de la République de Djibouti, n° 10 du 01/10/1966 · <https://www.journalofficiel.dj/texte-juridique/additif-n-1495-decisions-concernant-les-ministeres/>
 
 En vigueur : 1966-10-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 25-223-1915 portant approbation de divers décrets prohibant certains produits à la sortie des Colonies et protectorats autres que la Tunisie et le Maroc.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 223 du 31/05/1915 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-25-223-1915-portant-approbation-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
+Loi · Journal officiel de la République de Djibouti, n° 223 du 31/05/1915 · <https://www.journalofficiel.dj/texte-juridique/loi-n-25-223-1915-portant-approbation-de-divers-decrets-prohibant-certains-produits-a-la-sortie-des-colonies-et-protectorats-autres-que-la-tunisie-et-le-maroc/>
 
 En vigueur : 1915-05-31 (date du Journal officiel qui le publie).
 

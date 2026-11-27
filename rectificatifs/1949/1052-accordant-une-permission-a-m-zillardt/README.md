@@ -1,6 +1,6 @@
 # Rectificatif n° 1052 accordant, une permission à M. Zillardt
 
-Rectificatif Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 30/09/1949 Â· <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1052-accordant-une-permission-a-m-zillardt/>
+Rectificatif · Journal officiel de la République de Djibouti, n° 9 du 30/09/1949 · <https://www.journalofficiel.dj/texte-juridique/rectificatif-n-1052-accordant-une-permission-a-m-zillardt/>
 
 En vigueur : 1949-09-30 (date du Journal officiel qui le publie).
 

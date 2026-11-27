@@ -1,6 +1,6 @@
 # Loi n° 196/AN/07/5ème L portant création du Fonds de Solidarité en faveur des orphelins et enfants affectés par le VIH/SIDA.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2007 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-07-5eme-l-portant-creation-du-fonds-de-solidarite-en-faveur-des-orphelins-et-enfants-affectes-par-le-vih-sida/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2007 · <https://www.journalofficiel.dj/texte-juridique/loi-n196-an-07-5eme-l-portant-creation-du-fonds-de-solidarite-en-faveur-des-orphelins-et-enfants-affectes-par-le-vih-sida/>
 
 En vigueur : 2007-07-31 (date du Journal officiel qui le publie).
 

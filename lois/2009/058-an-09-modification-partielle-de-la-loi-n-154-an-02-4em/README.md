@@ -1,6 +1,6 @@
 # Loi n° 58/AN/09/6ème L portant modification partielle de la loi n° 154/AN/02/4ème L du 31 janvier 2002 portant codification du fonctionnement de l’OPS et du régime général de retraite des travailleurs salariés.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 15/08/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-09-6eme-l-portant-modification-partielle-de-la-loi-n154-an-02-4eme-l-du-31-janvier-2002-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite/>
+Loi · Journal officiel de la République de Djibouti, n° 15 du 15/08/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n58-an-09-6eme-l-portant-modification-partielle-de-la-loi-n154-an-02-4eme-l-du-31-janvier-2002-portant-codification-du-fonctionnement-de-lops-et-du-regime-general-de-retraite/>
 
 En vigueur : 2009-08-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2016-032/PR/SEMHUEL portant approbation du Budget prévisionnel pour l’exercice 2016 de la Société Immobilière de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-032-pr-semhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2016-de-la-societe-immobiliere-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-032-pr-semhuel-portant-approbation-du-budget-previsionnel-pour-lexercice-2016-de-la-societe-immobiliere-de-djibouti/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

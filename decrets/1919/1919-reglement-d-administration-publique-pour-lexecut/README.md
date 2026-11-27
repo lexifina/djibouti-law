@@ -1,6 +1,6 @@
 # Décret n° 1919 portant règlement d’administration publique pour l’exécution de la loi du 2 avril 1919 sur les unités de mesure
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 31/08/1946 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1919-portant-reglement-dadministration-publique-pour-lexecution-de-la-loi-du-2-avril-1919-sur-les-unites-de-mesure/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 31/08/1946 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1919-portant-reglement-dadministration-publique-pour-lexecution-de-la-loi-du-2-avril-1919-sur-les-unites-de-mesure/>
 
 En vigueur : 1946-08-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 57/AN/04/5ème L portant ratification de six Conventions de l’OIT et un instrument d’amendement à la constitution de l’OIT.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2004 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-04-5eme-l-portant-ratification-de-six-conventions-de-loit-et-un-instrument-damendement-a-la-constitution-de-loit/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2004 · <https://www.journalofficiel.dj/texte-juridique/loi-n57-an-04-5eme-l-portant-ratification-de-six-conventions-de-loit-et-un-instrument-damendement-a-la-constitution-de-loit/>
 
 En vigueur : 2004-06-30 (date du Journal officiel qui le publie).
 

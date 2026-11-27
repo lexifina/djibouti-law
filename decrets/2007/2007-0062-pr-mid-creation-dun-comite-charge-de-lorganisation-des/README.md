@@ -1,8 +1,8 @@
 # Décret n° 2007-0062/PR/MID portant création d’un Comité chargé de l’organisation des festivités du 30e Anniversaire de l’Indépendance.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2007 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0062-pr-mid-portant-creation-dun-comite-charge-de-lorganisation-des-festivites-du-30e-anniversaire-de-lindependance/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2007 · <https://www.journalofficiel.dj/texte-juridique/decret-n2007-0062-pr-mid-portant-creation-dun-comite-charge-de-lorganisation-des-festivites-du-30e-anniversaire-de-lindependance/>
 
-En vigueur : 2007-03-11 (date fixÃ©e par le texte).
+En vigueur : 2007-03-11 (date fixée par le texte).
 
 ## Visas
 

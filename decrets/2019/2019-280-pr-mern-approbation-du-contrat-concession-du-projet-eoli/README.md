@@ -1,8 +1,8 @@
 # Décret n° 2019-280/PR/MERN portant approbation du contrat concession du projet éolien.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 14/11/2019 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2019-280-pr-mern-portant-approbation-du-contrat-concession-du-projet-eolien/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 14/11/2019 · <https://www.journalofficiel.dj/texte-juridique/decret-n2019-280-pr-mern-portant-approbation-du-contrat-concession-du-projet-eolien/>
 
-En vigueur : 2019-11-05 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2019-11-05 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

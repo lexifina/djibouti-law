@@ -1,6 +1,6 @@
 # Décret n° 2002-0017/PR/MDCBW portant création de la mission officielle du Pèlerinage pour l’année 2002.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0017-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2002/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 31/01/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0017-pr-mdcbw-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2002/>
 
 En vigueur : 2002-01-31 (date du Journal officiel qui le publie).
 

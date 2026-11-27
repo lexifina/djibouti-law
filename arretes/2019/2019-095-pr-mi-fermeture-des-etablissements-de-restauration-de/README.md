@@ -1,6 +1,6 @@
 # Arrêté n° 2019-095/PR/MI portant fermeture des établissements de restauration, de débits de boissons et spectacles pendant la période du Ramadan.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 30/05/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-095-pr-mi-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
+Arrêté · Journal officiel de la République de Djibouti, n° 10 du 30/05/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-095-pr-mi-portant-fermeture-des-etablissements-de-restauration-de-debits-de-boissons-et-spectacles-pendant-la-periode-du-ramadan/>
 
 En vigueur : 2019-05-30 (date du Journal officiel qui le publie).
 

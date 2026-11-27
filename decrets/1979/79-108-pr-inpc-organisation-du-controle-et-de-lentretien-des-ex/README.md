@@ -1,6 +1,6 @@
 # Décret n° 79-108/PR/INPC portant organisation du contrôle et de l’entretien des extincteurs sur le territoire national.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-108-pr-inpc-portant-organisation-du-controle-et-de-lentretien-des-extincteurs-sur-le-territoire-national/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-108-pr-inpc-portant-organisation-du-controle-et-de-lentretien-des-extincteurs-sur-le-territoire-national/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

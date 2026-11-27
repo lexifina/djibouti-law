@@ -1,6 +1,6 @@
 # Décret n° du 20 décembre 1938 mettant les dispositions du régime d’assurance des marins en harmonie avec celles de la législation des accidents du travail à terre et des assurances sociales générales, du 20 décembre 1938
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 510 du 31/05/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-du-20-decembre-1938-mettant-les-dispositions-du-regime-dassurance-des-marins-en-harmonie-avec-celles-de-la-legislation-des-accidents-du-travail-a-terre-et-des-assurances-sociales-gen/>
+Décret · Journal officiel de la République de Djibouti, n° 510 du 31/05/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-du-20-decembre-1938-mettant-les-dispositions-du-regime-dassurance-des-marins-en-harmonie-avec-celles-de-la-legislation-des-accidents-du-travail-a-terre-et-des-assurances-sociales-gen/>
 
 En vigueur : 1939-05-31 (date du Journal officiel qui le publie).
 
@@ -27,8 +27,8 @@ Paul REYNAUD,
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
+| [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
-| [art-006.md](art-006.md) | Art. 6 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-006.md](art-006.md) | Art. 6 |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 01-230-1916 09/12/1903
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 230 du 31/01/1916 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-01-230-1916-09-12-1903/>
+Décret · Journal officiel de la République de Djibouti, n° 230 du 31/01/1916 · <https://www.journalofficiel.dj/texte-juridique/decret-n-01-230-1916-09-12-1903/>
 
 En vigueur : 1916-01-31 (date du Journal officiel qui le publie).
 
@@ -21,6 +21,6 @@ Gaston DOUMERGUE.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1er |
-| [art-002.md](art-002.md) | Art. 2— |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
 | [art-004.md](art-004.md) | Art. 4 |

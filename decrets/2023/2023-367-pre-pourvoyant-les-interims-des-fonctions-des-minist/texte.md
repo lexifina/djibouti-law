@@ -1,2 +1,0 @@
-Par décret n°2023-367/PRE, du Président de la République, chef du Gouvernement, en date du 11 décembre 2023, pendant la durée de l’absence de S.E.M. HASSAN HOUMED IBRAHIM, l’intérim des fonctions du Ministre des Infrastructures et de l’Equipement sera assuré par S.E.M. MOHAMED AHMED AWALEH, Ministre de l’Agriculture, et de l’Eau, de la Pêche, de l’Elevage et des Ressources Halieutiques cumulativement avec ses fonctions.
-Le présent Décret sera publié au Journal Officiel de la République de Djibouti.

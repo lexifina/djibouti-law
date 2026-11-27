@@ -1,8 +1,8 @@
 # Décret n° 2017-349/PR/MENFOP portant création du Cadre Unique modification partielle du Décret n° 89-062/PR/FP du 29 mai 1989 relatif au statut particulier des fonctionnaires.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2017 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2017-349-pr-menfop-portant-creation-du-cadre-unique-modification-partielle-du-decret-n89-062-pr-fp-du-29-mai-1989-relatif-au-statut-particulier-des-fonctionnaires/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2017 · <https://www.journalofficiel.dj/texte-juridique/decret-n2017-349-pr-menfop-portant-creation-du-cadre-unique-modification-partielle-du-decret-n89-062-pr-fp-du-29-mai-1989-relatif-au-statut-particulier-des-fonctionnaires/>
 
-En vigueur : 2017-10-26 (date fixÃ©e par le texte).
+En vigueur : 2017-10-26 (date fixée par le texte).
 
 ## Visas
 

@@ -1,6 +1,6 @@
 # Décret n° 30 juin 1939 relatif au tarif général applicable aux produits originaires de la République Argentine importés dans le colonies françaises
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 512 du 31/07/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-juin-1939-relatif-au-tarif-general-applicable-aux-produits-originaires-de-la-republique-argentine-importes-dans-le-colonies-francaises/>
+Décret · Journal officiel de la République de Djibouti, n° 512 du 31/07/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-juin-1939-relatif-au-tarif-general-applicable-aux-produits-originaires-de-la-republique-argentine-importes-dans-le-colonies-francaises/>
 
 En vigueur : 1939-07-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 1011 relatif au régime des indemnités pour charges de famille du personnel civil et militaire en service dans les colonies et territoires relevant du Commissariat national aux Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 01/09/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-1011-relatif-au-regime-des-indemnites-pour-charges-de-famille-du-personnel-civil-et-militaire-en-service-dans-les-colonies-et-territoires-relevant-du-commissariat-national-aux-colonie/>
+Décret · Journal officiel de la République de Djibouti, n° 17 du 01/09/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-1011-relatif-au-regime-des-indemnites-pour-charges-de-famille-du-personnel-civil-et-militaire-en-service-dans-les-colonies-et-territoires-relevant-du-commissariat-national-aux-colonie/>
 
 En vigueur : 1943-09-01 (date du Journal officiel qui le publie).
 

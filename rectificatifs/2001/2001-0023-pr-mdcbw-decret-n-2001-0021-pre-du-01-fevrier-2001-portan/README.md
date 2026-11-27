@@ -1,6 +1,6 @@
 # Additif n° 2001-0023/PR/MDCBW au décret n° 2001-0021/PRE du 01 février 2001 portant création de la mission officielle du Pèlerinage pour l’année 2001.
 
-Additif Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2001 Â· <https://www.journalofficiel.dj/texte-juridique/additif-n2001-0023-pr-mdcbw-au-decret-n2001-0021-pre-du-01-fevrier-2001-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2001/>
+Additif · Journal officiel de la République de Djibouti, n° 3 du 15/02/2001 · <https://www.journalofficiel.dj/texte-juridique/additif-n2001-0023-pr-mdcbw-au-decret-n2001-0021-pre-du-01-fevrier-2001-portant-creation-de-la-mission-officielle-du-pelerinage-pour-lannee-2001/>
 
 En vigueur : 2001-02-15 (date du Journal officiel qui le publie).
 

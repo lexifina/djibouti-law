@@ -1,6 +1,6 @@
 # Décret n° 69-1141 fixant les règles générales de sécurité auxquelles doivent satisfaire les navires français autres que les navires de plaïsance d’une longueur inférieure à 25 mètres (arrêté de promulgation n° 243/SEJ du 7 avril 1970).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/06/1970 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1141-fixant-les-regles-generales-de-securite-auxquelles-doivent-satisfaire-les-navires-francais-autres-que-les-navires-de-plaisance-dune-longueur-inferieure-a-25-metres-ar/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/06/1970 · <https://www.journalofficiel.dj/texte-juridique/decret-n-69-1141-fixant-les-regles-generales-de-securite-auxquelles-doivent-satisfaire-les-navires-francais-autres-que-les-navires-de-plaisance-dune-longueur-inferieure-a-25-metres-ar/>
 
 En vigueur : 1970-06-01 (date du Journal officiel qui le publie).
 

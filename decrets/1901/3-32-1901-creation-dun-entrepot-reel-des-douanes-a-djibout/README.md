@@ -1,6 +1,6 @@
 # Décret n° 3-32-1901 concernant la création d’un entrepôt réel des Douanes à Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 32 du 01/04/1901 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-3-32-1901-concernant-la-creation-dun-entrepot-reel-des-douanes-a-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 32 du 01/04/1901 · <https://www.journalofficiel.dj/texte-juridique/decret-n-3-32-1901-concernant-la-creation-dun-entrepot-reel-des-douanes-a-djibouti/>
 
 En vigueur : 1901-04-01 (date du Journal officiel qui le publie).
 

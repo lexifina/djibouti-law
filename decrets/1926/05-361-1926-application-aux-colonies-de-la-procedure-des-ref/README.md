@@ -1,6 +1,6 @@
 # Décret n° 05-361-1926 Application aux colonies de la procédure des référés en matière commerciale.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 361 du 31/12/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-05-361-1926-application-aux-colonies-de-la-procedure-des-referes-en-matiere-commerciale/>
+Décret · Journal officiel de la République de Djibouti, n° 361 du 31/12/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-05-361-1926-application-aux-colonies-de-la-procedure-des-referes-en-matiere-commerciale/>
 
 En vigueur : 1926-12-31 (date du Journal officiel qui le publie).
 
@@ -25,5 +25,5 @@ Louis BarrTHouU.
 | Fichier | Disposition |
 | --- | --- |
 | [art-001.md](art-001.md) | Art. 1 |
-| [art-002.md](art-002.md) | Art. 2 — |
+| [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |

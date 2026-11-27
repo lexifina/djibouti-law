@@ -1,6 +1,6 @@
 # Décret n° 16-416-1931 Règlement sur la solde et les allocations accessoires du personnel colonial.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 416 du 31/07/1931 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-16-416-1931-reglement-sur-la-solde-et-les-allocations-accessoires-du-personnel-colonial/>
+Décret · Journal officiel de la République de Djibouti, n° 416 du 31/07/1931 · <https://www.journalofficiel.dj/texte-juridique/decret-n-16-416-1931-reglement-sur-la-solde-et-les-allocations-accessoires-du-personnel-colonial/>
 
 En vigueur : 1931-07-31 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Paul REYNAUD.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Loi n° 236/AN/87/1ère L relative à la profession d’Avocat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 15/02/1987 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n236-an-87-1ere-l-relative-a-la-profession-davocat/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 15/02/1987 · <https://www.journalofficiel.dj/texte-juridique/loi-n236-an-87-1ere-l-relative-a-la-profession-davocat/>
 
 En vigueur : 1987-02-15 (date du Journal officiel qui le publie).
 
@@ -84,4 +84,4 @@ HASSAN GOULED APTIDON
 | [art-061.md](art-061.md) | Article 61 |
 | [art-062.md](art-062.md) | Article 62 |
 | [art-063.md](art-063.md) | Article 63 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

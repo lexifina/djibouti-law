@@ -1,6 +1,6 @@
 # Loi n° 23/AN/08/6ème L portant Budget Rectificatif de l’Etat pour l’exercice 2008.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2008 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-08-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2008/>
+Loi · Journal officiel de la République de Djibouti, n° 23 du 15/12/2008 · <https://www.journalofficiel.dj/texte-juridique/loi-n23-an-08-6eme-l-portant-budget-rectificatif-de-letat-pour-lexercice-2008/>
 
 En vigueur : 2008-12-15 (date du Journal officiel qui le publie).
 

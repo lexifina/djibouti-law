@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0609/PR/MID portant démolition du bâtiment “Vieille Marine” situé sur le Boulevard de la République.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0609-pr-mid-portant-demolition-du-batiment-vieille-marine-situe-sur-le-boulevard-de-la-republique/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0609-pr-mid-portant-demolition-du-batiment-vieille-marine-situe-sur-le-boulevard-de-la-republique/>
 
 En vigueur : 2006-08-31 (date du Journal officiel qui le publie).
 

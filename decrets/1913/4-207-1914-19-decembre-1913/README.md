@@ -1,6 +1,6 @@
 # Décret n° 4-207-1914 19 décembre 1913
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 207 du 31/01/1914 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-207-1914-19-decembre-1913/>
+Décret · Journal officiel de la République de Djibouti, n° 207 du 31/01/1914 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-207-1914-19-decembre-1913/>
 
 En vigueur : 1914-01-31 (date du Journal officiel qui le publie).
 

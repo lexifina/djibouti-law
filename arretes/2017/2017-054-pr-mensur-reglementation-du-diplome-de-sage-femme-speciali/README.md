@@ -1,6 +1,6 @@
 # Arrêté n° 2017-054/PR/MENSUR portant règlementation du Diplôme de Sage-femme Spécialisée en Echographie Obstétricale.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-054-pr-mensur-portant-reglementation-du-diplome-de-sage-femme-specialisee-en-echographie-obstetricale/>
+Arrêté · Journal officiel de la République de Djibouti, n° 5 du 15/03/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-054-pr-mensur-portant-reglementation-du-diplome-de-sage-femme-specialisee-en-echographie-obstetricale/>
 
 En vigueur : 2017-03-15 (date du Journal officiel qui le publie).
 

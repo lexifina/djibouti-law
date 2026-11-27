@@ -1,6 +1,6 @@
 # Décret n° n°9 Décret relatif a la répression de l’usure dans es colonies, pays de protectorat et territoires sous mandat relevant du Ministere des colonies autres que la Guadeloupe, la Martinique et la Réunion
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 480 du 30/11/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n9-decret-relatif-a-la-repression-de-lusure-dans-es-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-mar/>
+Décret · Journal officiel de la République de Djibouti, n° 480 du 30/11/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n9-decret-relatif-a-la-repression-de-lusure-dans-es-colonies-pays-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-autres-que-la-guadeloupe-la-mar/>
 
 En vigueur : 1936-11-30 (date du Journal officiel qui le publie).
 

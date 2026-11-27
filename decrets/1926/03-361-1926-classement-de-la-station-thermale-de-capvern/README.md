@@ -1,6 +1,6 @@
 # Décret n° 03-361-1926 Classement de la station thermale de Capvern.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 361 du 31/12/1926 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-03-361-1926-classement-de-la-station-thermale-de-capvern/>
+Décret · Journal officiel de la République de Djibouti, n° 361 du 31/12/1926 · <https://www.journalofficiel.dj/texte-juridique/decret-n-03-361-1926-classement-de-la-station-thermale-de-capvern/>
 
 En vigueur : 1926-12-31 (date du Journal officiel qui le publie).
 
@@ -19,5 +19,5 @@ léon perrier
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-003.md](art-003.md) | Art. 3 — |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [art-003.md](art-003.md) | Art. 3 |
+| [preambule.md](preambule.md) | Préambule |

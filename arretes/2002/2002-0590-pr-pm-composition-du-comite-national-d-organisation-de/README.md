@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0590/PR/PM portant composition du Comité National d’Organisation des Festivités du 10ème Anniversaire de la Constitution.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 16 du 31/08/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0590-pr-pm-portant-composition-du-comite-national-dorganisation-des-festivites-du-10eme-anniversaire-de-la-constitution/>
+Arrêté · Journal officiel de la République de Djibouti, n° 16 du 31/08/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0590-pr-pm-portant-composition-du-comite-national-dorganisation-des-festivites-du-10eme-anniversaire-de-la-constitution/>
 
 En vigueur : 2002-08-31 (date du Journal officiel qui le publie).
 

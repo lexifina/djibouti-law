@@ -1,6 +1,6 @@
 # Loi n° 193/AN/92/2e L Accordant en concession provisoire des parcelles de terrain sises au Lotissement de Gabode V.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1992 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-92-2e-l-accordant-en-concession-provisoire-des-parcelles-de-terrain-sises-au-lotissement-de-gabode-v/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1992 · <https://www.journalofficiel.dj/texte-juridique/loi-n193-an-92-2e-l-accordant-en-concession-provisoire-des-parcelles-de-terrain-sises-au-lotissement-de-gabode-v/>
 
 En vigueur : 1992-02-15 (date du Journal officiel qui le publie).
 

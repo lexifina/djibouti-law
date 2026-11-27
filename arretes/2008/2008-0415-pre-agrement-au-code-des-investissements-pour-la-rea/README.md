@@ -1,6 +1,6 @@
 # Arrêté n° 2008-0415/PRE portant Agrément au Code des Investissements pour la réalisation d’un projet immobilier à Arta.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2008 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0415-pre-portant-agrement-au-code-des-investissements-pour-la-realisation-dun-projet-immobilier-a-arta/>
+Arrêté · Journal officiel de la République de Djibouti, n° 13 du 15/07/2008 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2008-0415-pre-portant-agrement-au-code-des-investissements-pour-la-realisation-dun-projet-immobilier-a-arta/>
 
 En vigueur : 2008-07-15 (date du Journal officiel qui le publie).
 

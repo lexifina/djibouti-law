@@ -1,6 +1,6 @@
 # Décret n° 28/08/1939 étendant aux colonies les prohibitions de sortie établies dans la métropole.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 515 du 31/10/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-28-08-1939-etendant-aux-colonies-les-prohibitions-de-sortie-etablies-dans-la-metropole/>
+Décret · Journal officiel de la République de Djibouti, n° 515 du 31/10/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-28-08-1939-etendant-aux-colonies-les-prohibitions-de-sortie-etablies-dans-la-metropole/>
 
 En vigueur : 1939-10-31 (date du Journal officiel qui le publie).
 
@@ -50,8 +50,8 @@ C. CAMPINCHI.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er — |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |

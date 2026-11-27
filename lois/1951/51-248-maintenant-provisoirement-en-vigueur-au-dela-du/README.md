@@ -1,6 +1,6 @@
 # Loi n° 51-248 maintenant provisoirement en vigueur au delà du 1er mars 1951 certaines dispositions législatives et réglementaires du temps’ de guerre prorogées par la loi du 28 février 1950
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 01/07/1951 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-51-248-maintenant-provisoirement-en-vigueur-au-dela-du-1er-mars-1951-certaines-dispositions-legislatives-et-reglementaires-du-temps-de-guerre-prorogees-par-la-loi-du-28-fevrier-1950/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 01/07/1951 · <https://www.journalofficiel.dj/texte-juridique/loi-n-51-248-maintenant-provisoirement-en-vigueur-au-dela-du-1er-mars-1951-certaines-dispositions-legislatives-et-reglementaires-du-temps-de-guerre-prorogees-par-la-loi-du-28-fevrier-1950/>
 
 En vigueur : 1951-07-01 (date du Journal officiel qui le publie).
 

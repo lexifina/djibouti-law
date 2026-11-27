@@ -1,6 +1,6 @@
 # Décret n° 79-013/PR/FP portant création d’un corps de l’enseignement public 2e degré.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/07/1979 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-013-pr-fp-portant-creation-dun-corps-de-lenseignement-public-2e-degre/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/07/1979 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-013-pr-fp-portant-creation-dun-corps-de-lenseignement-public-2e-degre/>
 
 En vigueur : 1979-07-10 (date du Journal officiel qui le publie).
 
@@ -45,4 +45,4 @@ LE Conseil des ministres entendu, en sa séance du 6 février 1979.
 | [art-017.md](art-017.md) | Article 17 |
 | [art-018.md](art-018.md) | Article 18 |
 | [art-019.md](art-019.md) | Article 19 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

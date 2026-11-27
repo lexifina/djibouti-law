@@ -1,6 +1,6 @@
 # Loi n° 172/AN/02/4ème L portant approbation des Comptes Financiers de l’Electricité de Djibouti pour l’exercice 2000
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 15/07/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-lelectricite-de-djibouti-pour-lexercice-2000/>
+Loi · Journal officiel de la République de Djibouti, n° 13 du 15/07/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n172-an-02-4eme-l-portant-approbation-des-comptes-financiers-de-lelectricite-de-djibouti-pour-lexercice-2000/>
 
 En vigueur : 2002-07-15 (date du Journal officiel qui le publie).
 

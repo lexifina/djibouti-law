@@ -1,6 +1,6 @@
 # Décret n° 17-230-1915 Les receveurs d’enregistrement et les receveurs des Postes aux Colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 230 du 31/12/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-17-230-1915-les-receveurs-denregistrement-et-les-receveurs-des-postes-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 230 du 31/12/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-17-230-1915-les-receveurs-denregistrement-et-les-receveurs-des-postes-aux-colonies/>
 
 En vigueur : 1915-12-31 (date du Journal officiel qui le publie).
 

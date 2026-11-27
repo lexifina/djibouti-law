@@ -1,6 +1,6 @@
 # Décret n° 79-109/INPC portant organisation et fonctionnement de l’école Hygiène et Sécurité dans le cadre de l’Inspection nationale de la Protection civile.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-109-inpc-portant-organisation-et-fonctionnement-de-lecole-hygiene-et-securite-dans-le-cadre-de-linspection-nationale-de-la-protection-civile/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-109-inpc-portant-organisation-et-fonctionnement-de-lecole-hygiene-et-securite-dans-le-cadre-de-linspection-nationale-de-la-protection-civile/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

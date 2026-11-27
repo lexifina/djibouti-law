@@ -1,6 +1,6 @@
 # Loi n° 10/AN/82 relative aux droits des anciens présidents de la République.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 16/07/1982 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-82-relative-aux-droits-des-anciens-presidents-de-la-republique/>
+Loi · Journal officiel de la République de Djibouti, n° 5 du 16/07/1982 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-82-relative-aux-droits-des-anciens-presidents-de-la-republique/>
 
 En vigueur : 1982-07-16 (date du Journal officiel qui le publie).
 

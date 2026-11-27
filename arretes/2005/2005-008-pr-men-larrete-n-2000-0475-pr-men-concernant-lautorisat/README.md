@@ -1,6 +1,6 @@
 # Arrêté n° 2005-008/PR/MEN modifiant l’arrêté n° 2000-0475/PR/MEN concernant l’autorisation d’ouvrir et de diriger une école privée l’enseignement Fondamental et Secondaire Général dite : « CHAFY ».
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2005 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-008-pr-men-modifiant-larrete-n2000-0475-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-lenseignement-fondamental-et-secondaire-general-dite/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2005 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2005-008-pr-men-modifiant-larrete-n2000-0475-pr-men-concernant-lautorisation-douvrir-et-de-diriger-une-ecole-privee-lenseignement-fondamental-et-secondaire-general-dite/>
 
 En vigueur : 2005-01-15 (date du Journal officiel qui le publie).
 

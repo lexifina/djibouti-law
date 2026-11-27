@@ -1,6 +1,6 @@
 # Ordonnance n° 27 fixant le statut des Offices coloniaux des Changes.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-27-fixant-le-statut-des-offices-coloniaux-des-changes/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-27-fixant-le-statut-des-offices-coloniaux-des-changes/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 
@@ -27,4 +27,4 @@ R. Pleven.
 | Fichier | Disposition |
 | --- | --- |
 | [art-002.md](art-002.md) | Art. 2 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

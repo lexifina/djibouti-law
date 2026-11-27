@@ -1,6 +1,6 @@
 # Décret n° 2022-061/PR/MTFPS portant confirmation.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 23/03/2022 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2022-061-pr-mtfps-portant-confirmation/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 23/03/2022 · <https://www.journalofficiel.dj/texte-juridique/decret-n2022-061-pr-mtfps-portant-confirmation/>
 
 En vigueur : 2022-03-24 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

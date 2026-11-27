@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0054/PR/MCCPT rendant exécutoire la résolution n° 07 du Conseil d’Administration de l’Imprimerie Nationale de Djibouti portant approbation du Projet du Budget Prévisionnel 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0054-pr-mccpt-rendant-executoire-la-resolution-n07-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-pr/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0054-pr-mccpt-rendant-executoire-la-resolution-n07-du-conseil-dadministration-de-limprimerie-nationale-de-djibouti-portant-approbation-du-projet-du-budget-pr/>
 
 En vigueur : 2002-01-15 (date du Journal officiel qui le publie).
 

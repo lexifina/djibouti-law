@@ -1,6 +1,6 @@
 # Arrêté n° 2017-206/PR/MENFOP approuvant et rendant exécutoire le budget prévisionnel de l’exercice 2018 du CFEEF.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-206-pr-menfop-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-du-cfeef/>
+Arrêté · Journal officiel de la République de Djibouti, n° 24 du 31/12/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-206-pr-menfop-approuvant-et-rendant-executoire-le-budget-previsionnel-de-lexercice-2018-du-cfeef/>
 
 En vigueur : 2017-12-31 (date du Journal officiel qui le publie).
 

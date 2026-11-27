@@ -1,6 +1,6 @@
 # Décret n° 2005-0060/PRE réglementant la vente du Kérozène.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 8 du 30/04/2005 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0060-pre-reglementant-la-vente-du-kerozene/>
+Décret · Journal officiel de la République de Djibouti, n° 8 du 30/04/2005 · <https://www.journalofficiel.dj/texte-juridique/decret-n2005-0060-pre-reglementant-la-vente-du-kerozene/>
 
 En vigueur : 2005-04-30 (date du Journal officiel qui le publie).
 

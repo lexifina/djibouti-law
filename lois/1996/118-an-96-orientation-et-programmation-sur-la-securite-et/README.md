@@ -1,6 +1,6 @@
 # Loi n° 118/AN/96/3ème L Portant Orientation et Programmation sur la Sécurité et la Défense.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 30/01/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-96-3eme-l-portant-orientation-et-programmation-sur-la-securite-et-la-defense/>
+Loi · Journal officiel de la République de Djibouti, n° 2 du 30/01/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n118-an-96-3eme-l-portant-orientation-et-programmation-sur-la-securite-et-la-defense/>
 
 En vigueur : 1997-01-30 (date du Journal officiel qui le publie).
 

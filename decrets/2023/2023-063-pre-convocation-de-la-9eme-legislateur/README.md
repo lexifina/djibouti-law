@@ -1,6 +1,6 @@
 # Décret n° 2023-063/PRE portant convocation de la 9ème Législateur
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 15/03/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2023-063-pre-portant-convocation-de-la-9eme-legislateur/>
+Décret · Journal officiel de la République de Djibouti, n° 5 du 15/03/2023 · <https://www.journalofficiel.dj/texte-juridique/decret-n2023-063-pre-portant-convocation-de-la-9eme-legislateur/>
 
 En vigueur : 2023-03-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

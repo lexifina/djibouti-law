@@ -1,6 +1,6 @@
 # Arrêté n° 2002-0208/PR/MCCPT rendant exécutoire la résolution 07 du Conseil d’Administration de Djibouti Télécom S.A portant approbation du projet du Budget Prévisionnel 2002.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2002 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0208-pr-mccpt-rendant-executoire-la-resolution-07-du-conseil-dadministration-de-djibouti-telecom-s-a-portant-approbation-du-projet-du-budget-previsionnel-2002/>
+Arrêté · Journal officiel de la République de Djibouti, n° 6 du 31/03/2002 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2002-0208-pr-mccpt-rendant-executoire-la-resolution-07-du-conseil-dadministration-de-djibouti-telecom-s-a-portant-approbation-du-projet-du-budget-previsionnel-2002/>
 
 En vigueur : 2002-03-31 (date du Journal officiel qui le publie).
 

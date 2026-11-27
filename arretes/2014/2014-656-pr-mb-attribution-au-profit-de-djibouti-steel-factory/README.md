@@ -1,6 +1,6 @@
 # Arrêté n° 2014-656/PR/MB portant attribution au profit de “DJIBOUTI STEEL FACTORY” d’une parcelle de terrain sis au PK 15 zone de concassage.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/2014 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-656-pr-mb-portant-attribution-au-profit-de-djibouti-steel-factory-dune-parcelle-de-terrain-sis-au-pk-15-zone-de-concassage/>
+Arrêté · Journal officiel de la République de Djibouti, n° 21 du 15/11/2014 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2014-656-pr-mb-portant-attribution-au-profit-de-djibouti-steel-factory-dune-parcelle-de-terrain-sis-au-pk-15-zone-de-concassage/>
 
 En vigueur : 2014-11-15 (date du Journal officiel qui le publie).
 

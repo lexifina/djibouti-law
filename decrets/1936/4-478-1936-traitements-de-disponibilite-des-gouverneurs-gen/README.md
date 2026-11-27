@@ -1,6 +1,6 @@
 # Décret n° 4-478-1936 Traitements de disponibilité des gouverneurs généraux, gouverneurs et résidents supérieurs,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 478 du 30/09/1936 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-4-478-1936-traitements-de-disponibilite-des-gouverneurs-generaux-gouverneurs-et-residents-superieurs/>
+Décret · Journal officiel de la République de Djibouti, n° 478 du 30/09/1936 · <https://www.journalofficiel.dj/texte-juridique/decret-n-4-478-1936-traitements-de-disponibilite-des-gouverneurs-generaux-gouverneurs-et-residents-superieurs/>
 
 En vigueur : 1936-09-30 (date du Journal officiel qui le publie).
 

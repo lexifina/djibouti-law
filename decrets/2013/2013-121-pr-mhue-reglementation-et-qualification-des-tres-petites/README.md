@@ -1,6 +1,6 @@
 # Décret n° 2013-121/PR/MHUE portant réglementation et qualification des très petites entreprises (TPE).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-121-pr-mhue-portant-reglementation-et-qualification-des-tres-petites-entreprises-tpe/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 15/06/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-121-pr-mhue-portant-reglementation-et-qualification-des-tres-petites-entreprises-tpe/>
 
 En vigueur : 2013-06-15 (date du Journal officiel qui le publie).
 

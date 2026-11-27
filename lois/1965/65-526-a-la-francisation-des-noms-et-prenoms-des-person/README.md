@@ -1,6 +1,6 @@
 # Loi n° 65-526 relative à la francisation des noms et prénoms des personnes qui acquièrent ou se font reconnaître à nationalité française
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1965 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-65-526-relative-a-la-francisation-des-noms-et-prenoms-des-personnes-qui-acquierent-ou-se-font-reconnaitre-a-nationalite-francaise/>
+Loi · Journal officiel de la République de Djibouti, n° 10 du 01/10/1965 · <https://www.journalofficiel.dj/texte-juridique/loi-n-65-526-relative-a-la-francisation-des-noms-et-prenoms-des-personnes-qui-acquierent-ou-se-font-reconnaitre-a-nationalite-francaise/>
 
 En vigueur : 1965-10-01 (date du Journal officiel qui le publie).
 
@@ -42,4 +42,4 @@ Raymond MARGELLIN:
 | [art-010.md](art-010.md) | Art. 10 |
 | [art-011.md](art-011.md) | Art. 11 |
 | [art-012.md](art-012.md) | Art. 12 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

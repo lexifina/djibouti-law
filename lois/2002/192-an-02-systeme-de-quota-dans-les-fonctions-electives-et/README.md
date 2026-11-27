@@ -1,6 +1,6 @@
 # Loi n° 192/AN/02/4ème L Instituant le système de quota dans les fonctions Electives et dans l’Administration de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 16/11/2002 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministration-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 16/11/2002 · <https://www.journalofficiel.dj/texte-juridique/loi-n192-an-02-4eme-l-instituant-le-systeme-de-quota-dans-les-fonctions-electives-et-dans-ladministration-de-letat/>
 
 En vigueur : 2002-11-16 (date du Journal officiel qui le publie).
 

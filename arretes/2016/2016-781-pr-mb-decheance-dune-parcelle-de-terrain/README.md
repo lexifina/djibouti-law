@@ -1,6 +1,6 @@
 # Arrêté n° 2016-781/PR/MB portant déchéance d’une parcelle de terrain.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-781-pr-mb-portant-decheance-dune-parcelle-de-terrain/>
+Arrêté · Journal officiel de la République de Djibouti, n° 22 du 30/11/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-781-pr-mb-portant-decheance-dune-parcelle-de-terrain/>
 
 En vigueur : 2016-11-30 (date du Journal officiel qui le publie).
 

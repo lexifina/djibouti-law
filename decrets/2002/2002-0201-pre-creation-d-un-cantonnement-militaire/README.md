@@ -1,6 +1,6 @@
 # Décret n° 2002-0201/PRE portant création d’un cantonnement militaire.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 15/10/2002 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0201-pre-portant-creation-dun-cantonnement-militaire/>
+Décret · Journal officiel de la République de Djibouti, n° 19 du 15/10/2002 · <https://www.journalofficiel.dj/texte-juridique/decret-n2002-0201-pre-portant-creation-dun-cantonnement-militaire/>
 
 En vigueur : 2002-10-15 (date du Journal officiel qui le publie).
 

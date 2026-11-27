@@ -1,6 +1,6 @@
 # Décret n° 2006-0022/PR/MEFPCP portant autorisation de vente immobilière de l’État.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2006 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0022-pr-mefpcp-portant-autorisation-de-vente-immobiliere-de-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2006 · <https://www.journalofficiel.dj/texte-juridique/decret-n2006-0022-pr-mefpcp-portant-autorisation-de-vente-immobiliere-de-letat/>
 
 En vigueur : 2006-02-15 (date du Journal officiel qui le publie).
 

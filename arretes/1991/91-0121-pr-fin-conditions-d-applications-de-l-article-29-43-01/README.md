@@ -1,6 +1,6 @@
 # Arrêté n° 91-0121/PR/FIN fixant les conditions d’applications de l’article 29.43.01 du Code Général des Impôts.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/1991 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0121-pr-fin-fixant-les-conditions-dapplications-de-larticle-29-43-01-du-code-general-des-impots/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/1991 · <https://www.journalofficiel.dj/texte-juridique/arrete-n91-0121-pr-fin-fixant-les-conditions-dapplications-de-larticle-29-43-01-du-code-general-des-impots/>
 
 En vigueur : 1991-01-31 (date du Journal officiel qui le publie).
 

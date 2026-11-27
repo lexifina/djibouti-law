@@ -1,6 +1,6 @@
 # Loi n° 43/AN/99/4ème L portant approbation des comptes définitifs du budget de l’État exercice 1997.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1999 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-99-4eme-l-portant-approbation-des-comptes-definitifs-du-budget-de-letat-exercice-1997/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1999 · <https://www.journalofficiel.dj/texte-juridique/loi-n43-an-99-4eme-l-portant-approbation-des-comptes-definitifs-du-budget-de-letat-exercice-1997/>
 
 En vigueur : 1999-06-15 (date du Journal officiel qui le publie).
 

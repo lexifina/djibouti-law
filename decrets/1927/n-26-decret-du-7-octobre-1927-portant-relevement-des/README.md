@@ -1,6 +1,6 @@
 # Décret n° n°26 Décret du 7 octobre 1927 portant relèvement des tarifs de solde du personnel des services militaires aux colonies, (Arrêté de promulgation du 26 novembre 1927.) . ……………….
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 372 du 30/11/1927 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n26-decret-du-7-octobre-1927-portant-relevement-des-tarifs-de-solde-du-personnel-des-services-militaires-aux-colonies-arrete-de-promulgation-du-26-novembre-1927/>
+Décret · Journal officiel de la République de Djibouti, n° 372 du 30/11/1927 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n26-decret-du-7-octobre-1927-portant-relevement-des-tarifs-de-solde-du-personnel-des-services-militaires-aux-colonies-arrete-de-promulgation-du-26-novembre-1927/>
 
 En vigueur : 1927-11-30 (date du Journal officiel qui le publie).
 

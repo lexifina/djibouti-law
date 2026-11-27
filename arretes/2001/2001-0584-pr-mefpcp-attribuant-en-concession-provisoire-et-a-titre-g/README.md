@@ -1,6 +1,6 @@
 # Arrêté n° 2001-0584/PR/MEFPCP attribuant en concession provisoire et à titre gratuit une parcelle de terrain sise à Balbala.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2001 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0584-pr-mefpcp-attribuant-en-concession-provisoire-et-a-titre-gratuit-une-parcelle-de-terrain-sise-a-balbala/>
+Arrêté · Journal officiel de la République de Djibouti, n° 14 du 31/07/2001 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2001-0584-pr-mefpcp-attribuant-en-concession-provisoire-et-a-titre-gratuit-une-parcelle-de-terrain-sise-a-balbala/>
 
 En vigueur : 2001-07-31 (date du Journal officiel qui le publie).
 

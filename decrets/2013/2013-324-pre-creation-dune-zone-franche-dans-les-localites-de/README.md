@@ -1,8 +1,8 @@
 # Décret n° 2013-324/PRE portant création d’une zone franche dans les localités de Douda/Damerjog.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-324-pre-portant-creation-dune-zone-franche-dans-les-localites-de-douda-damerjog/>
+Décret · Journal officiel de la République de Djibouti, n° 23 du 15/12/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-324-pre-portant-creation-dune-zone-franche-dans-les-localites-de-douda-damerjog/>
 
-En vigueur : 2013-12-02 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-12-02 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

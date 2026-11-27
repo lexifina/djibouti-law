@@ -1,6 +1,6 @@
 # Loi n° 69-1163 DU 24 DECÉMBRE 1969 rendant applicables aux départements et territoires d’outre-mer les dispositions d’ordré pénal du décret modifié du 25 août 1937 portant réglementation des bons de caisse.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 7 du 10/04/1970 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-69-1163-du-24-decembre-1969-rendant-applicables-aux-departements-et-territoires-doutre-mer-les-dispositions-dordre-penal-du-decret-modifie-du-25-aout-1937-portant-reglementation-des-b/>
+Loi · Journal officiel de la République de Djibouti, n° 7 du 10/04/1970 · <https://www.journalofficiel.dj/texte-juridique/loi-n-69-1163-du-24-decembre-1969-rendant-applicables-aux-departements-et-territoires-doutre-mer-les-dispositions-dordre-penal-du-decret-modifie-du-25-aout-1937-portant-reglementation-des-b/>
 
 En vigueur : 1970-04-10 (date du Journal officiel qui le publie).
 
@@ -22,4 +22,4 @@ Henry REY.
 | Fichier | Disposition |
 | --- | --- |
 | [art-unique.md](art-unique.md) | Article unique |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

@@ -1,6 +1,6 @@
 # Décret n° 23/05/1942 étendant aux territoires relevant du secrétariat d’Etat aux colonies les dispositions de la loi du 7 août 1941 relative aux acquisitions immobilières par l’Etat.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 547 du 30/06/1942 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-05-1942-etendant-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-de-la-loi-du-7-aout-1941-relative-aux-acquisitions-immobilieres-par-letat/>
+Décret · Journal officiel de la République de Djibouti, n° 547 du 30/06/1942 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-05-1942-etendant-aux-territoires-relevant-du-secretariat-detat-aux-colonies-les-dispositions-de-la-loi-du-7-aout-1941-relative-aux-acquisitions-immobilieres-par-letat/>
 
 En vigueur : 1942-06-30 (date du Journal officiel qui le publie).
 

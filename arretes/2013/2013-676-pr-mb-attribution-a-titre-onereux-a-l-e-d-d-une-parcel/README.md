@@ -1,6 +1,6 @@
 # Arrêté n° 2013-676/PR/MB portant attribution à titre onéreux à l’E.D.D une parcelle de terrain sis à PK 16.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2013 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-676-pr-mb-portant-attribution-a-titre-onereux-a-le-d-d-une-parcelle-de-terrain-sis-a-pk-16/>
+Arrêté · Journal officiel de la République de Djibouti, n° 20 du 31/10/2013 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2013-676-pr-mb-portant-attribution-a-titre-onereux-a-le-d-d-une-parcelle-de-terrain-sis-a-pk-16/>
 
 En vigueur : 2013-10-31 (date du Journal officiel qui le publie).
 

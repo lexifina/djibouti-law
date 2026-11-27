@@ -1,8 +1,8 @@
 # Décret n° 99-0209/PR/MESN annulant les dispositions du décret n° 97-0075/PR/FP et portant création de la Commission Ad-Hoc de la réforme institutionnelle.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1999 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n99-0209-pr-mesn-annulant-les-dispositions-du-decret-n97-0075-pr-fp-et-portant-creation-de-la-commission-ad-hoc-de-la-reforme-institutionnelle/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1999 · <https://www.journalofficiel.dj/texte-juridique/decret-n99-0209-pr-mesn-annulant-les-dispositions-du-decret-n97-0075-pr-fp-et-portant-creation-de-la-commission-ad-hoc-de-la-reforme-institutionnelle/>
 
-En vigueur : 1999-10-24 (date fixÃ©e par le texte).
+En vigueur : 1999-10-24 (date fixée par le texte).
 
 ## Visas
 

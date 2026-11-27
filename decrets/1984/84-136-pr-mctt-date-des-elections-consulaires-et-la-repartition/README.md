@@ -1,6 +1,6 @@
 # Décret n° 84-136/PR/MCTT fixant la date des élections consulaires et la répartition des sièges à pourvoir entre résidents nationaux et étrangers.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1984 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n84-136-pr-mctt-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1984 · <https://www.journalofficiel.dj/texte-juridique/decret-n84-136-pr-mctt-fixant-la-date-des-elections-consulaires-et-la-repartition-des-sieges-a-pourvoir-entre-residents-nationaux-et-etrangers/>
 
 En vigueur : 1984-12-31 (date du Journal officiel qui le publie).
 
@@ -25,4 +25,4 @@ Le Conseil des Ministres entendu en sa séance du 18 Décembre1984.
 | [art-006.md](art-006.md) | Article 6 |
 | [art-007.md](art-007.md) | Article 7 |
 | [art-008.md](art-008.md) | Article 8 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

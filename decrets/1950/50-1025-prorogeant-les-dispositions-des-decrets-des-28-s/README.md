@@ -1,6 +1,6 @@
 # Décret n° 50-1025 prorogeant; lès dispositions des décrets des 28 septembre 1948 et II avril 1949 relatifs au déclassement à bord des paquebots des fonctionnaires employés et agents civils des services coloniaux ou locaux.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 10 du 01/10/1950 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1025-prorogeant-les-dispositions-des-decrets-des-28-septembre-1948-et-ii-avril-1949-relatifs-au-declassement-a-bord-des-paquebots-des-fonctionnaires-employes-et-agents-civils-des-s/>
+Décret · Journal officiel de la République de Djibouti, n° 10 du 01/10/1950 · <https://www.journalofficiel.dj/texte-juridique/decret-n-50-1025-prorogeant-les-dispositions-des-decrets-des-28-septembre-1948-et-ii-avril-1949-relatifs-au-declassement-a-bord-des-paquebots-des-fonctionnaires-employes-et-agents-civils-des-s/>
 
 En vigueur : 1950-10-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 77-050/PR/DEF portant sur la Solde et les prestations familiales.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 28/11/1977 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n77-050-pr-def-portant-sur-la-solde-et-les-prestations-familiales/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 28/11/1977 · <https://www.journalofficiel.dj/texte-juridique/decret-n77-050-pr-def-portant-sur-la-solde-et-les-prestations-familiales/>
 
 En vigueur : 1977-11-28 (date du Journal officiel qui le publie).
 
@@ -33,4 +33,4 @@ HASSAN GOULED APTIDON
 | [art-012.md](art-012.md) | Article 12 |
 | [art-013.md](art-013.md) | Article 13 |
 | [art-014.md](art-014.md) | Article 14 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

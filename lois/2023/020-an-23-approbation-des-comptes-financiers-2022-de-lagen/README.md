@@ -1,6 +1,6 @@
 # Loi n° 20/AN/23/9ème L portant approbation des Comptes Financiers 2022 de l’Agence Nationale des Systèmes d’Information de l’Etat.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-20-an-23-9eme-l-portant-approbation-des-comptes-financiers-2022-de-lagence-nationale-des-systemes-dinformation-de-letat/>
+Loi · Journal officiel de la République de Djibouti, n° 22 du 30/11/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n-20-an-23-9eme-l-portant-approbation-des-comptes-financiers-2022-de-lagence-nationale-des-systemes-dinformation-de-letat/>
 
 En vigueur : 2023-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

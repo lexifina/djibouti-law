@@ -1,6 +1,6 @@
 # Décret n° 79-078/PR/MI fixant la réglementation relative aux attributions, au fonctionnement et à l’administration des municipalités.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 26/02/1980 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n79-078-pr-mi-fixant-la-reglementation-relative-aux-attributions-au-fonctionnement-et-a-ladministration-des-municipalites/>
+Décret · Journal officiel de la République de Djibouti, n° 2 du 26/02/1980 · <https://www.journalofficiel.dj/texte-juridique/decret-n79-078-pr-mi-fixant-la-reglementation-relative-aux-attributions-au-fonctionnement-et-a-ladministration-des-municipalites/>
 
 En vigueur : 1980-02-26 (date du Journal officiel qui le publie).
 

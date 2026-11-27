@@ -1,6 +1,6 @@
 # Arrêté n° 2019-185/PRE portant création du comité National d’Organisation du IIIème Sommet Mondial de l’Éducation Équilibrée et Inclusive (III Forum BIE 2030), qui aura lieu à Djibouti du 27 au 29 janvier 2020.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 23 du 15/12/2019 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-185-pre-portant-creation-du-comite-national-dorganisation-du-iiieme-sommet-mondial-de-leducation-equilibree-et-inclusive-iii-forum-bie-2030-qui-aura-lieu-a-djibouti-du-27-au/>
+Arrêté · Journal officiel de la République de Djibouti, n° 23 du 15/12/2019 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2019-185-pre-portant-creation-du-comite-national-dorganisation-du-iiieme-sommet-mondial-de-leducation-equilibree-et-inclusive-iii-forum-bie-2030-qui-aura-lieu-a-djibouti-du-27-au/>
 
 En vigueur : 2019-12-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -49,4 +49,4 @@ ISMAÏL OMAR GUELLEH
 | [art-014.md](art-014.md) | Article 14 |
 | [art-015.md](art-015.md) | Article 15 |
 | [art-016.md](art-016.md) | Article 16 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

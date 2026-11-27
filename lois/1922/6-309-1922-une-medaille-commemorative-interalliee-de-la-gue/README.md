@@ -1,6 +1,6 @@
 # Loi n° 6-309-1922 instituant une médaille commémorative interalliée de la guerre, dite « Médaille de la Victoire ».
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 309 du 31/08/1922 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-6-309-1922-instituant-une-medaille-commemorative-interalliee-de-la-guerre-dite-medaille-de-la-victoire/>
+Loi · Journal officiel de la République de Djibouti, n° 309 du 31/08/1922 · <https://www.journalofficiel.dj/texte-juridique/loi-n-6-309-1922-instituant-une-medaille-commemorative-interalliee-de-la-guerre-dite-medaille-de-la-victoire/>
 
 En vigueur : 1922-08-31 (date du Journal officiel qui le publie).
 

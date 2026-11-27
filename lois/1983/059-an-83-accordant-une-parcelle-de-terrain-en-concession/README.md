@@ -1,6 +1,6 @@
 # Loi n° 59/AN/83 1re L accordant une parcelle de terrain en concession provisoire.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 31/07/1983 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-83-1re-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 31/07/1983 · <https://www.journalofficiel.dj/texte-juridique/loi-n59-an-83-1re-l-accordant-une-parcelle-de-terrain-en-concession-provisoire/>
 
 En vigueur : 1983-07-31 (date du Journal officiel qui le publie).
 

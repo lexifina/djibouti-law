@@ -1,6 +1,6 @@
 # Décret n° n°6 Décret relatif au régime financier des colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 459 du 28/02/1935 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n6-decret-relatif-au-regime-financier-des-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 459 du 28/02/1935 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n6-decret-relatif-au-regime-financier-des-colonies/>
 
 En vigueur : 1935-02-28 (date du Journal officiel qui le publie).
 

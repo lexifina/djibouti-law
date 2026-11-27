@@ -1,6 +1,6 @@
 # Loi n° 122/AN/05/5ème L portant sur le statut de la Ville de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 15/11/2005 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-05-5eme-l-portant-sur-le-statut-de-la-ville-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 15/11/2005 · <https://www.journalofficiel.dj/texte-juridique/loi-n122-an-05-5eme-l-portant-sur-le-statut-de-la-ville-de-djibouti/>
 
 En vigueur : 2005-11-15 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2006-0380/PR/MCIA portant approbation du budget de la Chambre de Commerce de Djibouti pour l’Exercice 2006.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2006 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0380-pr-mcia-portant-approbation-du-budget-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2006/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2006 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2006-0380-pr-mcia-portant-approbation-du-budget-de-la-chambre-de-commerce-de-djibouti-pour-lexercice-2006/>
 
 En vigueur : 2006-06-15 (date du Journal officiel qui le publie).
 

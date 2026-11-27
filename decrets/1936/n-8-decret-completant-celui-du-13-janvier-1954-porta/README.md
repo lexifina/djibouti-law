@@ -1,6 +1,6 @@
 # Décret n° n°8 Décret complétant celui du 13 janvier 1954 portant règlement d’administration publique pour l’application de la loi du 31 mars 1932 en ce qui concerne le classement dans la caté:gorie B de certains emplois aux colonies
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 462 du 01/01/1937 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-decret-completant-celui-du-13-janvier-1954-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-du-31-mars-1932-en-ce-qui-concerne-le-classement-dans-la/>
+Décret · Journal officiel de la République de Djibouti, n° 462 du 01/01/1937 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n8-decret-completant-celui-du-13-janvier-1954-portant-reglement-dadministration-publique-pour-lapplication-de-la-loi-du-31-mars-1932-en-ce-qui-concerne-le-classement-dans-la/>
 
 En vigueur : 1937-01-01 (date du Journal officiel qui le publie).
 

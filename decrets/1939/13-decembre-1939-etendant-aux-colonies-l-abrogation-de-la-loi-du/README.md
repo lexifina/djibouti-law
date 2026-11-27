@@ -1,6 +1,6 @@
 # Décret n° 13 décembre 1939 étendant aux colonies l’abrogation de la loi du 22 mars 1936 relative à la protection de l’industrie et du commerce de la chaussure.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 518 du 31/01/1940 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-13-decembre-1939-etendant-aux-colonies-labrogation-de-la-loi-du-22-mars-1936-relative-a-la-protection-de-lindustrie-et-du-commerce-de-la-chaussure/>
+Décret · Journal officiel de la République de Djibouti, n° 518 du 31/01/1940 · <https://www.journalofficiel.dj/texte-juridique/decret-n-13-decembre-1939-etendant-aux-colonies-labrogation-de-la-loi-du-22-mars-1936-relative-a-la-protection-de-lindustrie-et-du-commerce-de-la-chaussure/>
 
 En vigueur : 1940-01-31 (date du Journal officiel qui le publie).
 
@@ -21,5 +21,5 @@ Georges MANDEL.
 
 | Fichier | Disposition |
 | --- | --- |
-| [art-001.md](art-001.md) | Art. 1er – |
+| [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |

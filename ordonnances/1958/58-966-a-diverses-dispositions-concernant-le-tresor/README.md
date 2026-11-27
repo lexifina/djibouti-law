@@ -1,6 +1,6 @@
 # Ordonnance n° 58-966 relative à diverses dispositions concernant le Trésor.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 31/01/1965 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-966-relative-a-diverses-dispositions-concernant-le-tresor/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 1 du 31/01/1965 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n-58-966-relative-a-diverses-dispositions-concernant-le-tresor/>
 
 En vigueur : 1965-01-31 (date du Journal officiel qui le publie).
 

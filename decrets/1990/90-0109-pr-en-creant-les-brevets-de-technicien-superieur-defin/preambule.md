@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 TITRE I : DÉFINITION DU DIPLÔME

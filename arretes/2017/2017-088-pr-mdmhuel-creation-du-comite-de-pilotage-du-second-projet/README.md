@@ -1,6 +1,6 @@
 # Arrêté n° 2017-088/PR/MDMHUEL portant création du Comité de Pilotage du Second Projet de Développement Urbain Intégré (PDUI 2).
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2017 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-088-pr-mdmhuel-portant-creation-du-comite-de-pilotage-du-second-projet-de-developpement-urbain-integre-pdui-2/>
+Arrêté · Journal officiel de la République de Djibouti, n° 11 du 15/06/2017 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2017-088-pr-mdmhuel-portant-creation-du-comite-de-pilotage-du-second-projet-de-developpement-urbain-integre-pdui-2/>
 
 En vigueur : 2017-06-15 (date du Journal officiel qui le publie).
 

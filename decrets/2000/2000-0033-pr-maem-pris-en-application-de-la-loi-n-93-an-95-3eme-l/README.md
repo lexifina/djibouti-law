@@ -1,6 +1,6 @@
 # Décret n° 2000-0033/PR/MAEM pris en application de la loi n° 93/AN/95/3ème L du 04 avril 1996 portant Code de l’Eau, relatif aux périmètres de protection des captages de l’eau destinée à la consommation humaine.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/2000 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0033-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-aux-perimetres-de-protection-des-captages-de-leau-destinee-a-la/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 15/02/2000 · <https://www.journalofficiel.dj/texte-juridique/decret-n2000-0033-pr-maem-pris-en-application-de-la-loi-n93-an-95-3eme-l-du-04-avril-1996-portant-code-de-leau-relatif-aux-perimetres-de-protection-des-captages-de-leau-destinee-a-la/>
 
 En vigueur : 2000-02-15 (date du Journal officiel qui le publie).
 

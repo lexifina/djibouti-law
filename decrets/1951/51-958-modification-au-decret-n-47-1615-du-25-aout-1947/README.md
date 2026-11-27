@@ -1,6 +1,6 @@
 # Décret n° 51-958 portant modification au décret n° 47-1615 du 25 août 1947 modifiant l’article 6 du décret du 16 février 1923 réglant le service de la gendarmerie détachée aux Colonies.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/08/1951 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-51-958-portant-modification-au-decret-n-47-1615-du-25-aout-1947-modifiant-larticle-6-du-decret-du-16-fevrier-1923-reglant-le-service-de-la-gendarmerie-detachee-aux-colonies/>
+Décret · Journal officiel de la République de Djibouti, n° 9 du 15/08/1951 · <https://www.journalofficiel.dj/texte-juridique/decret-n-51-958-portant-modification-au-decret-n-47-1615-du-25-aout-1947-modifiant-larticle-6-du-decret-du-16-fevrier-1923-reglant-le-service-de-la-gendarmerie-detachee-aux-colonies/>
 
 En vigueur : 1951-08-15 (date du Journal officiel qui le publie).
 

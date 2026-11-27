@@ -1,4 +1,4 @@
-# PrÃ©ambule
+# Préambule
 Art, 1er. – Le paragraphe 7 de l’article 13 du décret du 5 Août 1910 est remplacé par les dispositionn suivantes:
 La commission d’enquête siégeant à Paris est composée comme suit sur la désignation du Ministre :
 ” Un-Directeur du Ministère des Colonies ou l’Inspecteur Général des Travaux publics des Colonies, président :

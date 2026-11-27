@@ -1,6 +1,6 @@
 # Loi n° 90/AN/79 portant sur l’application des décisions de Justice
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 4 du 21/08/1980 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-79-portant-sur-lapplication-des-decisions-de-justice/>
+Loi · Journal officiel de la République de Djibouti, n° 4 du 21/08/1980 · <https://www.journalofficiel.dj/texte-juridique/loi-n90-an-79-portant-sur-lapplication-des-decisions-de-justice/>
 
 En vigueur : 1980-08-21 (date du Journal officiel qui le publie).
 
@@ -17,6 +17,6 @@ Vu la loi n° 77/AN/79 du 10 juin 1979 portant délégation d'une partie des pou
 | [art-001.md](art-001.md) | Art. 1er |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | art. 4 – |
+| [art-004.md](art-004.md) | art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |

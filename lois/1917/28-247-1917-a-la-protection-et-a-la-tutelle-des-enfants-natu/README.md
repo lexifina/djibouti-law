@@ -1,6 +1,6 @@
 # Loi n° 28-247-1917 relative à la protection et à la tutelle des enfants naturels.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 247 du 31/05/1917 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n-28-247-1917-relative-a-la-protection-et-a-la-tutelle-des-enfants-naturels/>
+Loi · Journal officiel de la République de Djibouti, n° 247 du 31/05/1917 · <https://www.journalofficiel.dj/texte-juridique/loi-n-28-247-1917-relative-a-la-protection-et-a-la-tutelle-des-enfants-naturels/>
 
 En vigueur : 1917-05-31 (date du Journal officiel qui le publie).
 

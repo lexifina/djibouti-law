@@ -1,6 +1,6 @@
 # Arrêté n° 2012-031/PR/MEFCIP portant composition et attributions du Comité Technique de l’Enquête EDAM-III.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 15/01/2012 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-031-pr-mefcip-portant-composition-et-attributions-du-comite-technique-de-lenquete-edam-iii/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 15/01/2012 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2012-031-pr-mefcip-portant-composition-et-attributions-du-comite-technique-de-lenquete-edam-iii/>
 
 En vigueur : 2012-01-15 (date du Journal officiel qui le publie).
 

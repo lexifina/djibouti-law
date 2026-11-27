@@ -1,6 +1,6 @@
 # Décret n° 990 relatif au mariage des militaires en activité de service.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 15 du 01/08/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-990-relatif-au-mariage-des-militaires-en-activite-de-service/>
+Décret · Journal officiel de la République de Djibouti, n° 15 du 01/08/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-990-relatif-au-mariage-des-militaires-en-activite-de-service/>
 
 En vigueur : 1943-08-01 (date du Journal officiel qui le publie).
 

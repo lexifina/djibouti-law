@@ -1,6 +1,6 @@
 # Décret n° 72-435 portant modification des articles R224-2 et R224-3 du code de l’aviation civile concernant les redevances aéroportuaires (JORF. n° 124 du 28 mai 1972, pages 5398 et 5399) [promulgué par arrêté n° 483/SLAG du 28 juin 1972].
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 13 du 10/07/1972 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-72-435-portant-modification-des-articles-r224-2-et-r224-3-du-code-de-laviation-civile-concernant-les-redevances-aeroportuaires-jorf-n-124-du-28-mai-1972-pages-5398-et-5399/>
+Décret · Journal officiel de la République de Djibouti, n° 13 du 10/07/1972 · <https://www.journalofficiel.dj/texte-juridique/decret-n-72-435-portant-modification-des-articles-r224-2-et-r224-3-du-code-de-laviation-civile-concernant-les-redevances-aeroportuaires-jorf-n-124-du-28-mai-1972-pages-5398-et-5399/>
 
 En vigueur : 1972-07-10 (date du Journal officiel qui le publie).
 

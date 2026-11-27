@@ -1,8 +1,8 @@
 # Loi n° 38/AN/88/2ème L Instituant une taxe spéciale sur la farine de froment importée.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/1988 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-88-2eme-l-instituant-une-taxe-speciale-sur-la-farine-de-froment-importee/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/1988 · <https://www.journalofficiel.dj/texte-juridique/loi-n38-an-88-2eme-l-instituant-une-taxe-speciale-sur-la-farine-de-froment-importee/>
 
-En vigueur : 1988-06-11 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 1988-06-11 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

@@ -1,2 +1,2 @@
-# PrÃ©ambule
+# Préambule
 TITRE Ier.— Commission spéciale des sociétes secrétes.

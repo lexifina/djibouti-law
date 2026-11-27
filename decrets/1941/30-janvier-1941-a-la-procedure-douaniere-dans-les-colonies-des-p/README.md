@@ -1,6 +1,6 @@
 # Décret n° 30 janvier 1941 relative à la procédure douanière dans les colonies des premier et deuxième groupes
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 532 du 31/03/1941 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-30-janvier-1941-relative-a-la-procedure-douaniere-dans-les-colonies-des-premier-et-deuxieme-groupes/>
+Décret · Journal officiel de la République de Djibouti, n° 532 du 31/03/1941 · <https://www.journalofficiel.dj/texte-juridique/decret-n-30-janvier-1941-relative-a-la-procedure-douaniere-dans-les-colonies-des-premier-et-deuxieme-groupes/>
 
 En vigueur : 1941-03-31 (date du Journal officiel qui le publie).
 

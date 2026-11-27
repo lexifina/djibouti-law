@@ -1,6 +1,6 @@
 # Ordonnance n° 80-033/PR/MI portant recensement général de la Population.
 
-Ordonnance Â· Journal officiel de la RÃ©publique de Djibouti, n° 5 du 31/12/1980 Â· <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-033-pr-mi-portant-recensement-general-de-la-population/>
+Ordonnance · Journal officiel de la République de Djibouti, n° 5 du 31/12/1980 · <https://www.journalofficiel.dj/texte-juridique/ordonnance-n80-033-pr-mi-portant-recensement-general-de-la-population/>
 
 En vigueur : 1980-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 45-1085 portant modification au tableau A annexe au décret du 22 août 1929 déterminant le statut de la magistrature coloniale et fixant dans les colonies, les pays de protectorat et territoires relevant du Ministère des Colonies, à l’exception des Nouvelles-Hébrides, la nomenclature et la composition des cours, tribunaux et justices de paix, ainsi que l’assimilation de ces juridictions aux juridictions de la Métropole.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 31/12/1945 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1085-portant-modification-au-tableau-a-annexe-au-decret-du-22-aout-1929-determinant-le-statut-de-la-magistrature-coloniale-et-fixant-dans-les-colonies-les-pays-de-protectorat-et-te/>
+Décret · Journal officiel de la République de Djibouti, n° 12 du 31/12/1945 · <https://www.journalofficiel.dj/texte-juridique/decret-n-45-1085-portant-modification-au-tableau-a-annexe-au-decret-du-22-aout-1929-determinant-le-statut-de-la-magistrature-coloniale-et-fixant-dans-les-colonies-les-pays-de-protectorat-et-te/>
 
 En vigueur : 1945-12-31 (date du Journal officiel qui le publie).
 

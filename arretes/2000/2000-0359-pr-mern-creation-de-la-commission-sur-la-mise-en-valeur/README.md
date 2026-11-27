@@ -1,8 +1,8 @@
 # Arrêté n° 2000-0359/PR/MERN portant création de la Commission sur la mise en valeur des matériaux de construction locaux.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 9 du 15/05/2000 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0359-pr-mern-portant-creation-de-la-commission-sur-la-mise-en-valeur-des-materiaux-de-construction-locaux/>
+Arrêté · Journal officiel de la République de Djibouti, n° 9 du 15/05/2000 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2000-0359-pr-mern-portant-creation-de-la-commission-sur-la-mise-en-valeur-des-materiaux-de-construction-locaux/>
 
-En vigueur : 2000-05-07 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2000-05-07 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

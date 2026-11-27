@@ -1,6 +1,6 @@
 # Décret n° 89-133/PR/MTPUL définissant les normes des matériaux de construction applicables en République de Djibouti
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/1989 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n89-133-pr-mtpul-definissant-les-normes-des-materiaux-de-construction-applicables-en-republique-de-djibouti/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/1989 · <https://www.journalofficiel.dj/texte-juridique/decret-n89-133-pr-mtpul-definissant-les-normes-des-materiaux-de-construction-applicables-en-republique-de-djibouti/>
 
 En vigueur : 1989-10-31 (date du Journal officiel qui le publie).
 

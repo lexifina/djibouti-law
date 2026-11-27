@@ -1,6 +1,6 @@
 # Décret n° le 6 avril 1939 relatif à des indemnités,
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 511 du 30/06/1939 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-avril-1939-relatif-a-des-indemnites/>
+Décret · Journal officiel de la République de Djibouti, n° 511 du 30/06/1939 · <https://www.journalofficiel.dj/texte-juridique/decret-n-le-6-avril-1939-relatif-a-des-indemnites/>
 
 En vigueur : 1939-06-30 (date du Journal officiel qui le publie).
 

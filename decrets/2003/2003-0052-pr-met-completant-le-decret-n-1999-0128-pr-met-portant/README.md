@@ -1,6 +1,6 @@
 # Décret n° 2003-0052/PR/MET complétant le décret n° 1999-0128/PR/MET portant création du Fonds d’Entretien Routier.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2003 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0052-pr-met-completant-le-decret-n1999-0128-pr-met-portant-creation-du-fonds-dentretien-routier/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2003 · <https://www.journalofficiel.dj/texte-juridique/decret-n2003-0052-pr-met-completant-le-decret-n1999-0128-pr-met-portant-creation-du-fonds-dentretien-routier/>
 
 En vigueur : 2003-03-31 (date du Journal officiel qui le publie).
 

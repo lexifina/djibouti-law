@@ -1,6 +1,6 @@
 # Loi n° 148/AN/91/2ème L portant organisation financière des sociétés d’État.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 16/02/1991 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-91-2eme-l-portant-organisation-financiere-des-societes-detat/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 16/02/1991 · <https://www.journalofficiel.dj/texte-juridique/loi-n148-an-91-2eme-l-portant-organisation-financiere-des-societes-detat/>
 
 En vigueur : 1991-02-16 (date du Journal officiel qui le publie).
 

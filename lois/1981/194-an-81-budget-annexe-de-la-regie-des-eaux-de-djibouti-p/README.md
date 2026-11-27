@@ -1,6 +1,6 @@
 # Loi n° 194/AN/81 du budget annexe de la Régie des Eaux de Djibouti pour l’exercice 1981.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 19 du 01/10/1981 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-81-du-budget-annexe-de-la-regie-des-eaux-de-djibouti-pour-lexercice-1981/>
+Loi · Journal officiel de la République de Djibouti, n° 19 du 01/10/1981 · <https://www.journalofficiel.dj/texte-juridique/loi-n194-an-81-du-budget-annexe-de-la-regie-des-eaux-de-djibouti-pour-lexercice-1981/>
 
 En vigueur : 1981-10-01 (date du Journal officiel qui le publie).
 

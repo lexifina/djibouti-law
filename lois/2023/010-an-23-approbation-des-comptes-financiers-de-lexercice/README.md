@@ -1,6 +1,6 @@
 # Loi n° 10/AN/23/9ème L Portant approbation des comptes financiers de l’exercice 2020 de la Caisse Nationale de Sécurité Sociale.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 15/06/2023 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2020-de-la-caisse-nationale-de-securite-sociale/>
+Loi · Journal officiel de la République de Djibouti, n° 11 du 15/06/2023 · <https://www.journalofficiel.dj/texte-juridique/loi-n10-an-23-9eme-l-portant-approbation-des-comptes-financiers-de-lexercice-2020-de-la-caisse-nationale-de-securite-sociale/>
 
 En vigueur : 2023-06-16 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

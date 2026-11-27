@@ -1,6 +1,6 @@
 # Décrets n° 2023-349/PR/MD portant confirmation des Chefs de Corps.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 22 du 30/11/2023 Â· <https://www.journalofficiel.dj/texte-juridique/decrets-n-2023-349-pr-md-portant-confirmation-des-chefs-de-corps/>
+Décret · Journal officiel de la République de Djibouti, n° 22 du 30/11/2023 · <https://www.journalofficiel.dj/texte-juridique/decrets-n-2023-349-pr-md-portant-confirmation-des-chefs-de-corps/>
 
 En vigueur : 2023-12-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

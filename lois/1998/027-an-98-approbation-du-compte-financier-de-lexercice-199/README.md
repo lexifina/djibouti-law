@@ -1,6 +1,6 @@
 # Loi n° 27/AN/98/4ème L portant approbation du compte financier de l’exercice 1996 du Port Autonome International de Djibouti (P.A.I.D.).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1998 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-98-4eme-l-portant-approbation-du-compte-financier-de-lexercice-1996-du-port-autonome-international-de-djibouti-p-a-i-d/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1998 · <https://www.journalofficiel.dj/texte-juridique/loi-n27-an-98-4eme-l-portant-approbation-du-compte-financier-de-lexercice-1996-du-port-autonome-international-de-djibouti-p-a-i-d/>
 
 En vigueur : 1998-11-15 (date du Journal officiel qui le publie).
 

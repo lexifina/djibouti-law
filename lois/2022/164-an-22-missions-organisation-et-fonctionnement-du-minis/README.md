@@ -1,6 +1,6 @@
 # Loi n° 164/AN/22/8ème L portant missions, organisation et fonctionnement du Ministère Délégué chargé de l’Economie Numérique et de l’Innovation.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 14 du 31/07/2022 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-22-8eme-l-portant-missions-organisation-et-fonctionnement-du-ministere-delegue-charge-de-leconomie-numerique-et-de-linnovation/>
+Loi · Journal officiel de la République de Djibouti, n° 14 du 31/07/2022 · <https://www.journalofficiel.dj/texte-juridique/loi-n164-an-22-8eme-l-portant-missions-organisation-et-fonctionnement-du-ministere-delegue-charge-de-leconomie-numerique-et-de-linnovation/>
 
 En vigueur : 2022-08-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -75,4 +75,4 @@ ABDOULKADER KAMIL MOHAMED
 | [art-042.md](art-042.md) | Article 42 |
 | [art-043.md](art-043.md) | Article 43 |
 | [art-044.md](art-044.md) | Article 44 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

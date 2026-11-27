@@ -1,6 +1,6 @@
 # Arrêté n° 2016-033/PRE portant Approbation du Budget prévisionnel du Palais du Peuple pour l’Exercice 2016.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2016 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-033-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2016/>
+Arrêté · Journal officiel de la République de Djibouti, n° 1 du 14/01/2016 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2016-033-pre-portant-approbation-du-budget-previsionnel-du-palais-du-peuple-pour-lexercice-2016/>
 
 En vigueur : 2016-01-14 (date du Journal officiel qui le publie).
 

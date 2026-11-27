@@ -1,6 +1,6 @@
 # Décret n° n°65 Décret du 27 juillet 1930 étendant aux colonies, pars de protectorat et territoires sous mandat relevant du ministère des colonies, l’application des articles 197 à 202 de la loi de finances du 16 avril 1930
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 405 du 31/08/1930 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-n65-decret-du-27-juillet-1930-etendant-aux-colonies-pars-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-lapplication-des-articles-197-a-202-de-l/>
+Décret · Journal officiel de la République de Djibouti, n° 405 du 31/08/1930 · <https://www.journalofficiel.dj/texte-juridique/decret-n-n65-decret-du-27-juillet-1930-etendant-aux-colonies-pars-de-protectorat-et-territoires-sous-mandat-relevant-du-ministere-des-colonies-lapplication-des-articles-197-a-202-de-l/>
 
 En vigueur : 1930-08-31 (date du Journal officiel qui le publie).
 

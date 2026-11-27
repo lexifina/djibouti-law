@@ -1,6 +1,6 @@
 # Arrêté n° 2011-046/PR/MS portant publication de la liste nationale des médicaments et des matériels essentiels, année 2010, 2ème révision.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 2 du 31/01/2011 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-046-pr-ms-portant-publication-de-la-liste-nationale-des-medicaments-et-des-materiels-essentiels-annee-2010-2eme-revision/>
+Arrêté · Journal officiel de la République de Djibouti, n° 2 du 31/01/2011 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2011-046-pr-ms-portant-publication-de-la-liste-nationale-des-medicaments-et-des-materiels-essentiels-annee-2010-2eme-revision/>
 
 En vigueur : 2011-01-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Arrêté n° 2007-0771/PR/MENESUP fixant la liste des filières de formation de l’Université de Djibouti.
 
-ArrÃªtÃ© Â· Journal officiel de la RÃ©publique de Djibouti, n° 17 du 15/09/2007 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0771-pr-menesup-fixant-la-liste-des-filieres-de-formation-de-luniversite-de-djibouti/>
+Arrêté · Journal officiel de la République de Djibouti, n° 17 du 15/09/2007 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2007-0771-pr-menesup-fixant-la-liste-des-filieres-de-formation-de-luniversite-de-djibouti/>
 
 En vigueur : 2007-09-15 (date du Journal officiel qui le publie).
 

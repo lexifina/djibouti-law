@@ -1,6 +1,6 @@
 # Décret n° 2020-065/PRE portant fermetures exceptionnelles de certains établissements pour prévenir la propagation du COVID-19.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 6 du 31/03/2020 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2020-065-pre-portant-fermetures-exceptionnelles-de-certains-etablissements-pour-prevenir-la-propagation-du-covid-19/>
+Décret · Journal officiel de la République de Djibouti, n° 6 du 31/03/2020 · <https://www.journalofficiel.dj/texte-juridique/decret-n2020-065-pre-portant-fermetures-exceptionnelles-de-certains-etablissements-pour-prevenir-la-propagation-du-covid-19/>
 
 En vigueur : 2020-04-01 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

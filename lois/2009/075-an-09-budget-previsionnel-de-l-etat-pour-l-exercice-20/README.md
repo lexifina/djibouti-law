@@ -1,6 +1,6 @@
 # Loi n° 75/AN/09/6ème L portant Budget prévisionnel de l’Etat pour l’Exercice 2010.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 24 du 31/12/2009 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-09-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2010/>
+Loi · Journal officiel de la République de Djibouti, n° 24 du 31/12/2009 · <https://www.journalofficiel.dj/texte-juridique/loi-n75-an-09-6eme-l-portant-budget-previsionnel-de-letat-pour-lexercice-2010/>
 
 En vigueur : 2009-12-31 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Loi n° 107/AN/24/9ème L portant organisation et fonctionnement des organisations de la société civile de Djibouti.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 02 du 07/03/2024 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-24-9eme-l-portant-organisation-et-fonctionnement-des-organisations-de-la-societe-civile-de-djibouti/>
+Loi · Journal officiel de la République de Djibouti, n° 02 du 07/03/2024 · <https://www.journalofficiel.dj/texte-juridique/loi-n107-an-24-9eme-l-portant-organisation-et-fonctionnement-des-organisations-de-la-societe-civile-de-djibouti/>
 
 En vigueur : 2024-03-08 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
@@ -60,4 +60,4 @@ ISMAÏL OMAR GUELLEH
 | [art-020.md](art-020.md) | Article 20 |
 | [art-021.md](art-021.md) | Article 21 |
 | [art-022.md](art-022.md) | Article 22 |
-| [preambule.md](preambule.md) | PrÃ©ambule |
+| [preambule.md](preambule.md) | Préambule |

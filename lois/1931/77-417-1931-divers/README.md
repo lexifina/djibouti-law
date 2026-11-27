@@ -1,6 +1,6 @@
 # Amendement n° 77-417-1931 Divers.
 
-Amendement Â· Journal officiel de la RÃ©publique de Djibouti, n° 417 du 31/08/1931 Â· <https://www.journalofficiel.dj/texte-juridique/amendement-n-77-417-1931-divers/>
+Amendement · Journal officiel de la République de Djibouti, n° 417 du 31/08/1931 · <https://www.journalofficiel.dj/texte-juridique/amendement-n-77-417-1931-divers/>
 
 En vigueur : 1931-08-31 (date du Journal officiel qui le publie).
 

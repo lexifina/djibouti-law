@@ -1,6 +1,6 @@
 # Décret n° 10-230-1915 figurant au décret du 27 Septembre 1914 sont applicables aux opérations commerciales faites avec les sujets de la Bulgarie ou les personnes y résidant.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 230 du 31/12/1915 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-10-230-1915-figurant-au-decret-du-27-septembre-1914-sont-applicables-aux-operations-commerciales-faites-avec-les-sujets-de-la-bulgarie-ou-les-personnes-y-residant/>
+Décret · Journal officiel de la République de Djibouti, n° 230 du 31/12/1915 · <https://www.journalofficiel.dj/texte-juridique/decret-n-10-230-1915-figurant-au-decret-du-27-septembre-1914-sont-applicables-aux-operations-commerciales-faites-avec-les-sujets-de-la-bulgarie-ou-les-personnes-y-residant/>
 
 En vigueur : 1915-12-31 (date du Journal officiel qui le publie).
 

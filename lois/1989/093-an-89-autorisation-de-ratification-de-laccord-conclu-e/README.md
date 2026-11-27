@@ -1,6 +1,6 @@
 # Loi n° 93/AN/89/2ème L portant autorisation de ratification de l’accord conclu entre la République de Djibouti et la République d’Irak.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 15/11/1989 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-89-2eme-l-portant-autorisation-de-ratification-de-laccord-conclu-entre-la-republique-de-djibouti-et-la-republique-dirak/>
+Loi · Journal officiel de la République de Djibouti, n° 21 du 15/11/1989 · <https://www.journalofficiel.dj/texte-juridique/loi-n93-an-89-2eme-l-portant-autorisation-de-ratification-de-laccord-conclu-entre-la-republique-de-djibouti-et-la-republique-dirak/>
 
 En vigueur : 1989-11-15 (date du Journal officiel qui le publie).
 

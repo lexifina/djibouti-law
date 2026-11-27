@@ -1,6 +1,6 @@
 # Décret n° 2-151-1909 portant approbation de deux arrangements concernant. l’un a Abyssinie, et l’autre le commerce des armes sur la Côte des Somalis, signes à Londres, le 13 décembre 1906. entre la France. la Grande-Bretagne et l’Italie.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 151 du 01/06/1909 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-2-151-1909-portant-approbation-de-deux-arrangements-concernant-lun-a-abyssinie-et-lautre-le-commerce-des-armes-sur-la-cote-des-somalis-signes-a-londres-le-13-decembre-1906-entr/>
+Décret · Journal officiel de la République de Djibouti, n° 151 du 01/06/1909 · <https://www.journalofficiel.dj/texte-juridique/decret-n-2-151-1909-portant-approbation-de-deux-arrangements-concernant-lun-a-abyssinie-et-lautre-le-commerce-des-armes-sur-la-cote-des-somalis-signes-a-londres-le-13-decembre-1906-entr/>
 
 En vigueur : 1909-06-01 (date du Journal officiel qui le publie).
 

@@ -1,6 +1,6 @@
 # Décret n° 23 mai 1942 portant création d’un Service des Avis juridiques
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 01/01/1943 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-23-mai-1942-portant-creation-dun-service-des-avis-juridiques/>
+Décret · Journal officiel de la République de Djibouti, n° 1 du 01/01/1943 · <https://www.journalofficiel.dj/texte-juridique/decret-n-23-mai-1942-portant-creation-dun-service-des-avis-juridiques/>
 
 En vigueur : 1943-01-01 (date du Journal officiel qui le publie).
 

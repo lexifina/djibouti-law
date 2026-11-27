@@ -1,6 +1,6 @@
 # Décret n° 70-1345 relatif au report d’incorporation prévu à l’article 2 de la loi n° 70-596 du 9 juillet 1970 (J.OR.F. du 13 janvier 1971, pages 367, 471, 472.) promulgués par arrêté n° 60/SLAG du 2 février 1971.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 10/02/1971 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1345-relatif-au-report-dincorporation-prevu-a-larticle-2-de-la-loi-n-70-596-du-9-juillet-1970-j-or-f-du-13-janvier-1971-pages-367-471-472-promulgues/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 10/02/1971 · <https://www.journalofficiel.dj/texte-juridique/decret-n-70-1345-relatif-au-report-dincorporation-prevu-a-larticle-2-de-la-loi-n-70-596-du-9-juillet-1970-j-or-f-du-13-janvier-1971-pages-367-471-472-promulgues/>
 
 En vigueur : 1971-02-10 (date du Journal officiel qui le publie).
 
@@ -20,8 +20,8 @@ Le Conseil d'Etat (Section des Finances) entendu,
 | [art-001.md](art-001.md) | Art. 1 |
 | [art-002.md](art-002.md) | Art. 2 |
 | [art-003.md](art-003.md) | Art. 3 |
-| [art-004.md](art-004.md) | Art. 4 — |
+| [art-004.md](art-004.md) | Art. 4 |
 | [art-005.md](art-005.md) | Art. 5 |
 | [art-006.md](art-006.md) | Art. 6 |
 | [art-007.md](art-007.md) | Art. 7 |
-| [art-008.md](art-008.md) | Art. 8 — |
+| [art-008.md](art-008.md) | Art. 8 |

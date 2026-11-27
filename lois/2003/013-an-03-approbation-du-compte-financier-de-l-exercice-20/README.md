@@ -1,6 +1,6 @@
 # Loi n° 13/AN/03/5ème L portant approbation du compte financier de l’exercice 2001 de l’Office National du Tourisme de Djibouti (ONTD).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 12 du 30/06/2003 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-03-5eme-l-portant-approbation-du-compte-financier-de-lexercice-2001-de-loffice-national-du-tourisme-de-djibouti-ontd/>
+Loi · Journal officiel de la République de Djibouti, n° 12 du 30/06/2003 · <https://www.journalofficiel.dj/texte-juridique/loi-n13-an-03-5eme-l-portant-approbation-du-compte-financier-de-lexercice-2001-de-loffice-national-du-tourisme-de-djibouti-ontd/>
 
 En vigueur : 2003-06-30 (date du Journal officiel qui le publie).
 

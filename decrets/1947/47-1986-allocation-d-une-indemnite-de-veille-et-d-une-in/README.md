@@ -1,6 +1,6 @@
 # Décret n° 47-1986 portant allocation d’une indemnité de veille et d’une indemnité de responsabilité au personnel du service du chiffre du ministère de la France d‘outre-mer.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 11 du 30/11/1947 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1986-portant-allocation-dune-indemnite-de-veille-et-dune-indemnite-de-responsabilite-au-personnel-du-service-du-chiffre-du-ministere-de-la-france-doutre-m/>
+Décret · Journal officiel de la République de Djibouti, n° 11 du 30/11/1947 · <https://www.journalofficiel.dj/texte-juridique/decret-n-47-1986-portant-allocation-dune-indemnite-de-veille-et-dune-indemnite-de-responsabilite-au-personnel-du-service-du-chiffre-du-ministere-de-la-france-doutre-m/>
 
 En vigueur : 1947-11-30 (date du Journal officiel qui le publie).
 

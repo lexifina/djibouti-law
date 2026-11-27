@@ -1,6 +1,6 @@
 # Loi n° 113/AN/20/8ème L autorisant la ratification des protocoles portant amendements de la convention de Chicago relative à l’Aviation Civile Internationale (article 83bis, article 3bis).
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 1 du 14/01/2021 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-20-8eme-l-autorisant-la-ratification-des-protocoles-portant-amendements-de-la-convention-de-chicago-relative-a-laviation-civile-internationale-article-83bis-article-3bis/>
+Loi · Journal officiel de la République de Djibouti, n° 1 du 14/01/2021 · <https://www.journalofficiel.dj/texte-juridique/loi-n113-an-20-8eme-l-autorisant-la-ratification-des-protocoles-portant-amendements-de-la-convention-de-chicago-relative-a-laviation-civile-internationale-article-83bis-article-3bis/>
 
 En vigueur : 2021-01-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 

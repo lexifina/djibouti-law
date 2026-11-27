@@ -1,6 +1,6 @@
 # Décret n° 6-423-1933 Ouverture de crédits supplémentaires au budget local de la Côte française des Somalis (exercice 1930).
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 423 du 01/02/1932 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-6-423-1933-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1930/>
+Décret · Journal officiel de la République de Djibouti, n° 423 du 01/02/1932 · <https://www.journalofficiel.dj/texte-juridique/decret-n-6-423-1933-ouverture-de-credits-supplementaires-au-budget-local-de-la-cote-francaise-des-somalis-exercice-1930/>
 
 En vigueur : 1932-02-01 (date du Journal officiel qui le publie).
 

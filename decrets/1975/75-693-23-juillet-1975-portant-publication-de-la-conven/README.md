@@ -1,6 +1,6 @@
 # Décret n° 75-693 du 23 juillet 1975 portant publication de la convention relative à la responsabilité civile dans le domaine du transport maritime de matières nucléaires, signée à Bruxelles le 17 décembre 1971.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 21 du 10/11/1975 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n-75-693-du-23-juillet-1975-portant-publication-de-la-convention-relative-a-la-responsabilite-civile-dans-le-domaine-du-transport-maritime-de-matieres-nucleaires-signee-a-bruxelles-le-1/>
+Décret · Journal officiel de la République de Djibouti, n° 21 du 10/11/1975 · <https://www.journalofficiel.dj/texte-juridique/decret-n-75-693-du-23-juillet-1975-portant-publication-de-la-convention-relative-a-la-responsabilite-civile-dans-le-domaine-du-transport-maritime-de-matieres-nucleaires-signee-a-bruxelles-le-1/>
 
 En vigueur : 1975-11-10 (date du Journal officiel qui le publie).
 

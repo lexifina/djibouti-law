@@ -1,6 +1,6 @@
 # Loi n° 130/AN/96/3ème L portant conditions et modalités de privatisation de participations, d’entreprises, de biens ou d’activités relevant du secteur public.
 
-Loi Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 15/02/1997 Â· <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-96-3eme-l-portant-conditions-et-modalites-de-privatisation-de-participations-dentreprises-de-biens-ou-dactivites-relevant-du-secteur-public/>
+Loi · Journal officiel de la République de Djibouti, n° 3 du 15/02/1997 · <https://www.journalofficiel.dj/texte-juridique/loi-n130-an-96-3eme-l-portant-conditions-et-modalites-de-privatisation-de-participations-dentreprises-de-biens-ou-dactivites-relevant-du-secteur-public/>
 
 En vigueur : 1997-02-15 (date du Journal officiel qui le publie).
 

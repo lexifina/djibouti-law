@@ -1,8 +1,8 @@
 # Décret n° 2013-285/PR/MS portant amendement de la composition des membres du Conseil d’Administration de la Centrale d’Achat des Médicaments Matériels Essentiels-CAMME.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 20 du 31/10/2013 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n2013-285-pr-ms-portant-amendement-de-la-composition-des-membres-du-conseil-dadministration-de-la-centrale-dachat-des-medicaments-materiels-essentiels-camme/>
+Décret · Journal officiel de la République de Djibouti, n° 20 du 31/10/2013 · <https://www.journalofficiel.dj/texte-juridique/decret-n2013-285-pr-ms-portant-amendement-de-la-composition-des-membres-du-conseil-dadministration-de-la-centrale-dachat-des-medicaments-materiels-essentiels-camme/>
 
-En vigueur : 2013-10-27 (date du texte, qui entre en vigueur dÃ¨s sa signature ou promulgation).
+En vigueur : 2013-10-27 (date du texte, qui entre en vigueur dès sa signature ou promulgation).
 
 ## Visas
 

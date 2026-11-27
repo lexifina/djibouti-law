@@ -1,6 +1,6 @@
 # Décret n° 78-006/PR Portant rattachement au Ministère des Régies industrielles de la Production et de la Distribution de l’Électricité et de l’Eau : Ali-Sabieh, Dikhil, Obock et Tadjourah.
 
-DÃ©cret Â· Journal officiel de la RÃ©publique de Djibouti, n° 3 du 13/02/1978 Â· <https://www.journalofficiel.dj/texte-juridique/decret-n78-006-pr-portant-rattachement-au-ministere-des-regies-industrielles-de-la-production-et-de-la-distribution-de-lelectricite-et-de-leau-ali-sabieh-dikhil-obock-et-tadjourah/>
+Décret · Journal officiel de la République de Djibouti, n° 3 du 13/02/1978 · <https://www.journalofficiel.dj/texte-juridique/decret-n78-006-pr-portant-rattachement-au-ministere-des-regies-industrielles-de-la-production-et-de-la-distribution-de-lelectricite-et-de-leau-ali-sabieh-dikhil-obock-et-tadjourah/>
 
 En vigueur : 1978-02-13 (date du Journal officiel qui le publie).
 

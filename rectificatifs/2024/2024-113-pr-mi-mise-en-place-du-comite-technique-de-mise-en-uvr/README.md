@@ -1,6 +1,6 @@
 # Arrêté n° 2024-113/PR/MI portant mise en place du Comité Technique de Mise en Œuvre et de Gestion de Sanctions Financières Ciblées liées au Terrorisme et à la Prolifération des Armes de Destruction Massive.
 
-Erratum Â· Journal officiel de la RÃ©publique de Djibouti, n° 21du 14/11/2024 Â· <https://www.journalofficiel.dj/texte-juridique/arrete-n2024-113-pr-mi-portant-mise-en-place-du-comite-technique-de-mise-en-oeuvre-et-de-gestion-de-sanctions-financieres-ciblees-liees-au-terrorisme-et-a-la-proliferation-des-armes-de-destru/>
+Erratum · Journal officiel de la République de Djibouti, n° 21du 14/11/2024 · <https://www.journalofficiel.dj/texte-juridique/arrete-n2024-113-pr-mi-portant-mise-en-place-du-comite-technique-de-mise-en-oeuvre-et-de-gestion-de-sanctions-financieres-ciblees-liees-au-terrorisme-et-a-la-proliferation-des-armes-de-destru/>
 
 En vigueur : 2024-11-15 (lendemain du Journal officiel qui le publie (Code civil, article 1er)).
 
